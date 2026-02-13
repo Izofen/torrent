@@ -1,3 +1,133 @@
+###  Публикация: 752637   (940148) от 03.02.2014
+
+Dirty Woman - Demon Lover (2009) [FLAC|Lossless]<Heavy / Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Crowned By Nothingness [04:30]
+02.  Don't Shoot [03:43]
+03.  Inner Circle Of Pain [04:41]
+04.  To Invade The Sky [05:26]
+05.  Master Of Draconians [05:07]
+06.  Yes, I Sold My Soul [02:36]
+07.  Riding Free [04:22]
+08.  Demon Lover [04:30]
+09.  My Sadness [04:36]
+10.  Delivered To Evil [04:31]Жанр: Heavy / Stoner MetalПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCC8B663CA7A4A11644905948EACA2F021CDAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752647   (940150) от 03.02.2014
+
+Pan Ram - Rats (1996) (1997 Japan) [FLAC|Lossless]<Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro [00:54]
+02.  Rats [06:38]
+03.  Slip My Skin [04:34]
+04.  Rule Of The Fool [04:15]
+05.  Crucified [06:15]
+06.  Break One [03:30]
+07.  Love Line [04:47]
+08.  Hit Bottom [04:22]
+09.  Blue Sky [06:38]
+10.  Pack Bites The Last [05:04](   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E88C4591B5F9F18419153E04D86B21009C68C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752644   (940260) от 03.02.2014
+
+Jack's Family - One Big Disguise (2009) [FLAC|Lossless]<Progressive Power / Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Falling [03:41]
+02.  Pretty [03:13]
+03.  Please Be Still [04:40]
+04.  Round And Round [05:57]
+05.  Ideal Me [04:03]
+06.  Cruelty On A Pedestal [08:53]Жанр: Progressive Power / Gothic MetalПродолжительность: 00:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215F820F31FC41015CB0480211B4B6DC20F478F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363664   (940924) от 29.02.2020
+
+Ozzy Osbourne - Ozzmosis (1995) X-Cellent only for sale in CIS [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perry Mason [5:53]
+02. I Just Want You [4:56]
+03. Ghost Behind My Eyes [5:10]
+04. Thunder Underground [6:28](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB21E64FF95AB49FCE381D073312CCF02E4197D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363662   (940928) от 29.02.2020
 
 Ozzy Osbourne - No More Tears (1991) X-Cellent only for sale in CIS [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
@@ -704,128 +834,6 @@ Manowar - Battle Hymns MMXI(2010) [APE|Lossless]<Heavy Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983112   (943684) от 06.02.2016
-
-Black Sabbath - Master of Reality (1971) Deluxe Edition, 2016, Rhino/Warner Bros. [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Sweet Leaf (05:06)
-02. After Forever (including The Elegy) (05:27)
-03. Embryo (00:29)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5B852230F7CD409F13BC1D6AD2724E9DFB566F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859532   (944515) от 14.01.2015
-
-Yngwie J. Malmsteen - Spellbound: Live in Tampa (2014) [FLAC|Lossless]<Neoclassical Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Rise Up (4:37)
-02. Let Sleeping Dogs Lie (6:17)
-03. Red Devil (4:31)
-04. Cadenza #1 (1:33)
-05. Trilogy Suite (1:57)
-06. Krakatau (0:36)
-07. Cadenza #2 (3:40)
-08. Blue (4:20)
-09. Fugue (3:33)
-10. Cadenza #3 / Finale (3:05)(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 00:48:04+00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4930072F517F40CCAB2348299D863C346E9F8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983185   (945205) от 05.02.2016
-
-Megadeth - Dystopia (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Threat Is Real
-02. Dystopia
-03. Fatal Illusion
-04. Death From Within(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E26C50FD6B47204CF47512BD3D9A4E356E9C5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363145   (945301) от 26.02.2020
-
-Demons & Wizards - III (2020) 2CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Diabolic [8:01]
- 2 - Invincible [4:35]
- 3 - Wolves in Winter [4:18]
- 4 - Final Warning [3:46](   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA0DFDC6EA0C49D3942EF4AC0E50FE9774CF44D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 764018   (883832) от 07.03.2014
+
+Harem Scarem - Big Bang Theory (1998) Japan [APE|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  So Blind [03:38]
+02.  Climb The Gate [03:47]
+03.  Reload [04:12]
+04.  Tables Turning [04:16]
+05.  Turn Around [03:21]
+06.  Seas Of Dissension [04:40]
+07.  Sometimes I Wish [03:58]
+08.  Never Have It All [04:02]
+09.  Lying [03:39]
+10.  In My State Of Mind [03:38]Жанр: Hard RockПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4402442A369DF335A4985200387748B1CABA158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763914   (883943) от 07.03.2014
+
+Snakes In Paradise - Garden Of Eden (1998) Japan [APE|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Seventh Wonder [04:39]
+02.  Don't Let Your Love Turn To Hate [04:13]
+03.  Voice Inside [04:03]
+04.  Child Of Yesterday [04:10]
+05.  Gypsy In Your Blood [03:51]
+06.  Key To Your Heart [04:40]
+07.  Hard Day Long [04:42]
+08.  Vagabond [04:34]
+09.  Can't Let Go [03:35]
+10.  Without Love [03:17](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C07F16F5F7BD787ABB0737DE0E85248A972D9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763997   (883949) от 07.03.2014
 
 Shy - Welcome to the Madhouse (1994) Japan [APE|Lossless]<Hard Rock>
@@ -729,70 +799,6 @@ Black Stone Cherry - The Human Condition (2020) Deluxe Edition, 2021, Mascot Rec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42FF3F880CD466996071AB73C640BB88B9591431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762040   (892383) от 02.03.2014
-
-Bad English - Backlash (1991) Japan [APE|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  So This Is Eden [05:09]
-02.  Straight To Your Heart [04:09]
-03.  Time Stood Still [05:23]
-04.  The Time Alone With You [04:41]
-05.  Dancing Off The Edge Of The World [04:54]
-06.  Rebel Say A Prayer [04:23]
-07.  Savage Blue [04:33]
-08.  Pray For Rain [05:03]
-09.  Make Love Last [05:19]
-10.  Life At The Top [04:51]Жанр: Hard RockПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D6F8CDD217B3633EE6FA485C10C78ABD69C7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493839   (892424) от 05.09.2021
-
-Billy Rankin - Growin' Up Too Fast (1984) Reissue, Remastered, 2002, Zoom Club Records [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный сольный альбом гитариста Nazareth!01. Baby Come Back
-02. Rip it Up
-03. Think I'm In Love
-04. Where Are You Now(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E90773856AC0F457EB6B5B6CCB2D292E692541
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 186478   (970505) от 22.01.2012
+
+Deep Purple - Machine Head (1972) HDCD Limited Edition /2010, Audio Fidelity/ [FLAC|Lossless]<Hard rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Highway Star :: 6:07
+02. Maybe I'm A Leo :: 4:52
+03. Pictures Of Home :: 5:06
+04. Never Before :: 4:04
+05. Smoke On The Water :: 5:43
+06. Lazy :: 7:23
+07. Space Truckin' :: 4:35Жанр: Hard rockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 156624   (970703) от 22.01.2012
+
+Deep Purple - Who Do We Think We Are (1973/2005 Audio Fidelity 24KT+GOLD HDCD) [APE|lossless]<rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Woman From Tokyo
+2. Mary Long
+3. Super Trouper
+4. Smooth Dancer
+5. Rat Bat Blue
+6. Place In Line
+7. Our LadyЖанр: rockПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 167645   (971316) от 19.01.2010
 
 Suzi Quatro - Quatro (1974) [FLAC|Lossless]<Hard Rock, Glam Rock>
@@ -780,74 +844,6 @@ Leslie Sampson : Vocals, Drums (Stray Dog, The Noel Redding Band, Gas)(   Чит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB6411B4F0AF9E378AB8F07322B87A59F985ED1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164160   (982668) от 10.01.2010
-
-Boston - Дискография (1976-2002) [FLAC|Lossless]<Rock, hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1976 - Boston
-1978 - Don't Look Back
-1986 - Third Stage
-1994 - Walk On
-2002 - Corporate America01. I Had A Good Time (4:16)
-02. Stare Out Your Window (3:20)
-03. Corporate America (4:37)
-04. With You (3:28)
-05. Someone (4:11)
-06. Turn It Off (4:38)
-07. Cryin' (5:20)
-08. Didnt Mean To Fall In Love (5:14)
-09. You Gave Up On Love (4:23)
-10. Livin' For You (Live) (5:08)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972226   (983099) от 05.01.2016
-
-Mammoth Mammoth - Volume IV: Hammered Again (2015) Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Dirty Hard & Heavy, Stoner Rock, Murder Fuzz>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life’s A Bitch
-02. Lookin´ Down The Barrel
-03. Electric Sunshine
-04. Fuel Injected(   Читать дальше...   )Жанр: Dirty Hard & Heavy, Stoner Rock, Murder FuzzПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED5EEF4E69553C10EAA32355F392FC46B2D4EEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

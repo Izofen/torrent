@@ -1,21 +1,44 @@
-###  Публикация: 1468248   (1017267) от 07.05.2021
+###  Публикация: 1471336   (1015155) от 20.05.2021
 
-Mirko Hirsch - Missing Pieces - From Obsession to Desire (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+Movavi PDFChef for Mac 2021 v21.2.0 [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017267.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It's Love (Single Edit) (4:08)
-02. And Tonight (Remastered) (5:39)
-03. Rainy Day in Moscow (Remastered) (6:38)
-04. Tango Tonight (Remastered) (3:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:19:26
+PDF-редактор теперь PDFChef. Сделать работу с PDF простой и удобной ー наш главный приоритет. Наши инструменты помогают организовать эффективную работу с документами и раскрыть ваш потенциал. Мы обновились и верим, что новое название точно отражает, кто мы и чем занимаемся.Тип издания: macOS SoftwareРелиз состоялся: 20.05.2021Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0C812D4DC83AE97D720291CB38A0E7424365AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471317   (1015156) от 20.05.2021
+
+Маргит Сандему | Люди Льда-4. Томление (2021) [MP3]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровное течение жизни нарушается рождением у Суннивы ребенка, отмеченного печатью Тенгеля Злого. Суннива умирает при родах. Тенгель в отчаянии. Только батрачка Ирья способна справиться с родившимся чудовищем.Жанр: Любовное фэнтези, любовно-фантастические романыПродолжительность: 07:33:06
 
 ## Скачать торент
 ```bash
@@ -27,24 +50,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468208   (1017268) от 07.05.2021
+###  Публикация: 1471313   (1015157) от 20.05.2021
 
-VA - The Mastermix Collection – Disco (2021) [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
+Sublime Text 4.0 Dev [En]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017268.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mastermix - DJ Playlist: 70s Disco Floorfillers
-02. Mastermix - Disco Queens
-03. Mastermix - Funky Disco
-04. Mastermix - Boogie Nights(   Читать дальше...   )Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 02:23:08
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.05.2021Разработчик: Jon SkinnerПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -56,25 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468367   (1017269) от 07.05.2021
+###  Публикация: 1471470   (1015158) от 20.05.2021
 
-Ларри Симон. Переходящее богатство (Черная рука) / Passing the Buck (1919) WEBRip
+Mirror - for any device 1.0.4 [En]
 
->>
->>
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017269.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вот это подарок судьбы - саквояж с драгоценностями! Да вот только на такой лакомый кусочек не один претендент. В том числе и зловещая Черная рука! Просто ужас!Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Ларри СимонАктеры: Ларри Симон, Фрэнк Александр, Люсиль Карлайл, Джеймс Доннелли, Louise Du Pre, Уильям Хаубер, Спенсер БеллПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:14:35
+С Mirror for Any Device вы можете просматривать изображения экрана в реальном времени на вашем Mac из браузера на любом устройстве. Просто используйте веб-браузер с плавным доступом к локальной сети, например Safari, Chrome, Firefox и пр. для просмотра четкого живого экрана Mac с малой задержкой.Тип издания: macOS SoftwareРелиз состоялся: 31.12.2020Разработчик: ChengHao WuПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский и Традиционный китайский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:77BB40010D38FE2F507DBE611F3CBDF8148F7785
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468445   (1017270) от 07.05.2021
+###  Публикация: 1471285   (1015159) от 20.05.2021
 
-PrivaZer 4.0.23 Free + Portable [Multi/Ru]
+Фрида Нильсон | Хедвиг совершенно не виновата! Книга 2 (2021) [MP3]
 
->>
->>
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017270.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Хедвиг учится во втором классе. Она, как и другие девочки, мечтает о собственной лошади. И когда папа привозит большой прицеп, внутри которого кто-то громко стучит, Хедвиг ужасно взволнована. Неужели у неё всё-таки будет настоящая лошадь?Жанр: Детские приключенияПеревод: Мария ЛюдковскаяПродолжительность: 02:47:22
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8758862D218201694608E86B500372EC56CF6BDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468089   (1017271) от 07.05.2021
+###  Публикация: 1471431   (1015160) от 20.05.2021
 
-VA - The Mastermix Collection – Cool Dance (2021) [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
+Website Watchman 2.13.0 [En]
 
->>Pop
->>Зарубежная поп-музыка
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017271.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mastermix - DJ Set: Cool Dance
-02. Mastermix - Monte Carlo Cool
-03. Mastermix - Nikki Beach: The Mix
-04. Mastermix - Laidback Beats(   Читать дальше...   )Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 01:59:25
+Мониторинг, архивирование, просмотр сохраненной информации. Website Watchman - это простая в использовании утилита для архивирования веб-сайтов.Тип издания: macOS SoftwareРелиз состоялся: 01.01.2021Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99D0FF88775C3833DB18F5E3FAC65D9B7919D483
+magnet:?xt=urn:btih:CDF6CA2DE7A2A741BA7594FB23823F840EAB05A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,196 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468219   (1017272) от 07.05.2021
+###  Публикация: 1471489   (1015161) от 20.05.2021
 
-VA - Ibiza Opening Megamix 2021 [MP3|320 Kbps] <House, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faul & Wad vs. PNAU - Changes (Zonderling Remix)
-02. The Disco Boys & Jay Frog - I Think
-03. Klaas - Push The Feeling On
-04. Darius & Finlay & LOTUS feat. Snoop Dogg - Last Flame(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 04:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72850D3265B93C05F1CF127496C12516DD634AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741916   (1017273) от 07.05.2021
-
-С. Заречная | Орленок (1942) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть о партизане Шуре Чекалине. Для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25204E0C130583B25E58086371E4FA02A9DD9FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468215   (1017274) от 07.05.2021
-
-VA - The Mastermix Collection – Summer 2 (2021) [MP3|320 Kbps] <DJ Sets, Disco, Funky, Big Beat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mastermix - Dancehall For The Dancefloor
-02. Mastermix - On A Reggae Trip!
-03. Mastermix - Summer Party (Stars On 45 Version)
-04. Mastermix - Sound Of Tropical House(   Читать дальше...   )Жанр: DJ Sets, Disco, Funky, Big BeatПродолжительность: 02:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB64F1F16672601F007CAD6BDA8D5A927EAC975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468154   (1017275) от 07.05.2021
-
-Peter Gabriel - Rated PG (2020) [FLAC|Lossless|tracks + .cue] <Prog Rock, Soundtrack>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That'll Do (3:56)
-02. Down to Earth (5:59)
-03. The Worldbeaters and This Is Party Man (6:37)
-04. The Book of Love (3:38)(   Читать дальше...   )Жанр: Prog Rock, SoundtrackПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771DA643729BF27B8F09F6F7D7059C880506D668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468362   (1017276) от 07.05.2021
-
-VA - Saltwater Dream: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matej Blanusa - Wakening (Pine) (2:45)
-02. Mission Brown - First Rain (Original Mix) (6:03)
-03. The Soul Crusaders, Marc Hartman - Observing the Clouds (Original Mix) (3:49)
-04. J. R. Haim - Kaneo (4:07)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468092   (1017277) от 07.05.2021
-
-VA - The Mastermix Collection – Chart 2020-2021 (2021) [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mastermix - Mastermixed: January 2020
-02. Mastermix - Pop Party: Spring 2020
-03. Mastermix - Mastermixed: February 2020
-04. Mastermix - Mastermixed: May 2020 (Pop Dance)(   Читать дальше...   )Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 02:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B1A5F84FF4DAFC55FDCED128BCDB4A0600D5E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468382   (1017278) от 07.05.2021
-
-ON1 Effects 2021.5 v15.5.0.10403 [Multi/Rus]
+Stats Panel 1.2.1 [En]
 
 >>Программы для macOS
->>Графика для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017278.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Окончательная коллекция фотоэффектов, фильтров, LUT и пресетов. ON1 Effects включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Есть бесконечные творческие возможности с эффектами ON1. Наши самые популярные включают HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.05.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Системный монитор в строке меню. Никаких сложных меню или настроек. Панель статистики - отличная панель управления для вашего Mac. Контролируйте свою систему, проверяйте состояние батареи, процессор, память, сетевую и дисковую активность.Тип издания: macOS SoftwareРелиз состоялся: 21.04.2021Разработчик: AnmocoПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E58D1B5090CD71C9A0B129E7C5C1F85A579E1B83
+magnet:?xt=urn:btih:078A274AABBE750AEA158A692F6B354B9DBDE6F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,56 +181,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468259   (1017279) от 07.05.2021
+###  Публикация: 1471441   (1015162) от 20.05.2021
 
-Jeremy Olander - Live @ Vivrant at the Lockdown, Trainyard in Stockholm, Sweden (2021-04-29) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeremy Olander - ID
-02. Jeremy Olander - ID
-03. Jeremy Olander - ID
-04. Jeremy Olander - ID(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468193   (1017280) от 07.05.2021
-
-Bootstrap Studio 5.6.2 [En]
+DoYourData Start Menu Professional 4.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017280.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Оно поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2021Разработчик: BootstrapstudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+Лучшее меню «Пуск» для Mac - на вашем Mac все будет просто и быстро. OS X или macOS немного сложнее, чем ОС Windows для обычных пользователей. Теперь, с помощью DoYourData Start Menu для Mac, вы можете легко управлять своим Mac, как и в меню «Пуск» Windows.Тип издания: macOS SoftwareРелиз состоялся: 20.05.2021Разработчик: DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30EC0C2A13ED099805EE22A31E007E24AF1C2085
+magnet:?xt=urn:btih:F87F4E41F44D76780EF31D9538A1A8E5D4CBE018
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,28 +207,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468262   (1017281) от 07.05.2021
+###  Публикация: 1471399   (1015163) от 20.05.2021
 
-Diamante - 2 Albums (2018-2021) [MP3|320 Kbps] <Alt.Metal, Modern Rock, Female Vocal>
+VA - The Bassline Jungle Party (2021) [MP3|320 Kbps] <Drum & Bass, Bassline, Jungle>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017281.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. American Dream [00:03:05]
-02. Ghost Myself [00:03:12]
-03. Serves You Right [00:03:34]
-04. Obvious [00:03:42](   Читать дальше...   )Жанр: Alt.Metal, Modern Rock, Female VocalПродолжительность: 2CD, 01:23:23
+Минималистичные клавишные, легкие мелодичные перкуссии, долгие и ярко выраженные басс-партии — всё это составляет единое звуковое полотно, изобилующее красками диких джунглей. Музыка передаёт нотки благоухающих первоцветов и терпких запахов лесных тропиков. Именно то, что всем нам нужно во время затянувшейся весенней хандры!001. Centaspike - Lurking Bogans
+002. Wiguez - Resiliencia
+003. K3bee - Creation
+004. Double O - God Is A Woman(   Читать дальше...   )Жанр: Drum & Bass, Bassline, JungleПродолжительность: 10:02:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2C9705AC7BF5B3213E1A382239DAC86941BE18F
+magnet:?xt=urn:btih:6398A9725A76C36929A6036A4A59F9F12348856C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,28 +236,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468242   (1017282) от 07.05.2021
+###  Публикация: 1471347   (1015164) от 20.05.2021
 
-Jody Grind - 2 albums, 4CD (1969-2006) [FLAC|Lossless|image + .cue] <Prog Rock, Psychedelic Rock>
+Tesla Shamans - Electric Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017282.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-JODY GRIND - английский коллектив прогрессивного рока. К огромному сожалению, этот ансамбль не достиг тех вершин, которых заслуживал и сейчас их диски являются украшением коллекции лишь истинных любителей британской сцены рубежа 60х 70х годов. И это несмотря на то, что почти все участники в дальнейшей карьере смогли принять участие во многих гораздо более известных (   Читать дальше...   )--------------------------
-
-01. We've Had It (5:07)
-02. Bath Sister (3:30)(   Читать дальше...   )Жанр: Progressive Rock |Продолжительность: 02:57:13 |
+01. Your Shit (03:08)
+02. Believe (03:39)
+03. Wasted (03:03)
+04. Down on the Road (04:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:634A584E9C10A1017AF6285F3C00FCA0CDD0CF04
+magnet:?xt=urn:btih:CCD893E12D815688CCC893F9FC9CA9BBD6A0FD3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,21 +265,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468393   (1017283) от 07.05.2021
+###  Публикация: 1471349   (1015165) от 20.05.2021
 
-iA Writer 5.6.11 [Multi/Ru]
+Studies 1.8.2 [En]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017283.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.05.2021Разработчик: Information Architects Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
+Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.05.2021Разработчик: The Mental FacultyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -475,21 +292,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468197   (1017284) от 07.05.2021
+###  Публикация: 1471197   (1015166) от 20.05.2021
 
-Сибирская Благозвонница (изд.) | Канон в Неделю Святой Пасхи (2019) [FB2, EPUB]
+Defaze - Take II (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017284.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пасхальный канон, Стихиры и Часы Святой Пасхи — творения преподобного Иоанна Дамаскина — составляют существеннейшую часть пасхальной утрени «Праздника Праздников» и представляют собой выдающиеся произведения церковной словесности не только со стороны торжественности своей внешней формы, но и по своим внутренним достоинствам, по силе заключающихся в нём мыслей, по (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+01. X-Xii
+02. Take II
+03. In Motion
+04. Hero Zero(   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:51:50
 
 ## Скачать торент
 ```bash
@@ -501,141 +321,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468257   (1017285) от 07.05.2021
+###  Публикация: 1471348   (1015167) от 20.05.2021
 
-Marius Danielsen - Legend of Valley Doom - Part 1-3 (2015-2021) [MP3|320 Kbps] <Power Metal, Metal Opera>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Ancient Artefact [00:05:35]
-02. Journey to the North [00:04:12]
-03. The Ballad of Arnoth the Wild [00:06:06]
-04. Mines of Eloroth [00:05:28](   Читать дальше...   )Жанр: Power Metal, Metal OperaПродолжительность: 3CD, 03:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FE1406DE3E567EE4340F53196E68A71744A032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468115   (1017286) от 07.05.2021
-
-High South - Peace, Love & Harmony (2020) [FLAC|Lossless|image + .cue] <Classic Rock, Country Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peace, Love and Harmony (4:07)
-02. Make It Better (3:03)
-03. All We Need (3:33)
-04. Roll That Stone Away (3:11)(   Читать дальше...   )Жанр: Classic Rock, Country Rock, Pop-RockПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C815FCBA4B37525802974023C047F8B58DF9FDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468022   (1017287) от 07.05.2021
-
-Acker Bilk - The Magic Clarinet Of Acker Bilk (1986) [FLAC|Lossless|tracks + .cue] <Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean
-02. We've Only Just Begun
-03. The Rose
-04. Eres Tu (Touch The Wind)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284ECEB6DC6E9BCAC5F445A6DD85E65C65EEE35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467961   (1017288) от 07.05.2021
-
-Billy May & Glen Gray - Big Band Stereo Hits (50-60-e) 2CD, 2012, TJL [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017288.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Billy May - On the Sunny Side of the Street [3:07]
-02. Billy May - Twilight Time [3:28]
-03. Billy May - Oh, What a Beautiful Mornin' [3:12](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2230F6FF6118796FA8D7EA50E8A1DA11A4214090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468213   (1017289) от 07.05.2021
-
-Stats 2.5.13 [Multi/Ru]
+Mp3tag 1.2.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017289.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 06.05.2021Разработчик: Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+Mp3tag - мощный и простой в использовании инструмент для редактирования метаданных аудиофайлов. Музыканты, ди-джеи, подкастеры и аудиоэнтузиасты используют его для множества различных аспектов обработки аудиофайлов.Тип издания: macOS SoftwareРелиз состоялся: 19.05.2021Разработчик: Florian HeidenreichПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E23B657DF82EE09102EA383861468C18011AC4AF
+magnet:?xt=urn:btih:3FA8AE27B19280CF159C7FD10E474CBB9EB7A74D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,24 +347,50 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468255   (1017290) от 07.05.2021
+###  Публикация: 1471345   (1015168) от 20.05.2021
 
-Kryder & Stevie Krash - Kryteria Radio 289 (2021-05-04) [MP3|192 Kbps] <House, Progressive House, Future House>
+Liar Thief Bandit - Deadlights (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017290.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Choujaa - I Feel Like
-02. ID - Be The One
-03. Sidekick - Deep Fear (Lumberjack & BRØMANCE Remix)
-04. O.B - Techno Tribal (Drums'N Drums Mix)(   Читать дальше...   )Жанр: House, Progressive House, Future HouseПродолжительность: 01:17:41
+01. Deadlights 04:17
+02. Brand New Day 03:48
+03. Good Enough 03:21
+04. Catch And Release 03:44(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5238E835F8B0AD112C9507A54A1EFCE8E45477E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471322   (1015169) от 20.05.2021
+
+PDFpen Pro 13 v13.0.1 [Multi]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015169.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFpen Pro - приложение для создания и редактирования PDF-документов. С помощью PDFpen Pro вы сможете добавлять тексты, картинки, подписи, заполнять формы, делать исправления, добавлять, удалять и изменять порядок страниц. Помимо этого вы можете создавать собственные формы и таблицы контента. В дополнение PDFpen Pro может конвертировать PDF-файл в Word-документ, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.05.2021Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
@@ -672,24 +402,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468221   (1017291) от 07.05.2021
+###  Публикация: 1471297   (1015170) от 20.05.2021
 
-Stan Getz - My Old Flame (1981, 1992) 2CD, 2001, Concord Jazz [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+Default Folder X 5.5.9 [En]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017291.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - The Dolphin:
-01. The Dolphin [9:50]
-02. A Time for Love [6:42]
-03. Joy Spring [9:42](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:41:04
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.05.2021Разработчик: St. Clair SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
@@ -701,26 +428,270 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468397   (1017293) от 07.05.2021
+###  Публикация: 1471337   (1015171) от 20.05.2021
 
-Марлизе Арольд | Восьмой день. Замок Вечности. Книга 1 (2021) [FB2, EPUB, MOBI]
+Charles Mingus & John LaPorta - Jazzical Moods (1954) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017293.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лихо закрученный сюжет увлекает за собой с первых же страниц! Поверьте, будет интересно!
-Лаура находит на вилле у отца старинные часы, и после этого её такой обычный мир переворачивается с ног на голову. В полночь с понедельника на воскресенье её кот принимается разговаривать на нормальном человеческом языке, за ней приезжает карета, и Лаура оказывается в странном (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Жанна ТальФормат: FB2, EPUB, MOBI
+01. What Is This Thing Called Love? [8:08]
+02. Stormy Weather [3:17]
+03. Minor Intrusion [10:13]
+04. Abstractions [4:15](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:49:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8660BC132FBE01A8E453F437B180C26513A049A2
+magnet:?xt=urn:btih:4AE15A8F689B62987A2002C5A5790561F75F5ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471332   (1015172) от 20.05.2021
+
+PDFpen 13 v13.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощное редактирование PDF-файлов на вашем Mac.
+Добавляйте подписи, текст и изображения. Вносите изменения и исправляйте опечатки. Отсканированные документы с оптическим распознаванием текста. Заполните формы.Тип издания: macOS SoftwareРелиз состоялся: 19.05.2021Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792B0E8359D8BDDAC102349E087E9FA44373A278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471382   (1015173) от 20.05.2021
+
+U.C. - Time Distortion (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Distortion Part 1 (1:00)
+02. Magnanimity (3:04)
+03. What Do You Believe (4:09)
+04. Time Distortion Part 2 (1:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32A0AD4A583C087DAF7457FCCC7FFBD1F7E89F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471360   (1015174) от 20.05.2021
+
+Revolverz - Work Hard, Play Harder (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Work Hard, Play Harder
+03. Honey & Cream
+04. Razorsharp Racer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AEDF932C6EA4F84607CB0C57C882B40E0080990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471356   (1015175) от 20.05.2021
+
+DoYourData AppUninser Pro 5.5 [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015175.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoYourData AppUninser - очень мощный, но простой в использовании деинсталлятор Mac. Он может полностью удалить приложения, удалить связанные файлы и очистить все, что осталось. Он может полностью удалить даже самые «упрямые» приложения, аварийные программы, плагины, виджеты и панели настроек с вашего Mac. DoYourData AppUninser также может удалять ненужные языковые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.05.2021Разработчик: DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471462   (1015176) от 20.05.2021
+
+DoYourData File Eraser Pro 3.7 [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015176.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoYourData File Eraser для Mac может помочь вам безопасно и навсегда уничтожить файлы / папки с компьютера Mac, SSD, жесткого диска, USB-накопителя, карты памяти, цифровой камеры и другого устройства хранения данных под macOS, что делает восстановление данных невозможным.Тип издания: macOS SoftwareРелиз состоялся: 20.05.2016Разработчик: DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471428   (1015177) от 20.05.2021
+
+A Better Finder Rename 11 v11.33 [Multi]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015177.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
+Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.05.2021Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470973   (1015178) от 19.05.2021
+
+Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2/dlc) Repack Other s [Gold Edition]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сыграйте за викинга по имени Эйвор, которого с самого детства готовили стать бесстрашным воином. Вам предстоит повести свой клан из безжизненной ледяной Норвегии, чтобы обрести новый дом на плодородных землях Англии IX века. Вы должны основать селение и любыми средствами обуздать этот непокорный край, чтобы обеспечить себе место в Вальгалле. В те времена Англия представляет (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471010   (1015179) от 19.05.2021
+
+Jinn'sLiveUSB 9.2 - флешка с Windows 7, 8.1 и 10 [Ru/En] [Авторская раздача]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jinn'sLiveUSB - конструктор мультизагрузочной флешки для установки Windows, диагностики и устранения неполадок, состоящий из большого количества продуктов, объединённых оболочкой, с возможностью загрузки в BIOS и UEFI.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 120660   (1015180) от 19.05.2021
+
+Илья Ильф, Евгений Петров | 12 стульев. Золотой теленок. (2004) [MP3, Е.Весник, О.Басилашвили и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Илья Ильф и Евгений Петров писали «12 стульев» и «Золотой теленок», они вряд ли могли предположить, что не просто войдут в историю, а займут в ней свою нишу, давшую огромное количество последователей. Одна из самых любимых читателями сатирических книг написана так, что является актуальной во все времена. Многочисленные поколения читателей смеются и сопереживают, (   Читать дальше...   )Жанр: Сатира, Классика, АудиоспектаклиПродолжительность: 07:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA09AC7F4F399069652BC52D187611F3B153AAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

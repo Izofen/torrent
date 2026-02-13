@@ -1,3 +1,177 @@
+###  Публикация: 1494093   (890774) от 06.09.2021
+
+VA - Best Songs of 2021 So Far [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olivia Rodrigo - deja vu (3:35)
+002. Little Simz - Introvert (6:02)
+003. Dua Lipa - We're Good (2:45)
+004. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397BE043E978DB1B049BBD18986278146913DC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869309   (890832) от 15.02.2015
+
+VA - BRAVO Hits 88 (2015) [FLAC|Lossless]<Pop, Rock, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890832.jpg" />
+</div>
+
+
+###  Подробнее
+
+BRAVO Hits представляет собой серию музыкальных сборников с актуальными хитами из европейских чартов и регулярно издается на CD с 1992 года. "Основателем" серии был популярный молодежный журнал BRAVO. В дополнение к основной ряду BRAVO Hits, насчитывающем на данный момент 87 выпусков, в серии появились также BRAVO: The Hits (раньше - BRAVO: Best Of) и BRAVO (   Читать дальше...   )01. Mark Ronson feat. Bruno Mars - Uptown Funk
+02. Charli XCX - Break The Rules
+03. Calvin Harris feat. Ellie Goulding - Outside
+04. David Guetta feat. Sam Martin - Dangerous(   Читать дальше...   )Жанр: Pop Compilation, Pop, Indie Pop, Rock, Pop Rock, Electronic, Hip Hop, Electro, Synthpop, Europop, R&B, Pop Rap, Euro House, Indie RockПродолжительность: 02:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493ACA5319E6FD657CF87B541AB2622C45FD2522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494116   (890889) от 06.09.2021
+
+Milk & Coffee - Indianapolis (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indianapolis (8:45)
+02. Island Man (4:33)
+03. Angel Eyes (4:26)
+04. Sweet Melody, Mister Gold (6:52)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8EAFDB6F4357543840D3B79C284EB5AA464D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102199   (891165) от 09.02.2017
+
+Patrick Remy - Constellations (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quasar 3c 273 (3:44)
+02. Berenice (3:45)
+03. Magellan (6:25)
+04. Zeta (3:40)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351B7355A153CDE54B4238DC24F1C4323368538C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994008   (891310) от 07.03.2016
+
+VA - All Time Joy Classics Volume 1-3 (2011-2015) [MP3|320 кб/с] <Pop, Soul, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891310.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bob Dylan - One More Cup of Coffee (3:42)
+ 2. Joan Baez - Diamonds and Rust (4:45)
+ 3. Simon & Garfunkel - The Sound of Silence (3:04)
+ 4. Bill Withers - Ain't No Sunshine (2:02)(   Читать дальше...   )Жанр: Pop, Soul, JazzПродолжительность: 08:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD28080385108B79521961FF15A36A61AFE525F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994417   (891322) от 07.03.2016
+
+VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как видите стараниями коллег по клубу серия немецкого подразделения Sony Music продолжает жить на нашем трекере (ссылка на все релизы серии внизу поста). Пожалуй, именно у нас на трекере самое полное собрание этой серии. В данном боксете представлены хиты мира диско. Вспомним как это было!CD1:
+01. Boney M. - Daddy Cool  (3:28)
+02. Baccara - Yes Sir, I Can Boogie  (4:29)
+03. Patrick Hernandez - Born to Be Alive  (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 03:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89879A135FB66087933FA1A38E3CA8D84E5FFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994372   (891442) от 07.03.2016
 
 Eighth Wonder - Fearless (1988) Reissue, 2010, Cherry Pop [FLAC|Lossless|image + .cue] <Pop, Dance Pop>
@@ -572,178 +746,6 @@ ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:739353961066D076F51F7C12B318E8F65B675C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493729   (893698) от 04.09.2021
-
-ABBA - I Still Have Faith In You, Don't Shut Me Down (2021) (Single) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два новых трека из грядущего альбома "подзабытой" супер-популярной группы. Альбом "Voyage", состоящий из 10 треков, ожидается к выходу 05.11.202101 - I Still Have Faith In You (05:11)
- 02 - Don't Shut Me Down (03:59)Жанр: PopПродолжительность: 00:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CB29921A0D0AFD5D2FA341BE36C32AB8CADB75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493796   (893855) от 04.09.2021
-
-Smokey - Alice, Who The F*** Is Alice (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smokey - Living Next Door To Alice (3:31)
-02. Smokey - Something's Been Making Me Blue (3:04)
-03. Smokey - It's Your Life (3:38)
-04. Smokey - If You Think You Know How To Love Me (3:30)(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6ED0AA0CFB37DC84058B5763BD5539F80A1708E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493826   (893983) от 04.09.2021
-
-DJ Andersson - Crazy Cool Hitmix (2006) [FLAC|Lossless|image + .cue] <Disco,  Electronic, Cover>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy Cool (3:21)
-02. Painter Man (3:03)
-03. Belfast (3:19)
-04. Rasputin (4:16)(   Читать дальше...   )Жанр: Disco,  Electronic, CoverПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807B31BB62A48E621EFC6D97D6E508A5AE870F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992954   (895232) от 05.03.2016
-
-VA - Romantic Collection vol.1 (2000) [FLAC|Lossless|image + .cue] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Of The Rising Sun-Animals (04:30)
-02. Wind Of Change-Scorpions (05:13)
-03. Hotel California-Eagles (06:32)
-04. In The Death Car-Iggy Pop (05:12)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F5A1B6B05CD2CBD7E8AFAA3214D2D5B38A70A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993296   (895254) от 05.03.2016
-
-Boney M. - The Greatest Hits (2001) Compilation [FLAC|Lossless|image + .cue] <Europop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Daddy Cool 03:29
-02.Rivers Of Babylon 04:22
-03.Brown Girl In The Ring 04:03
-04.Ma Baker 04:36(   Читать дальше...   )Жанр: Europop, DiscoПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213B1C84D4CC1C3E2A95E8B33F344CFD1B2E072E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993601   (895373) от 05.03.2016
-
-Joy - Best (1986) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Touch By Touch 03:50
-02.Kisses Are The Doctor's Order 03:29
-03.Chinese Girls 03:40
-04.Valerie 04:12(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BE14950768A2D7B0AA36C459CD2F650A794B9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

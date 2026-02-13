@@ -1,25 +1,116 @@
-###  Публикация: 1164396   (442006) от 09.09.2017
+###  Публикация: 1410060   (438496) от 20.09.2020
 
-Obscenity - Retaliation (2016) [FLAC|Lossless|image + .cue] <Death Metal>
+HiBit Uninstaller 2.5.25 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438496.jpg" />
+</div>
+
+
+###  Подробнее
+
+HiBit Uninstaller - идеальное решение для удаления программ Windows, которое позволяет вам деинсталлировать программы быстро и полностью, используя простой и дружественный к пользователю интерфейс. Так же, в программе имеется множество средств для очистки и управления вашей системой.
+Удобной функцией в HiBit Uninstaller является удаления программ посредством менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFE194FE60C813B95E07C34A8CA1148B4ABC123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409663   (438498) от 20.09.2020
+
+Parov Stelar - Voodoo Sonic (The Trilogy Part 1/3) (2019) [AAC|~323 Kbps]<Electro, Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parov Stelar feat. Lilja Bloom - Go Wake Up (2:54)
+02. Voodoo Sonic (2:56)
+03. Number One MC (3:49)
+04. Parov Stelar feat. Lilja Bloom - The Fall (2:58)Жанр: Electro, SwingПродолжительность: 00:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A58D3F21EBFF0DE19FAF9AD5FFBB23CCF6D1597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553841   (438499) от 30.09.2012
+
+VA - Сборник медленных хитов Vol.13 (2012) [MP3|96-320 кб/с]<Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anders Johansson - If It's All I Ever Do
+ 02. Natasha St-Pier - Nos Rendez-Vous
+ 03. Richard Marx - The Edge Of Forever
+ 04. Westlife - How Does It Feel
+ 05. Yannick Noah - War-No More Trouble
+ 06. Labrinth Feat. Emeli Sande - Beneath Your Beautiful
+ 07. Mark Knopfler - Everybody Pays
+ 08. Eros Ramazzotti - Un Grosso No
+ 09. Agnes - I Believe
+ 10. Usher - 2nd Round(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 06:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD7CE692F22D54D7F27420280F4F4124DE3EF71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410331   (438500) от 20.09.2020
+
+Derek Palmer - Gemini (Remixed) (2020) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442006.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Claustrophobic Hell         04:07
-02. Embracing the Plague        05:11
-03. Whore of Secret             03:52
-04. Abandon All Hope            05:12(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:57
+01. Juliet Lyons & Derek Palmer - Ad Astra (Huem Remix)
+02. Derek Palmer - Cassini (Levekar & Lucian Kode Remix)
+03. Derek Palmer & Hidden Tigress - In the Darkness (Gabriele De Santis Remix)
+04. Derek Palmer - Eros (Braulio Stefield Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:43:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE26CD4BB5DABFCE29EFC76F438E7305908A6154
+magnet:?xt=urn:btih:E05B500CA67821148E57603E07429B9CE143B574
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +118,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322871   (442007) от 01.09.2019
+###  Публикация: 1410333   (438501) от 20.09.2020
 
-Анатомия / Anatomie (2000) BDRemux [H.264/1080p]
+Оушен Вуонг | Лишь краткий миг земной мы все прекрасны (2020) [EPUB]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442007.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Студентка медицинского института попадает на учебную практику к известному профессору, но девушка и не подозревала, что ей предстоит изучать странную и жестокую науку: маститый наставник оказывается вовсе не тем, за кого себя выдает.Производство: Германия / Deutsche Columbia TriStar Filmproduktion, Claussen & Wöbke Filmproduktion GmbHЖанр: Ужасы, ТриллерРежиссер: Штефан РуцовицкиАктеры: Франка Потенте, Бенно Фюрман, Анна Лоос, Себастьян Бломберг, Хольгер Спекханн, Трауготт Буре, Оливер Внук, Арндт-Шверинг Сонрей, Андреас Гюнтер, Антониа Кесилиа ХольфельдерПеревод: Многоголосый, АвторскийСубтитры: АнглийскиеПродолжительность: 01:39:21
+Лиричный, нежный и полный сострадания роман молодого американо-вьетнамского поэта Оушена Вуонга вошел в шорт-листы нескольких литературных премий и получил New England Book Award и National Book Award.
+Герой романа, молодой американский писатель, пишет письмо своей матери – неграмотной иммигрантке из послевоенного Вьетнама. В этом письме трудная семейная история, (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Полина КузнецоваФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8BE990E3E187747350FE54478BA3E6ED4A53302
+magnet:?xt=urn:btih:C02051647D3253D6FA23E5FC49AFCF2A7AF283A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +145,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323001   (442008) от 01.09.2019
+###  Публикация: 1410266   (438502) от 20.09.2020
 
-Мексиканец / The Mexican (2001) BDRip [H.265/1080p] [10-bit]
+MaCleaner X 14.5.0 [Multi/Ru]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442008.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мелкий гангстер Джерри Уэлбах получает в один день сразу два ультиматума. Его босс — главарь банды — требует, чтобы Джерри срочно разыскал в Мексике бесценный антикварный пистолет, прозванный «Мексиканец», или… незамедлительно вернул все долги.Производство: США, Мексика / DreamWorks, Newmarket Capital Group, Lawrence Bender ProductionsЖанр: мелодрама, комедия, криминал, приключенияРежиссер: Гор ВербинскиАктеры: Брэд Питт, Джулия Робертс, Джеймс Гандольфини, Дж.К. Симмонс, Боб Бэлабан, Шерман Огастас, Майкл Серверис, Джин Хэкмен, Ричард Кока, Дэвид КрамхолцПеревод: Дублированный, многоголосый профессиональный, авторский одноголосыйСубтитры: Русские, английскиеПродолжительность: 02:03:29
+Новая расширенная версия приложения для очистки и оптимизации работы Mac - MaCleaner Х.
+Мощный набор инструментов, предназначенных для повышения общей производительности Вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Everyday Tools, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBE8905A8318E5F26A22C7206B7635FC595FE7F1
+magnet:?xt=urn:btih:DCFAE2ED4DD6B79B68058B7943D5AACCBF3E5B84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164488   (442009) от 09.09.2017
+###  Публикация: 1410116   (438503) от 20.09.2020
 
-Stan Getz - Sweet Rain (1986) Verve [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
+Фигурное катание. Предсезонные контрольные прокаты 2020-2021. Москва (Россия). 2-й День (2020) WEB-DL [H.264/720p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442009.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Litha [08:24]
-02. O Grande Amour [04:43]
-03. Sweet Rain [07:10]
-04. Con Alma [08:06](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:37:20
+Предсезонные контрольные прокаты сборной России по фигурному катанию сезона 2020-2021.
+13 сентября 2020 года. 2-й День:
+1. Танцы на льду. Произвольный танец
+2. Мужчины. Произвольная программа(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:49:20 — 01:04:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4132CCF4D7C18FF92AE4267E35ED2ED9358C464
+magnet:?xt=urn:btih:6A40274454BCAECAE2D3895181416F7FC4EDA1C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322799   (442010) от 01.09.2019
+###  Публикация: 1410263   (438504) от 20.09.2020
 
-Полесская легенда (1957) SATRip
+VA - Dark Matters - Fallen Feathers (Deluxe Edition) (2020) [MP3|320 Kbps] <Trance>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442010.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В имении пана Ивана служит лесником крепостной Роман — верный его холоп. Роман ловит в панском лесу крестьянина Михася, убившего лису (он с маленьким сыном голодает), и ведет его к пану. У пана гости. Их развлекает Опанас — вольный крестьянин, панский песельник. В награду за прекрасное пение пан обещает выполнить любое его желание. Опанас просит дать вольную его (   Читать дальше...   )Производство: СССР, БеларусьфильмЖанр: драмаРежиссер: Петр Василевский, Николай ФигуровскийАктеры: Алла Ларионова, Иван Переверзев, Леонид Рахленко, Владимир Владомирский, Глеб Глебов, Виктор Кулаков, Александра Климова, Виктор Лазарев, Леонид Кадров, Витаутас КанцлерисПродолжительность: 01:16:54
+01. Dark Matters - The Real You (Feat. Jess Morgan) (Original Mix)
+02. Dark Matters & Ana Criado - The Quest Of A Dream (Original Mix)
+03. Dark Matters & Cathy Burton - Together (Original Mix)
+04. Dark Matters & Tre Sheppard - What I Can Not See (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BD24D6C930D6C142A0A2E2176E58DD7ED26F035
+magnet:?xt=urn:btih:D8835160348D909B2F12CF02721689CD613B629B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,27 +230,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164273   (442011) от 09.09.2017
+###  Публикация: 1410176   (438505) от 20.09.2020
 
-Ю. В. Андропов | Избранные речи и статьи (1983) [DJVU]
+Any Video Converter Professional 7.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_442011.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книгу Генерального секретаря ЦК КПСС, Председателя Президиума Верховного Совета СССР товарища Ю.В. Андропова включены речи, статьи и выступления, в которых освещаются актуальные вопросы внутренней и внешнеполитической деятельности КПСС. В нее вошли некоторые материалы из сборника, вышедшего в 1979 году, а также работы последующего периода.
-
-Издание второе.Жанр: история, политика, собрание сочиненийФормат: DJVU
+Any Video Converter Ultimate - предоставляет пользователям DVD риппер все-в-одном, конвертер видео и создание DVD, который поможет вам преобразовывать DVD во все популярные видео форматы, включая MP4, AVI, RM, RMVB, QT, MOV, 3GP, 3G2, FLV, MPEG-1, MPEG-2, DVR-MS, VOB, MKV, ASF, DivX, OGM в MP4, AVI, WMV, 3GP, 3G2, FLV, MPG и SWF с быстрой скоростью преобразования (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:455C48D61D293D26AABDA6AAA1EE8EAC79009ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,25 +256,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322442   (442012) от 01.09.2019
+###  Публикация: 1410147   (438506) от 20.09.2020
 
-Sketch 57.1 [En]
+Чудо техники с Сергеем Малозёмовым (20.09.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбросить лишнее: правда ли онлайн-марафоны помогают похудеть? И чем может быть опасен такой фитнес? Просто бомба: может ли водонагреватель взорваться? А также — зарядка для телефона, которой не нужна розетка, складной утюг и офисный стул-тренажер.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6D14E1508EE7196D8F3132782C091C8C30ACD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410188   (438507) от 20.09.2020
+
+VA - Aurosonic - Winter Sessions (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raz Nitzan & Jess Morgan - Not Like Everyone (Aurosonic Remix) (Mixed)
+02. Aurosonic & Ana Criado - Ask Me Anything (Mixed)
+03. Aurosonic & Stine Grove - In Euphoria We Rise (Mixed)
+04. Sleepthief & Zoe Johnston - Alice's Door (Aurosonic Remix) (Mixed)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFC87CDCADC09FEFDB316301C6548575D5D9664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410322   (438508) от 20.09.2020
+
+Следствие вели... (20.09.2020) "Убийство под куполом…" WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438508.jpg" />
+</div>
+
+
+###  Подробнее
+
+1972 год, Москва. В своей квартире найден убитым известный цирковой артист. Однако вскоре выясняется: его видели живым и здоровым уже после похорон. Что за мистика? Кто-то выдает себя за циркача? Или в квартире найдено тело совершенно другого человека?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6A40EFE10B190064D11836A398AB17BA8FDFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410258   (438509) от 20.09.2020
+
+Transmit 5.6.7 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442012.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sketch — платный редактор векторной графики, выпускаемый голландской компанией Bohemian Coding исключительно для устройств на базе операционной системы macOS. Sketch — фактически один из основных инструментов графического дизайна и практически безальтернативное для пользователей Apple по набору возможностей. Программа удостоена специальной премии Apple Design Award (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.08.2019Разработчик: Sketch B.V.Поддерживаемая ОС: macOS High Sierra 10.13.4 или более поздняя версияЯзык интерфейса: Английский
+Золотой стандарт приложений для передачи файлов
+Загружайте, загружайте и управляйте файлами на серверах с простым, знакомым и мощным интерфейсом.
+Теперь Transmit подключается к 10 новым облачным сервисам, таким как Backblaze B2, Box, Google Диск, DreamObjects, Dropbox, Microsoft Azure и Rackspace Cloud Files. И да, Transmit по-прежнему обрабатывает классику - FTP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Panic IncПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E117D12BDC92A9DFA60A78C8DC67665CC12748B
+magnet:?xt=urn:btih:A1A7A5AFB8442E7FB2455D015C43095EEAB057FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,28 +365,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164299   (442013) от 09.09.2017
+###  Публикация: 1410180   (438511) от 20.09.2020
 
-Entrails - World Inferno (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+Sun of the Dying - 2 Albums (The Roar of the Furious Sea / The Earth Is Silent) (2017-2019) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442013.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 	World Inferno 			05:13
-2. 	Condemned to the Grave 		04:41
-3. 	Serial Murder (Death Squad) 	03:31
-4. 	The Soul Collector 		04:37(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:21
+01. The Earth Is Silent [00:01:39]
+02. A Dying Light [00:08:23]
+03. A Cold Unnamed Fear [00:05:41]
+04. Orion [00:08:09](   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 2 CD, 01:20:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17566B65091EBB7832593E562DB4FC7C52E9B5C3
+magnet:?xt=urn:btih:21C5FE3CEB16D6FDD51F9B2462A9A4C6126E9BA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,26 +394,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322568   (442014) от 01.09.2019
+###  Публикация: 1409665   (438512) от 20.09.2020
 
-Книжная серия | «Большая книга ужасов» [95 книг] (2008-2018) [FB2]
+Parov Stelar - Voodoo Sonic 2 (2020) [AAC|~311 Kbps]<Electro, Swing>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442014.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Большая книга ужасов - серия увлекательных детских ужастиков.
-Страшные истории случались не только в старые времена. Вурдалаки грызли свои жертвы не только в стихотворении А.С. Пушкина и повестях Н.В. Гоголя. Страшные истории происходят каждый день в твоем городе, на соседней улице. Их рассказывают друг другу шепотом бесстрашные школьники в ночной тиши летнего лагеря. (   Читать дальше...   )Жанр: Ужасы, Фантастика для детей, Приключения для детей и подростков, Детская остросюжетная литератураФормат: FB2
+01. Brass Devil (3:52)
+02. Piano Boy (7:00)
+03. Parov Stelar feat. Anduze, Lilja Bloom - Don't You Forget (3:22)
+04. Parov Stelar feat. Esches - Fade To Red (3:11)(   Читать дальше...   )Жанр: Electro, SwingПродолжительность: 00:22:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A855A2A81B6E5BF4D14DD63470B9E96B81CA2D46
+magnet:?xt=urn:btih:715737310D1B5EB1D244A75AE2A8F9545D89B95D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,28 +423,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164338   (442015) от 09.09.2017
+###  Публикация: 1410187   (438513) от 20.09.2020
 
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа B. 7-й тур. Венгрия – Латвия (31.08.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Kamelot - I Am The Empire: Live From The 013 (2020) 2xCD [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438513.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Transcendence (2:02)
+02. Phantom Divine (Shadow Empire) (4:04)
+03. Rule the World (3:47)(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 01:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5BF966BE361503FF54135D3A94DB193402BF46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410271   (438514) от 20.09.2020
+
+AnyTrans for iOS 8.8.0.20200918 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438514.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
+
+AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2020Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FF04DC480DAAF57EF00A6716ABD9001A73D497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410251   (438515) от 20.09.2020
+
+Мировой кубок по мотогонкам среди электробайков 2020. Гран-При Эмильи-Романьи / FIM Enel MotoE World Cup 2020. Emilia-Romagna GP (2020) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442015.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-31 августа 2017 года, четверг. 21:45 МСК
-Чемпионат Мира 2018. Отборочный турнир. Европа. Группа B. 7-й тур
-Венгрия – Латвия
-Стадион: Гроупама Арена (Будапешт , Венгрия), 16500 зрителей (70 % при вместимости 23700)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:41
+MotoE, официальное название FIM Enel MotoE World Cup, это класс мотоциклетных гонок в которых используются только электрические байки. Серия была одобрена FIM и первый сезон пройдёт на пяти европейских трассах в рамках поддержки чемпионата MotoGP в 2019 году.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 56:29 + 55:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:056AD10257818EBD609703ACA3531C2324AA912D
+magnet:?xt=urn:btih:4CD3F9A0D80D6F6857E968F371BB83652386AE48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,28 +506,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322628   (442016) от 01.09.2019
+###  Публикация: 1410097   (438516) от 20.09.2020
 
-Slava - Ottima Best Of Slava (1999) [MP3|320 Kbps] <Classical, Vocal>
+Affinity Publisher Beta 1.9.0.742 [Multi/Ru]
 
->>Классика
->>Вокал
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442016.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ave Maria (G. Caccini) (4:00)
-02. Ave Maria (J.S. Bach & Gounod) (2:39)
-03. Ave Maria (G. Bizet) (3:25)
-04. Ave Maria (F. Schubert) (6:21)(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 01:05:40
+Реализуйте свое видение с помощью Affinity Publisher, самого современного профессионального программного обеспечения для публикации от разработчиков отмеченных наградами приложений Affinity Designer и Affinity Photo.
+Это невероятно плавное, интуитивно понятное приложение дает вам возможность комбинировать изображения, графику и текст, чтобы сделать красивые макеты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2020Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AD55CF814A05F64FB8F180BD8461EF48A03EBD6
+magnet:?xt=urn:btih:75AC72AB2869F0257CE193E67D4C09B960251561
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,24 +533,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164405   (442017) от 09.09.2017
+###  Публикация: 244443   (438530) от 11.10.2010
 
-Mystic Circle - Drachenblut (1998) Japan [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+Глен Чарльз Кук | Черный отряд. Тени сгущаются (2009) [MP3]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_442017.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_438530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Ancient Words
-02.Notrum - Sword of Might
-03.The Dragonslayer
-04.King of the Nibelungehord(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:57:34
+Две первые книги Севера из «Хроник Черного Отряда».
+Добро пожаловать в мир Черного Отряда - лучшей роты наемников на службе у зловещей Госпожи и Десяти Взятых... Они сражаются мечом и магией - и не сдаются даже тогда, когда не помогает ни магия, ни меч. Они знают: победа дается тому, кто умен, отважен и дерзок, тому, кто до конца верен себе. Они всегда готовы подтвердить (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 34:14:02
 
 ## Скачать торент
 ```bash
@@ -331,25 +560,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322952   (442018) от 01.09.2019
+###  Публикация: 244842   (438531) от 11.10.2010
 
-Исследователи / Explorers (1985) WEB-DL [H.264/1080p]
+Артур и месть Урдалака / Arthur et la vengeance de Maltazard (2009) [1080p] BDRip
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442018.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_438531.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подростков Бена и Вольфганга объединяет любовь к космосу и изобретательству. Движимые необычным сном, они со своим новым знакомым создают из найденных на свалке деталей небольшой космический корабль, управляемый и защищаемый силовым полем. Однако во время их первого полета кто-то извне внезапно перехватывает управление кораблем. Как выясняется, наши герои — не единственные (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: фантастика, мелодрама, комедия, приключения, семейныйРежиссер: Джо ДантеАктеры: Итэн Хоук, Ривер Феникс, Бобби Файт, Брэдли Грегг, Аманда Петерсон, Дэнни Нуччи, Джейсон Прессон, Дэна АйвиПеревод: Многоголосый профессиональныйСубтитры: русские, английскиеПродолжительность: 01:49:24
+Артур в восторге, потому что этой ночью заканчивается десятый лунный цикл, и он, наконец, сможет вернуться в страну минипутов, чтобы воссоединиться с Селенией. В деревне минипуты приготовили в его честь роскошный банкет, а маленькая принцесса облачилась в платье из лепестков роз. Но отец Артура именно в этот долгожданный день объявляет, что их каникулы у бабушки (   Читать дальше...   )Жанр: Анимация, фэнтези, комедия, приключения, мультфильмРежиссер: Люк БессонПерсонажи: принцесса СеленияПеревод: Профессиональный (полное дублирование), Оригинальный (английский)Субтитры: нетФормат: MKVПродолжительность: 01:33:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E460ECEAF83A3D990A88E6B8880838CEEB5EE8A6
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,25 +586,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164218   (442019) от 09.09.2017
+###  Публикация: 244507   (438535) от 11.10.2010
 
-Ю.С. Ашкинезер | Законы о кооперации (1925) [DJVU]
+Три короля / Three Kings (1999) BDRip
 
->>Научная и техническая литература
->>Историческая литература
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442019.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_438535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Систематический сборник декретов, постановлений, инструкций, резолюций, разъяснений, положений, циркуляров и извлечений из кодексов, объединённых темой кооперации (с приложением примерных уставов и типовых договоров).Жанр: история, право, экономикаФормат: DJVU
+Ирак, март 1991-го года. Американцы празднуют победу — изгнание войск Саддама Хусейна из Кувейта. Капитан спецподразделения Арчи Гейтс и трое его подчиненных совершенно случайно становятся обладателями секретной карты, найденной в… заднем проходе одного из иракских воинов. Ценность ее заключается в том, что на карте указано место, где спрятано золото Саддама, награбленное в Кувейте.Жанр: Боевик, Комедия, Драма, Приключения, ВоенныйРежиссер: Дэвид О. РасселлАктеры: Джордж Клуни, Марк Уолберг, Айс Кьюб, Спайк Джонз, Клифф Кёртис, Нора Данн, Джейми Кеннеди, Саид Тагмауи, Майкелти Уильямсон, Холт МакКэлланиПеревод: Дублированный + Авторский закадровый (Ю.Живов) + Оригинальный (Английский)Продолжительность: 01:54:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D455AFF0CB2AF518119B246F117DFBD5D7AF60EB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,28 +612,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164403   (442020) от 09.09.2017
+###  Публикация: 1409417   (438537) от 20.09.2020
 
-Mystic Circle - The Bloody Path Of God (2006) [APE|Lossless|image + .cue] <Melodic Black Metal>
+DANIEL B. - six​+​six (2020) [MP3|320 Kbps] <EBM, Techno-Industrial, Hard Trance, Big Beat>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442020.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Psalm of the End (Intro)
-02. The Bloody Path of God
-03. Doomsday Prophecy
-04. Nine Plagues of Egypt(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:44:56
+01 - Seq666 (Gone To Heaven) [00:06:36]
+02 - Happiness (Happy End) [00:11:53]
+03 - Skeleton Toy (Chzwaartzmetaal ElkoB) [00:10:18]
+04 - Neurobashing (Chzwaartzmetaal Beat) [00:07:47](   Читать дальше...   )Жанр: EBM, Techno-Industrial, Hard Trance, Big BeatПродолжительность: 00:46:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8843C6BB675183B00FD697425FBC42EFD90AD907
+magnet:?xt=urn:btih:72ACEAFB3290CF68396FFA571987A900CB109D37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,57 +641,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164379   (442021) от 09.09.2017
+###  Публикация: 1410148   (438538) от 20.09.2020
 
-Obscenity - Human Barbecue (1998) [APE|Lossless|image + .cue] <Death Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_442021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eaten from Inside
-02. Human Barbecue
-03. Eternal Life
-04. Infantice(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54;07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164383   (442022) от 09.09.2017
-
-Obscenity - Where Sinners Bleed (2006) [APE|Lossless|image + .cue] <Death Metal>
+Mushroomhead - A Wonderful Life (2020) Limited Edition [FLAC|Lossless|image + .cue] <Alternative Metal, Industrial Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442022.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Obsessed With Slavery
-02. Die Again
-03. Mutate To Scourge - Infecdead
-04. Incomplete(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:17:41
+01. A Requiem for Tomorrow (4:43)
+02. Madness Within (3:39)
+03. Seen It All (3:57)
+04. The Heresy (4:00)(   Читать дальше...   )Жанр: Alternative Metal, Industrial MetalПродолжительность: 01:11:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:219244DB63CF308F2AF53B3AF4BBAFA4F37CE0C4
+magnet:?xt=urn:btih:0D9867379524BB279990B43152634D6BAF082AE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,28 +670,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164378   (442023) от 09.09.2017
+###  Публикация: 1410145   (438539) от 20.09.2020
 
-Obscenity - The 3rd Chapter (1996) [FLAC|Lossless|image + .cue] <Death Metal>
+Первая передача на НТВ. Автомобильная передача (20.09.2020) SATRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442023.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jonathan 00:34
-02. Disgrace Over You 04:59
-03. Nuclear Holocaust 04:58
-04. Sensation Mongering 05:08(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:44
+Постгарантийное обслуживание: забота о клиенте или приглашение в кабалу? Договор замедленного действия: эта мелочь может стоить покупателю автомобиля и денег. Техосмотр: где его проходить? «Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57E74433D15C040D35A31FEF03D334276C99B20C
+magnet:?xt=urn:btih:4B12C6BE5B6617C235E52781C6AA330CE77A9125
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,222 +696,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164493   (442024) от 09.09.2017
+###  Публикация: 1410103   (438540) от 20.09.2020
 
-Kenny Barron - Live at Maybeck Recital Hall, Vol.10 (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Avicii - Live @ Maishima Beach Side, Osaka, Japan (2016-06-04) [MP3|~245 Kbps (V0)] <Progressive House, Electro House, Big Room>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_442024.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm Getting Sentimental over You [07:18]
-02. Witchcraft [08:50]
-03. Bud-Like [05:36]
-04. Spring Is Here [10:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:25
+01. Avicii ft. Sandro Cavazza - Without You (Intro Edit)
+02. Dizzee Rascal - Dirtee Cash (Avicii Remix)
+03. Tim Berg & Norman Doray & Sebastien Drums vs. Empire Of The Sun - Tweet It vs. Walking On A Dream (Avicii Mashup)
+04. Tim Berg ft. Amanda Wilson - Seek Bromance (Cazzette & ASH Vocal Mix) w/Axwell vs. Avicii - I Found Bromance (Avicii Bootleg)(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 02:03:13
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164381   (442025) от 09.09.2017
-
-Obscenity - Intense (2000) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_442025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleed for Me
-02. Pride of Creation
-03. Golden Cage
-04. Suck My Vomit(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164119   (442026) от 09.09.2017
-
-Rob Brown Ensemble - Crown Trunk Root Funk (2008) AumFidelity [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocking Horse [10:58]
-02. Clearly Speaking [06:57]
-03. Sonic Ecosystem [11:18]
-04. Ghost Dog [07:34](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A0CED292B7C6FAD0639C47EA14540F2E312F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164497   (442027) от 09.09.2017
-
-Hal Galper - Live at Maybeck Recital Hall, Vol.6 (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spoken Introduction [00:17]
-02. Whisper Not [07:08]
-03. It Never Was You [07:08]
-04. All God's Chillun Got Rhythm [03:43](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E66002DC77752568D6BBC5BEB1A75F15D81479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164350   (442028) от 09.09.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. 7-й тур. Обзор матчей 1-го дня (31.08.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_442028.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 августа 2017 года, четверг
-Обзор матчей отборочного турнира Чемпионата Мира 2018. Европа. 7-й тур
-День № 1:
-Группа A  Болгария – Швеция(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248577   (442029) от 20.09.2018
-
-Video Editor MovieMator – Movie & Film Maker Pro 2.4.7 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_442029.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 года в процессе создания, Video Editor MovieMator наконец-то стал простым, но мощным программным обеспечением для редактирования видео. Он не только позволяет пользователям выполнять все основные работы по редактированию, такие как обрезка, обрезка, разделение, поворот, слияние и многое другое, но также предоставляет более продвинутые функции редактирования, такие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.09.2018Разработчик: EffectMatrixПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248332   (442030) от 20.09.2018
-
-Александр Бушков | Загадочный Петербург, или Призраки европейских столиц (2018) [MP3]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_442030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Санкт-Петербург – город святого Петра, бывшая столица Российской империи, Северная Венеция, родина дождей, туманов и нескончаемой, сумасшедшей красоты. Построен он на костях или нет – давно уже не имеет значения – вся русская классика родом отсюда, здесь каждая улица и каждый дом имеют свою удивительную историю. Сколько тайн сокрыто в его величавых дворцах, сколько (   Читать дальше...   )Жанр: История, мистикаПродолжительность: 09:42:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248548   (442031) от 20.09.2018
-
-CleanMyPC 1.9.7.1638 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_442031.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyPC очищает компьютер от ненужных файлов, системного мусора, остатков ранее удалённых приложений и освобождает место на диске, а также обеспечивает более быструю работу Windows. Также продукт позволяет безопасно и без возможности восстановления удалять файлы с диска, управлять расширениями и плагинами браузеров, гаджетами рабочего стола, чистить реестр, очищать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:D5538FD2C01AFF222FFD018B4126B71ABFC3E8CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

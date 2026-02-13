@@ -1,3 +1,30 @@
+###  Публикация: 605995   (994931) от 22.01.2013
+
+Answer42 - Shoreline / Tucano (2010) [FLAC|Lossless]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoreline (Original Mix) (7:04)
+02. Tucano (Original Mix) (7:15)Жанр: Progressive HouseПродолжительность: 00:14:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607302   (994935) от 22.01.2013
 
 VA - Bigroom Dance & House (2012) [MP3|320 кб/с]<Funky, Club House>
@@ -810,35 +837,6 @@ Aidan Baker & Gareth Davis - Invisible Cities (2018) [FLAC|Lossless|Web-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ACE3CCA55D929E380056EDA8A50EB012C3A0BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352571   (1001056) от 14.01.2020
-
-Love Theme - Love Theme (2017) Alter [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Drone>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Exile (9:03)
-02. Late Crossing (3:44)
-03. Docklands / Yaumatei / Plum Garden (8:53)
-04. She's Here (5:19)(   Читать дальше...   )Производство: Alter - ALT34Жанр: Dark Ambient, Dark Jazz, Drone, ElectronicПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46550176F12B5EA636B95348866039741CEC8EA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

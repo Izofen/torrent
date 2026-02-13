@@ -1,3 +1,32 @@
+###  Публикация: 1480709   (1008856) от 29.06.2021
+
+VA - Monday Dreamin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Techno, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Souls Of Saturn & TOKiMONSTA - Revision Of The Past
+02. Rampa - The Church
+03. Moodymann - Keep On Coming (feat. CD)
+04. Butch - Raindrops (feat. Kemelion)(   Читать дальше...   )Жанр: Tech House, Deep House, Techno, ProgressiveПродолжительность: 02:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0657FA7B165457ED9AEEF73041EF4E8780AC93C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200676   (1008886) от 28.06.2021
 
 Faint - Label-Pack 28 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, Techno, Dark Ambient, Drone>
@@ -709,35 +738,6 @@ XqST - ∀∃ (2020) Isla [FLAC|Lossless|WEB-DL|tracks] <Tribal, Experimental, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5F30B21706114068DB8490D690034BCCD0D2C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031697   (1009762) от 22.06.2021
-
-Silent Season - Label-Pack 90 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystica Tribe - Gone From Here (05:19)
- 02. Mystica Tribe - Under Pressure (05:13)
- 03. Mystica Tribe - New Horizons (05:52)
- 04. Mystica Tribe - Cosmic Vibrations (05:49)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Ambient, Techno •Продолжительность: 79:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1CA34584250A3FBA85BC3C00D2069A73F5FDD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

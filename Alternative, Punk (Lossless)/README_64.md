@@ -1,3 +1,38 @@
+###  Публикация: 766143   (873494) от 13.03.2014
+
+311 - STER3OL1TH1C (Stereolithic) (2014) [FLAC|Lossless]<Alternative Rock, Reggae Rock, Rap Rock, Funk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ebb and Flow (3:24)
+02. Five of Everything (3:51)
+03. Showdown (3:48)
+04. Revelation of the Year (4:12)
+05. Sand Dollars (3:21)
+06. Boom Shanka (3:04)
+07. Make it Rough (3:23)
+08. The Great Divide (4:04)
+09. Friday Afternoon (4:12)
+10. Simple True (4:13)(   Читать дальше...   )Жанр: Alternative Rock, Reggae Rock, Rap Rock, Funk MetalПродолжительность: 00:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744C45463253191CB29062CB79E57E0DDE88C3C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997756   (873680) от 17.03.2016
 
 Iggy Pop - Post Pop Depression (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -775,35 +810,6 @@ British Sea Power - Let The Dancers Inherit The Part (2017) [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B44F142F6FE5B9F755EAF96B35B785BB9A6AD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371876   (888709) от 01.04.2020
-
-Ty Segall - Segall Smeagol (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Coconut
-02 Gotta Get Up
-03 Drivin Along
-04 Early in the Morning(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B878F744E111D244129D705E9456DAA9213EC46
 ```
 
 https://mybot314.ru/tekegram_catalog/

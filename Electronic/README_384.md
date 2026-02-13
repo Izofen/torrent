@@ -1,3 +1,32 @@
+###  Публикация: 1126198   (766279) от 17.04.2017
+
+Vanderson - Beyond Time Structure (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Berlin School, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of Andromeda (11:08)
+02. Outer Space (08:05)
+03. Reality (07:19)
+04. Underwater World (13:46)(   Читать дальше...   )Жанр: Psybient, Berlin School, Progressive TranceПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD94D935E251AD5217B2150236CF3117ADD4D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393784   (766302) от 02.07.2020
 
 Michael E - I Had the Strangest Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -716,35 +745,6 @@ Ori Uplift:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:504D60518138E7963CBA0E5B32A41F2E2AC1B3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780422   (767614) от 27.01.2019
-
-Jeff Dodson (Defrag, Defragmentation) - Discography 5 Releases (2002-2015) Hymen Records [FLAC|Lossless|tracks+.cue, tracks]<Breakcore, IDM, Dubstep, Breakbeat, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky Calls (Intro) (01:31)
- 02. Rydian Apex (01:20)
- 03. That's A Small Hole (01:05)
- 04. Be The Ball (00:33)(   Читать дальше...   )Тип издания: CD, WebЖанр: Soundtrack/Ambient/Modern ClassicalПродолжительность: 00:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0AD60B1A0D2144298A0349CF0A9A541DA2E28D
 ```
 
 https://mybot314.ru/tekegram_catalog/

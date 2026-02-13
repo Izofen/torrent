@@ -1,3 +1,61 @@
+###  Публикация: 1179236   (348898) от 31.10.2017
+
+VA - По волне моей памяти: Том 30 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Валерий Сюткин - 42 минуты 4:00
+02.  Александр Маршал - Орёл 4:33
+03.  Вячеслав Быков - Любимая моя 4:07
+04.  Алла Пугачёва - Что было однажды 3:36(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2E54674728308A14C94270C5B18192AE196AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179377   (348907) от 31.10.2017
+
+VA - Русские Диджеи & Дискотеки от Ovvod7 - 01 (2017) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Грув - Служебный Роман 3:22
+02.  DJ Цветкoff & Балаган Лимитед - Щас Спою 3:55
+03.  Vengerov & Fedoroff - Джентльмены Удачи 3:45
+04.  DJ Белых - Такси На Дубровку (ORT Version 1998) 4:19(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5860A192F6F1DFFDF817E078340DC815623554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179382   (348909) от 31.10.2017
 
 VA - Русские Диджеи & Дискотеки от Ovvod7 - 02 (2017) [MP3|320 Kbps] <Electronic>
@@ -684,64 +742,6 @@ VA - Музыкальные новинки mp3. Версия 2 (2016) [MP3|256 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A07EF648759E953AE7112F864CED7EA4EE658D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256914   (349907) от 24.10.2018
-
-VA - Flowers Chillout Tunes (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349907.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Physical Dreams - Sounds Of Water
-002. Retro Rider - Fantaisie Sur La Cote
-003. Pnfa - Eight (Original Mix)
-004. Vadim - North Wind (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209C02A8410F5507E4FEF58FEA45189C0FB5493C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072962   (349976) от 14.11.2016
-
-VA - Best All Time Of Hits (2016) [MP3|320 Kbps] <House, Tech House, Electro, Funky, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bassjackers Vs. Breathe Carolina & Reez - Marco Polo (Extended Mix) 3:49
-02. Club Corporate - Back in USA (Jack Mazzoni & Jose AM Radio Remix) 2:43
-03. Axwell - Barricade (Radio Edit) 4:56
-04. Crew 7 - Bounce (Melbourne Bounce Project Edit) 3:29(   Читать дальше...   )Жанр: House, Tech House, Electro, Funky, ClubПродолжительность: 03:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0133B89C56C2954A4EA118743A90A3BF8C2883B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

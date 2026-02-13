@@ -1,3 +1,178 @@
+###  Публикация: 1230688   (613869) от 13.06.2018
+
+VA - Top Of The Pops '1976 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодняшним релизом продолжаю небольшую (пока) серию путешествий по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители (   Читать дальше...   )CD1:
+01. ABBA - Dancing Queen   (3:50)
+02. Billy Ocean - Love Really Hurts Without You   (3:00)
+03. Tavares - Don't Take Away The Music   (3:40)(   Читать дальше...   )Жанр: 1970s, pop, rockПродолжительность: 03:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFFF959756E49A42AB79F49E508DC9609E23C5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911965   (614013) от 24.06.2015
+
+Мурат Тхагалегов и Азамат Биштов - За тебя калым отдам (2011) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мурат Тхагалегов - За тебя калым отдам [03:27]
+02. Азамат Биштов - Хожу хмельной [03:31]
+03. Мурат Тхагалегов и Азамат Биштов - Обманул сердце [03:20]
+04. Азамат Биштов - Воровочка [03:39](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE3CF7B82ED292D202C58F5F71F5E545344A3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230538   (614059) от 13.06.2018
+
+Mystic - 4 Singles (1977) 7" [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Disco Love Affair (3:59)
+02.  Disco Symphony (3:52)
+03.  In The Year 2525 (4:21)
+04.  Dance Tonight (2:56)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C634BD4FAF7A6820FA38194EF046CFCAC5DBBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910825   (614147) от 24.06.2015
+
+140 ударов в минуту - Запрещенная реальность (2014) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А я иду по осени
+02. Ну скажи…
+03. У меня есть ты (2014 ultranova mix)
+04. А я скучаю очень (UltraNova Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382355BA36A0BE1DF116C2C697B81202B3C66D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911944   (614240) от 24.06.2015
+
+Carly Rae Jepsen - Emotion (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run Away With Me
+02. Emotion
+03. I Really Like You
+04. Gimmie Love(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EA729906688C33DCA470D9A7401B42BFC0DC05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631739   (614325) от 29.06.2017
+
+Иванушки International - Лучшее (2003) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_614325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Безнадега точка ру (new) [3:46]
+02. Золотые облака (new) [4:27]
+03. Капелька света (new) [4:45]
+04. Облако волос (new) [4:08](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911843   (614495) от 24.06.2015
 
 VA - Fabulous Flips (1993) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
@@ -583,192 +758,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75A089409366427FB651A2D7890A03B271B5D7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602318   (616282) от 30.07.2013
-
-Сергей Лазарев - ЛАЗАРЕВ. (Deluxe Version) (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616282.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Make you say
-2. Take it off
-3. Stumblin'
-4. Under the moon
-5. Нереальная любовь
-6. I need Love (feat. DJ SAN)
-7. Moscow to California (feat. DJ M.E.G. и Тимати)
-8. 7 Wonders
-9. Storm
-10. Keep your Mouth Shut(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662A83EC291905DB10BAFBB7AB14F3FD225F3029
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523759   (616300) от 16.07.2012
-
-VA - Лучшее из 90-х (2012) [MP3|256 кб/с]<Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616300.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. E-Rotic - Max Dont Have Sex With Your Ex
-002. Русский Размер - Ангел Дня
-003. Mo-Do - Eins, Zwei, Polizei
-004. Демо - Я Не Знаю
-005. Диана - Скатертью дорога
-006. Reel 2 Real - I Like To Move It
-007. Dana International - Diva
-008. Рома Жуков - Я Люблю Вас Девочки
-009. Валдай - Хрустальный Ларец
-010. Daze - Toy Boy(   Читать дальше...   )Жанр: PopПродолжительность: 13:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5AE36D9FC713751E18DCBD9B433C98DFD0335C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146175   (616348) от 28.06.2017
-
-VA - Dancefloor Fuller (2017) [MP3|320 Kbps] <Schlager, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noel Terhorst – Traumpilot 03:27
-02. Wolfgang Lippert – Der Morgensong 03:21
-03. De Lancaster – Wir sind jung, wir sind frei 03:26
-04. Kaboom – Y.M.C.A. Reloaded (Extended) 04:31(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DEFA6F353849A109A7E88B8993E0B55F351B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545092   (616389) от 18.04.2022
-
-Добры Молодцы - Лучшее (2011) [MP3|320 Kbps] <Retro Soft Rock>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Опять дожди
-02.Любовь атамана
-03.На небе облака
-04.Люди встречаются(   Читать дальше...   )Жанр: Retro Soft RockПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F0772D4C493D0440DAC6FEBFDC8CC44BF80C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911599   (616429) от 23.06.2015
-
-Victor Manuelle - Que Suenen los Tambores (2015) [MP3|320 кб/с]<Latin, Salsa>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agua Bendita (4:00)
-02. No Queria Enganarte (4:32)
-03. Sal A Bailar (4:05)
-04. La Foto Que Falto (4:10)(   Читать дальше...   )Жанр: Latin, SalsaПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E203023C68023402DAE63A7B55A2E2A68F0C2893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146186   (616586) от 28.06.2017
-
-VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlager, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ‘Die immer lacht’ – Die immer lacht 03:30
-02. Andy Luxx – Wir sind die Mallorca Familie 03:36
-03. Mallorca Cowboys – Eskalation 03:53
-04. Till Simon – Wenn sie tanzt 04:49(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4414320858767A6F335A74F2F9BBCD3F425608DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

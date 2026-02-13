@@ -1,3 +1,182 @@
+###  Публикация: 1177005   (362442) от 25.10.2017
+
+Русский размер (Размер Project) - 21 альбом (1995 - 2012) [MP3|320 Kbps] <Рор, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский Размер — российская музыкальная группа из Санкт-Петербурга.
+ Повстречавшись однажды на одном из концертов,  Дмитрий Копотилов и Виктор Бондарюк стали друзьями, единомышленниками и основателями группы.
+К своим музыкальным проектам друзья приглашали много различных известных личностей таких как Алексеев Лебединский, Ева Польна, Дмитрий Нагиев, Татьяна Буланова. (   Читать дальше...   )Жанр: Рор, DanceПродолжительность: 19:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85C575464C885EEA04203E9B1B973F9FAF812C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950836   (362755) от 29.10.2015
+
+Video Kids - The Invasion Of The Spacepeckers (1995) Unofficial Release [FLAC|image + .cue]<Euro-Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do the rap (3:37)
+02. Cartoney tunes (4:24)
+03. La bamba (4:14)
+04. I'm A Rock'n'Roll Pecker (2:30)(   Читать дальше...   )Жанр: Euro-Disco, ElectronicПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F8AB092056A3EB14BF6C25FE0772F31D5B5E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416954   (362833) от 18.10.2020
+
+Ирина Аллегрова - Суженый мой... (1994) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не улетай [0:04:12.42]
+02. Мой ласковый и нежный зверь [0:04:11.58]
+03. Верьте в любовь девчонки [0:02:41.55]
+04. Игрушка [0:03:51.67](   Читать дальше...   )Жанр: РорПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F292B6DD04C13100408EB7D3A41195E200FBFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951377   (362935) от 29.10.2015
+
+Сергей Лазарев - The Best (2015) English Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking Away
+ 02. In My Lonely Life
+ 03. 7 Wonders
+ 04. Take It Off(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A391C7DC68FFF2A8BC6DBDB99B5C9BD7FF9D4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951114   (362944) от 29.10.2015
+
+Haddaway - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What about me (04:07)
+02. I miss you (03:40)
+03. Life (04:18)
+04. What is love (04:31)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9C1F3C66A2213A34AE24EE6513C25A31B19F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576341   (363038) от 17.11.2012
+
+Susan Boyle - Standing Ovation: The Greatest Songs From The Stage (2012) [MP3|320 кб/с]<Pop,Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Somewhere Over the Rainbow
+ 02 The Winner Takes It All
+ 03 Send in the Clowns
+ 04 The Music of the Night (feat. Michael Crawford)
+ 05 Bring Him Home
+ 06 Memory
+ 07 As Long As He Needs Me
+ 08 All I Ask of You (feat. Donny Osmond)
+ 09 Out Here On My Own
+ 10 You’ll Never Walk Alone(   Читать дальше...   )Жанр: Pop,VocalПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62C629EC6E4BDECE12AE8A065FBF7C70A733644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950898   (363079) от 29.10.2015
 
 Arabesque - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
@@ -568,180 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467558481C1C4C2B05F96F85B1F5D20AD0B085FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177155   (364891) от 24.10.2017
-
-VA - Dieter Bohlen: Die Megahits (2017) 3CD Premium Edition [FLAC|Lossless|tracks + .cue] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (Mix '84) (3:23)
-02. Midnight Lady (Aus Dem Tatort 'Der Tausch') (4:10)
-03. We Have A Dream (Radio Edit) (4:00)
-04. Take Me Tonight (Radio Edit) (4:02)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 03:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A37AE2DED95B7457915C8293B75336713CF0A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416774   (364966) от 17.10.2020
-
-Shania Twain - The Woman In Me (2020) Super Deluxe Diamond Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home Ain't Where His Heart Is (Anymore) [4:12]
- 02. Any Man Of Mine [4:07]
- 03. Whose Bed Have Your Boots Been Under [4:24]
- 04. (If You're Not In It For Love) I'm Outta Here! [4:30](   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 02:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8E0FE2042575147A45198B3B1DF9E0197393AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177242   (365030) от 24.10.2017
-
-VA - BRAVO Hits 99 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lauv - I Like Me Better (3:19)
-02. Imagine Dragons - Whatever It Takes (3:19)
-03. Sunrise Avenue - I Help You Hate Me (3:11)
-04. Portugal. The Man - Feel It Still (2:42)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 01:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C21D7BEE80258A717C66BAC497727309521F800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951155   (365060) от 28.10.2015
-
-Мираж - The Best Of Greatest Hits (2002) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Музыка нас связала
-02. Наступает ночь
-03. Звезды нас ждут
-04. Видео(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA77C6E64020CEFA579DF5B4DA702FFE1821A9EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950913   (365201) от 28.10.2015
-
-Слава - Откровенно (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спелый мой
- 02. Первая любовь - любовь последняя
- 03. Шлюха
- 04. Таблетка(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47643AB1C2BAE0837ECEBBFF25A4CA38A08A6FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951217   (365210) от 28.10.2015
-
-Мираж - The Best Of Greatest Hits (2002) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Музыка нас связала
-02. Наступает ночь
-03. Звезды нас ждут
-04. Видео(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BDE6A9B918A973D0FB27A4831A21C3E4E98B2C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

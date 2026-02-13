@@ -1,3 +1,67 @@
+###  Публикация: 541553   (500612) от 01.09.2012
+
+VA - Maximum Танцевального Удовольствия. Зарубежный (2012) [MP3|256 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500612.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elena Gheorghe - Amar Tu Vida (Radio Edit)
+002. Ben Montague - Love Like Stars (Cahill Radio Edit)
+003. Markus h & Frank Degrees feat. Kool Koor - Me In Ibiza
+004. Seven Lions feat. Shaz Sparks - Below Us
+005. N-Finity - Someone Like You (Kris Mctwain Edit)
+006. Juan Magan - Lo Que Me Pasa
+007. Mandinga - Zaleilah (Hanter Remix 2k12 edit)
+008. Slam DJ's feat. Zeni - Touch
+009. Aura Dione feat. Rock Mafia - Friends
+010. Coldplay feat. Rihanna - Princess Of China (Invisible Man Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 06:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD5B028C87E6EDB558EFFE98CAE508EF5645FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935136   (500628) от 07.09.2015
+
+VA - 100 Techno Minimal Tracks (2015) [MP3|320 кб/с]<Techno, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500628.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alberto Feria Alvaro MNML - Penicilline [07:02]
+002. Deep Hazex - The Minimum of the King in the Mountain [07:34]
+003. DJ Navigare - Piter PeN [06:49]
+004. Manu Hell - TuttiFatti [06:20](   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 10:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02DE7737052151282D686148FB85BE11DBF50F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934726   (501261) от 06.09.2015
 
 VA - Music For Everyone - Atmospheric & Progressive Breaks Vol.4 (2015) [MP3|320 кб/с]<Atmospheric Breaks, Progressive Breaks>
@@ -767,76 +831,6 @@ VA - Delicious Deep House Vol 2 (2015) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A7D0BBABF278383A1CFFD56EE56F416B69A7690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540741   (502562) от 30.08.2012
-
-VA - Top 100 Новинок В Машину! 50/50 (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 140 Ударов В Минуту - Надышаться Тобой
- 02. Paulina Rubio - Loud
- 03. Konstantin Ozeroff & Uncle Roma & DJ Sky - Буги-Вуги (Radio Edit)
- 04. Ryan & Radu - Everything (Radio Edit)
- 05. Ring Girls - Танцуй Для Меня
- 06. SynthLoverz & Pournaras Thanos - Mine Edo
- 07. Дмитрий Нестеров - Безумно Любя
- 08. Wanda - One Big Love (Radio Edit)
- 09. Ирина Кулькова & CJ Alexey Lavrentev - ВКонтакте (Radio Edit)
- 10. Andrew Spencer - Give It Up (Game Of Love)(   Читать дальше...   )Жанр: РорПродолжительность: 06:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7F9EDD2242A72035EDA8AA6F4437C665DF1608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541169   (502573) от 30.08.2012
-
-VA - Молодежный хит осенний. Top 100 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Достучаться до небес feat. Анна Плетнева (Винтаж) - Отпусти меня
- 02. Серебро - Мальчик
- 03. Женя Вилль - Прячь в позвоночник
- 04. Елена Терлеева - Просто
- 05. Марсель - Иди ко мне
- 06. Milena & Murzin Denis - В эту ночь
- 07. Настя Задорожная - До дна
- 08. Dan Balan - Не любя
- 09. USB (United Sexy Boyz) feat. Сергей Жуков - Скажи зачем
- 10. Анжелика Агурбаш - Просто Так(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B091A15C2643239F2403D0297518BFFFB23BDCCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

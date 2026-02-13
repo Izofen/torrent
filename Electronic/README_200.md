@@ -1,3 +1,32 @@
+###  Публикация: 1331346   (332972) от 14.10.2019
+
+VA - Sublime Trance Vol. 05 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Nilsson - Rock The Dancefloor (Extended Mix)
+02. Adam Morris and Rezwan Khan - Aftermath (Original Mix)
+03. Key4050 - Paydirt (Original Mix)
+04. Kajis feat. Ylona - Bodyswing (Venetica Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269E70296E9EA2297E51F3F5F413FD450B464A2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259011   (333028) от 01.11.2018
 
 VA - Richard Durand – The Air We Breathe (2018) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ Marcel De Van - It's Magic (2014) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F93BCF90078F6A30C8A84BB9233A1E730509B437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420098   (335814) от 30.10.2020
-
-DJ Sven & Marc Hartman - The Revival (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Is the Music (5:23)
-02. Rhythm in My Immy Bo Home (6:08)
-03. Back in the Days (4:59)
-04. Riding in the Disco Train (5:27)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0567CFAF913A027FD9147A2C9FDA0E6733197D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

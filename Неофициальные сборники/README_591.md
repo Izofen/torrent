@@ -1,3 +1,61 @@
+###  Публикация: 1101312   (896398) от 06.02.2017
+
+VA - The Essential #LOVE (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - Greatest Love of All (04:59)
+02. Savage Garden - Truly Madly Deeply (04:36)
+03. Backstreet Boys - As Long as You Love Me (03:32)
+04. NSYNC - This I Promise You (04:45)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E5FD64C313A37D17C89653DDC43FEDF27168D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101248   (896412) от 06.02.2017
+
+VA - Dinner With My Darling (2017) [MP3|320 Kbps] <Jazz, Soul, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Legend - All of Me 04:29
+02. Alicia Keys - Fallin' 03:30
+03. Daryl Hall & John Oates - One on One 03:57
+04. Sam Cooke - Wonderful World 02:05(   Читать дальше...   )Жанр: Jazz, Soul, PopПродолжительность: 01:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9217EDE095B30FA91D36EA34B32730D5E5D3B554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761635   (896728) от 28.02.2014
 
 VA - Lounge At The Seashore 6 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
@@ -686,64 +744,6 @@ VA - Музыкальное потрясение зимы. Сборник №5 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EA7336A20673ADB8C47D892A76269E6AAC8E503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100866   (898027) от 05.02.2017
-
-VA - Wine Bar Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Always on My Mind
-02. Enrico Donner - Abstract Dream
-03. Cane Garden Quartet - Stay Strong
-04. Baghira - 400 Trees(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED92051633C5B9CAF0DE2C82F3991E727729BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100736   (898079) от 05.02.2017
-
-VA - Снегопад новинок от Хит fm. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898079.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adrima - I Can't Help Myself 3:31
-002. Ost Up (Остап) - Афродита 4:04
-003. Bantu - Holiday 3:36
-004. Герр Антон - Леди И Джентльмены 3:03(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA18DB17EF999E9024E7644E90263098FFCCAAA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

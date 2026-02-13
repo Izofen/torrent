@@ -1,0 +1,680 @@
+###  Публикация: 1456749   (1024834) от 23.03.2021
+
+3D Smart materials - Artstation - Poligone - Poligone Smart Material Collection for AAA Character Creation [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024834.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора Poligone: Этот пакет представляет собой коллекцию умных материалов, которые я создал за 5 лет моей карьеры профессионального 3D-художника. Эти материалы использовались во всех моих AAA и мобильных проектах для многих известных клиентов (ILM, Microsoft, Lucas, Disney, NCSoft, Nexon, Telltale, Kabam, Gamevil, Digital Legends и многих других).Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E22840FC658DD1C9425A28543DD028B5B63407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456456   (1025030) от 22.03.2021
+
+3D Smart materials - Artstation - Zack Maxwell - Stylized Wood - Smart Materials [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Zack Maxwell.Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E387923B2384411DDC390DA344DD0602C4729E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456429   (1025031) от 22.03.2021
+
+3D Smart materials - Artstation - Zack Maxwell - Stylized Body - Smart Materials [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Zack Maxwell.Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38B57BE06619E7FA6A8AD29FA84E0389B7BDEE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456435   (1025041) от 22.03.2021
+
+3D Smart materials - Artstation - Zack Maxwell - Stylized Fabric - Smart Materials [SPSM, SBSAR]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Zack Maxwell.Формат: SPSM, SBSAR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7603698453F0336FC28EB2FBB32D78102BEB908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456440   (1025042) от 22.03.2021
+
+3D Smart materials - Artstation - Zack Maxwell - Stylized Metal - Smart Materials [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Zack Maxwell.Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521D52928899FBE66C4BF845871D8161B1DDCF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456448   (1025046) от 22.03.2021
+
+3D Smart materials - Artstation - Zack Maxwell - Stylized Stone - Smart Materials [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Zack Maxwell.Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3647768F0440021EEDB20066309619996E99AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456066   (1025162) от 21.03.2021
+
+3D модели - Evermotion - Archmodels vol. 209 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 209 включает 36 профессиональных высокодетализированных 3D-моделей для архитектурной визуализации. В этой коллекции представлены качественные 3d модели одежды, экспозиции обуви и сумок. Текстуры и материалы присутствуют. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5243921DA7DA3428085B073F23390DB08389608E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456062   (1025165) от 21.03.2021
+
+3D модели - Evermotion - Archmodels vol. 211 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 211 включает 72 профессиональных высокодетализированных 3D-модели для архитектурной визуализации. В этой коллекции представлены качественные 3d модели уличного реквизита. Текстуры и материалы присутствуют. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6EE3DDE2CCC48363A2537559195B23B2248CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456102   (1025190) от 21.03.2021
+
+3D материалы - ArtStation - Pawel Lyczkowski - All-Purpose Substance Materials Pack [SBSAR]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материалы от автора Pawel Lyczkowski.Формат: SBSAR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52F6F2445791BA6D281918EF2F2E658DF8E0004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456122   (1025200) от 21.03.2021
+
+3D Smart materials - Artstation - Pamir Bal - 50 High Quality Metal Smart Material Bundle [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Pamir Bal.Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0323CB2EE90317B3E6415FC5B0C17017CAD8BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456270   (1025212) от 21.03.2021
+
+3D Smart materials - Artstation - Musaab Shukri - 9 Metal and Rust Smart Materials [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Musaab Shukri.Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FEE4436D37FAB53CE610EA8D1732F77BF19839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455975   (1025364) от 20.03.2021
+
+3D модели - CGTrader - 63 Studio Stage Theater Cinema Lighting Collection [V-Ray|*.max, C4D, FBX, MB]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция Студийного, Кинотеатра освещения из 63 моделей.Формат: V-Ray|*.max, C4D, FBX, MB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAABD52BC930007CE2E503A12AA7A71FB511C2AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455586   (1025557) от 19.03.2021
+
+3D Smart materials - Gumroad - Pawel Lyczkowski - SP - 65 Industrial Smart Materials [PNG, SBSAR, SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это умный металлический комплект, созданный Pawel Lyczkowski для использования в Substance Painter.Формат: PNG, SBSAR, SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FE9E5745ED37D07A93820F937638B783D973CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453705   (1026660) от 12.03.2021
+
+3D модели - Evermotion - Archexteriors vol. 36 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archexteriors vol. 36 включает 10 полностью текстурированных внешних сцен ресторанов и кафе. Каждая сцена готова к рендерингу с использованием профессиональных шейдеров и освещения.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639F4CC00329664ADB732D6236D2AF5D0D64E323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453274   (1027014) от 10.03.2021
+
+3D модели - CGTrader - Truck KAMAZ 6560 [Corona|V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027014.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки КамазФормат: Corona|V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DE268D60F39C4D90519122646295687A47B055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452748   (1027446) от 07.03.2021
+
+3D модели - Свободные 3D модели созданные пользователями Sweet Home 3D [SH3F]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотеки дополнительных моделей 3D.
+
+    Sweet Home 3D позволяет импортировать библиотеки 3D моделей в формате SH3F файлов. Такие файлы группируют модели с описаниями и могут быть легко установлены с помощью двойного щелчка мыши на них, либо через меню Мебель > Импорт библиотеки мебели в Sweet Home 3D.
+    Следующие ZIP содержат в себе файлы SH3F, которые вы можете (   Читать дальше...   )Формат: SH3F
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995A33FBED0C9EE188BA4AF8DB63BFA1C843485E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452117   (1027814) от 05.03.2021
+
+3D модели - Daz 3D - Сборник 3D моделей #24 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 100шт, категории Clothing, People, Animation, Hair.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C083D257B9308816F7C7712B2FAC5D857557B9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451404   (1028267) от 02.03.2021
+
+3D модели - KitBash3D - Veh: Tanks [Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028267.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью этого универсального набора вы можете заполнить свои боевые зоны 10 готовыми танками или построить свой собственный с нуля с десятками люков, корпусов, пушек, гусениц, колес и турелей уникального дизайна, чтобы дать вам бесконечные возможности для создания собственных могучих машина войны!.Формат: Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F713B40B27180A3C2CE8EE2062B87203056F6C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447841   (1028600) от 28.02.2021
+
+3D модели - Renderosity - Daz3d Genesis 8 SASE Model Collection [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей SASE для Daz Studio от автора Sabby.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4055D325008B9C7261CC51E4B2A408CA759C56D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450892   (1028612) от 28.02.2021
+
+3D модели - Toolfarm - Greyscalegorilla Happy Toolbox Volume II Model Pack [FBX, LIB4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028612.jpg" />
+</div>
+
+
+###  Подробнее
+
+180 веселых и удобных 3D-моделей, которые помогут вам создать собственное приключение на открытом воздухе, очаровательный дом, магазин в стиле ретро или очаровательную мастерскую. Эта коллекция 3D-моделей имеет модели Sub-D, UV-карту и готова к работе!Формат: FBX, LIB4D
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25C0BAD261124D830B95A4E2AB3994F39DBCC1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450489   (1028943) от 26.02.2021
+
+3D модели - Evermotion - Archmodels vol. 182 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 182 представляет собой сборник из 56 наборов моделей веток, стволов, шишек и камней - включено более 100 отдельных моделей (с текстурами и материалами). Мы также даем вам полную сцену леса (3DS MAX и V-Ray).Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9D29C69651BE96C209A76CD10AF81A210317B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449125   (1030087) от 20.02.2021
+
+3D модели - 3DDD - 3DSky PRO models - February 1 2021 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 216 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADBEC69DD92A2EBE686786E4B20F6B29862EDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445301   (1033599) от 05.02.2021
+
+3D модели - Evermotion - Archmodels vol. 131 [Mental Ray|V-Ray|*.max, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 131 включает 3 набора трехмерных частей города с очень разнообразными моделями современных мегаполисов из разных регионов мира. Каждый набор состоит из пары частей, которые можно использовать для быстрого создания большого города. Archmodels vol. 131 включает также простую анимацию движения.Формат: Mental Ray|V-Ray|*.max, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C634112032BF085A23F3572EC2297CC91947ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445287   (1033601) от 05.02.2021
+
+3D модели - Evermotion - Archmodels vol. 238 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 238 включает 44 профессиональных высококачественных 3D-модели для архитектурной визуализации. В этой коллекции представлены деревья, типичные для биомов Австралии и Океании. Включенные виды: Eucalyptus, Platanus acerifolia, Brachychiton rupestris, Acacia pycnantha, Corymbia ficifolia, Wollemia nobilis, Araucaria heterophylla, Cupaniopsis anacardioides. (   Читать дальше...   )Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6A8BA17FEC4F67BBA041A5342D2269FFAB98CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444516   (1034283) от 02.02.2021
+
+3D модели - Evermotion - Archmodels vol. 198 [V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 198 включает 36 профессиональных высокодетализированных наборов моделей для архитектурной визуализации. В коллекцию входят качественные магазинные экспозиционные 3d модели со всеми текстурами и материалами. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D29DEB0D575DA7D61C338EDFC8DFF5B57F8D6A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443236   (1035606) от 28.01.2021
+
+3D модели - Evermotion - Archmodels vol. 204 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 204 включает 48 профессиональных высокодетализированных 3D-моделей для архитектурной визуализации. В этой коллекции представлены высококачественные модели садовых растений и кустарников. Текстуры и материалы включены. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EECC7BFC129423EEEC5C27693FC317C20BB31B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

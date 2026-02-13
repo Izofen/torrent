@@ -1,3 +1,32 @@
+###  Публикация: 1295129   (620633) от 12.04.2019
+
+Nango Manchay - Under Our Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Psydub>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Varanssi Flame (07:03)
+02. Nepali Dawn (07:42)
+03. Spaces Inbetween (06:05)
+04. Pale Blue Dot (06:21)(   Читать дальше...   )Жанр: Chillout, Downtempo, PsydubПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2755EAAF99D3F358F55183B6F97E9E8526B6F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295272   (620764) от 12.04.2019
 
 Luttrell - Into Clouds (2019) 2CD, Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
@@ -719,35 +748,6 @@ Robert Parker - Crystal City (2016) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E883D174028B8C43AFDB1EEEB42B93183BBFE33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229801   (622614) от 08.06.2018
-
-ScAnDroid Experiment's - Nature Reviving (Single) (2018) [MP3|320 Kbps] <Atmospheric, Ambient, Experimetal Electronic>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Reviving (Original Mix)
-02. Nature Reviving (Extended Guitars Mix)
-03. A Quiet Story (Original Mix)
-04. Nature Reviving (Acoustic Ambient Version)Жанр: Atmospheric, Ambient, Experimetal ElectronicПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B6BEA2931FD9FFD5ED91AB6733C82B1CE4CC41
 ```
 
 https://mybot314.ru/tekegram_catalog/

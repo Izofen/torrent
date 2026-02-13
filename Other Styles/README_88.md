@@ -1,3 +1,32 @@
+###  Публикация: 1046470   (551930) от 27.08.2016
+
+Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbin' Trains 03:25
+02. Put Me In A Box 02:44
+03. Kinda Don't Care 04:21
+04. Hell On A Highway 04:21(   Читать дальше...   )Жанр: CountryПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64F614DFFD052D6D14ED70677E84009E6560687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237401   (552355) от 23.07.2018
 
 Hummingbird - This Sacred Love (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vocal>
@@ -716,35 +745,6 @@ Kacey Musgraves - Golden Hour (2018) [FLAC|Lossless|tracks] <Country, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:812B037988A89D19AFA02A7ABD57B7914D535A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305571   (556142) от 01.06.2019
-
-Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Silver Lining  (3:51)
-02 - My House  (2:42)
-03 - Merry Go 'Round  (3:29)
-04 - Dandelion  (3:04)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58ED960956602402404E7D8F13AC34CD57599F15
 ```
 
 https://mybot314.ru/tekegram_catalog/

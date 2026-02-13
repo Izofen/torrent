@@ -1,3 +1,73 @@
+###  Публикация: 550547   (453617) от 24.09.2012
+
+VA - Русское Ассорти Новинок (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453617.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анна Герцен - Вери Гуд
+002. MainstreaM One - Больше Не Надо
+003. Виктор Рыбин и Наталья Сенчукова - Для тебя
+004. Конец Фильма - Прощание
+005. Инфинити - А Он Такой
+006. Ваня Чебанов - Отпусти
+007. Вика Гранд - Я Не Боюсь (DJ Armilov & DJ S-nike Remix)
+008. Оля Полякова - Лепесток
+009. K.Melody - Воспоминание
+010. MaкSим - Это же я(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08D108C496B74AD192AAE2B37C18812D84520D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550105   (453621) от 24.09.2012
+
+VA - Absolute Club Autumn Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deenk & Home Alone - Run Around (Original Mix)
+02. Anton Neumark - Benghazi (Original Mix)
+03. Miami Posh - Fk You All (Edlington Remix) Emun Music
+04. Dafter - Up To Your Mind (Original Mix)
+05. David Di Sabato - Orbits (Michele Calo Remix)
+06. DisCo RoCk - Tokyo Anarchy In The Cellophane (Esteban Cors Remix)
+07. Marcel Woods - Black Angus (Original mix)
+08. Freq Maverick - Batteries Not Included (Dubble JD Remix)
+09. David Heat - Easy (Zero Gravity Remix)
+10. Sonny Black, Demon Groove - Crazy Glue (Original Mix) Big Alliance Records(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6651FFCE8B391BA98924155BC00DD41B842411E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550480   (453624) от 24.09.2012
 
 VA - Dance Миссия Осени. Зарубежный (2012) [MP3|256 кб/с]<Dance>
@@ -711,64 +781,6 @@ VA - EDM Candy: Non Stop Dance Generation (2020) [MP3|320 Kbps] <EDM, House, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B1AA1A0E7081B759DAC05F0D2F227E00AB96F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060343   (455297) от 07.10.2016
-
-VA - Попсовая лихорадка осени. Сборник 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455297.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Пономарев - Я Так Хочу
-002. White Sea - Yesterday
-003. Авиатор - По Небу
-004. Sara Hartman - Satellite(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171C0A277E72BB9952FEED3813F35BF6BFC5DC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060588   (455304) от 07.10.2016
-
-VA - Toolroom Amsterdam (2016) [MP3|320 Kbps] <Electronic, Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Beyer & Mark Reeve - Nine Of You (06:38)
-02. AFFKT - FlashCrash (feat Sutja Gutierrez - Dubspeeka remix) (08:22)
-03. Ninetoes - Nose (07:46)
-04. Emanuel Satie - Come As You Are (07:31)(   Читать дальше...   )Жанр: Electronic, Minimal, Tech HouseПродолжительность: 09:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233DD53D896238490893D24661A7DC706612CA08
 ```
 
 https://mybot314.ru/tekegram_catalog/

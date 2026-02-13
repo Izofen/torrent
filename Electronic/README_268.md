@@ -1,3 +1,32 @@
+###  Публикация: 1241436   (520257) от 17.08.2018
+
+VA - Ori Uplift & Rich Triphonic - Uplifting Only 288 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syntouch & Spins – Desolation (Intro Mix)
+02. Para X & Claire Willis – Beautiful (Original Vocal Mix)
+03. FAN FAVORITE: XiJaro & Pitch – Unite Again (Extended Mix)
+04. Madwave – On the Run (W!SS Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7F41B2B1EA2B3A5820863DA12A295D2693A4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241427   (520259) от 17.08.2018
 
 VA - Best Of The Best Suanda Vol.5 (2018) [MP3|320 Kbps] <Trance>
@@ -719,35 +748,6 @@ VA - Summer Vibes 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C84646A8EA99FC4B356860C840BF67D23C10B176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559756   (523488) от 26.06.2022
-
-VA - Summer In Space Vol. 5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spacehawk - Droids (4:52)
-02. Mind Vision - Legacy Time (6:55)
-03. Ultra Synergy - The Secret Of  Fight (5:42)
-04. Space Marine - The Flight To Mars (5:54)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E197F5692B3C337603E9E21F134DD4DCC3BDA19D
 ```
 
 https://mybot314.ru/tekegram_catalog/

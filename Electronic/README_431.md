@@ -1,3 +1,32 @@
+###  Публикация: 1008312   (816111) от 18.04.2016
+
+VA - Cub Session Rush Hour Vol.10 (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axay, SPHYNX - Love Me 04:17
+02. Falko Niestolik, Oni Sky - Together (Funkin Matt Remix) 03:52
+03. Jay Frog - Share Love (feat. Dacia Bridges) 04:42
+04. Toby Webster - Jack It! 03:53(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1683B9FAED413CAAB8228BC9A07E2366CB738012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008187   (816112) от 18.04.2016
 
 Leftfield - Open Up (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Electronic, Techno>
@@ -713,35 +742,6 @@ VA - Abora Recordings: Best Of 2017 (Mixed by Ori Uplift) (2018) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C5E9A97E991DA0011B26115250E5A7DB9F8665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196853   (819198) от 05.01.2018
-
-VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasha - Arkham Asylum
-02. Jam & Spoon - Follow Me
-03. Killahurtz - West on 27th (Original Subway Mix)
-04. Schiller - Ruhe (Humate Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DFF9A7A7EE58692AEB79F04F973287AFF64E41
 ```
 
 https://mybot314.ru/tekegram_catalog/

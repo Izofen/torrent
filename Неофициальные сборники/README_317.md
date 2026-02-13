@@ -1,3 +1,61 @@
+###  Публикация: 1239673   (536857) от 06.08.2018
+
+VA - Burning Man: Drum And Bass Compilation (2018) [MP3|320 Kbps] <Drum And Bass, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536857.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Binary - Cycles (Original Mix)
+002. Fred V & Grafix - Stay Here
+003. Gydra - Scourge
+004. High Level - Rub A Dub (Original Mix)(   Читать дальше...   )Жанр: Drum And Bass, ElectroПродолжительность: 09:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DBF8D4F3152AF5BFB0AFD0E3E02F704DCF0A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925968   (536947) от 08.08.2015
+
+Алла Пугачёва - Я смогу (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я смогу
+02. Алло!
+03. Где же ты любовь
+04. Ангел любви (Странник)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA49012E4A90A171CF001F98A278FFDCD40F036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925934   (537115) от 08.08.2015
 
 VA - Native American Blues (2015) [MP3|~206 кб/с (V0)]<Native american, Ethnic, Folk, Blues>
@@ -727,70 +785,6 @@ VA - Summer on the Beach (Downtempo Lounge and Chilled House) (2015) [MP3|320 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AD6B2BB898FE9B16E1F11DCAC3838DCE87CCE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311519   (539490) от 30.06.2019
-
-VA - 100 хитов в дорогу (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ЮрКисс и Люся Чеботина - Будь Смелей 2:59
-02. Alma - Lonely Night 3:01
-03. Пающие трусы - Вася, отдыхаем! 3:15
-04. Sound Of Legend - All That She Wants 3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1248B6E21B1F9C68D34C1E937B085173279022BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531917   (539938) от 06.08.2012
-
-VA - The Best World Ballads-12 (2012) [MP3|96-320 кб/с]<Pop, Rock, Blues, Rap, R'n'B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539938.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Adriano Celentano-Uomo 4:29
-002 Carrie Underwood-Who Are You 3:56
-003 Alyssa Reid-Alone Again 3:47
-004 Lene Marlin-It's True 4:02
-005 Blue-U Make Me Wanna 3:49
-006 Keane-Strangeland 4:36
-007 Eros Ramazzotti-Nomadi D'Amore 4:01
-008 Patricia Kaas-Hotel Normandy 5:29
-009 Morten Harket-Quiet 4:22
-010 Westlife-Why Do I Love You 3:40(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 17:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627E51790F58A86E9DBA7ABAC3C609B0C7B749E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

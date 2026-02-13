@@ -1,3 +1,32 @@
+###  Публикация: 1176057   (374565) от 20.10.2017
+
+VA - Black Hole House Music 10-17 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  True North - Drifting Up  3:44
+02.  Brian Laruso - Killa (MI8 Mix)  5:54
+03.  Hausman - Soma (Extended Mix)  5:48
+04.  Harper & Green - Aratoro (Extended Mix)  8:16(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD28A8DB996976EC6B4E1726941ED784CB3C877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175803   (374566) от 20.10.2017
 
 VA - Vocal Anthems Amsterdam (2017) [MP3|320 Kbps] <Vocal Trance>
@@ -714,35 +743,6 @@ Ahmed Romel - RUYA (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9BF3DCF46876ED8D347043F9B5921FC50AEC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327349   (376727) от 24.09.2019
-
-The Green Kingdom - Expanses Remixes (2019) Dronarivm [FLAC|Lossless|tracks+.cue] <Ambient, Drone, Glitch, IDM, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (Remix By Fingers In The Noise) (05:38)
- 02. Untitled (Remix By Segue) (05:05)
- 03. Untitled (Remix By Auburn Lull) (04:10)
- 04. Untitled (Remix By Roel Funcken) (03:04)(   Читать дальше...   )Тип издания: CDЖанр: Ambient, Drone, Glitch, IDM, Experimental •Продолжительность: 10:13:27 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8663B8FD98CBACFE06C99CB5EC0AEC727AD9E07B
 ```
 
 https://mybot314.ru/tekegram_catalog/

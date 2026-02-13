@@ -1,3 +1,32 @@
+###  Публикация: 1141700   (648813) от 11.06.2017
+
+VA - Mykonos Sunset Vol 4 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ill Twin - Charlies (Max Laut Edit) (03:27)
+02. Bendito - City (Mathew Brabham Remix) (06:16)
+03. Nudisco - I See (05:41)
+04. Microwave Monkeys - Twist In My Sobriety (Radio Edit) (Feat Nita) (03:58)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97693ECF8D717972459946479C8BBB4CC9B6D8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292002   (648839) от 28.03.2019
 
 Bjarki - Happy Earthday (2019) [FLAC|Lossless|tracks + .cue] <Electronic, IDM, Ambient>
@@ -711,35 +740,6 @@ VA - Ibiza House (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0382BBE1BFAD0962DC98780E11029778E471C9FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141489   (650549) от 10.06.2017
-
-VA - Chillout Finest (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jedidiah - Sempiternal  4:57
-02.  Koan - When Visible Becomes Invisible  7:58
-03.  Kuba - We Can Still Learn  4:50
-04.  Stefan Torto - Silent Hills  6:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC45A2738835C475D7EBBBEF103551FDA9B1D3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

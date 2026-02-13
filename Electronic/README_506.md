@@ -1,3 +1,32 @@
+###  Публикация: 1467056   (1018094) от 02.05.2021
+
+New Canyons - Heavy Water (2021) [FLAC|Lossless|WEB-DL|tracks] <shoegaze, synthpop, synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Times [00:00:46]
+02. Post Nothing [00:04:03]
+03. Blackest [00:03:11]
+04. No Shame [00:03:58](   Читать дальше...   )Жанр: shoegaze, synthpop, synthwaveПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409C4E292E83D6069C2D43B84B926E23F8B17BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467120   (1018107) от 02.05.2021
 
 VA - Continental Drift (2021) IDEAL EUROPA [FLAC|Lossless|WEB-DL|tracks] <Leftfield, IDM, Ambient>
@@ -712,35 +741,6 @@ Giriu Dvasios - Sunkus (2021) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39614EBDDCE9F6938F2859D2CA581E157C84BF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465336   (1019274) от 25.04.2021
-
-Above & Beyond - The Club Instrumentals (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hideaway (Extended Mix) (7:52)
- 02. Out Of Time (Above & Beyond Extended Club Mix) (6:17)
- 03. Balearic Balls (Extended Mix) (6:29)
- 04. Hello (Extended Mix) (6:49)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 03:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21DD68AB3ACF392D167DC7BBA2ECE391A8E5F57
 ```
 
 https://mybot314.ru/tekegram_catalog/

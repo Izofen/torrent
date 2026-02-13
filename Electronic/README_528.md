@@ -1,3 +1,32 @@
+###  Публикация: 1442208   (1036896) от 24.01.2021
+
+VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'Mixmasters - Lasting Lover (Fitness Version) (04:37)
+02. DJ Kee - Kickin Hard (Fitness Version) (04:50)
+03. DJ Space'c - Holiday (Fitness Version) (04:35)
+04. Th Express - My Head And My Heart (Fitness Version) (04:24)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EA80CC8DE9529470DB0A5E6E100690A3E03DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442317   (1036898) от 24.01.2021
 
 Reaxion Guerrilla - I Hate You (2010) Special Edition, 2020 [MP3|320 Kbps] <Dark Electro, Harsh EBM, Industrial>
@@ -708,35 +737,6 @@ VA - Trance 100 - 2023 [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55630CCDB36E56566E8DC8D4CB1A3ED16F50346E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615366   (1037845) от 25.02.2023
-
-VA - The Sound of 2023 Mix 4: Kuala Lumpur (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Tech Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mac & Monday, Difstate -  Opmet (Difstate Remix)  (5:52)
-02.  Daniel Testas -  Hypogeal  (5:15)
-03.  Bjorn Fogelberg -  One Thousand Days  (6:17)
-04.  Kay-D -  Generation Spiral  (5:09)(   Читать дальше...   )Жанр: Progressive House, Techno, Tech TranceПродолжительность: 01:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C43C037C1366ECBA05514CF903CA8B1C1E23DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

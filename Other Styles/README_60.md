@@ -1,3 +1,38 @@
+###  Публикация: 573539   (363730) от 17.11.2012
+
+Stewart Dudley - 12 albums (2000-2012) [MP3|320 кб/с]<New age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363730.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:21) 01. Allure
+(4:08) 02. Summer In Sicily
+(3:39) 03. Mystery Of You
+(5:05) 04. Everything You Need
+(3:25) 05. Once It Was Home
+(2:45) 06. Souvenir
+(4:40) 07. Moonlit Colonades
+(4:24) 08. Her Face Remembered
+(3:52) 09. Yesterday Knows Why
+(3:47) 10. So Near So Far Away(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F515FAE816A11DAE3BE58DC48EC21CF98D12517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255631   (363823) от 18.10.2018
 
 VA - Life is Strange: Before the Storm Original Soundtrack (2018) [FLAC|Lossless|tracks + .cue] <Folk, Acoustic, Indie Rock>
@@ -719,32 +754,6 @@ VA - Музыка Экрана. Коллекция Ридерз Дайджест
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415367   (371566) от 14.10.2020
-
-Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer Version] (2020) Deep Purple cover [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795F54AB66CD149E53EEBD9FED64F05053E76019
 ```
 
 https://mybot314.ru/tekegram_catalog/

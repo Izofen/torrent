@@ -1,3 +1,32 @@
+###  Публикация: 1111938   (845052) от 07.03.2017
+
+Bruce Becvar - Floating Home (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Heart [00:04:17]
+02. Unspeakable Love [00:06:44]
+03. Sunshine Mind [00:04:36]
+04. March 5th [00:06:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D6DDEDA18C01900885184C9B0CB1EDDB240A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003044   (845099) от 02.04.2016
 
 Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [FLAC|Lossless|tracks + .cue] <Score / Soundtrack>
@@ -719,35 +748,6 @@ Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Tradi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110628   (852095) от 03.03.2017
-
-Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, World, Ambient, Hang>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Step (4:39)
-02. Between Oil And Water (4:55)
-03. Freeze (3:52)
-04. Pointillism (6:00)(   Читать дальше...   )Жанр: New Age, World, Ambient, HangПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118E70CA854E68EAC6622A71D2B5D164B16CBA11
 ```
 
 https://mybot314.ru/tekegram_catalog/

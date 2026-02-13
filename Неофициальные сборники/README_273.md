@@ -1,3 +1,61 @@
+###  Публикация: 942097   (457636) от 29.09.2015
+
+Elvis Presley - Good Songs (2015) [MP3|192 кб/с]<Rock'n'roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457636.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A big hunk o' love
+002. A fool such as I
+003. A Little Less Conversation
+004. Ain't That Loving You Baby(   Читать дальше...   )Жанр: Rock'n'rollПродолжительность: 08:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9525AE9C0CCC5A7A68A9D975A335C98AA047CEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941970   (457644) от 29.09.2015
+
+VA - Попсовая соточка MTV. Сборник 7 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457644.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Sandro Escobar - Блеск-Шик
+002. Nickelback - Satellite
+003. Ёлка - Нарисуй Мне Небо
+004. Snoop Dogg & Tha Dogg Pound - Foreign Dpg(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2EFA693A27211BF9025FD36A37ADFDA9682C4F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568502   (457783) от 10.08.2022
 
 VA - Best tracks of Way Out There by Jody Wisternoff, 2012-2014, Volume 4 (2022) [MP3|192-320 Kbps] <Progressive House, Deep House, Techno House>
@@ -699,64 +757,6 @@ VA - Enhanced Techno Electronic (2019) [MP3|320 Kbps] <Techno, Electronic, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C02BEB74BE2DFBBDB528AAF902DA64B9A2200BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246421   (459178) от 12.09.2018
-
-VA - 130 The Abundance of Styles Loaded (2018) [MP3|320 Kbps] <Pop, Country, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459178.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Qveen Herby - Love Myself (Wild Culture Remix) (Dirty)
-002. DVBBS and Blackbear - Idwk (Dj Rukus Intro Edit) (Clean)
-003. Ying Yang Twins Ft. Mike Jones - Badd (MAKJ and Max Styler Remix) (Dj Rukus Intro Edit) (Dirty)
-004. J Balvin Ft. G-Eazy Mc Fioti Anitta Sfera Ebbasta Duki and Jeon - Machika (Remix) (Clean)(   Читать дальше...   )Жанр: Pop, Country, HouseПродолжительность: 07:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC8E503C408CC789FC6D78DB754AFC7F287895E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162361   (459209) от 01.09.2017
-
-VA - Hardstyle Dance Generation (2017) [MP3|320 Kbps] <Hardstyle, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459209.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Styles & Breeze - You're Shining Hardcore Mix
-002. lol - Love Leaves No Scar Hixxy Remix
-003. Cascada - Everytime We Touch Styles & Breeze Hardcore Edit
-004. Petruccio & Modulate - Missing Gammer Remix(   Читать дальше...   )Жанр: Hardstyle, Dance, ClubПродолжительность: 08:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FCCC6941CB26B983C9EE037B3BBF9DADD78B61
 ```
 
 https://mybot314.ru/tekegram_catalog/

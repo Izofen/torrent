@@ -1,22 +1,22 @@
-###  Публикация: 1220209   (706089) от 18.04.2018
+###  Публикация: 1220480   (702453) от 20.04.2018
 
-NGW: Молниеносные акулы / Blitzkrieg sharks (2016) HDTV [H.264/1080i-LQ]
+Встреча на переправе (1963) VHSRip [H.264] [MP4|640x480]
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Мультимедиа и прочее
+>>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706089.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы узнаете то, что изменит ваше мнение о поведении и стиле питания акул, этих невероятных хищников.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кевин БачарПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
+Окончилась война. Демобилизованный солдат Чепурнов (Геннадий Фролов) едет к своей невесте Варе Карповой, которую знает по переписке. По пути на пароме Чепурнов знакомится с перевозчицей Клавдией. Молодая женщина знает его невесту и знает то, что Валентина писала не только Чепурнову. Но об этом она молчит — ей нравится задумчивый солдат, и она не хочет его расстраивать. (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Драма, КороткометражныйРежиссер: Гавриил ЕгиазаровАктеры: Инга Шантырь, Геннадий Фролов, Игорь Цветков (II), Всеволод Санаев, Борис Новиков, Пётр Любешкин, Ольга Маркина,Елена Максимова, Раднэр Муратов
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D8545364AF84ADD8187B52EC69A98DD205E2335
+magnet:?xt=urn:btih:F0DD0E6712408484841C1CCB82485515B49CC450
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,138 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220206   (706090) от 18.04.2018
+###  Публикация: 1220703   (702454) от 20.04.2018
 
-NGW: Возвращение львов / Return of the lion (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не слышал рев льва в руандийской пустыне в течение 15 лет, но это должно измениться. Скоро в Национальный парк Акагера прибудут львы. Пройдёт немало времени, прежде чем они адаптируются на этой новой территории в Центральной Африке.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кира ИваноффПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A69DE7806B91794D0489D4815FA35E8B10B10BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220164   (706091) от 18.04.2018
-
-Tax The Heat - Change Your Position (2018) [FLAC|Lossless|tracks] <Classic Rock, Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money In The Bank
-02. Change Your Position
-03. Playing With Fire
-04. All That Medicine(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A464446791AF31734B6F65DB8ED2185959BD70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220217   (706092) от 18.04.2018
-
-NGW: Первая тройка самых опасных животных. Маленькие убийцы / World's deadliest. Little killers (2013) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706092.jpg" />
-</div>
-
-
-###  Подробнее
-
-От горностаев и красных собак до синекольчатых осьминогов - эти небольшие хищники убивают животных во много раз превосходящих их по размеру.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс БитонПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4FFEF02DD1884858FA788A60D045F74056B1E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220341   (706093) от 18.04.2018
-
-The Blues Mystery - Soul Memories (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 25 degress below zero (03:47)
-02. Sit down (04:14)
-03. Has humankind lost its soul (04:27)
-04. I'm afraid of the next blues (03:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AB3E761339FD714468EBF06972F49BADD8487F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220268   (706094) от 18.04.2018
-
-VA - Deep House Session (Vol. 2) (2018) [MP3|320 Kbps] <Deep House, Electronic>
+VA - Take On The Best Of Vocal Synthwave 2 (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Dreamwave>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706094.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dophamean - Sunrise
-02. Styline & Stravy ft. Hoody Time - Now We Go Deep (Original Mix)
-03. Claptone Ft. Nathan Nicholson - Under The Moon
-04. Pink Noisy feat. Barrice - Orlando Dawn (Extended Mix)(   Читать дальше...   )Жанр: Deep House, ElectronicПродолжительность: 03:33:08
+01. LANights - Voice Don't Stop Voice (Gertrudda Synthmix Edit) (5:55)
+02. Kalax feat. Player One - Not Alone (5:16)
+03. Jenny feat. NightStop - Moonlight Bubblebath (Gertrudda Fanmix Edit) (7:05)
+04. Timecop1983 feat. By An Ion - Falling Apart (The New Division Remix) (5:06)(   Читать дальше...   )Жанр: Synthwave, Retrosynth, DreamwaveПродолжительность: 03:22:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C98FD613FEDBFA613211EF163EF845EF002719AC
+magnet:?xt=urn:btih:74BB5F3DA476AD007ED52DAF997BC68BFA8A938C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220360   (706095) от 18.04.2018
+###  Публикация: 1220615   (702455) от 20.04.2018
 
-K-Lite Codec Pack Update 14.1.1 [En]
+CoolUtils Total PDF Converter 6.1.0.144 RePack by вовава [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706095.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00D40DE53DB5DF6710DD7FD86688D1CACE49756A
+magnet:?xt=urn:btih:E0816D41BA82D3869D77D27BB5409C39FC3B04FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,27 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220167   (706096) от 18.04.2018
+###  Публикация: 1220580   (702456) от 20.04.2018
 
-Steve Oda & Ty Burhoe - Peace - Music For Life (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indian Classical>
+Dennis Coffey - Back Home (1977) LP [MP3|320 Kbps] <Funk, Disco>
 
->>Архив торрентов
->>Архив Музыки
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706096.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Raga Bageshri Kanara - Alap, Jor, Jhala
-02. Raga Bageshri Kanara - Tintal
-03. Raga Piloo - RupaktalЖанр: Folk, Indian ClassicalПродолжительность: 00:58:31
+01. Funk Connection (5:22)
+02. Back Home (5:35)
+03. Free Spirit (5:51)
+04. Our Love Goes On Forever (6:00)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:43:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9048337AC54F13FA23AB78D51F2214E2BC63DA0
+magnet:?xt=urn:btih:046D72506D541EAE1B77ECAB3F00A8045884E337
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,28 +108,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220210   (706097) от 18.04.2018
+###  Публикация: 1220697   (702457) от 20.04.2018
 
-VA - Deep House Collection vol.166 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Rosemary Clooney - Eight Classic Albums (1955 - 1961) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702457.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. You'll Never Know [03:08]
+02. On The Atchison, Topeka And The Santa Fe [02:34]
+03. Buby [02:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 04:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A10CB2617F33E059790BE3ECABA11FB5D8D6680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220612   (702458) от 20.04.2018
+
+Hydrangea - Discography 8 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osmosis I (04:17)
+ 02. Osmosis II (07:58)
+ 03. Osmosis III (06:28)
+ 04. Osmosis IV (06:45)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Techno AmbientПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4107C47EE6443C4D038FE5F440770712A73D59C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220599   (702459) от 20.04.2018
+
+VA - Trance Treasures: Pacific Legendary Sounds (2018) [MP3|320 Kbps] <Progressive, Electro, Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706097.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Aero Manyelo & Fluida - Man to Many (Original Mix)
-002. Ahmet Kural  - Haydar Haydar  (Cover Munircan Demirtas Remix)
-003. al l bo - Deep In My Soul (Mr Wu Remix)
-004. Alexey Talano & Elliaz х Sevenn  - Colors Of The Rainbow  (Bootleg)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:10:10
+Прошло уже больше половины весны, но на улице по-прежнему прохладно. Отлично согреться и взбодриться поможет музыкальная подборка «Trance Treasures: Pacific Legendary Sounds» – свежий музыкальный сборник коммерческого формата для любителей качественного транса.001. Late Night Alumni - Montage (Mitiska Extended Signature Mix)
+002. Miroslav Vrlik - Second Reset (Original Mix)
+003. Bukat - Free Character (Original Mix)
+004. FRAM! feat. ANGE - Limits (Mix-Roman Remix)(   Читать дальше...   )Жанр: Progressive, Electro, TranceПродолжительность: 09:56:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60CF92D97BCDEF33D250AEB71EA84C9086163EB9
+magnet:?xt=urn:btih:8FD2763B201476BE94819612E8F16266452A513C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,28 +195,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220261   (706098) от 18.04.2018
+###  Публикация: 1131979   (702468) от 08.05.2017
 
-VA - Happy Easter Dance 2 (2018) [MP3|320 Kbps] <Dance, Hands Up, Dancecore>
+Проекты - VideoHive - Business & Startup Flat Icons - 15992053 [AEP]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Проекты
+>>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706098.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Danny Keegan - Let the Music Do the Job (NeoTune! Edit)
-02. Crazy - Pegasus (Radio Edit)
-03. Some Tunes feat. Bad Drums - Imagination (Radio Mix)
-04. Rabih - You and I (Commercial Club Crew Remix Edit)(   Читать дальше...   )Жанр: Dance, Hands Up, DancecoreПродолжительность: 02:56:54
+Business & Startup Flat Icons - это коллекция из 288 анимированных иконок в четырех категориях для вашего творчества.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83153348C3A5FBF9B615C1C4359586A4B6F69BCF
+magnet:?xt=urn:btih:F63B0AE23DF03626F79A78075EC599646EA9AB5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,278 +221,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 792353   (706121) от 04.06.2014
+###  Публикация: 1132231   (702470) от 08.05.2017
 
-Футбол. Чемпионат Европы 2008. 1/4 финала. Голландия - Россия (2008) HDTVRip [H264/720p-LQ] 50 fps
+Молчание / Silence (2016) HDRip [Line, AD]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706121.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_702470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: СпортПродолжительность: 02:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4832D12E8B8E53328E0D861425B827C7ABCB49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026150   (706133) от 14.06.2016
-
-Контрабанда.com.ua - Dreamer (2015) [MP3|320 кб/с] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Boy (03:17)
-02. Marie (03:08)
-03. Heaven Can Wait (02:22)
-04. Angel (03:53)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6AF6EF826EF7B58067470F926B3964A8338425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026180   (706135) от 14.06.2016
-
-UFO - The Visitor (2009) [APE|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saving Me (5:08)
-02. On the Waterfront (3:50)
-03. Hell Driver (4:26)
-04. Stop Beaking Down (4:55)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2909F40291821BE7D304273836F0CFF602D0FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026039   (706136) от 14.06.2016
-
-Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Island [00:10:29]
-02. Sparkling Light [00:20:26]
-03. Temple Shrine [00:20:34]Жанр: New AgeПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF5C16C32A9EA87C0B62A71EB6C4202D994BF14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792931   (706137) от 04.06.2014
-
-IQ - The Road of Bones (2014) [FLAC|Lossless]<Neo Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706137.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. From The Outside In (7:25)
-02. The Road Of Bones (8:32)
-03. Without Walls (19:16)(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 00:53:08+00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC51ED7934E405CA644781A840E9A56B10566CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026128   (706138) от 14.06.2016
-
-Forcefield - Forcefield (1987) 1990, Polydor [WavPack|Lossless|image + .cue] <Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke On The Water (7:10)
-02. Set Me Free (3:52)
-03. Runaway (4:18)
-04. Sunshine Of Your Love (4:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F397F8D6DE68FD94E6C3E78E11D964F44E5563E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026320   (706140) от 14.06.2016
-
-VA - Ibiza Trance Volume One (2016) [MP3|320 кб/с] <Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tritonal - Gamma Gamma (Ferry Corsten Radio Fix) (3:03)
-02. Rodrigo Deem & Las Salinas feat. Emily Harder - Anything (Radio Edit) (3:10)
-03. Breathe Carolina & Shanahan feat. Haliene - Stars & Moon (LTN Radio Edit) (3:21)
-04. Axis - Spirals (Radio Edit) (3:42)(   Читать дальше...   )Производство: Enhanced MusicЖанр: Trance, Progressive HouseПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B92CE7231F3D7322BE92296C2B4E0594039698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026186   (706142) от 14.06.2016
-
-Blue Pilots Project - Reboot (2009) [FLAC|Lossless|image + .cue] <Ambient, Chillout, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706142.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:17] 01. Main Crisis
-[04:55] 02. Reboot
-[06:39] 03. Mamouth
-[04:33] 04. Hallelujah(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1647E6E31FB4FFC378955CC831B2B8C203F0A04F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026305   (706144) от 14.06.2016
-
-Виктор Еремин | Крымские «армагеддоны» Иосифа Сталина (2016) [FB2, RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706144.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: В этом документальном исследовании популярно рассказана: полная история попыток создания еврейского государства в Крыму (а не в Палестине); история возникновения, обострения и разрешения конфликта между сталинской властью и советскими евреями в целом; история прометеистов – лидеров мусульманских националистов, вынудивших Сталина репрессировать их народы (   Читать дальше...   )Жанр: Публицистика. ИсторияФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02AF1BC8F4143DA800C5107BD3DA802DBF9B0536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026205   (706146) от 14.06.2016
-
-ИРИ организует третейский суд над пиратами
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_706146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для голодающего населения будет создан суд из фермеров
-и агропромышленников, чтобы ускорить наказание огородных воров.
-Распашка целины, субсидий и повышение урожайности
-и доступности еды не планируется.(   Читать дальше...   )
+В XVII веке два священника-иезуита подвергаются насилию и преследованиям во время странствия по Японии, куда они приехали с целью найти своего наставника и распространять христианское Евангелие.Производство: США, Тайвань, МексикаЖанр: Драма, ПриключенияРежиссер: Мартин СкорсезеАктеры: Эндрю Гарфилд, Адам Драйвер, Лиам Нисон, Таданобу Асано, Киран Хайндс, Иссэй Огата, Синья Цукамото, Ёси Оида, Ёскэ Кубодзука, Каору Эндо, Диего Кальдерон, Рафаэль КэйдингПеревод: Дублированный (Чистый звук)Субтитры: Английские (на японскую речь)Продолжительность: 02:42:49Реклама: Присутствуют аудио и видео вставки рекламы
 
 ## Скачать торент
 ```bash
@@ -558,25 +247,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026236   (706147) от 14.06.2016
+###  Публикация: 1132028   (702471) от 08.05.2017
 
-О. В. Губарева | Божия Матерь в Её иконах [Опыт художественно-богословского анализа] (2008) [PDF, DJVU]
+Nazareth - The Best Of (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Hard Rock>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706147.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга петербургского искусствоведа Оксаны Губаревой посвящена истории и иконографии наиболее известных чудотворных образов Божией Матери. Анализ конкретных икон предваряется введением, которое посвящено почитанию Божией Матери, общим вопросам иконографии, композиции богородичных икон. Подход О. Губаревой к этим проблемам можно назвать художественно-богословским. (   Читать дальше...   )Жанр: ИконографияФормат: PDF, DJVU
+01 Another Year
+02 Cocaine (Live)
+03 Let Me Be Your Leader
+04 You Love Another(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:07:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D6D04A7C23133DAF45FCC9F237D428663886D0C
+magnet:?xt=urn:btih:38DAE6E9141586C6A1837DC4D0E3B7AE5F5C94AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,28 +276,187 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026153   (706148) от 14.06.2016
+###  Публикация: 1132269   (702472) от 08.05.2017
 
-Together 3.5.12 [En]
+Проекты - VideoHive - Cards Wall Logo Reveal - 19466436 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа или названия вашей компании. Отлично подойдет для канала YouTybe, Twitter, Facebook и др. социальных сетей.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5ED5ACA1718B0014966077DAF1CB5C36B780205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132054   (702473) от 08.05.2017
+
+Проекты - VideoHive - 50 Creative Titles - 19718046 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702473.jpg" />
+</div>
+
+
+###  Подробнее
+
+50 креативных дизайнерских анимированных титров, в пяти категориях и трех стилях для вашего творчества.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14142D0139ABC23AD0426E9431BC5F5C37D774F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132071   (702474) от 08.05.2017
+
+Проекты - VideoHive - Flexible Split Screen 56 Photo Slideshow - 6967320 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flexible Split Screen 56 Photo Slideshow - это стильный проект для создания фото слайд-шоу, в котором плавные переходы с утечками света (Light Leaks). Есть выбор своего количества фотографий (минимум 3 фото, максимум 56). Присутствует интро и аутро, где вы можете поместить свой логотип или текст.
+Подробные видео-уроки помогут без особого труда настроить проект даже (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C74C570765A8FE92CC01CF39AC114699AF51C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132105   (702476) от 08.05.2017
+
+Проекты - VideoHive - Opening Titles-Late Night Show - 19568970 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания стильных неоновых начальных титров или вступительной/финальной видео-заставки.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C41FC7934D7440C334510E8AC1AC65C1F4BFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793520   (702477) от 06.06.2014
+
+VA - Insight (Compiled by Alex Vilator) (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Ambient, Industrial, Glitch>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706148.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Together - Программа для хранения и организации файлов.
-Благодаря поддержке функции drag-and-drop, Together позволяет собирать изображения, текст, закладки и другие файлы, и хранить их в порядке. Все файлы можно делить на группы и папки, добавлять теги и ярлыки. А встроенная функция поиска поможет быстрой найти нужный файл.
+01. Tineidae - Initial Phase (5:44)
+02. c.db.sn - Of Tundras and Glaciers (7:28)
+03. Access to Arasaka - Medway (3:43)
+04. Huron - Vector Change (6:49)(   Читать дальше...   )Жанр: IDM, Downtempo, Ambient, Industrial, GlitchПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524FD26BE695E4CE7D4A21787C923A5893E7CF9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132130   (702478) от 08.05.2017
+
+Total Uninstall 6.19.1 Professional Edition RePack by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Uninstall - утилита, предназначенная для корректного удаления установленных программ. Первым этапом в работе Total Uninstall является слежение за изменениями в системе во время установки нового софта. Делается снимок файловой системы и реестра до начала установки того или иного приложения и после. В дальнейшем, исходя из собранных в момент установки программ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED160507823C80FBA87F2187DE2C54A7B7083CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121126   (702479) от 08.05.2017
+
+Ольга Романовская | Маг без диплома (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Тени над Сатией».
 
-Приложение может хранить в своей базе (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 июня 2016Разработчик: ReinventedSoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+Даже в самой неприметной жизни могут случиться большие неприятности. А из честной верноподданной легко превратиться в обвиняемую в череде тяжких преступлений. Просто потому, что кому-то нужна «подсадная утка».Жанр: Героическая фантастика, Городское фэнтези, Детективная фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87EE50D71277336D59F45E0439539B9296EA6D81
+magnet:?xt=urn:btih:FD889FE86A775724BD60692022DB1F3CC2CC505A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,29 +464,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026152   (706149) от 14.06.2016
+###  Публикация: 1131971   (702481) от 08.05.2017
 
-Forecast Bar 2.6 [En]
+Проекты - VideoHive - Call-Out Titles - 18617111 [AEP]
 
->>Архив торрентов
->>Архив 4Apple
+>>Проекты
+>>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706149.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
-
-Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
-- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 июня 2016Разработчик: Real Casual Games, LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-* показания прогноза погоды можно сделать на русском (в настройках программы)
+Call-Out Titles - это набор различных элементов и титров, которые помогут вам выделить и подчеркнуть мелкие, но тем не менее важные детали в ваших продуктах, которые вы хотите прорекламировать. Так же для более подробного разъяснения, можно добавить текстовые блоки.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C3224A4C2BD59959A84587189FBDB495B27AA0A
+magnet:?xt=urn:btih:475119AA66C34DB3F400278C68514AD4F19F21C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,25 +490,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026241   (706150) от 14.06.2016
+###  Публикация: 1131995   (702482) от 08.05.2017
 
-Т. И. Афанасьева | Литургии Иоанна Златоуста и Василия Великого в славянской традиции (по служебникам XI-XV вв.) (2015) [PDF, DJVU]
+Три икса / xXx (2002) BDRip [H.264/720p] [15th Anniversary Edition]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706150.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Монография посвящена филологическому и историко-литургическому исследованию славянского перевода литургий Иоанна Златоуста и Василия Великого по рукописным служебникам древнейшего периода. В книге излагается методика исследования литургического текста, изучается состав последования и язык перевода в древнерусской и южнославянской письменности, а также дается исторический (   Читать дальше...   )Жанр: ЛитургикаФормат: PDF, DJVU
+Ксандер Кейдж — бывшая звезда экстремальных видов спорта, настоящий "адреналиновый наркоман". Он не представляет себе жизни без смертельного риска и азарта. Он нигилист, презирает "общество потребления" и живет только ради острых ощущений. Решив доказать, что он может совершить невозможное, Ксандер берется за особое поручение агента спецслужб (   Читать дальше...   )Производство: США, Revolution Studios, Original FilmЖанр: Боевик, Криминал, Триллер, ПриключенияРежиссер: Роб КоэнАктеры: Вин Дизель, Азия Ардженто, Сэмюэл Л. Джексон, Мартон Чокаш, Джо Букаро-третий, ТиДжей Бойс, Ив, Пол Ландрес, Майкл Руф, Дэнни Трэхо, Ричи Мюллер, Вернер Даен, Пётр Якл, Ян Павел Филипенски, Том ЭвереттПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, профессиональный одноголосый, авторскийСубтитры: русские (forced, full), английские (full)Продолжительность: 02:04:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F98F7B5F0C0FA5AC0706C4C1A1A2A8699E8310A8
+magnet:?xt=urn:btih:34287F2A491E77A3701648811704F18F79F7C05F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,25 +516,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026260   (706151) от 14.06.2016
+###  Публикация: 1132185   (702483) от 08.05.2017
 
-Василий Ванюшев (сост.) | Дедушкин родник (1981) [FB2]
+Проекты - VideoHive - Liquid Slideshow - 17796083 [AEP]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Проекты
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706151.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказы и сказки удмуртских писателей.Жанр: Детская прозаФормат: FB2
+Проект для создания слайдшоу или вступительного ролика для вашего видео.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91F0CA88D12E0EC26291550A378586B55BECBBD2
+magnet:?xt=urn:btih:D8C458E379759829136989438E54702F3373F659
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,28 +542,157 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026288   (706152) от 14.06.2016
+###  Публикация: 1132220   (702484) от 08.05.2017
 
-Herbie Hancock Trio with Ron Carter + Tony Williams - Trio '81 (1981) Remaster, 1996, Sony Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+Разведчики (1968) DVDRip [H.264]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706152.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Stablemates [11:06]
- 02.Dolphin Dance [10:19]
- 03.A Slight Smile [09:04]
- 04.That Old Black Magic [08:34](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:45:43
+Великая Отечественная война близится к концу. Гремят бои на Дунае. Река  минирована противником, и Красной армии никак не удаётся провести по Дунаю караван судов с продовольствием для голодающих жителей города. Группе разведчиков поручают особо важное задание, проникнуть в глубокий тыл врага и добыть у противника карту заминированных участков реки...Производство: СССР, Киностудия им. А. ДовженкоЖанр: Военный, ДрамаРежиссер: Игорь Самборский, Алексей ШвачкоАктеры: Иван Миколайчук, Леонид Быков, Константин Степанков, Андрей Сова, Алексей Смирнов (I), Гия Кобахидзе, Людмила Марченко, Виталий Дорошенко, Владимир Емельянов, Лаврентий Масоха, Лев Перфилов, Борислав Брондуков, Валерий Панарин, Юрий Цупко, Анатолий Юрченко, Александр Ануров ст., Владимир Волков, Валентин Дуклер, Рудольф Дамбран, Анатолий Кучеренко, Дмитрий Франько, (   Читать дальше...   )Продолжительность: 01:14:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C9A5319E6E773546D644701CB85888C0637A3E0
+magnet:?xt=urn:btih:EFE51824852988C026473833CC84DB0ED8501711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132074   (702485) от 08.05.2017
+
+Роман Злотников,  Антон Корнилов | Время твари. Том 2 (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настало время решающей битвы. Битвы, о которой еще долгие века будет помнить мир Шести Королевств. Потому что воины Высокого Народа вновь вышли к людям. Но не с тем, чтобы сражаться с ними. А чтобы встать на их сторону в жестоком противостоянии с древним злом Блуждающего Бога… И никто из людей в тяжкие те дни не задумывался, чем придется платить за помощь эльфов…Жанр: Фэнтези, БоевикПродолжительность: 08:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB75D86A63A82183C31D03EFFA64392E906AD95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069551   (702486) от 08.05.2017
+
+Где ты был, Одиссей? (1978) DVDRip [H.264] (3 серии из 3)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит во Франции и Германии в 1944 году. Советский разведчик, действующий под именем французского коммерсанта Огюста Птижана, «сдается» гестаповцам, которые принимают его за английского шпиона. Таким образом, он получает возможность установить непосредственные контакты с высокопоставленными сотрудниками гестапо и абвера, понимающими неизбежность поражения (   Читать дальше...   )Производство: СССР, Одесская киностудияЖанр: Военный, ДрамаРежиссер: Тимур ЗолоевАктеры: Донатас Банионис, Анатолий Ромашин, Ирина Терещенко, Георгий Дрозд, Лев Перфилов, Карлис Себрис, Виктор Маляревич, Александр Лазарев ст., Лиля Максименко, Эрвин Кнаусмюллер, Пётр Кудлай, Владимир Наумцев, Юрий ОрловПродолжительность: 01:05:59 + 01:15:53 + 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF6C6F59F23B9B4028D5166167B1623767888FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131924   (702489) от 08.05.2017
+
+Стэлс-истребитель Гитлера / Hitler's Stealth Fighter (2009) SATRip
+
+>>Документалистика и Телепередачи
+>>Авиация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702489.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние месяцы Второй мировой войны, войска Союзников разыскивали сверхсекретное оружие Германии. В одном из ангаров они обнаружили реактивный истребитель в виде крыльев летучей мыши, сконструированные для беспрепятственного преодоления радиолокационной обороны - сегодня это называют стэлс-самолетами. Если бы инженеры нацистов имели больше времени, то эти самолеты (   Читать дальше...   )Производство: США, Германия, Канада, for National GeographicЖанр: Документальный, авиация, война, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A0F06E7563FDA421797D8B4649F1DE0AD062AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793587   (702490) от 06.06.2014
+
+Журнал | Everday Practical Electronics №7 (июль 2014) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский журнал по электронике для радиолюбителей. В каждом номере публикуются конструкции для повторения различного уровня сложности с описанием, схемами, печатными платами и прошивками для микроконтроллеров.
+Содержание журнала представлено на скриншоте.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384209F42C3AEB60BA9623B048A10A3423B7E491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132393   (702491) от 08.05.2017
+
+Мастер со сломанными пальцами / Master with Cracked Fingers / Diao shou guai zhao (1972) HDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702491.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме Джеки Чан учится владеть самым смертельнум оружием на свете — своими руками и ногами, для того, что бы отомстить за смерть своего отца.
+Он решает предпринять опасный поход в логово самой опасной в районе банды, которая в битвах не знает никаких правил, у банды есть предводитель, который не знает жалости ни к кому, а жаждет только крови.Производство: Гонконг / Soon Lee FilmsЖанр: Боевик, Детектив, КомедияРежиссер: Му ЖуАктеры: Джеки Чан, Сиу Тиен Юэнь, Дин Шек, Квок Чои Хон, Юэнь Бяо, Фенг Тиен, Ёнг-Мун Квон, Кэм Чунг, Шао Лун Чианг, Чун ЧинПеревод: Профессиональный (многоголосый, закадровый)Субтитры: ОтсутствуютПродолжительность: 01:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C462EE9923542134FD1852F2FA7E09C3438D737F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 944652   (438400) от 08.10.2015
+
+VA - Deep City Nights Los Angeles 30 Deep House Tunes (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Brooker - Muddy Waters - Deep House Mix
+02. Ken Raymond - Compressed - My House Mix
+03. Ralph Love - We Take Everything - Original Mix
+04. Frank Wolks - September - House Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A887D863B9256EA95E2D895733AC4C5EDC5EC902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944659   (438407) от 08.10.2015
+
+VA - Say Love - Finest Chillout & Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sura Quintet - 2Night (05:51)
+02. Mind Conventions - Sweet Fever (05:52)
+03. Baghira - Maybe (05:33)
+04. Kusuma Orchestra - Beyond Reason (05:24)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5773FCA2BC90A41636F9EE5F030884F10665DEDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553406   (438485) от 30.09.2012
 
 VA - TOP 100 Зайцев.нет (04.09.2012) [MP3|128 - 320 кб/с]<Pop, Chanson, Rock, Dance, Club, Rap>
@@ -744,64 +802,6 @@ Toto Cutugno - Good Songs (2015) [MP3|128 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0C1F682F4ECC1BD2C3443C949AA214A18157D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944304   (440231) от 07.10.2015
-
-VA - Calming Piano Music The Best Relaxing Instrumental Songs Easy Listening Mellow Cafe and Jazz Piano Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxing Piano Music Ensemble - Calming Piano Music
-02. Relaxing Piano Jazz Music Ensemble - Piano Lounge (SPA Music)
-03. Sad Instrumental Piano Music Zone - Jazz Piano Music (Relaxing Jazz)
-04. Piano Jazz Calming Music Academy - Relaxing Music(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C60366C94B1B0017D2B1DA2AC93D51445090C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944533   (440510) от 07.10.2015
-
-VA - Recognition Of The Heart (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akon Feat.Te Money & Fabulous - Salute
-002. Beautiful - Christina Aguilera
-003. Greatest Love of All - Whitney Houston
-004. Sexual Healing - Marvin Gaye(   Читать дальше...   )Жанр: PopПродолжительность: 06:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A8AD17E1D81D2AACD617DB96FE011EEA02E5633
 ```
 
 https://mybot314.ru/tekegram_catalog/

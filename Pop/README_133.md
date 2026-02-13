@@ -1,3 +1,61 @@
+###  Публикация: 1182510   (314360) от 11.11.2017
+
+Technotronic - Best Of (2012) Compilation [FLAC|Lossless|tracks + .cue] <Euro House, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pump Up The Jam (3:36)
+ 02. Get Up (Before The Night Is Over) (3:29)
+ 03. This Beat Is Technotronic (feat. MC Eric) (3:38)
+ 04. Rockin Over The Beat (Rockin' Over Manchester) (7'' rmx) (4:08)(   Читать дальше...   )Жанр: Euro House, TechnopopПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1E43EC0C42B741578D95A00A2F0C9DA66B7179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959437   (314381) от 25.11.2015
+
+VA - Disco Discharge (2009-2012) [MP3|184-320 кб/с]<Disco, Italo Disco, Hi NRG, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Buzzard's Original Savannah Band - Cherchez La Femme/Se Si Bon (5:47)
+02. Double Discovery - Thanks For Loving Me (8:45)
+03. Cheryl Lynn - Got To Be Real (5:08)
+04. Rose Royce - Do Your Dance (9:19)(   Читать дальше...   )Жанр: Disco, Italo Disco, Hi NRG, Funk|Продолжительность: 39:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB3CD71DF6506A72378672615223EC780283105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182496   (314454) от 11.11.2017
 
 Давид Тухманов - Белый танец (Лучшие песни 70х и 80х гг) (1997) [APE|Lossless|image + .cue] <Ретро>
@@ -684,64 +742,6 @@ Anastacia - Ultimate Collection (2015) [FLAC|tracks + .cue]<Pop, Pop Rock, Funk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:879671592EBD72749C5082483E2CDA6C2A563D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959406   (317210) от 24.11.2015
-
-Texas - Texas 25 (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шотландцы Texas выпустили новый альбом «Texas 25». Стандартное издание включает в себя 12 треков, - в том числе восемь перезаписанных известных хитов (а ля «Black Eyed Boy», «Halo», «I Don't Want a Lover», «Say What You Want», «Summer Son» и «The Conversation») и четыре совершенно новых. Специально в честь юбилейного релиза, старые песни были переработаны и перезаписаны (   Читать дальше...   )01. Start A Family
-02. Black Eyed Boy
-03. Say What You Want
-04. Supafly Boy(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10121EE9E296439A6316A5477D7CE2CC7EB3EFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421322   (317474) от 05.11.2020
-
-VA - Rare80 Records - Rare80 Volume 2 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rare80 Volume 2 CD1
-01. Shanghai - Ballerina (Club Mix)
-02. Andrea - Macho Man (Macho Man Version)
-03. Rewind - Rosalie (Pop & Go) (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFFF599D4AAD54D4B729FD873A96691D2AF8AC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

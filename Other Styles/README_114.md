@@ -1,3 +1,32 @@
+###  Публикация: 1289028   (690225) от 14.03.2019
+
+Montgomery Gentry - Here's To You (2018) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690225.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shotgun Wedding (03:21)
+2. Better Me (03:26)
+3. Needing a Beer (03:44)
+4. What’cha Say We Don’t (03:40)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC778595E97BC036E41EBB4003CCAA2E06F4A9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288907   (690228) от 14.03.2019
 
 Ashley McBryde - Girl Going Nowhere (2018) [FLAC|Lossless|tracks + .cue] <Folk, Country>
@@ -730,35 +759,6 @@ George Toward - Red Fantasies - Rhythms of Pure Romance (2018) [MP3|256 Kbps] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FD9C9D76DC0573E0F90404A1FE25CCFF4F2C1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221131   (692994) от 25.04.2018
-
-David Osborne - Best of David Osborne: Solo Piano Performances (2018) [MP3|320 Kbps] <Instrumental, Piano, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Listen to Your Heart
-02. On the Wings of Love
-03. When I Was Your Man
-04. To Where You Are(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D560EF3C1693AA3DB845E156C4E04E8F8D0CF9D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

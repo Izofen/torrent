@@ -1,3 +1,32 @@
+###  Публикация: 1365477   (930893) от 07.03.2020
+
+VA - Multiplexing Variations (2019) Fantasy Enhancing [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bålsam - Inside The Aboriginal Womb Of Our Mother Tree (08:45)
+ 02. Min-Y-Llan - Chant (Mick Chillage Remix) (12:54)
+ 03. Ancient Astronaut - Cosmic Dance (05:42)
+ 04. Ambidextrous - Jules Verne Still Gleaming (08:05)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 02:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58B42B4E48689AA2EB3E3F3934DEB7E1EF270EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214521   (931807) от 06.03.2020
 
 Amelia Arsenic (ex Angelspit) - Discography 5 Releases (2015-2020) [MP3|320 Kbps] <Industrial, Harsh Beat, Electronic>
@@ -716,35 +745,6 @@ Five Thousand Spirits - Towards Edentea (2011) Sempiterna Mutatio [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97194B4CDAC83A19ADC4E4EC0AE74A2BFDC413B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365078   (933810) от 05.03.2020
-
-VA - Urban Sports Music, Vol. 1 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rayman Rave - My Freedom (Radio Edit) [03:15]
-02. Trillogee and Taw feat. Gemeni - Tnt (Happy Gangsters Remix Edit) [03:36]
-03. L4ndy - Party Animals (Radio Edit) [02:51]
-04. Edher Torres - If You Sexy (Radio Edit) [02:43](   Читать дальше...   )Жанр: HouseПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187BFCBF9D5F455979C89363367BA06DA0E60B62
 ```
 
 https://mybot314.ru/tekegram_catalog/

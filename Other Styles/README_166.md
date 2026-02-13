@@ -1,3 +1,32 @@
+###  Публикация: 1367943   (914065) от 17.03.2020
+
+Alexander Ryabtsev (Александр Рябцев) - Europe: Fantasy Vol. 13 (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Иванович Рябцев родился 12 марта 1963 г. в семье военнослужащего. Окончил радиотехнический факультет Новороссийского высшего инженерного морского училища. Начинал работать на судах загранплавания Новороссийского морского пароходства начальником радиостанции. В 1998 г. заочно окончил судоводительский факультет Новороссийской государственной морской академии (   Читать дальше...   )01. To Elena (4:42)
+02. To Mother (4:25)
+03. Parting (4:36)
+04. XVII Century (3:27)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0356C33D89873FE4A28FB82A62AC2715082F058F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097296   (914077) от 27.01.2017
 
 Brantley Gilbert - The Devil Don't Sleep (2017) [FLAC|Lossless|tracks] <Country>
@@ -714,35 +743,6 @@ VA - Любимые песни индийского кино (1,2,3) (2004) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52FF2DE0A17966C41CA20728155CE4F0882404C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096132   (920863) от 23.01.2017
-
-Shastro - Satsang (2017) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lotus [00:09:48]
-02. A New Dawn [00:08:51]
-03. Dance of the Swans [00:14:10]
-04. Holding Hands [00:10:45](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2203AB3F0A22F60DAE51333B31F3A83A45EEA698
 ```
 
 https://mybot314.ru/tekegram_catalog/

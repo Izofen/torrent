@@ -1,3 +1,61 @@
+###  Публикация: 1486721   (1004512) от 01.08.2021
+
+VA - Русские 90' (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пропаганда - Яй-я (4:02)
+02. J-POWER - Она Его Не Любит (3:18)
+03. АлоЯ - Капал дождь (4:21)
+04. 140 ударов в минуту - Ноты на стекле (4:02)(   Читать дальше...   )Жанр: PopПродолжительность: 04:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03549065984F0AEFC6872C7D8A7D3CBE4AD11E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486774   (1004538) от 01.08.2021
+
+VA - Shazam & Apple Music Chart (Россия Топ 100 Июль) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Artik & Asti - Она не я (3:34)
+002. The Limba, Andro, Navai - Никаких эмоций (3:58)
+003. Dzharakhov, Markul - Я в моменте (2:06)
+004. BRANYA, MACAN - Пополам (2:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035A185F8D4C133F707BFC046E4207282AE2A8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486571   (1004550) от 01.08.2021
 
 VA - Chanson Soul De France (2CD) (2021) [MP3|320 Kbps] <Chanson, Folk Lyric>
@@ -687,64 +745,6 @@ VA - Зайцев.нет Лучшие новинки Июля (2021) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E06590AB750C7C84ED5F1E2440AD11576937A2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484309   (1006116) от 19.07.2021
-
-VA - Record Super Chart 17.07.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minelli - Rampampam (3:20)
-02. Markul, Джарахов - Я в моменте (2:06)
-03. Nessa Barrett feat. jxdn - la di die (3:15)
-04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C5BEA4B54B02613927134D0B6F79DCF4B62167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483744   (1006598) от 15.07.2021
-
-VA - Громкие новинки Июля (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. StaFFорд63, Яна Вайновская - Лебединая (2:52)
-02. Kane Brown, blackbear - Memory (2:33)
-03. Justin Bieber, The Kid LAROI. - Stay (2:21)
-04. DAVA - ОДИНОКИЙ ДЭНС (2:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE96EFC43E4831CBE434C8004A76A348321CF6A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

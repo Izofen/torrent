@@ -1,3 +1,29 @@
+###  Публикация: 289686   (906872) от 07.02.2011
+
+VA - Космонавт и Спутники - Наверх (2010) [FLAC|Lossless]<Progressive House, Progressive Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive House, Progressive BreaksПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261397   (906929) от 27.08.2021
 
 HVL | Kaiji | Kiyadama - Discography 23 Releases (2013-2021) Rough House Rosie [FLAC|Lossless|tracks] <Electro, Techno, IDM, Acid, Ambient>
@@ -710,35 +736,6 @@ DJ Valium - The Album (2003) 2CD [FLAC|Lossless|tracks + .cue] <Trance, Euro-Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:319B68F24794B4BB296F9B89433151CCC7BA10CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368478   (909253) от 20.03.2020
-
-Four Tet - Sixteen Oceans (2020) Text Records [FLAC|Lossless|tracks+.cue] <House, Ambient, Tech House, Downtempo, IDM, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. School (04:02)
- 02. Baby (04:24)
- 03. Harpsichord (02:54)
- 04. Teenage Birdsong (03:25)(   Читать дальше...   )Жанр: House, Ambient, Tech House, Downtempo, IDM, MinimalПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5342A3F42D185FD2DBA9554B69256DCCC6F2AC5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

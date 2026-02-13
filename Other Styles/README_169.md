@@ -1,3 +1,38 @@
+###  Публикация: 753753   (929789) от 09.02.2014
+
+Leonard Rosenman - Фантастическое путешествие / Fantastic Voyage (2014) [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Main Title - Sound Effects Suite
+ 02 - The Proteus
+ 03 - The Chart
+ 04 - Pulmonary Artery
+ 05 - Group Leaves
+ 06 - Pleural Cavity
+ 07 - Proteus Moving Through Sac
+ 08 - Channel to Ear
+ 09 - Cora Trapped
+ 10 - Proteus in Inner Ear(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9836782156E0A4241F2D28A59875E6DB645FBBEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 629965   (929901) от 14.03.2013
 
 21 и больше / 21 and Over (2013) [MP3|320 кб/с]<Soundtrack>
@@ -763,41 +798,6 @@ James Newton Howard&John Rzeznik - The Treasure Planet/Планета сокро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C280B3169D6EDB552ED5FDBA58477D477DDA97EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754145   (933450) от 07.02.2014
-
-The Notwist - Close To The Glass (2014) [FLAC|Lossless]<Alternative, Indie Electronic, Indie Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Signals (03:41)
- 02. Close To The Glass (02:57)
- 03. Kong (04:31)
- 04. Into Another Tune (03:56)
- 05. Casino (03:14)
- 06. From One Wrong Place To The Next (02:44)
- 07. 7-Hour-Drive (03:57)
- 08. The Fifth Quarter Of The Globe (00:49)
- 09. Run Run Run (05:04)
- 10. Steppin' In (02:00)(   Читать дальше...   )Жанр: Alternative, Indie Electronic, Indie RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B141E9EDAFCEC53691B3054071A1CBACE0369003
 ```
 
 https://mybot314.ru/tekegram_catalog/

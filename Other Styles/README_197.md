@@ -1,3 +1,32 @@
+###  Публикация: 1441638   (1037437) от 22.01.2021
+
+Steve Hackett - Under A Mediterranean Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mdina (The Walled City)
+02. Adriatic Blue
+03. Sirocco
+04. Joie De Vivre(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF1D15E6294230953C3EC1AC2F4C9533648298E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614945   (1038099) от 24.02.2023
 
 Heidevolk - Wederkeer (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Black-metal, Folk-metal, Viking-metal>
@@ -711,35 +740,6 @@ VA - Night Time Yoga, Asana One (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Y
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1A7CC24F722AA6E4A3FCFC0C371FFF4198A6D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 127930   (1047128) от 04.12.2025
-
-Учим соседей! | Для мести соседям (звуковые эффекты) Часть 2 [2009] [MP3]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это диск для мести соседям, которые слишком громко слушают музыку, кричат или шумят любым другим способом. CD. В комплект также входят затычки для ушей. Как сказано в рекламе: "они нужны для того, чтобы защитить вас и сохранить вам рассудок". Достаточно лишь включить один из шумовых эффектов на полную мощность и заткнуть уши (или выйти погулять на полчаса). (   Читать дальше...   )1. A10 Attack Jet 01 (0:18)
-2. A10 Attack Jet 02 (0:30)
-3. A10 Attack Jet 03 (0:20)
-4. Propeller Plane Pass By (0:26)(   Читать дальше...   )Жанр: Юмор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76A954BC1BF53B878EA20FC26D9BDAEBA708994
 ```
 
 https://mybot314.ru/tekegram_catalog/

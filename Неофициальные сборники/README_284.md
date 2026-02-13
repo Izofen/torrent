@@ -1,3 +1,73 @@
+###  Публикация: 547037   (476766) от 14.09.2012
+
+VA - DJ Anna Lee - 7 Days Of Love (2005) [MP3|320 кб/с]<Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tilt - New Day (David West Mix) [09:01]
+02. Andy Moor - Halcyon [07:33]
+03. Leama and Moor - Fact Of The Matter [05:51]
+04. Hidden Logic presents Luminary - Wasting [07:52]
+05. Jose Zamora & Damian DP feat. Paleday - Transatlantic [07:23]
+06. Markus Schulz feat. Airwave - Ballymena [06:17]
+07. Markus Schulz vs. Departure - Without You Near (Coldharbour Mix) [07:42]
+08. Armin van Buuren with Gabriel & Dresden - Zocalo [04:46]
+09. Carrie Skipper - Time Goes By (David West Vocal Mix) [05:47]
+10. Markus Schulz feat. Carrie Skipper - Once Again [05:02](   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C030CD614FE5C124845A91AF2C7D722A597DDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544592   (476778) от 14.09.2012
+
+VA - Night Flight (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triple A - Winter Stayed (Armin van Buuren's On The Beach Intro Mix)
+02. Giuseppe Ottaviani feat. Walsh - Ready (Maarten De Jong Remix)
+03. Marcus Schossow & Reeves ft. Emma Hewitt - Light (Stoneface & Terminal Vocal Remix)
+04. Armin Van Buuren & Sharon Den Adel - In And Out Of Love (Richard Durand Rmx)
+05. Fast Distance and Dimension feat. Anthya - Let Me Survive (Craving And Howe Remix)
+06. Ben Preston feat. Max Fredrikson - Glorious 2011 (Original Mix)
+07. Shogun feat Emma Lock - Run To My Rescue (Original Mix)
+08. Tiesto - Alone In The Dark (Tiesto Vocal Mix)
+09. Above And Beyond Feat. Richard Bedford - Sun And Moon (Club Mix)
+10. Tom Colontonio feat Michele Karmin - Colors Of A TearЖанр: Vocal TranceПродолжительность: 06:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E63DAF0A4D314D80D0F4F32D904CADC7919E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406188   (476829) от 02.09.2020
 
 VA - Лучшие из лучших Top 100 хитов радиостанций за Август (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -708,64 +778,6 @@ VA - TOP Non-Stop 2010-2015 - Lounge & Chillout (2010-2015) [MP3|192 кб/с]<Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4515C3A5A32908D2691803BFEDC27E0FE6A401E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939179   (478020) от 20.09.2015
-
-VA - Acoustic Hour - We Are Independent (2015) [MP3|320 кб/с]<Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Thinking Out Loud 04:42
-02. Passenger - Let Her Go 04:13
-03. Birdy - Wings (Radio Edit) 03:50
-04. Family Of The Year - Hero 03:10(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493E8741E2D040A58F003BC390DED34642AA5325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939093   (478022) от 20.09.2015
-
-VA - Atom 19.0 (Compiled and mixed by Deeper82) (2015) [MP3|320 кб/с]<Atmospheric Breaks, Progressive Breaks>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikolay Mikryukov - Orbit (Original Mix)
-02. EZ Breaks, ARkLove - The Way To Charleroi (Cullen Remix)
-03. Omauha - Florence (Original Mix)
-04. Platunoff - Dive In Silence (Retroid Remix)(   Читать дальше...   )Жанр: Atmospheric Breaks, Progressive BreaksПродолжительность: 02:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EE71291340161D82AC1826302A38A4F286ABEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

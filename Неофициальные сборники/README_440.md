@@ -1,3 +1,67 @@
+###  Публикация: 1401986   (705608) от 12.08.2020
+
+Rave The Reqviem - Darkly, powerfully (best) (2014-2018) Compilation Album [MP3|320 Kbps] <Industrial, Drum n Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeon
+02. Black Dog Baptized
+03. Heroin(E)
+04. Ikaros(   Читать дальше...   )Жанр: Industrial, Drum n Bass, DubstepПродолжительность: 00:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963B0A9911D0B57FFBC1DED1CEBA7A9212304379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 210179   (705744) от 14.06.2010
+
+VA - New Age Style. Mystical Dance. 2CD [Бутлег] (2009, 2010) [MP3|192-320 kbps]<New Age, World, Mystical dance, Trance>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, World, Mystical dance, TranceПродолжительность: 01:28:53
+
+01. X Cultures - Free Your Mind
+02. Deep Forset with John Anderson - Speed Deep
+03. Wise Hand - Timeless
+04. Venja - Reaching 0ut
+05. Guido Negraszus - Let's Travel Far Away
+06. Higher Plain Drifting - Bryce Canyon
+07. Ultrabass -  A Love That Never Fails
+08. D.& D.Arkenstone - Shirashikkur(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220115   (705884) от 18.04.2018
 
 Sandra - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
@@ -692,65 +756,6 @@ VA - Mastodon (2019) [MP3|320 Kbps] <Hard Rock, Metall>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E8B75F8C0C1686C75FC8EA7753B5B4ADBD7244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894531   (707306) от 02.05.2015
-
-VA - Extra Lounge (episode 8) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2illusions - The Feeling Dance (05:01)
-002. Gold Lounge - On the Sea (05:38)
-003. CJ RcM - My Love (Original Mix) (05:10)
-004. Sine - Wolke 7 (04:17)
-005. Fowler & Branca - Turning Leaves (04:18)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A005A5FA03ECFEF082A20B9C76B4D92A4245BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286990   (707336) от 05.03.2019
-
-VA - Divine Lotys: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707336.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Invasiohm - Dark Connection (Original Mix)
-002. Black Fly - Hari Om
-003. Bumbling Loons - Mirage (Original Mix)
-004. Bunker Jack - Lunatic Time(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EF1508554800F9E265F199FD095C5ABAC87690
 ```
 
 https://mybot314.ru/tekegram_catalog/

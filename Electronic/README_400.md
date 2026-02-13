@@ -1,3 +1,32 @@
+###  Публикация: 1389949   (783672) от 13.06.2020
+
+VA - Goa, Vol.72 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Morrisound - Sound of Peace (6:21)
+2. Flowjob - Beatpolar (7:32)
+3. Microlin - What I Really Need (8:29)
+4. Inner State - Zero Point (Trycerapt Remix) (7:44)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D57F844D2E44C24A3DADC1C420044D263540056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204898   (783758) от 09.02.2018
 
 Fausto Papetti - Sax Project (2016) [MP3|320 Kbps] <Instrumental, Easy Listening, Smooth Jazz>
@@ -716,34 +745,6 @@ VA - Uplifting Only: Orchestral Trance Year Mix 2017 (Mixed by Ory Uplift) (2018
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2C1FCB57683DB90C656EFC166649789DACE2EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388922   (784163) от 11.06.2020
-
-Master Boot Record - Discography (2016-2020) [FLAC|44.1/24|Lossless|WEB-DL|tracks] <Electronic / Rock>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784163.jpg" />
-</div>
-
-
-###  Подробнее
-
-MASTER BOOT RECORD - творческий псевдоним итальянского исполнителя, продюсера, автора песен Виктора Лава (Victor Love), известного в том числе по Dope Stars Inc., Hacking the Wave.
-Страсть к старым компьютерам и программам эпохи становления IT-технологий стала рычагом для создания нового направления музыки, основанного на синтезировании хэви-метала с добавлением (   Читать дальше...   )01. 33MHz (16:04)
-02. 64MB (7:35)Жанр: Electronic / RockПродолжительность: 00:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B520BBD575C2B8576BD27E2791113A9CE0217F5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

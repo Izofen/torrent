@@ -1,3 +1,32 @@
+###  Публикация: 1438274   (1041118) от 08.01.2021
+
+Starsplash - Back By Popular Demand (2004) [FLAC|Lossless|image + .cue] <Trance, Hard Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Everybody's In The Place (1:28)
+02.Hardstyle (3:39)
+03. Breaking My Heart (5:44)
+04. Alive (3:32)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 01:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123CA1AD664E700C0924DB8EA620A7D9EFE84549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438401   (1041145) от 08.01.2021
 
 VA - BEST OF NEON 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillsynth, Chillwave, Cyberpunk>
@@ -716,35 +745,6 @@ Ecoboy - Neo Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Trans-core>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559B8A00CF1C50E1D987816FA0B17BA0331DC926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610081   (1042654) от 06.02.2023
-
-Cyberman - Mysterious Galaxy (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Against Machines (4:50)
-02. Gravity (5:29)
-03. Personal Wormhole (7:13)
-04. Space Maneuvers (5:10)(   Читать дальше...   )Жанр: Synthwave, SpacesynthПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FDB7C8CE1A2D50C6CE9EF1F3523995487197A0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

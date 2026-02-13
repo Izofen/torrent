@@ -1,22 +1,75 @@
-###  Публикация: 1615789   (1037290) от 27.02.2023
+###  Публикация: 1443804   (1035175) от 30.01.2021
 
-Revo Uninstaller Pro 5.1.0 Portable by FC Portables [Multi/Ru]
+Сергей Самаров | Спецназ ГРУ. Предают только свои (2019) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группе спецназа капитана Алексея Радиолова поручено проникнуть на территорию американского полигона в Сирии и с помощью секретной аппаратуры вывести из строя систему целенаведения вражеских ракет. Однако на подходе к объекту спецназовцы попадают в засаду. Завязавшийся бой отнимает драгоценное время. Операция оказывается под угрозой срыва. Радиолов подозревает, что (   Читать дальше...   )Жанр: БоевикПродолжительность: 05:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6249E3380B92036788A085D874731A3114BA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443916   (1035176) от 30.01.2021
+
+Бертольт Брехт | Господин Пунтила и его слуга Матти (1957) [MP3, Юрий Толубеев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035176.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной пьесе немецкого драматурга Бертольта Брехта. Владелец обширного имения Пунтила, когда пьян – то он якобыдобрейший человек, но выносить его долго трудно: помимо того, что пьяный Пунтила неадекватно воспринимает окружающую действительность, он и в доброте своей остаётся  барином. Он может зайти в ресторан «пропустить рюмочку» и задержаться там на трое (   Читать дальше...   )Жанр: СатираВ ролях: Юрий Толубеев, Игорь Горбачёв, Лидия Штыкан и актёры театровПродолжительность: 01:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4563F026F7522721AE427C6687903E7B58C764C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443774   (1035177) от 30.01.2021
+
+Microsoft Visual Studio 2019 Community 16.8.3 (Offline Cache, Unofficial) [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037290.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.
+Процедура регистрации:Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B7FB5A532A9178AD1883A44A3CB316DE434D99D
+magnet:?xt=urn:btih:01A309A4EE88F3B5E33EDF66F68C7C162A01ECFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +77,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615691   (1037291) от 27.02.2023
+###  Публикация: 1443777   (1035178) от 30.01.2021
 
-Mist Of Misery - Studio Albums (6 releases) (2013 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Black Metal>
+Леонид Фёдоров & Игорь Крутоголов (Фёдоров и Крузенштерн) - Блэйк (2021) [MP3|320 Kbps] <Rock, Avantgarde>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037291.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mist Of Misery - шведская симфоник-блэк-метал группа из Стокгольма, образованная в 2010 году Саймоном Шёландером и Андреасом Мортуцем Бернинге.2013 - Temple of Stilled Voices (EP)
-2016 - Absence
-2017 - Fields of Isolation (EP)
-2017 - Shackles Of Life (EP)Жанр: Symphonic Black MetalПродолжительность: 04:58:03
+1. Лондон
+2. Тигр
+3. Древо яда
+4. Ерусалим(   Читать дальше...   )Жанр: Rock, AvantgardeПродолжительность: 01:13:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B71D38FAF446F5C82C1CA9DCCF90A8F7B38A8E52
+magnet:?xt=urn:btih:9197F3C91846E0690BAAA1C83AC5601F446BFA7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615770   (1037292) от 27.02.2023
+###  Публикация: 1443884   (1035179) от 30.01.2021
 
-Sophie Milman - Her Very Best... So Far (2013) Linus Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Супергёрл / Supergirl (2017-2018) WEB-DLRip (сезон 3, серии 1-23 из 23) LostFilm
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежные сериалы
+>>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037292.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Agua de Beber (Water to Drink) [3:58]
-02. I Concentrate on You [4:19]
-03. Speak Low [4:28]
-04. Be Cool [4:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:47
+"Супергёрл" расскажет историю Кары Зор-Эл с планеты Криптон. После уничтожения родной планеты Кара прибывает на Землю, где скрывает свои сверхчеловеческие способности. Однако по достижении 24 лет она решает использовать свою силу во благо и стать тем героем, которым всегда хотела быть.Производство: США / Berlanti Productions, Warner Bros. TelevisionЖанр: фантастика, боевик, драма, приключенияРежиссер: Джесси Уарн, Глен Винтер, Ларри ТенгАктеры: Мелисса Бенойст, Кайлер Ли, Дэвид Хэрвуд, Мехкад Брукс, Кэти МакГрат, Джереми Джордан, Джесси Рат, Крис Вуд, Андреа Брукс, Николь МэйнсПеревод: Многоголосый (LostFilm)Продолжительность: ~00:43:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B016263B00C0D2C76C6A1F1FB84AC50149E26425
+magnet:?xt=urn:btih:C441753EF39E87042C770373147A87A94C189E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +132,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615699   (1037293) от 27.02.2023
+###  Публикация: 1443849   (1035180) от 30.01.2021
 
-Святитель Феофан Затворник | Господь послал к тебе нуждающегося. Отношение христианина к достатку (2011) [PDF, FB2, EPUB, MOBI]
+Assistant for Stardew Valley v1.10.0 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assistant for Stardew Valley — это планировщик и приложение-дневник. Оно помогает отслеживать повседневные задачи и гарантирует, что вы не пропустите важное событие в игре Stardew Valley.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 18 декабря 2020 г.Разработчик: itreekaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0313A1B38B7482CCEE47A5A0F99C09584FEDD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443726   (1035181) от 30.01.2021
+
+Главная дорога (30.01.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дворы и дороги замело? Без буксира не выехать? С виду простой процесс вытягивания застрявшего автомобиля может закончиться не только дорогим ремонтом, но и настоящей трагедией — в случае, если трос сорвется. Андрей Федорцов и Денис Юченков проверили, чем можно надежно закрепить трос, чтобы помочь застрявшему и как не погибнуть, если крюк все же сорвется.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22018D1DC2FC6FE44927658AA83E9720B9B778E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443981   (1035182) от 30.01.2021
+
+Святитель Кирилл Александрийский | Слово об исходе души и Страшном Суде (2016) [FB2, EPUB]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037293.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Святитель Феофан (в миру Георгий Васильевич Говоров), Затворник Вышенский (1815–1894) – епископ Русской Православной Церкви, богослов, проповедник. До настоящего времени его труды по истолкованию Священного Писания, духовные письма и проповеди просвещают и наставляют читателей в благочестии.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+Многие ли найдут в себе мужество признаться в своём страхе перед смертью?.. Не чаще ли всего мы стремимся забыть о ней? Но одной из добродетелей христианских святых всегда была именно память о смерти и будущем Суде Божием. Ибо христианам открыты посмертные судьбы души и их прямая зависимость от земного поведения человека — добродетельного или порочного, что убедительно (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32786D4A08FCE8028CD2497A2E3FE3928F84A065
+magnet:?xt=urn:btih:B537175A3A35A54B6BE45DADC1A620D4F59C9800
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +210,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615730   (1037294) от 27.02.2023
+###  Публикация: 1443710   (1035183) от 30.01.2021
 
-Khan - Creatures (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Rock>
+VA - Pure Synthwave Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth, Outrun>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037294.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Slow [00:06:17]
-02 - How Old [00:06:31]
-03 - Follow [00:10:08]
-04 - Eyes, Lungs, Arms & Mind [00:07:47](   Читать дальше...   )Жанр: Heavy Rock, Stoner RockПродолжительность: 00:41:10
+01. Compilerbau - Tachyon (4:37)
+02. The Affirmation - Future Tides (5:40)
+03. Midnight Danger - He Won't Come Back (4:01)
+04. September 87 - Meet Me At The Dance (5:03)(   Читать дальше...   )Жанр: Synthwave, Retrosynth, OutrunПродолжительность: 01:40:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63DD85483C7F5A9E344DF6744776D18D2AFAC47F
+magnet:?xt=urn:btih:4F53D1227E2661EBD24777FE8D662BC32702E7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +239,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615754   (1037295) от 27.02.2023
+###  Публикация: 1443828   (1035184) от 30.01.2021
 
-Naut - Hunt (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Gothic-rock, post-punk>
+Лариса Суркова, Мария Эриль | Психология для ребят. Новые истории Дуни и кота Киселя (2020) [FB2, EPUB, MOBI]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037295.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dissent (4:16)
-02. All the Days (4:07)
-03. Gold & Death (4:13)
-04. Damocles (5:28)(   Читать дальше...   )Жанр: Gothic-rock, post-punkПродолжительность: 00:39:08
+Дорогие читатели! Перед вами – новые истории от уже полюбившихся героев, девочки Дуни и кота Киселя, а значит – и новые терапевтические сказки на действительно важные и уже взрослые темы. Наши малыши растут, у них появляются другие вопросы и интересы, и многим родителям найти подходящие ответы уже не так легко, как раньше.
+
+Вместе с Дуней и Киселём мы поговорим: (   Читать дальше...   )Жанр: Психология/Воспитание детейФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F11CB0FBDD4314E5862D0BF411B5CDD44F5B704C
+magnet:?xt=urn:btih:69D6D19915B504054DC956AB1F74310D89F43DD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +267,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615555   (1037296) от 27.02.2023
+###  Публикация: 1443750   (1035185) от 30.01.2021
 
-Dis Tortion - Metal Recall (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Thrash Metal>
+JRiver Media Center 27.0.57 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037296.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro [00:01:24]
-02. Distortion [00:05:11]
-03. Animal Farm (Album version) [00:03:43]
-04. Mr. Dickens [00:04:32](   Читать дальше...   )Жанр: Groove, Thrash MetalПродолжительность: 00:35:39
+JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E87FA78B5ED059FED8E9C595D7E9FE7B764106C
+magnet:?xt=urn:btih:154C8F55006D0D323AAB5F2CF43C9851E15E6660
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +293,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615824   (1037297) от 27.02.2023
+###  Публикация: 1443662   (1035186) от 30.01.2021
 
-Druid Stone - 3 Albums (2022-2023) [MP3|320 Kbps] <Blackened Doom Metal>
+VA - HGM Vocal Trance Mix Vol.03 (2021) [MP3|320 Kbps] <Vocal Trance>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037297.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2022 - Druid Stone (Re-issue)
-2023 - The Corpse Vanishes (Remixxx)
-2023 - The Grateful UndeadЖанр: Blackened Doom MetalПродолжительность: 3 CD, 02:14:31
+Всем поклонникам музыки в стиле транса представляем очередной 3-й релиз от House Garden Music. В суматохе нашего времени это музыкальное вдохновение в царстве света и надежды. 55 треков, полных призывного тепла, позволяют обратиться к тому, что необходимо и объединяет нас в жизни.01. Adip Kiyoi & Anhydrite - Love Will Heal You
+02. Seven Lions - Higher Love
+03. Kate Miles & Norni - Silver Lining
+04. Erik Hakansson - Weightless(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 04:49:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F8CA660C2A81D2FA83292D3DB66AEA6E949E811
+magnet:?xt=urn:btih:FEA5A91EE57FD1D1103A771E7D1B1F66A4A5BABB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +322,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615811   (1037298) от 27.02.2023
+###  Публикация: 1443697   (1035187) от 30.01.2021
 
-Pierre Vervloesem - Underwater Adventures (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Avant Prog>
+Missa Disco - Missa Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037298.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Underwater Adventures [00:13:03]
-02. Love Shark [00:03:01]
-03. Deep Blue [00:03:15]
-04. King Swing Fish [00:03:07](   Читать дальше...   )Жанр: Progressive Rock, Avant ProgПродолжительность: 00:44:53
+01. Kyrie (4:36)
+02. Gloria (4:24)
+03. Credo (7:29)
+04. Sanctus (4:27)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:31:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0B9F4B854F5ED0202FE6E1164A7CBC33E46AD59
+magnet:?xt=urn:btih:E7E513201A2D7842146D578278975C81C84A6B65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +351,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615684   (1037299) от 27.02.2023
+###  Публикация: 1443718   (1035188) от 30.01.2021
 
-Gathering Of Obscurity - The Pain Of Humiliation (1999) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
+Илья Эренбург | Буря (2011) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037299.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035188.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Across Pain And Loss... (08:36)
-02. Colours Of Black (05:58)
-03. A Dying Soul In Suffering (07:29)
-04. In Suspense Of Delight (07:17)(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 01:13:18
+Роман И. Эренбурга «Буря» посвящен борьбе советского народа в года Великой Отечественной войны. Действие его происходит в Советском Союзе, Франции, Германии и других странах. В романе показаны рядовые люди разных характеров и профессий, становящихся в ходе войны героическими защитниками своей родины. Рассказывая о зарубежных странах, автор подчеркивает то решающее (   Читать дальше...   )Жанр: РоманПродолжительность: 37:58:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B8A731307BED5D7DF829D97BEF3B4B91F351D66
+magnet:?xt=urn:btih:475D79888F774F6DA707E1B175D9CE32440A6CA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +377,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615772   (1037300) от 27.02.2023
+###  Публикация: 1443825   (1035189) от 30.01.2021
 
-Buddy Rich - Time Out (1977, 1978) 2007, Lightyear [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+MediaHuman Youtube Downloader 3.9.9.52 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037300.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035189.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Goodbye Yesterday [5:50]
-02. Machine [3:30]
-03. Bouncin' with Bud [7:37]
-04. Readymix [3:11](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:08:36
+YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+• Закачка нескольких файлов одновременно
+• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2021Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8A0296441648DDA7EE0BD52437CE6BB7FB3A83F
+magnet:?xt=urn:btih:D65AC15E0B66E3AB0E477CF5302CCA04003F01E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,28 +406,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615637   (1037301) от 27.02.2023
+###  Публикация: 1443743   (1035190) от 30.01.2021
 
-Broken Fate - Fighters & Dreamers (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash Metal>
+VA - Talla 2XLC - Carpe Diem (2021) [MP3|320 Kbps] <Trance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037301.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fighters & Dreamers [00:04:33]
-02. Devil on Earth [00:03:59]
-03. White Line [00:04:05]
-04. When Does It Come [00:04:28](   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 01:04:30
+01. Talla 2XLC - Into The Wormhole (Album Mix)
+02. Talla 2XLC - Mantra (Original Mix)
+03. Talla 2XLC - All The Dreams We Shared (Original Mix)
+04. Alpha Breed - Epic Future (Extended Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:863A94A348326B4BE69E91242F4EF67AA6AA5691
+magnet:?xt=urn:btih:27667A61EC31C8D14148F53FD7E8D94727CD0D79
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,28 +435,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615725   (1037302) от 27.02.2023
+###  Публикация: 1443880   (1035191) от 30.01.2021
 
-The Inner Road - The Last Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+VA - Azura Trance Selections (2021) [MP3|320 Kbps] <Uplifting-Trance>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037302.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Broken Mirror 10:19
-02. The Calling 07:22
-03. Hidden Portal 07:37
-04. Dark Door 06:56(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:14:37
+01. Aevus - God's Particle (Time Machine Mix) (07:36)
+02. Andrea Ribeca - Firewire (Andrea Ribeca 2020 Remix) (06:48)
+03. Mario Piu - The Vision 2020 (Les Hemstock Remix) (06:16)
+04. Aevus - Amaterasu (Original Mix) (08:21)(   Читать дальше...   )Жанр: Uplifting-TranceПродолжительность: 03:05:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5308118696BB2D9AA8001F7D4539B82241E78C45
+magnet:?xt=urn:btih:B2D84177C3933AFDA45B1703BF2A111589F53A28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,28 +464,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615601   (1037303) от 27.02.2023
+###  Публикация: 1443827   (1035192) от 30.01.2021
 
-Inverna - Inverna, Pt. 1 (2023) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
+Ours Samplus - One Day One Beat (2014) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037303.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Il Giardino Degli Incensi [00:06:32]
-02 - Il Nemico Allo Specchio [00:04:18]
-03 - Dove [00:01:17]
-04 - Domanda Alla Vita [00:04:39](   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:44:21
+01. Jazz Format (03:14)
+02. Jus de comete (03:36)
+03. Rainman (02:41)
+04. Lonely Town (02:31)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 02:08:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D14AB7617C38DEF6E255377491DB83AC3C6C04FE
+magnet:?xt=urn:btih:06368C8C317180ACFBFCD8971BD0A124A31998C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,28 +493,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615644   (1037304) от 27.02.2023
+###  Публикация: 1443727   (1035193) от 30.01.2021
 
-Tierra Santa - Gillman Fest 2018 (2018) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
+Живая еда с Сергеем Малозёмовым (30.01.2021) SATRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037304.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Quinto Elemento
-02 Caín
-03 Nerón
-04 Juana De Arco(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:24
+В новый год с новой рубрикой! Любителю и профессионалу предстояло приготовить одно и то же блюдо - печенье. Реально ли сделать это лакомство менее вредным, каким оно получится на вкус и кто выйдет в этой битве победителем? Каким должен быть правильный питьевой режим и действительно ли человеку нужно выпивать минимум два литра воды в сутки? А также — безопасно ли (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0387CCB576147EA3E398F787C3A784CB77AB925
+magnet:?xt=urn:btih:E25862F181209BBB61358C897ECBA2E84A93FCEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,28 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615628   (1037305) от 27.02.2023
+###  Публикация: 1443711   (1035194) от 30.01.2021
 
-Doomas - R'lyeh (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+Birizdo I Am - Mademoiselle (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037305.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cult Yog-Sothoth [00:07:55]
-02. Ia Kingu! [00:05:50]
-03. Abyss [00:07:32]
-04. Portal [00:05:33](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:53:15
+01. Mademoiselle (Analogue Dance Mix) (6:20)
+02. Time To Shine (EP Version) (5:39)
+03. Love Is Love (Analogue Dance Mix) (6:34)
+04. Maybe Baby (Analogue Dance Mix) (6:39)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D58E5C36DE94B53E81E44D8F7953E8D0357A68D8
+magnet:?xt=urn:btih:059EDA1053BAAC254F8144A622B26A9CA6A46781
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,28 +548,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615810   (1037306) от 27.02.2023
+###  Публикация: 1443943   (1035195) от 30.01.2021
 
-Praetor - Praetor (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Speed Metal>
+Евгений Федоров | Сказания о земле Киржачской [9 книг] (2012-2016) [FB2, EPUB, MOBI]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037306.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Return [00:02:41]
-02. Move On [00:04:09]
-03. Pitch Black [00:03:10]
-04. Mass Extinction [00:04:00](   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:36:33
+О родном крае - в сказках. Такую творческую концепцию выбрал для себя директор ОАО «Киржачская типография», меценат Евгений Федоров. Вот уже пять лет он издает сказки, которые буквально пропитаны любовью к родной ему киржачской земле.
+
+- Подростки, увы, мало интересуются краеведением, - рассказал автор. - Поэтому прививать любовь к своей малой родине, которая сопровождает (   Читать дальше...   )Жанр: Детская литература/Сказки народов мираФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:075CBCF3B18F7947758266B253233675C19DAF7B
+magnet:?xt=urn:btih:863DC810FCDF1924CB1441D99665E6EF27F88AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,28 +576,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615623   (1037307) от 27.02.2023
+###  Публикация: 1443897   (1035196) от 30.01.2021
 
-Voland - Voland III: Tsarepoklonstvo - Il Culto degli zar (2021) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+Людмила Доманская | Настоящие мальчишки не дразнятся и не плюются (2016) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037307.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Casa Ipatiev
-02. Terza Roma
-03. Promontorio
-04. Suite Russe(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:44:09
+Чтение хороших книг - один из способов вырастить хорошего ребёнка. Представляем вам одну из них "Настоящие мальчишки не дразнятся и не плюются", которая, надеемся, поможет привить вашему мальчику хорошие манеры и правила поведения, разбудит в нём доброту и отзывчивость. а множество примеров, приведенных на страницах книги, воспитает настоящий мужской характер. (   Читать дальше...   )Жанр: Познавательная литература/Воспитание и развитие детейФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:909040571F03F693B5F49AD070C52B8372E85ED1
+magnet:?xt=urn:btih:4F99E2480BCE2C31486D340D77EC33FF7D7C10A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,27 +602,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425944   (1037308) от 22.01.2021
+###  Публикация: 1443919   (1035197) от 30.01.2021
 
-PROMT 21 Expert (+ Dictionaries Collection 21) Portable by Spirit Summer [Ru]
+Своя игра (30.01.2021) WEBRip [H.264/1080p-LQ]
 
->>3
->>4
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037308.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PROMT 21 Expert - корпоративное решение, предназначенное для организации процесса перевода и локализации в переводческих компаниях и отделах перевода.
-В новой версии PROMT 21, для достижения высочайшего качества при переводе технической и корпоративной документации, мы использовали самые современные технологии искусственного интеллекта.
-PROMT Expert 21 — полезная (   Читать дальше...   )Язык интерфейса: Русский
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: ОтсутствуютПродолжительность: 00:41:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBF391810F92CECB6BD49CB73FBB2DD76191E361
+magnet:?xt=urn:btih:DA108F836D399E3F42D265C312F4C8F961E3638F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,25 +628,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441255   (1037309) от 22.01.2021
+###  Публикация: 1443705   (1035198) от 30.01.2021
 
-HITMAN 3 (2021) [Multi] (3.10) License CODEX
+Бессмертные тени / The Immortal Shadows (2013) DVB
 
->>3
->>4
+>>Документалистика и Телепередачи
+>>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037309.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Смерть ждёт. Агент 47 возвращается в HITMAN 3 — эффектном завершении трилогии «Мир наемных убийц». Заключительная часть трилогии. Вам снова необходимо примерить на себе роль Агента 47 и приступить к выполнению заказов, ликвидируя необходимые цели. Как и в предыдущих частях игры вы можете выбирать абсолютно любую маскировку, подстраивать «несчастные случаи», взаимодействовать (   Читать дальше...   )Тип издания: LicenseРазработчик: IO Interactive A/SЖанр: Action, Stealth, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+Анимация - одна из самых популярных форм развлечений, которая широко использует постоянно развивающиеся технологии. Ее происхождение идет из далекого прошлого, от давно забытого азиатского традиционного искусства - Театра теней, которое сегодня возрождает труппа "PUSAKA's Wayang Kulit troupe", созданная Tok Dalang Saupi Isa и Abdul Rahman Dollah.Производство: МалайзияЖанр: Документальный, история, искусствоРежиссер: Тань Сиань Чинь, Йошиико НашиоПеревод: Двуголосый закадровый, профессиональный (Акцент)Субтитры: отсутствуютПродолжительность: 00:54:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4804DFEDC79C17C1B8DF230603118827C1CBAA48
+magnet:?xt=urn:btih:521B7321D3018597062084255C18D6287F2DC861
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,25 +654,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 990520   (1037310) от 22.01.2021
+###  Публикация: 1443778   (1035199) от 30.01.2021
 
-Flowx Smart Weather (ранее WeatherBomb) v3.316 [Ru/En] - приложение для просмотра прогноза погоды (обновляемая)
+Millumin 3 v3.18.g [En]
 
->>3
->>След.
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037310.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WeatherBomb - Универсальное приложение, которое покажет вам прогноз погоды, в реальном времени. Не все так просто как кажется, здесь присутствует интерактивная карта, которая показывает вам прогноз погоды в реальном времени. Есть одно меню, благодаря которому пользователь может выбрать нужную ему информацию. Имеется такой уникальный пункт как высота волн, эти данные (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 16.01.2021Разработчик: Enzure DigitalПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+Millumin - создание аудиовизуальных и интерактивных шоу, будь то театральная постановка, танец или инсталляция. Millumin - это креативное решение для воплощения ваших идей в жизнь. Приложение создано для того, чтобы помочь Вам создать живое шоу и рассказать свою историю.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2021Разработчик: AnomesПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73A41BF6F3F6BE0DABEEE54773BE041512892914
+magnet:?xt=urn:btih:7D76B1094BCC4531C7D34DDCF860A7712FBAAF11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,129 +680,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441624   (1037311) от 22.01.2021
+###  Публикация: 1443800   (1035200) от 30.01.2021
 
-Космические Рейнджеры / Battle in Space: The Armada Attacks (2021) WEB-DLRip
+Пятеро на одного (30.01.2021) WEBRip [H.264/1080p-LQ]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037311.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-События фильма разворачиваются в 2420 году. Инопланетяне давно захватили Землю и поработили людей. Небольшая группа повстанцев захватывает космические корабли, чтобы отвоевать свою свободу обратно.Производство: США / Hewes PicturesЖанр: Фантастика, боевикРежиссер: Andrew Jaksch, Лукас Кендалл, Toby Rawal, ...Актеры: Деклан Картер, Tom Farrah, Джесс Габор, Трип Хоуп, Миа Ларднер, Оливер Ларднер, Гари Льюис, Кэтлин Мэйсон, Kyle Mason, Мелина МэтьюзПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:24
+Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0BF204CAB187FC455BDFEC050D61EA5C7ACD8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441065   (1037312) от 22.01.2021
-
-Бывшая с того света / Blithe Spirit (2020) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037312.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках вдохновения романист Чарльз Кондомайн, переживающий глубокий творческий кризис, хочет провести спиритический сеанс, для чего приглашает в свой дом знаменитого медиума, мадам Аркати. Он не подозревал, что та вызволит из загробного мира неугомонный дух его покойной, но очень ревнивой жены, которая начинает травить его новую супругу и во что бы то ни стало (   Читать дальше...   )Производство: Великобритания / Fred Films, Powderkeg Pictures, AlignЖанр: Комедия, фэнтези, мелодрамаРежиссер: Эдвард ХоллАктеры: Дэн Стивенс, Айла Фишер, Эйми-Ффион Эдвардс, Мишель Дотрис, Дэйв Джонс, Эмилия Фокс, Zach Wyatt, Romina Zapata, Джулиан Райнд-Татт, Адиль РэйПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:34:29Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441427   (1037314) от 22.01.2021
-
-Вечный свет / Lux Æterna (Lumiere eternelle) (2019) WEBRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм — посвящение кинематографу, моде и современной музыке. Гипнотическое путешествие длиной в один съемочный день по декорациям причудливого фильма,в котором актрисы сталкиваются с собственными демонами и жертвами моды.Производство: Франция / Les Cinémas de la Zone, Saint Laurent, VixensЖанр: Триллер, драмаРежиссер: Гаспар НоэАктеры: Шарлотта Генсбур, Беатрис Даль, Мика Арганьярас, Янник Боно, Луп Бранкович, Стефания Кристиан, Клара Дезэй, Клод-Эммануэль Гаян-Молль, Карл Глусман, Поль АмелинПеревод: Многоголосый профессиональный (КиноПоиск HD)Субтитры: ОтсутствуютПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BC5E8ECC6B7331629FEC4390DB60EEC04E52B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441627   (1037315) от 22.01.2021
-
-vMix Pro 23.0.0.67 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037315.jpg" />
-</div>
-
-
-###  Подробнее
-
-vMix — это многофункциональный современный видеомикшер, который позволяет легко компоновать видео высокого разрешения нескольких источников и отдавать его по видео и IP каналам. В программе есть множество функций и инструментов, манипулируя которыми можно в реальном времени управлять процессом вещания и создавать качественное видео с продвинутыми графическими эффектами (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390854520E51792B61EA68835921F111589C063D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371465   (1037316) от 22.01.2021
-
-Подшивка журналов | Квант (2020) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037316.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квант» — научно-популярный физико-математический журнал, рассчитанный на массового читателя. Материалы, накопленные в журнале за годы его существования, практически бесценны. Идею создания издания такой тематики высказал П.Л. Капица в 1964 году. Издается с 1970-го года.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78600D1BCC060A6B72BE5AAD9EDF40F8B9462578
+magnet:?xt=urn:btih:1639068D83C40B4AD06C86304EDF0754451B4D04
 ```
 
 https://mybot314.ru/tekegram_catalog/

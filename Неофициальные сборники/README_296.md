@@ -1,3 +1,76 @@
+###  Публикация: 542013   (499417) от 02.09.2012
+
+VA - NRJ Hits 2012 Volume 2 (2CD) (2012) [MP3|~240~288 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 01:18:42
+01. Shy'm - Et Alors!
+02. Alex Ferrari - Bara Bara Bere Bere
+03. Katy Perry - Wide Awake
+04. Chris Brown - Don't Wake Me Up
+05. Carly Rae Jepsen - Call Me Maybe
+06. Maroon 5 (Feat Wiz Khalifa) - Payphone
+07. Flo Rida - Whistle
+08. Khaled - C Est La Vie
+09. Shakira - Addicted To You(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:19:54
+01. Keen'v - Ma Vie Au Soleil
+02. Birdy - Skinny Love
+03. Sexion D'assaut - Wati House
+04. Jose De Rico - Rayos De Sol (Feat. Henry Mendez (Original Mix)
+05. Gotye - Somebody That I Used To Know (Feat. Kimbra)
+06. R.I.O. - Party Shaker (Feat. Nicco (Video Edit)
+07. Gusttavo Lima - Balada
+08. Rihanna - Where Have You Been
+09. Dry Feat. Maitre Gim S - Ma Melodie(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:360079F5434FE30CD5EE89CCDE297F48ECA23B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935510   (499463) от 08.09.2015
+
+VA - Lounge Music Cafe Chill (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoboken - Loungin it
+02. Elton Ames - Beach House
+03. Belloq - Bellini Groove
+04. Gridlocks - Knox House(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE6A9308ADC7A325744E030EB839E8047CC162D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935234   (499468) от 08.09.2015
 
 VA - Chilled Ballads (The Most Beautiful Sentimental Songs Ever) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -753,70 +826,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFEB75530CE812DD578573D24BA0F3332F1A2B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541553   (500612) от 01.09.2012
-
-VA - Maximum Танцевального Удовольствия. Зарубежный (2012) [MP3|256 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500612.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elena Gheorghe - Amar Tu Vida (Radio Edit)
-002. Ben Montague - Love Like Stars (Cahill Radio Edit)
-003. Markus h & Frank Degrees feat. Kool Koor - Me In Ibiza
-004. Seven Lions feat. Shaz Sparks - Below Us
-005. N-Finity - Someone Like You (Kris Mctwain Edit)
-006. Juan Magan - Lo Que Me Pasa
-007. Mandinga - Zaleilah (Hanter Remix 2k12 edit)
-008. Slam DJ's feat. Zeni - Touch
-009. Aura Dione feat. Rock Mafia - Friends
-010. Coldplay feat. Rihanna - Princess Of China (Invisible Man Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 06:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD5B028C87E6EDB558EFFE98CAE508EF5645FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935136   (500628) от 07.09.2015
-
-VA - 100 Techno Minimal Tracks (2015) [MP3|320 кб/с]<Techno, Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alberto Feria Alvaro MNML - Penicilline [07:02]
-002. Deep Hazex - The Minimum of the King in the Mountain [07:34]
-003. DJ Navigare - Piter PeN [06:49]
-004. Manu Hell - TuttiFatti [06:20](   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 10:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02DE7737052151282D686148FB85BE11DBF50F9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

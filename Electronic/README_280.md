@@ -1,3 +1,32 @@
+###  Публикация: 1047477   (549386) от 30.08.2016
+
+VA - A State Of Lounge Ibiza (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Attractive Qualities (05:43)
+02. Enrico Donner - Side Chain Reactions (05:58)
+03. Cane Garden Quartet - Chillaxin' (05:13)
+04. Cane Garden Quartet - Drops Of Remembrance (06:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642952622218FD440F2C46479E2B7C0C9E491755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047727   (549390) от 30.08.2016
 
 VA - Fashion Groove Rimini: Deep And Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7B0ED3FC6A06EE0511C24FCBF75F28B2B215AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237658   (550654) от 25.07.2018
-
-Pessimist - Pagans (2017) Osiris Music UK [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pagans (07:26)
-02. Astrous (09:16)
-03. Inner Circle (06:53)
-04. Mist (06:44)Жанр: TechnoПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1EEAF50F340B5EDEF0F872F9A3287492EE05FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

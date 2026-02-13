@@ -1,3 +1,61 @@
+###  Публикация: 1034156   (636024) от 12.07.2016
+
+VA - Идеальный Хит 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636024.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Есин - Ностальгия
+002. Jaguar Skills & Chords Feat. Matti Roots - Lust
+003. Dj Jedy Feat. Личи - Тихая Девочка
+004. Imany - The Good The Bad & The Crazy(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E671B0233503F0B9F9D55BEB416C2741E12A9016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033747   (636031) от 12.07.2016
+
+VA - Едем На Моря Vol.2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Женя Mad Feat. Katya Tu - Только Пой
+02. Geo Da Silva - I Love U Baby
+03. Andrea Bocelli & Ariana Grande - E Piu Ti Penso
+04. Coldplay - Adventure Of A Lifetime(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:418AC19D95B28199A96E9273A6DE0F937D35C6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033830   (636032) от 12.07.2016
 
 VA - Блатнячок Под Коньячок (2016) [MP3|256-320 Kbps] <Шансон>
@@ -710,70 +768,6 @@ VA - Empire Records - Space Disco 3 (2017) [MP3|320 Kbps] <House, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9BD9D29264588E66DCFD05BB3D960871B1D1BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143322   (637479) от 17.06.2017
-
-VA - Empire Records - Trance Disco (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Solarstone & Meredith Call - I Found You (Giuseppe Ottaviani Remix)  6:51
-02.  Denis Kenzo & Hanna Finsen - Dancing In The Dark (Extended Mix)  6:00
-03.  Andy Tau & Sean Mathews - Shadows And Light (Andy Tau Extended Remix)  6:49
-04.  J.A.Y.H. - Morning Star  6:44(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12D43F4E52B8147770265ADD8CC718592CE55A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519190   (637499) от 06.07.2012
-
-VA - Молодежный летний муз-прорыв (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ирина Дубцова - Ешь, Молись, Люби (4:07)
-2. Wow - Fi - Summer Of Love (Dance & Kiss) (Wow Radio Version) (4:19)
-3. Татьяна Котова - Вампирица (3:12)
-4. Шима - Океан (3:15)
-5. Мика Ньютон и Алексей Чадов - Свобода (3:39)
-6. Женя Вилль - 6 Часов (4:17)
-7. Ранетки - Слезы (2:59)
-8. Дима Билан - Слепая Любовь (Remix) (3:40)
-9. Размер Project - Love And Live (3:06)
-10. Soda feat. DJ Niki - Я Это Ты (Cover Radio Remix) (3:39)Жанр: PopПродолжительность: 05:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143FA6D9FAB1D2A2DCF8C2D4F06EED8D9E8D1D9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

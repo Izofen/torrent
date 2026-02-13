@@ -1,3 +1,29 @@
+###  Публикация: 1415367   (371566) от 14.10.2020
+
+Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer Version] (2020) Deep Purple cover [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795F54AB66CD149E53EEBD9FED64F05053E76019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254054   (372639) от 14.10.2018
 
 VA - The Great American Songbook: 66 American Standards (2018) [MP3|320 Kbps] <Pop, Vocal Jazz, Blues>
@@ -714,35 +740,6 @@ Constance Demby - Ambrosial Waves – Healing Waters (2011) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23C8F772DF2B43634CD07823DED3B3B88EE88448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253816   (379525) от 11.10.2018
-
-Constance Demby - Set Free (The Definitive Edition) (2006) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waltz of Joy (04:45)
-02. Tribal Gregorian (04:19)
-03. Jungle Jam (06:13)
-04. Javalon (04:19)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF95A4C93DE08DC0EAC38EB49EF2418C64B73C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

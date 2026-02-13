@@ -1,3 +1,61 @@
+###  Публикация: 1069281   (373956) от 04.11.2016
+
+VA - Trance 100 Best Of 2016 (2016) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373956.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren Ft. BullySongs - Freefall (Manse Remix)  2:33
+002. Gareth Emery Ft. Wayward Daughter - Reckless  3:22
+003. Chicane - Offshore (Grum Remix)  3:39
+004. Super8 & Tab - Mega  3:04(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 05:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2008C5DD4DE1C6866E1DECAD38469FBE108D8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069537   (373978) от 04.11.2016
+
+VA - Clubfire Times 100 Power (2016) [MP3|240-320 Kbps] <Indie Dance, Bigroom, Electro, Dancehall, Trap, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix & The Federal Empire - Hold On & Believe (Clean) (Radio Edit) 03:54
+02. Flyboy Ft Gavrielle & Jake Newton - Maze (Clean) (Short Edit) 02:46
+03. Party Favor Ft Georgia Ku - In My Head (Clean) (Radio Edit) 03:30
+04. Luca Debonaire - Klubb Killer (Clean) (Short Edit) 02:56(   Читать дальше...   )Жанр: Indie Dance, Bigroom, Electro, Dancehall, Trap, HouseПродолжительность: 08:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD88B1A2A2FFDEDA8C4B6D82E0CA1889A7D462C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069147   (373980) от 04.11.2016
 
 Datura - The Best Of Datura (Remastered Versions: Original And Remixes) (2016) [MP3|320 Kbps] <EuroHouse, Eurodance, Techno>
@@ -702,64 +760,6 @@ Teddybears (Teddybears STHLM) - Collection (2000 - 2016) [MP3|320 Kbps] <Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:032C69E2233443302C1141C6CFC4AEF52D4F8DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069033   (375965) от 03.11.2016
-
-VA - Beatport Top 100 02.11. (2016) [MP3|320 Kbps] <House, Tech House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375965.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cari Golden, Reinier Zonneveld - Things We Might Have Said (Original Mix)
-002. Solardo - Tribesmen (Original Mix)
-003. Groove Armada - Superstylin' (Riva Starr Edit)
-004. RUFUS - Innerbloom (Sasha Remix)(   Читать дальше...   )Жанр: House, Tech House, DanceПродолжительность: 10:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E33892460E13832E2B28233BAB93C72640D56B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069023   (376098) от 03.11.2016
-
-VA - Осенняя хит-атака на Europa Plus. Русский сборник (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376098.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dельфина - Привет От Одиноких
-002. Estradarada - Мне Нравится
-003. Дмитрий Климашенко - Будет День
-004. Свят - Почему Же Нет(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143AD3F48CC24F1A2BEC55E608B87DC87D1B7571
 ```
 
 https://mybot314.ru/tekegram_catalog/

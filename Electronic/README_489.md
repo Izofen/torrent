@@ -1,3 +1,32 @@
+###  Публикация: 1357139   (975538) от 02.02.2020
+
+VA - When House Goes Deep (2020) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tobias Rauch feat. Jessy - Alpha Horizon (Alex From Jack Re-Work Edit) 4:43
+02. Martin Bro - He Wants To Escape (Original Mix) 4:42
+03. Angels From Jupiter - Anonymous Soul (Drama Kids Loco Remix) 6:41
+04. Robbie Pallasch - Marks & Angels (Original Mix) 6:49(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F68173D55373D422AB2796B09D2A803B20E0BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356712   (975543) от 02.02.2020
 
 VA - Hot Ibiza Groove (2020) [MP3|320 Kbps] <House>
@@ -720,35 +749,6 @@ izanagi - projections (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Future Garage,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:664AE76275E13B2E36D4915CAD0F2C47EFB9A966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356466   (979118) от 30.01.2020
-
-VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979118.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. House Boyzz - Now Baby Com (Boyzz Mix) 3:03
-2. Carl Carlton - I'll Wait Here (Deep Cut Mix) 3:07
-3. Piet Lorrigan - Baja Buggys (Root Mix) 2:59
-4. Paul Sandemann - Do It Yourself (Diy Edit) 2:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1F2571268888711DCBDEF986A6D9C234EA816F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1226616   (654864) от 21.05.2018
+
+VA - Sexy House 2018 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergio WoS - Back to the Old School 05:53
+02. Ibiza Bitches - Be Happy (#Cmondance Instrumental) 06:09
+03. David Jay feat. Sarah Brickel - Your Own Way 05:07
+04. Mykel Mars - Give Me the Sunshine (Extended Instrumental Mix) 05:29(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4517059EB845F9EE2F2995D6CF6B1AE9E605E56A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140663   (654878) от 07.06.2017
 
 Aly & Fila - Future Sound Of Egypt 499 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -728,35 +757,6 @@ Kavinsky - Reborn (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Synthpop, Electro Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64159B4DE9EBD0CB7880278AC91A540DE8A4EC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903636   (656223) от 01.06.2015
-
-VA - The Fatboy Slim Collection (2015) 4CD [MP3|320 кб/с]<Breaks, Funk, House, Big Beat, Electro>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656223.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1: 01:19:02
-CD 2: 01:18:40
-CD 3: 01:19:45
-CD 4: 01:18:07Производство: Sony Music / 888750 78432Жанр: Breaks, Funk, House, Big Beat, ElectroПродолжительность: 05:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A883CC8D87B659BC59C0230D6F00AA5B537400
 ```
 
 https://mybot314.ru/tekegram_catalog/

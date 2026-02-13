@@ -1,3 +1,177 @@
+###  Публикация: 1846831   (1051571) от 09.01.2026
+
+VA - AM Gold 1978 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Gilder - Hot Child In The City
+02. The Sweet - Love Is Like Oxygen
+03. Boston - Don't Look Back
+04. John Paul Young - Love Is In The Air(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76DDF681E329B9FE44E48530FCFB5D49515DE70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846763   (1051572) от 09.01.2026
+
+VA - AM Gold 1977 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Don't Stop
+02. Linda Ronstadt - It's So Easy
+03. Daryl Hall & John Oates - Rich Girl
+04. Climax Blues Band - Couldn't Get It Right(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5830B3757AA7749FCAE831CE0063F0AFDE06E34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846757   (1051573) от 09.01.2026
+
+VA - AM Gold 1976 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pratt & McClain With Brotherlove - Happy Days
+02. Bay City Rollers - Saturday Night
+03. Peter Frampton - Show Me The Way
+04. Orleans - Still The One(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5D3036E7719D558E76CE5FF248C2A49827C17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846709   (1051664) от 08.01.2026
+
+VA - AM Gold 1975 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KC & The Sunshine Band - That's The Way (I Like It)
+02. Leo Sayer - Long Tall Glasses (I Can Dance)
+03. Labelle - Lady Marmalade
+04. Pilot - Magic(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DA89483B381A4F696359DCDD76AADEDB361605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846673   (1051665) от 08.01.2026
+
+VA - AM Gold 1974 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Swan - I Can Help
+02. Carly Simon And James Taylor - Mockingbird
+03. Dionne Warwick And Spinners - Then Came You
+04. Redbone - Come And Get Your Love(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B89967AA42240BABDBEB6C7D6524415696DA25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846646   (1051667) от 08.01.2026
+
+VA - AM Gold 1973 (1992) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helen Reddy - Delta Dawn
+02. Jim Croce - Bad, Bad Leroy Brown
+03. Dawn Featuring Tony Orlando - Tie A Yellow Ribbon Round The Ole Oak Tree
+04. Three Dog Night - Shambala(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4934D98B946DE319AD2993F0A46C913B56F8D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847118   (1051941) от 10.01.2026
 
 VA - ДЖЕМ Дискотека 85/98 (2024) [MP3|320 Kbps] <Pop>
@@ -571,180 +745,6 @@ Captain Hollywood Project - Love Is Not Sex (1993) 1st German Press [APE|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B352BC8FCD97062DAA4B7545CD75F145EC1165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849645   (1053680) от 24.01.2026
-
-DJ Hooligan - 3 Years To Become A Ravermaniac (1995) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Rave>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagination Of House (Totally House Version) (05:14)
-02. It's A Dreamsong (06:31)
-03. The Culture (Original Mix) (06:28)
-04. Spacegirl (06:25)(   Читать дальше...   )Жанр: Eurodance, RaveПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FA6E31F4C3A3CEA7133D56116AFABE078F80FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849643   (1053683) от 24.01.2026
-
-DJ Bobo - Dance With Me (1993) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:46)
-02. Somebody Dance With Me (3:34)
-03. Take Control... (4:31)
-04. Everybody (3:55)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D4B5F222C852B8D81523DEC2DE26A132BDE9FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849632   (1053684) от 24.01.2026
-
-Snap! - The Madman's Return (1992) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Rap>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madman's Return (4:35)
-02. Colour Of Love (Massive Version) (5:33)
-03. Believe In It (5:08)
-04. Who Stole It? (5:10)(   Читать дальше...   )Жанр: Eurodance, RapПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA3050122DEBB6B8F0F4D6F94324BAF5AADB7ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849626   (1053685) от 24.01.2026
-
-Culture Beat - Serenity (1993) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenity (Prolog) (2:16)
-02. Mr. Vain (5:37)
-03. Got To Get It (5:21)
-04. World In Your Hands (5:33)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22843F875DA002FCCCDE57EBA926B5FE298DC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849624   (1053686) от 24.01.2026
-
-2 Unlimited - No Limits (1993) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Limit (3:45)
-02. Tribal Dance (4:34)
-03. Mysterious (4:25)
-04. Faces (3:51)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA613E6F5C8B6A191698B8D6D5969E53A27BBA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849620   (1053688) от 24.01.2026
-
-2 Unlimited - Get Ready! (1992) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Ready For This (3:44)
-02. Twilight Zone (4:09)
-03. The Magic Friend (4:32)
-04. Contrast (3:42)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A60DC3EFF08B8B2C88194FF9DAB79288ACE0CAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

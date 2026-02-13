@@ -1,3 +1,32 @@
+###  Публикация: 1303008   (577855) от 18.05.2019
+
+Scratch Massive - 7 Albums (2003-2018) [MP3|320 Kbps] <Electronic, Electro>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scratch Massive - дуэт ди-джеев, основанный в 1999 году на западе Франции и состоящий из Мод и Себастьян (Maud and Sebastien).Список альбомов:
+2003 - Enemy & Lovers
+2007 - Time
+2008 - Underground Needs Your Money Baby(   Читать дальше...   )Жанр: Electronic, ElectroПродолжительность: 06:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E7EF758C222AFB9D29DE8C0E048C22A5EF039F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150291   (578028) от 16.07.2017
 
 VA - Black Hole Trance Music 07-17 (2017) [MP3|320 Kbps] <Trance>
@@ -711,35 +740,6 @@ Tipper - Jettison Mind Hatch (2019) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Glitc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FCEC7DA121F74232F86EAF877B85BE181E6E732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302629   (580252) от 16.05.2019
-
-Tipper - Jettison Mind Hatch (2019) Tippermusic [FLAC 2.0|44.1/24|tracks|WEB-DL] <Glitch, Experimental, Bass, IDM, Downtempo, Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sayonara (04:28)
-02. Vection (04:07)
-03. Baleen (04:58)
-04. Exit Chapel Perilous (03:08)(   Читать дальше...   )Жанр: Glitch, Experimental, Bass, IDM, Downtempo, AmbientПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C160F4A0D59DDAE4EC51586237B40CD577DD6D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

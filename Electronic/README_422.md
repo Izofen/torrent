@@ -1,3 +1,32 @@
+###  Публикация: 1506270   (799132) от 02.11.2021
+
+Tiësto - Musical Freedom Radio October (2021-10-16) [MP3|320 Kbps] <Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto & Karol G - Don't Be Shy
+02. Kiko Franco & Bruno Be - Friday Night (It's Not Right)
+03. Mr. Belt & Wezol ft. Yasmin Jane - Broken Moonlight
+04. KREAM & Millean. ft. Bemende - What You've Done To Me(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FEBD48A557495DA48C3DF79955608130343C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506944   (799163) от 02.11.2021
 
 Maurice West - Live @ Stedelijk Museum (ADE) (2021-10-15) [MP3|320 Kbps] <House, Trance, Techno>
@@ -716,35 +745,6 @@ Culprate - Unity Project, Pt. 1, 2, 3 (2017-2018) Open Outlets [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE6FA0650C2F3CAEC2DF35783C6219D687F4EC47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199670   (800296) от 17.01.2018
-
-Sound Apparel - Magnum Opus Vol. 2 (Greatest Hits-Remastered) (2017)<Trance,Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanctum (2017 Remaster) (08:17)
-02. Dream (2017 Remaster) (10:42)
-03. Sadness (2017 Remaster) (11:03)
-04. Sadness (Extended Mix 2017 Remaster) (11:53)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FA8591997BCD7C899AA9758757054C06295FFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

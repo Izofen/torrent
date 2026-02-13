@@ -1,3 +1,32 @@
+###  Публикация: 1247910   (448491) от 17.09.2018
+
+Rajendra Teredesai & BlueMonk - Samsara (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Himalayan Sunrise
+02. Sunshine Girl
+03. Darjeeling Dreams
+04. As Life Passes By, Pt. 1(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1FFF64B8A3D5E14D6F25166CD25744CCC7FAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 705472   (448585) от 30.09.2013
 
 Leo Rojas - Flying Heart (2012) [FLAC|Lossless|image + .cue] <New age, Instrumental, Native american, Panflute>
@@ -718,35 +747,6 @@ Tantric Sex Background Music Experts - Asian Tantric Yoga (2019) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39B526179D2721EE15897C450E9210853496A08A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321583   (456802) от 25.08.2019
-
-Christopher Phillips - Piano Chill: Songs of Billy Joel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Always a Woman (3:40)
- 02. She's Got a Way (3:17)
- 03. Piano Man (2:53)
- 04. Allentown (4:10)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9526E9C62549E6855E457E1C5BBA12535BBF717
 ```
 
 https://mybot314.ru/tekegram_catalog/

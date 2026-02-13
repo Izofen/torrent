@@ -1,3 +1,32 @@
+###  Публикация: 1295717   (616595) от 14.04.2019
+
+VA - Classical Chill Guitar (2019) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Withers - Myers-Cavatina (Arr. John Williams) (From 'The Deer Hunter') 3:12
+02. Grigoryan Brothers - Lovelady-Incantation No.2 5:02
+03. Slava Grigoryan & Leonard Grigoryan - J.S. Bach-Cantata BWV 156 - 1. Sinfonia (arr. Edward Grigoryan) 5:19
+04. Guitar Trek - Charlton-Dances for the Rainbow Serpent - 3. The Beauties of the World Are Revealed for the (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BF06944F21DB244CEC722C4A525A8CA7326D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295559   (616598) от 14.04.2019
 
 VA - Classical Chill: Piano (2019) [MP3|320 Kbps] <Classical, Piano>
@@ -751,34 +780,6 @@ Vanessa Perez - Chopin: The Complete Preludes (2012) [MP3|320 Kbps] <Classical, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B81F423C59EF957BD0ADB7BD4CD714EC5A111014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228016   (640834) от 29.05.2018
-
-VA - Top 30 Most Popular Wedding Classics (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Easy Listening>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Midsummer Night's Dream, Op. 61 Act V. Wedding March - Staatskapelle Berlin, Gunther Herbig, Chor Der Deutschen Staatsoper Berlin 05:05
-02. Lohengrin, WWV 75 Treulich geführt ziehet dahin - Das süße Lied verhallt - Staatskapelle Berlin, Chor Der Deutschen Staatsoper Berlin, Otmar Suitner 08:23
-03. Solomon, HWV 67, Sinfonia II, Pt. III I. Arrival (   Читать дальше...   )Жанр: Classical, Instrumental, Easy ListeningПродолжительность: 02:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77F2A139B735AB05E2E38260B60132AF0CD957F
 ```
 
 https://mybot314.ru/tekegram_catalog/

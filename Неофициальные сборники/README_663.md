@@ -1,3 +1,61 @@
+###  Публикация: 1462378   (1021136) от 14.04.2021
+
+VA - Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nana - Lonely 2021 (Fernando X T-Boy 2K21 Edit) (3:52)
+02. High Flex - Martini Orange (Extended Mix) (6:44)
+03. Ваня Дмитриенко - Венера-Юпитер (Ramirez Remix) (3:40)
+04. Enur ft. Natasja - Calabria (Atalay Tuncali Bootleg) (3:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE21389EE42A2BFBDE377B1CA02B536FD544A9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462447   (1021167) от 14.04.2021
+
+VA - Music News vol.91 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021167.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ольга Шультайс - Пофиг (03:09)
+ 002. A.T & Merik & BoSton - Холодная Как Лёд (02:33)
+ 003. Abro - For the Night (02:59)
+ 004. AcroniX & Jonas Eb - Your Words (02:34)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 09:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5056FBF42A0F84388D3268C4EC08926108D1CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462291   (1021190) от 14.04.2021
 
 VA - Night Rider 4 (2021) [MP3|320 Kbps] <House>
@@ -687,64 +745,6 @@ VA - DJ Set Electro House: Euronics Playlist (2021) [MP3|320 Kbps] <Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAA71E6B31C25D9B060A2136A601D8B74BBCEBFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461871   (1021634) от 11.04.2021
-
-VA - Tech House: The Club Shock Party (2021) [MP3|320 Kbps] <Club, Tech House, Electro, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уследить за динамично меняющейся музыкальной модой непросто. Но зато есть шанс с сборником "Tech House: The Club Shock Party" быть на шаг впереди неё! Крепко сбитый, этот микс содержит в себе всё: и позитивный мощный ритм, и красивые радужные мелодии, и приятный вокал исполнителей.001. Cristopher - Lazzarus
-002. 303 Attack - Harmonyc Calcolation
-003. DJ Octopus - M.A.D.
-004. Goldwave - Origin Of Life(   Читать дальше...   )Жанр: Club, Tech House, Electro, DanceПродолжительность: 09:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5CB0B734DC30AFD61C5133037F25D968C094F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461791   (1021635) от 11.04.2021
-
-VA - Beatport Deep House: Sound Pack #272 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вам легкую и очень позитивную подборку танцевальных треков от Beatport 272-го релиза в стиле Deep House. Настроение мгновенно повышается, появляется что-то вроде эйфории и легкости. Очень мелодичные композиции, чем-то напоминающие творчество грантов EDM сцены из 2000 годов, однако с совершенно другой современной энергетикой.001. Enamour - Sleep Paralysis
-002. Charlie Hesen - Travelling Sound
-003. Dave Mayer - Chicago Jazz
-004. Beije - Exquiro(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07B69BC3C0930B11B2A0CE852D793D090B853DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

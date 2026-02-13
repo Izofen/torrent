@@ -1,3 +1,32 @@
+###  Публикация: 1368478   (909253) от 20.03.2020
+
+Four Tet - Sixteen Oceans (2020) Text Records [FLAC|Lossless|tracks+.cue] <House, Ambient, Tech House, Downtempo, IDM, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. School (04:02)
+ 02. Baby (04:24)
+ 03. Harpsichord (02:54)
+ 04. Teenage Birdsong (03:25)(   Читать дальше...   )Жанр: House, Ambient, Tech House, Downtempo, IDM, MinimalПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5342A3F42D185FD2DBA9554B69256DCCC6F2AC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990600   (909421) от 26.02.2016
 
 The Qemists - Warrior Sound (2016) [MP3|320 кб/с] <Drum & Bass, Alternative, Breaks, Drumstep, Electro, House>
@@ -707,35 +736,6 @@ VA - Model Dreams: Winter Edition (2017) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EEC501D07CDB044DA5DDED68B5651B70F6CFEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990174   (912166) от 25.02.2016
-
-VA - Carnaval Electro 2016 (Deluxe Edition) (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Dyson — Alcatrax Vol. 1 (Miles Dyson Breakfest Edit)
- 02. Aaren San — Friction (Davis Kay Remix)
- 03. Bad Tempo — Partycool Accelerator (Original Mix)
- 04. PrototypeRaptor — ECSD (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD10D4CCB397A32EC578ED8B26432681B38266F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

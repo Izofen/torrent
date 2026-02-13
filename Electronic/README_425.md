@@ -1,3 +1,32 @@
+###  Публикация: 1120329   (802087) от 31.03.2017
+
+VA - A Perfect Italian Lounge Experience: Lounge Music Playlist (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keir Fraser & James Braddell – Fluid Love
+ 02. Roberto Masala – Cocktail Hour
+ 03. Marco Lo Russo – Evoluciones
+ 04. Keir Fraser & James Braddell – Traffic Jam(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A675E71E1E0F9CA3165BD2A52515BBE8A603BCF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120587   (802122) от 31.03.2017
 
 VA - Redux Miami Selection (Mixed By Guy Alexander) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -716,35 +745,6 @@ Purple Disco Machine - Exotica (2021) [MP3|320 Kbps] <Electronic, House, Nu Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89BF5C8298C9C489CA23BE753CEA995AA96BCF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505570   (804368) от 27.10.2021
-
-Yota - Lucid Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Nu-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blame Me (00:06:07)
-02 - Paris (00:05:52)
-03 - The Light of Your Bright Sun (00:04:00)
-04 - Tangled Love (00:04:48)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Nu-DiscoПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0293CFEFD89F6CDDA16139DB919E122B3C1B3296
 ```
 
 https://mybot314.ru/tekegram_catalog/

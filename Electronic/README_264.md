@@ -1,3 +1,32 @@
+###  Публикация: 1316436   (505970) от 26.07.2019
+
+VA - Summer Party 2019 [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norah B. & Lorenz Koin - Don't Break My Heart (Radio Edit) 3:28
+02. Rene Rodrigezz feat. Lova - Stand My Ground (Original Mix) 3:06
+03. Teknova - Dragostea Din Tei 2K19 (Original Mix) 3:16
+04. Mad Fiftyone & Federico Seven - Una Canzone Che Fa (Radio Edit) 2:41(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92ED24BFEF974E4C5C1A856AA429140548F9366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316450   (505974) от 26.07.2019
 
 Raz Ohara And The Odd Orchestra - Kisses (2008) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House>
@@ -733,35 +762,6 @@ Ishq - lowering Mountain Earth (2012) [MP3|320 кб/с]<Ambient/Psybient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84D50561F8240195DEBB8A0F43444F9869BD0977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930467   (510785) от 27.08.2015
-
-Lazerhawk - Skull and Shark (2013) [MP3|320 кб/с]<Electronic, Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skull and Shark (04:50)
-02. Chaos (04:50)
-03. Lawless (04:26)
-04. The King of the Streets (04:57)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54388FF7C8CBBD624A2C840A3B8585CD3A12C096
 ```
 
 https://mybot314.ru/tekegram_catalog/

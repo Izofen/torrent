@@ -1,3 +1,31 @@
+###  Публикация: 1849246   (1053542) от 22.01.2026
+
+Stephanie Ryan, Michelle McNicholas, Stephen J. Eustace | Anatomy for Diagnostic Imaging. 4th Edition (2024) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anatomy for Diagnostic Imaging, Fourth Edition covers everything trainee radiologists need to know about anatomy shown in the full range of medical imaging, including CT, MR and ultrasound.
+
+It provides an initial traditional anatomical description of each organ or system, followed by the radiological anatomy of that part of the body with labelled imaging examples (   Читать дальше...   )Жанр: АнатомияЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62FE877B594A63C69244A19C337D2B6F601142F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849248   (1053543) от 22.01.2026
 
 Donald Rizzo, Elisa Ratliff | Fundamentals of Anatomy and Physiology. 5th Edition (2026) [PDF] [EN]
@@ -658,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CFF11DF93C60A2EA9C3D052C6621F0DD094B531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850073   (1053999) от 
-
-А.В. Погорелов | Аналитическая геометрия (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический учебник по аналитической геометрии выдающегося ученого-математика с мировым именем А.В. Погорелова выдержал уже много изданий. За прошедший период книга совсем не устарела и остается лучшим и основным учебником. В предлагаемом курсе лекций излагаются основы метода аналитической геометрии в применении к простейшим геометрическим объектам. Учебник отличается (   Читать дальше...   )Жанр: МатематикаИздательство: Регулярная и хаотическая динамикаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42CABC9CD9942C9E488BF4D789424CFE66A70A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

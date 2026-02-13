@@ -1,3 +1,32 @@
+###  Публикация: 1100888   (792349) от 31.05.2020
+
+Sraunus - Discography 20 Releases (2010-2020) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruoduo (09:44)
+ 02. Slunce Radar (06:52)
+ 03. Glaxomi III (08:54)
+ 04. Juliona Kabli (05:15)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Dub Techno, Ambient, Minimal •Продолжительность: 17:24:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1208E3DC9A01372BAF1B15B4206ADD20510056C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123081   (792406) от 07.04.2017
 
 Alphaville - Strange Attractor (2017) [MP3|320 Kbps] <Synthpop, New Wave>
@@ -710,35 +739,6 @@ Voiski - The Bat Who Wanted To See The Sun (2019) Dolly [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:163018409CBEE3C28A0602F86B6D78C28C2986BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274629   (793053) от 07.01.2019
-
-Umami - In Exchange For Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghostnote (5:40)
- 02. Terra Mount feat. Monolink (7:34)
- 03. Behind The Wheel (7:24)
- 04. Number Of The Beast (4:58)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26554B75B0A9EE7D3F89CB596F76F223CAE710D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

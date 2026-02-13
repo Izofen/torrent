@@ -1,3 +1,32 @@
+###  Публикация: 1091717   (941767) от 10.01.2017
+
+VA - New Metropolitan Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bananaquit - Hold Me Up  6:21
+02.  Boring Sax - Hand In Hand  6:09
+03.  Enrico Donner - Xonado Por Vocк  5:55
+04.  Cane Garden Quartet - Love Goddess  5:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A07FBBD0779FAB5E8CFD5CE1BA3201301F040E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982213   (941784) от 07.02.2016
 
 Erasure - Hits! The Very Best of Erasure (2007) 2CD, DVD [FLAC|Lossless|tracks + .cue] <Synth-pop>
@@ -707,35 +736,6 @@ VA - Cirque du Son: 5th Anniversary Compilation (2017) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65D6CDCA37576EE404AD3217B368623494867C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091505   (943127) от 09.01.2017
-
-VA - Chillout January 2017 (Top 10 January Relaxing Chill Out & Lounge Music)  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legobyte - The Mall - Chillout Mix
-02. Various Artists - Love or War - Chillout Mix
-03. Vladimir Belyaev - Lika 'N' Tropy - Chillout Mix
-04. Alex Field - Become Kinder - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D059943CB9CD06DB48E531D260C8E40D8C8350
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 545619   (485265) от 10.09.2012
+
+VA - Trance Tattoe #22 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lange & Audrey Gallagher - Our Way Home (Original Mix)
+02. Marc Simz feat. Naomi Striemer - This Is Love (Original Mix)
+03. Mike Shiver feat. Bo Bruce - Still Here
+04. Moonbeam feat. Blackfeel Wite - In Your Eyes (Original Mix)
+05. Omnia & IRA - The Fusion (Original Mix)
+06. Progressiver - Searching For The Truth (Original Mix)
+07. Ralphie B - Icarus
+08. Rave Channel - Illusion (Original Mix)
+09. Reminder - On The Beach (Stoneface & Terminal Remix)
+10. Rex Mundi - Opaque (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CBD18024E176B2BAE4F49C8DB7476FC0C066B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405181   (485309) от 29.08.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 28.08.2020 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dotan - NUMB (3:39)
+02. twocolors - Lovefool (3:10)
+03. Filatov & Karas with Deepest Blue - Give It Away (3:27)
+04. NRD1 - All Good Things (Come To An End) (Extended) (4:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0CE38F558BC7534DF0965B8CB0E078835B5765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244029   (485591) от 30.08.2018
 
 VA - Fun Disco Remix (2018) [MP3|320 Kbps] <Disco, Remix>
@@ -699,64 +763,6 @@ VA - Hotel Chill and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46C5A77A629ACD760925D726E7627044EC42A78B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937586   (488325) от 15.09.2015
-
-VA - Mental Impulse: Sound Trance City (2015) [MP3|320 кб/с]<Progressive, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488325.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Green Point - Everything Has an End (Club Mix)
-002. Jackob Roenald - Advan - Chronosapien Remix
-003. Stefan Viljoen - Divinity - Diving Analogue Remix
-004. Frozen Skies - X (Anniversary Mix)(   Читать дальше...   )Жанр: Progressive, Uplifting TranceПродолжительность: 11:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CB57711EA703B0D70CC3101BF6C71C5C35E74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937426   (488326) от 15.09.2015
-
-VA - Sweet Lounge Esthetics (2015) [MP3|320 кб/с]<Electro Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488326.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ryan Weber - Magic Fly - Chillectro Remix
-002. Georgy Om - Beginning (Original Mix)
-003. Vogel & Hauter - Desire - Chill out Rework
-004. Sunkissed - Escape to Ibiza(   Читать дальше...   )Жанр: Electro Lounge, ChilloutПродолжительность: 07:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F38CB9DE324C0F0A482548C6CF98D58C171575
 ```
 
 https://mybot314.ru/tekegram_catalog/

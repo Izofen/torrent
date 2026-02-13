@@ -1,3 +1,177 @@
+###  Публикация: 1574638   (383852) от 06.09.2022
+
+Milou - Sentimental Lover (1987) [OGG Vorbis|485 Kbps] <Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sentimental Lover	3:33
+02. Sentimental Lover (Instrumental)	3:35Жанр: ElectronicПродолжительность: 00:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF03E3561F2A51AAF4437B697254D7D04CA301BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 152306   (383897) от 12.11.2009
+
+Inna - Hot (2009) [FLAC|Lossless]<Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_383897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 250314   (384333) от 26.10.2010
+
+A La Carte - Greatest Hits (2004) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_384333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doctor Doctor (Help Me Please)
+02. When The Boys Come Home
+03. Farewell Farewell To Caringford
+04. Ring Me Honey
+05. Red Indian Drums
+06. Jimmy Gimme Reggae
+07. River Blue
+08. Viva Torero
+09. Dong Dong Diki Diki Dong
+10. Wanted (Jean Le Voleur)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067724   (384765) от 30.10.2016
+
+Sandra - Heaven Can Wait (1988) (CD, Maxi-Single) [FLAC|Lossless|image + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384765.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Heaven Can Wait (Extended Version) 7:38
+2 Heaven Can Wait (Dub Mix) 4:01
+3 Heaven Can Wait (Single Version) 4:05Жанр: Pop, ElectronicПродолжительность: 00:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706AC7E599022F670F6CEBE35A57BCA644D7FE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326368   (384816) от 20.09.2019
+
+Pupo - 17 Albums (1977-2016) 11LP+6CD [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pupo (Enzo Ghinazzi) родился в 1955 году итальянском городе Понтичино во Флоренции. Его карьера в качестве певца стартовала в 1975 году. Первый альбом «Как ты прекрасна» («Come sei bella») вышел в 1977 году. Большой успех приходит в 1978 году с песней «Привет» («Ciao»), а затем с «Шоколадное мороженое» («Gelato al cioccolato»). В 1980 году он занял 3-е место на фестивале (   Читать дальше...   )Список альбомов:
+1977 - Come Sei Bella (LP)
+1979 - Gelato Al Cioccolato (LP)
+1980 - Piu' Di Prima (LP)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 11:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA96EE1A401309F19F5BB24B7D777059A053388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326496   (384841) от 20.09.2019
+
+Андрей Державин и Сталкер - Песни о хорошем, Часть 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384841.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не плачь, Алиса!
+2. Ночной город
+3. Когда ты уйдёшь
+4. Звёзды(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2843D933D59D678D6CE768EC54CE9EA08270EBDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572288   (384914) от 08.11.2012
 
 VA - Лучшая 100ка Ретро FM 8 50/50 (2012) [MP3|256 кб/с]<Pop>
@@ -580,180 +754,6 @@ VA - Super 20-Hit Disco'81 (1981) LP [MP3|320 Kbps] <Electronic, Synthpop, Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66637BEED37076698415C90155E8E07A358D5192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067434   (387276) от 29.10.2016
-
-Madness - Can’t Touch Us Now (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Touch Us Now 04:13
-02. Good Times 02:54
-03. Mr. Apples 03:39
-04. I Believe 03:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A499A14AE12CFE726638878B93BB1865A419EC1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326261   (387303) от 19.09.2019
-
-Mabel - High Expectations (2019) [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387303.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 High Expectations (Intro) 1:29
-2 Bad Behaviour 3:26
-3 Don't Call Me Up 2:58
-4 FML 3:13(   Читать дальше...   )Жанр: Pop, R&B, DanceПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EF6779B6D10FAC2BDB586BE0FF7D02CC4A8C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067705   (387377) от 29.10.2016
-
-Andy Williams - Reflections (1977) Compilation [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Moon River
-2. Sad
-3. Both Sides Now
-4. Home Lovin' Man(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10332C3F7ECBF3EC3904A85703C3E337CEE5AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067613   (387379) от 29.10.2016
-
-Madness - Can’t Touch Us Now (2016) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Touch Us Now 04:13
-02. Good Times 02:54
-03. Mr. Apples 03:39
-04. I Believe 03:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50836888C1582F81F460859F7E4D107DFC86CD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067077   (387554) от 29.10.2016
-
-VA - Disco Edits - Halloween  (2016) [MP3|320 Kbps] <House, Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jon Rich - Chicos - Original Mix (06:07)
-02. Spank - The Start - Original mix (05:20)
-03. Dat Butterflies - Never Stop - Original Mix (05:17)
-04. Angelo-K - Highway Feat. Amos To - Original mix (05:20)(   Читать дальше...   )Жанр: House, Disco, Nu-DiscoПродолжительность: 01:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411B2957FA512571D34630D615CE665834EB9B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252973   (387581) от 07.10.2018
-
-VA - 110 Hits 2018 (2017) 5CD [MP3|320 Kbps] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387581.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Louane - Si t'etais la
-02. Bigflo & Oli - Dommage (Acoustic)
-03. Kendji Girac - L'envie(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E272C60AE2C0F470E93B3755330B2A586187A858
 ```
 
 https://mybot314.ru/tekegram_catalog/

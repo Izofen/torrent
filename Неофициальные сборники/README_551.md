@@ -1,3 +1,61 @@
+###  Публикация: 1005123   (834557) от 08.04.2016
+
+VA - Bass Killer 4 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Drum and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834557.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. L 33 — Clublife (Original Mix) (4:11)
+ 2. Agressor Bunx — Total Destroy (Original Mix) (5:39)
+ 3. Chase & Status — NRG (feat. Novelist) (3:16)
+ 4. Datsik feat. Trinidad James — Tantrum (4:10)(   Читать дальше...   )Жанр: Electro House, Dubstep, Drum and BassПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BCF61104CFB13FB7708FB3408752A372C23BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005345   (834560) от 08.04.2016
+
+VA - Sweet Afternoon: Music Romantic and Chilling Pop Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Dickenson - Goldenflower
+02. Jan Liesefeld - Americana
+03. Rupert Christopher Embleton Smith - Roady Guitar
+04. St. Project - White Windmill(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FD3463D130E3C14838BD4146680D29E32A3B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004782   (834575) от 08.04.2016
 
 VA - Falling in Love with Lounge Music 100 Sexy Tracks (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - 255 DJ Loaded - Sessions Speech (2021) [MP3|224-320 Kbps] <Dancehall, Nu Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C472CE8D87ED4AB695CE1BBBE7471B50F45423E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501458   (835121) от 10.10.2021
-
-VA - The Official UK Top 100 Singles Chart 08.10.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Shivers
-02. Elton John, Dua Lipa - Cold Heart (PNAU Remix)
-03. CKay - love nwantiti (ah ah ah)
-04. Central Cee - Obsessed With You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3B445E9EE12D642151E2BE7B26039BE10ED1B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501532   (835124) от 10.10.2021
-
-VA - Record Super Chart 09.10.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
-02. Minelli - Rampampam (3:20)
-03. Tiesto & KAROL G - Don't Be Shy (2:20)
-04. Ed Sheeran - Bad Habits (3:51)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E041C8A50CFE631882E0EC2672F75737AD69CB21
 ```
 
 https://mybot314.ru/tekegram_catalog/

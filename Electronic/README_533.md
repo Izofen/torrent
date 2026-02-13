@@ -1,3 +1,32 @@
+###  Публикация: 1610081   (1042654) от 06.02.2023
+
+Cyberman - Mysterious Galaxy (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Against Machines (4:50)
+02. Gravity (5:29)
+03. Personal Wormhole (7:13)
+04. Space Maneuvers (5:10)(   Читать дальше...   )Жанр: Synthwave, SpacesynthПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FDB7C8CE1A2D50C6CE9EF1F3523995487197A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610080   (1042655) от 06.02.2023
 
 Cyberman - Mysterious Galaxy (2022) [MP3|320 Kbps] <Synthwave, Spacesynth>
@@ -713,35 +742,6 @@ Code Elektro - Deeper Cuts (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8672644DF584E924C0BF864DD29B8E6A29BD544D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608211   (1043755) от 29.01.2023
-
-VA - Alveda Trance Hits 2023 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Meretskiy - Caffeine (Original Mix) [7:33]
-02. Joren Heelsing - Falling (Original Mix) [5:47]
-03. Steve Melodic - I Am Not Afraid Of The 140 (Original Mix) [7:46]
-04. Nick Osta5h - Deja Vu (Original Mix) [7:01](   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE5364BBA6A76B96CDD57B510FCC4DC29932618
 ```
 
 https://mybot314.ru/tekegram_catalog/

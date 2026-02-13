@@ -1,3 +1,32 @@
+###  Публикация: 1461057   (1021951) от 09.04.2021
+
+Faithless - All Blessed (2020) [FLAC|Lossless|image + .cue] <Dance, House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poetry (3:39)
+02. Gains (3:27)
+03. I Need Someone (4:54)
+04. Remember (7:05)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9062F5A36AE2CA960ED3BAA132C58728005F6388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461171   (1021963) от 09.04.2021
 
 Siamese Youth - Echoes of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -713,35 +742,6 @@ Complex Numbers - Техно-опера "Мы, XXII век" (2018) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0402D1116F4B18E89F76E882EAE5103EA457B41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459814   (1022989) от 03.04.2021
-
-VA - Sea and Waves Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon Le Grec - Don´t Judge Me (Radio Mix) (04:18)
-02. Project Blue Sun - More Than You Can Imagine (04:08)
-03. Victoria Loba - Our Time (04:02)
-04. Beamy - Reflections (04:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3302021AEDC88045A58C23DE0D4234BC34E05188
 ```
 
 https://mybot314.ru/tekegram_catalog/

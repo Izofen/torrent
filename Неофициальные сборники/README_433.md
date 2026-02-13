@@ -1,3 +1,61 @@
+###  Публикация: 1221253   (696641) от 23.04.2018
+
+VA - Popular Romantic Ballads (2018) [MP3|320 Kbps] <Pop, Rock, Ballads>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный сборник лучших лирических зарубежных баллад из коллекции онлайн радио под названием "Popular Romantic Ballads". Создаст романтическое, приятное настроение. Зажигайте свечи, включайте музыку и наслаждайтесь!001. Gary Barlow - Don't Need A Reason
+002. Michael Buble featuring Chris Botti - Song For You
+003. Whitney Houston - Nobody Loves Me Like You Do
+004. Alice Cooper - How You Gonna See Me Now(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEB654FCB72CA687FE6F3F6D3B874A4018D9042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027682   (696652) от 19.06.2016
+
+VA - Twisted Up: Bass Buster Vol.06 (2016) [MP3|320 кб/с] <Dubstep, Drumm and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sun Empire, State Of Mind - Twisted Up (Original Mix)
+02. Pegboard Nerds & NGHTMRE - Superstar (feat. Krewella)
+03. Bensley - Tiptoe (Original Mix)
+04. Marshmello - Alone(   Читать дальше...   )Жанр: Dubstep, Drumm and BassПродолжительность: 05:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A966669B8E1DAB6E2EC1B490060B2DF24A2E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027416   (696664) от 19.06.2016
 
 VA - Chill House Diamonds Vol 4 (2016) [MP3|320 кб/с] <House, Future Jazz, Downtempo>
@@ -686,64 +744,6 @@ VA - Зайцев.нет Лучшие новинки Августа (2020) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9C3931A836D8632559AB4C2B8F8AAF7978BDD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794344   (697452) от 08.06.2014
-
-VA - My Favourite Hits of 1983 (10CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New age, Pop rock, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697452.jpg" />
-</div>
-
-
-###  Подробнее
-
-150. Bryan Adams - Take Me Back (04:36)
-151. Blonker - Sleepwalk (02:14)
-152. Tommy Faragher - Look Out For Number One (03:18)
-153. Bonnie Tyler - It's A Jungle Out There (04:36)(   Читать дальше...   )Жанр: Disco, Pop, Synth pop, New age, Pop rock, RockПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5304B882C48F6222346A99C5E93AA444C11567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288174   (697504) от 10.03.2019
-
-VA - Pop Lolipop (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697504.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lily Allen - Come On Then
-002. Eder Rocky Maurer - Am Rosenhuegel
-003. Kevin Chomat - La Vague
-004. Laserdance - Colonize All Planets(   Читать дальше...   )Жанр: PopПродолжительность: 14:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4129769815F4DBF45CFDB7416846E944DD7CDD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

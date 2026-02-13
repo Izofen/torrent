@@ -1,3 +1,61 @@
+###  Публикация: 1059026   (464471) от 03.10.2016
+
+VA - Beatport Trance Pack (02.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Nicky & Chris Schweizer - The Switch  2:15
+02. O.B.M Notion - Weird Things (Highforcer Remix)  6:12
+03. MaRLo - Join Us Now  3:05
+04. Heatbeat - Test Your Might  4:04(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 03:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68EC30DBD9CECFE9935799667B529C8AC2D0C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941086   (464612) от 26.09.2015
+
+VA - 98 Хитов В Дорогу Клубный (2015) [MP3|256 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Malu Project & Henny-M Feat. James Stefano & K-Brown - Back To Life (Max K. Remix Edit)
+02 Discopolis - Falling (Committed To Sparkle Motion) (Dubvision Radio Edit)
+03 Jean-Roch feat. Big Ali - Can You Feel It (DJ Favorite & DJ Kharitonov Remix)
+04 30 Seconds To Mars - Up In The Air(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D31CE8DFE817E86C8D5A4084A17F8700900F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548862   (464679) от 19.09.2012
 
 VA - Зарубежная Дискотека СССР (2012) [MP3|192 кб/с]<Pop, Disco>
@@ -729,64 +787,6 @@ VA - Дискотека 2016 Dance Club Vol. 156 от NNNB (2016) [MP3|64-320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3DED0157FADF0A0C6EEE17423979462D765DFA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058629   (465654) от 02.10.2016
-
-VA - Top 100 Deep House: September 2016 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465654.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Akora, Mike Stil, Yam Nor, Toly Braun - Eyes of Love (Toly Braun Remix) (05:01)
-002.Alex Kafer & Lera (Шура Cover) vs. Mathieu Koss, Boris Way - Ты не верь слезам 2016 (Andrey Kiselev Mashup) (04:09)
-003.al l bo - Around The World (Mike Cox Remix) (05:44)
-004.al l bo - supernow (original mix, feat. Andres NekrassoV) (05:22)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 09:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DBD1732488CBD214EAB7B7F1C2747CA33C22DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058632   (465661) от 02.10.2016
-
-VA - Club Dance Ambience Vol.88 (2016) [MP3|320 Kbps] <House, Electro House, Mash Up, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luca Debonaire - Loosin' Sleep (Original Mix)  6:10
-002. Michael Jackson - Jam (TheDjLawyer Bootleg Remix)  5:56
-003. Calvin Harris - My Way (Danny Dove Remix)  4:12
-004. David Guetta & Cedric Gervais Ft. Chris Willis - Would I Lie To You (Extended Mix)  4:48(   Читать дальше...   )Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 07:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1BC70C55C02DDFCD8281D3C8491E55B29D0EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

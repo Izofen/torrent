@@ -1,3 +1,176 @@
+###  Публикация: 1228148   (635679) от 01.06.2018
+
+C.C. Catch - The Album - Remastered (2017) Limited Edition [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley 2010 (6:47)
+02. You Are My World (Radio Version) (4:24)
+03. Supernature (3:24)
+04. Unborn Love (Remastered) (3:38)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6359EFD449C00952F6C971D5EDF5C20F3432D87D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033648   (635709) от 12.07.2016
+
+Олег Винник - 3 Альбома   (2011 - 2015)  3CD  [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635709.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011. Ангел
+2013. Счастье
+2015. Я не устануЖанр: PopПродолжительность: 01:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0CCC9584B0629862E9673B40E50237F91F20D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033875   (635920) от 12.07.2016
+
+VA - DJ Hits Vol. 61 (1996) Unofficial Release [APE|Lossless|image + .cue] <House, Europop, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr.President - Coco Jamboo
+02. Backstreet Boys - Get Down
+03. Carol Bailey+Alex Party - I Can't Make You Love Me
+04. Neuronic - Heaven(   Читать дальше...   )Жанр: House, Europop, Euro HouseПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76635A46E49E0170A38D9FDE0BD0762CD1FF5ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908044   (635959) от 13.06.2015
+
+Giorgio Moroder – Deja Vu (2015) [FLAC|Lossless|WEB-DL]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 U with Love [2:36]
+02. Deja vu (feat. Sia) [3:20]
+03. Diamonds (feat. Charli XCX) [3:31]
+04. Don't Let Go (feat. Mikky Ekko) [4:30](   Читать дальше...   )Жанр: PopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745BFFBF7C362FCBE16BE69E2739F9615FCEFFF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033788   (636034) от 12.07.2016
+
+Тамара Гвердцители - Избранное (2005) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виват, король! 04:42
+02. Грузия 04:44
+03. Не ревнуй 03:02
+04. Мамины глаза 04:26(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5C9C6FD7A0F4F173DD4D194623C79E32581509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033716   (636041) от 12.07.2016
+
+Dirty Vegas - Photograph (2015) [MP3|320 Kbps] <Dance, Synth Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let the Night (Original Mix)
+02. Setting Sun (Original Mix)
+03. Do What You Feel
+04. Photograph(   Читать дальше...   )Жанр: Dance, Synth Pop, HouseПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A234974E67481756C8E0A40313D8DCD066C687D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907897   (636052) от 13.06.2015
 
 Jenni Vartiainen - 3 альбома (2007-2014) [MP3|320 кб/с]<Pop>
@@ -583,180 +756,6 @@ Adam Lambert - The Original High (2015) Deluxe Edition [FLAC|tracks+.cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20C98141953C809E74F81DC8701684380AFE4909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907609   (637756) от 12.06.2015
-
-Giorgio Moroder - Deja Vu (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 U with Love
- 02. Déjà vu (feat. Sia)
- 03. Diamonds (feat. Charli XCX)
- 04. Don't Let Go (feat. Mikky Ekko)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A8199F2D9099BD0107740862A8FAFEE9AFBB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907576   (637805) от 12.06.2015
-
-Lenka - The Bright Side (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637805.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Long Way Home (3:27)
-2. Blue Skies (4:09)
-3. Free (3:17)
-4. Unique (3:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00.35.23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58D0D8067F5334E4619C9641AEE37E7F20CD7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907450   (637819) от 12.06.2015
-
-Adam Lambert - The Original High (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Town
- 02. The Original High
- 03. Another Lonely Night
- 04. Underground(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A552CF5434BFC13012482B10AE3B824F2ECD7706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907705   (637869) от 12.06.2015
-
-Mika - No Place in Heaven (2015) Deluxe Edition [FLAC|tracks]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk About You (3:22)
-02. All She Wants (3:39)
-03. Last Party (3:39)
-04. Good Guys (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E5E568A80C013BC82FE708850975CF511CDC79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907550   (637872) от 12.06.2015
-
-Саша Зверева (Ex. Demo) - Благодарю (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Благодарю
- 02. Ядовита
- 03. Схожу с ума
- 04. Телефон(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5C5F7DF41B0FC2FAAE02AA3B4FEB6906A287DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907579   (637987) от 12.06.2015
-
-Hilary Duff - Breathe In. Breathe Out. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sparks
-02. My Kind
-03. One in a Million
-04. Confetti(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678F22A85D0D66E2A177ECC0EB13800EA10C61F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,179 @@
+###  Публикация: 1023074   (725849) от 04.06.2016
+
+Градусы - Градус 100 (2016) EP [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. #Валигуляй
+2. Градус 100
+3. Хочется
+4. Я не был дома(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CD6688C3E3D153F13888BCBFDB0E55951862D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023290   (726205) от 04.06.2016
+
+Белый Орел - Как упоительны в России вечера (2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как упоительны в России вечера [03:56]
+02. Потому что нельзя быть красивой такой [04:45]
+03. С высоких гор [03:44]
+04. Без тебя [04:35](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6E27B3218F3278BC6D198E1D2BE4E11194DA59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284936   (726246) от 23.02.2019
+
+Voggue - 2 Albums (1981, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love To Dance (5:02)
+02. Loverboy (5:25)
+03. Heart On The Line (2:42)
+04. Presto Changeo (4:14)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C4947C85C2F0F0189270D060A2E911113B7538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128912   (726250) от 26.04.2017
+
+Филипп Киркоров - Лучшие песни (2003) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Роза чайная 4:19
+02. Дай огня, детка 4:37
+03. Ты со мной 4:10
+04. Я за тебя умру 3:28(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6F4A5B58D7D07EB51EB93C449AFAA1F0DBB67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128729   (726254) от 26.04.2017
+
+Gipsy Kings - The Real... Gipsy Kings (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Bamboleo
+2. Hotel California
+3. Soy(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 03:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BEB32427C2E53382A61BA6CD79B5DD9E3AE27A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667716   (726343) от 14.06.2013
+
+The Crosslines - Singles Collection (2013) [MP3|320 кб/с]<ItaloDisco, EuroDisco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ItaloDisco, EuroDiscoПродолжительность: 00:23:23
+01 - Tomorrow Is Another Day (Radio Mix) 03:40
+02 - Tomorrow Is Another Day (Maxi Version) 06:21
+03 - Tomorrow Is Another Day (Dub Mix) 04:15
+04 - Tomorrow Is Another Day (Single Version) 04:33
+05 - Tomorrow Is Another Day (Instrumental Version) 04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7BC629F93031BE2FE8379DDF45A05A226A743E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128923   (726367) от 26.04.2017
 
 Филипп Киркоров - For You ... (2007) [FLAC|Lossless|image + .cue] <Pop>
@@ -571,177 +747,6 @@ Jamelia - Superstar-The Hits (2007) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A2A586483DF2B5091A7B7D5227A6C8BCC6BEB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284438   (728903) от 21.02.2019
-
-VA - I Can See Clearly Now - Top-Oldies Cover-Versions Vol. 2 (1994) 2 CD [MP3|320 Kbps] <Rock, Pop, Cover>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728903.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1.	Here Come My Baby–The Tremeloes
-2.	Love Me Tonight–Joe Dolan
-3.	Remember Then–Sha-na-na(   Читать дальше...   )Жанр: Rock, Pop, CoverПродолжительность: 01:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743165575BD18DCB867A1CD7C5FAD585282FEC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284445   (728957) от 21.02.2019
-
-Zebra Crossing - Zebra Crossing (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Going Places (4:47)
-02. Just Another Day (4:58)
-03. Gipsy Boy (3:28)
-04. Flim Flam (4:49)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2653199781768A39C7766B4BBC14651ECDD3A1B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284323   (728961) от 21.02.2019
-
-The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love The Sun
-02. Love Is In Your Eyes
-03. Everything I Want To Know
-04. Child Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1A69E801C0E5F1ADE72BDECF20AE03736EA3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323333   (729355) от 18.04.2011
-
-V.A. - The Best Projects Of Axel Breitung (ex. Silent Circle) (2004) [FLAC|Lossless]<Pop, Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, EurodiscoПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022169   (729511) от 01.06.2016
-
-Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovemachine [08:37]
-02. Dance Dance Dance [03:43]
-03. African Blood [08:34]
-04. Hollywood [04:02](   Читать дальше...   )Жанр: Pop, Funk, ReggaeПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022201   (729526) от 01.06.2016
-
-The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How I Love (Everything About You)
-02. Dum Dum
-03. Long Last Night
-04. Break a Heart(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Dream PopПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

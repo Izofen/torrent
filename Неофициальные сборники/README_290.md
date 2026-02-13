@@ -1,3 +1,61 @@
+###  Публикация: 937586   (488325) от 15.09.2015
+
+VA - Mental Impulse: Sound Trance City (2015) [MP3|320 кб/с]<Progressive, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488325.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Green Point - Everything Has an End (Club Mix)
+002. Jackob Roenald - Advan - Chronosapien Remix
+003. Stefan Viljoen - Divinity - Diving Analogue Remix
+004. Frozen Skies - X (Anniversary Mix)(   Читать дальше...   )Жанр: Progressive, Uplifting TranceПродолжительность: 11:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CB57711EA703B0D70CC3101BF6C71C5C35E74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937426   (488326) от 15.09.2015
+
+VA - Sweet Lounge Esthetics (2015) [MP3|320 кб/с]<Electro Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488326.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ryan Weber - Magic Fly - Chillectro Remix
+002. Georgy Om - Beginning (Original Mix)
+003. Vogel & Hauter - Desire - Chill out Rework
+004. Sunkissed - Escape to Ibiza(   Читать дальше...   )Жанр: Electro Lounge, ChilloutПродолжительность: 07:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F38CB9DE324C0F0A482548C6CF98D58C171575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055537   (488405) от 22.09.2016
 
 VA - 100 Beach Pulse Workout Hits (2016) [MP3|224-320 Kbps] <Club, Funky, Euro, Commercial, Electronic, Disco>
@@ -723,64 +781,6 @@ VA - And The Angels Sing (2018) [MP3|320 Kbps] <Rock and Roll, Classic Rock, Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97400FA7DD98D949DA704AB6825477CBA85B3C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243425   (489978) от 28.08.2018
-
-VA - Golden Hour (2018) [MP3|320 Kbps] <Swing, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Pony - Ali Baba
-02. Guido Spumant - Pimp My Gramophone
-03. Fat Magic - Hola Rey (Remix)
-04. The Electric Swing Circus - Golden Hour(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 04:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BDAC551978ABE1958DC81EF85E6C74FAD4EA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243641   (490100) от 28.08.2018
-
-VA - The Music Band: Oasis Jazz (2018) [MP3|206-320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490100.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paris Combo - Bonne Nouvelle
-002. Iiro Rantala - Candide
-003. Trillo De Angelis Quartet - Lysergic Wedding
-004. Gloria Turrini & Meco Guidi - Don't Go(   Читать дальше...   )Жанр: JazzПродолжительность: 09:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AFD120A0E43C3722DFA30A75DAD9EB7E3FF2751
 ```
 
 https://mybot314.ru/tekegram_catalog/

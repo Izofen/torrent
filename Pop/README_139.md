@@ -1,3 +1,148 @@
+###  Публикация: 1420392   (332601) от 01.11.2020
+
+VA - Holiday Christmas 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Let It Snow, Let It Snow, Let It Snow (Capitol Version / Remastered 1998) (02:01)
+02. Bing Crosby - White Christmas (1947 Version) (03:05)
+03. Ella Fitzgerald - Sleigh Ride (02:55)
+04. Jackson 5 - Santa Claus Is Coming To Town (02:24)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065CD4D63DA354B29E735FD7C490CFAFC4592C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259025   (332815) от 01.11.2018
+
+VA - 50 Chart Hits of 2018: The Winter Workout Soundtrack [MP3|320 Kbps] <Euro Dance, Future House, Club>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real System - There Is No More Love (Randy Norton edit)
+02. B.G. The Prince Of Rap - Once You Have Me (feat Timi Kullai & Nathan Reynolds III - Dolls House remix)
+03. Greg Bannis vs DJane Monique - You Sexy Thing 2018 (Dolls remix)
+04. Rinaldo Montezz - Jump (feat Gabriel Scar - radio mix)(   Читать дальше...   )Жанр: Euro Dance, Future House, ClubПродолжительность: 03:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FB24DD8A108E34401E068E6FE28DD0F38E2471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259014   (332931) от 01.11.2018
+
+Army of Lovers - Massive Luxury Overdose (1992) U.S. Edition [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dynasty of Planet Chromada (3:57)
+02. Crucified (3:34)
+03. Candyman Messiah (Single Remix) (3:10)
+04. Obsession (3:43)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A6209D4C0CF0BA42D3E60402A6C698447ED130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667491   (332978) от 14.10.2019
+
+VA - The Best Pop Music Of The 20th Century: The Millenium Collection (1998) 20CD [FLAC|Lossless]<Pop, Rock, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляю Вашему вниманию интереснейший проект, выполненный голландской фирмой Disky Communications Europe в конце прошлого тысячелетия. Взяв по 40 композиций от каждого пятилетия (наши пятилетки не дают никому покоя), издатель постарался по-возможности полностью охватить весь спектр популярной музыки (не pop, а именно популярной из разных жанров). За исключением (   Читать дальше...   )Список альбомов:
+01. Millennium - 1950-1954 (2CD)
+02. Millennium - 1960-1964 (2CD)
+03. Millennium - 1965-1969 (2CD)(   Читать дальше...   )Жанр: Pop, Rock, JazzПродолжительность: 25:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D509BD32446FF3719BA6B0C6C2B2B35BC4236DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258896   (333029) от 01.11.2018
+
+Johnny Hates Jazz - Magnetized (2013) InterAction Music [FLAC|Lossless|tracks + .cue] <Electronic, Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetized (3:56)
+ 02. Man With No Name (4:00)
+ 03. The Road Not Taken (4:59)
+ 04. You Belong To You (4:27)(   Читать дальше...   )Жанр: Electronic, Pop, New WaveПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597C7A1005188AB29BC10B4D76B4324CB9954161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259004   (333036) от 01.11.2018
 
 Dean Martin - Greatest Hits (2013) [FLAC|Lossless|tracks + .cue] <Vocal Pop>
@@ -49,6 +194,41 @@ Dance Mission - Italo Disco Chapter 80ies (2018) [MP3|320 Kbps] <Euro-Pop, Italo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33D6B24A9B3CC4F4483E97336D336CAEFA80D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 258072   (333101) от 18.11.2010
+
+La Bouche - Greatest Hits (2007) [FLAC|Lossless]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_333101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Dreams (03:25)
+02. Be My Lover (04:01)
+03. In Your Life (04:06)
+04. Take Me 2 Heaven 2 Night (03:21)
+05. Fallin' In Love (03:57)
+06. Say You'll Be Mine (03:33)
+07. Bolingo (Love Is In The Air) (04:29)
+08. Unexpected Lovers (03:18)
+09. A Moment Of Love (04:26)
+10. Shoo Bee Do Bee (I Like That Way) (03:27)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,180 +749,6 @@ Bravo - Bravo (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:589D48F4FFEC2ED1E910351E15BB7BEF12D7D44A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074978   (335920) от 20.11.2016
-
-Emin - Love Is A Deadly Game (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is a Deadly Game
-02. Creative
-03. It's Impossible
-04. Let There Be Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5B23E209D8428EE4662192B67EC09EB01C5297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258328   (336181) от 30.10.2018
-
-Roxette - Look Sharp! (30th Anniversary Edition) (2018) 2CD, RE. RM. Parlophone [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look (T&A Demo - Mar 30, 1988) (3:29)
-02. Dressed For Success (T&A Demo - May 20, 1987) (3:22)
-03. Dressed For Success (EMI Demo - May 26-30, 1987) (3:53)
-04. Sleeping Single (T&A Demo - May 22, 1987) (3:54)(   Читать дальше...   )Жанр: Pop Rock |Продолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6095E47F3BA264BEB206905C81C36F6166D14460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579441   (336296) от 27.09.2022
-
-VA - Pop Rock Greats (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devon - TRUST ISSUES (3:27)
-02. The Clause - In My Element (3:37)
-03. The Verve - Bitter Sweet Symphony (Remastered 2016) (5:57)
-04. Keane - Everybody's Changing (3:36)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B437A16DAF0FBBA6479CA0EB85E9BF1BE6877BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330934   (336380) от 12.10.2019
-
-V.A. - Italo Disco 80's (Best Of Collection) (2016) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albert One - Turbo Diesel
-02. Gazebo - I Like Chopin
-03. Tom Hooker - Feeling OK
-04. Den Harrow - Catch the Fox(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8241B0673799A799AFAEACEEDFD38AB1757CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258462   (336535) от 30.10.2018
-
-VA - Schlager Hits 2018 (2018) 3CD [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336535.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Eloy De Jong - Egal Was Andere Sagen
-02. Andrea Berg - Ja Ich Will
-03. Jörg Bausch - Erst Wenn's Im Sommer Schneit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 03:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E0EBA0B81C14B1798EAC1E9187D7DD28C69019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330820   (336600) от 12.10.2019
-
-VA – Популярная радиодвадцатка 3 (2005) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Валерия - Ключики
-02. И. Билык - Навсегда
-03. виа Гра - Бриллианты
-04. Т. Буланова - Не грусти, не жалей(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADE26AB5535EE534E99C5FDF3A8EAC17E68729D
 ```
 
 https://mybot314.ru/tekegram_catalog/

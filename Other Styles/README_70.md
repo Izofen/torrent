@@ -1,3 +1,32 @@
+###  Публикация: 1410708   (433867) от 22.09.2020
+
+François Mardirossian - Moondog Piano Works (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barn Dance (01:18)
+02. Mazurka (01:12)
+----
+Prelude and Fugue No.1 in A Minor(   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36CECFE9F554E0C20F96B4CF88AB96304A061FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063425   (434495) от 16.10.2016
 
 Gregorian - Masters Of Chant Final Chapter Tour (2016) Live [MP3|320 Kbps] <New Age, Enigmatic>
@@ -725,41 +754,6 @@ Age Of Echoes - Beyond the Farthest Shore (2015) [MP3|320 кб/с]<New Age, Rela
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5693CB7BF5F2E526A10245B743D5A9CE93EE394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553540   (441901) от 29.09.2012
-
-VAD - Заря (2011) [MP3|320 кб/с]<New Age, Ethnic , Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zarya
-02.  Kumushki
-03.  Vo Sadu Sadochke
-04.  Nu-Ka
-05.  Golub
-06.  Ti Ne Stoy
-07.  U Vorot
-08.  Na Gorke
-09.  Maslyanaya
-10.  Ti VospoyЖанр: New Age, Ethnic , FolkПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8978BAAA0A6722C5839F301629458037CDAC39
 ```
 
 https://mybot314.ru/tekegram_catalog/

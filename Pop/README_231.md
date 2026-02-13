@@ -1,3 +1,177 @@
+###  Публикация: 907609   (637756) от 12.06.2015
+
+Giorgio Moroder - Deja Vu (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 U with Love
+ 02. Déjà vu (feat. Sia)
+ 03. Diamonds (feat. Charli XCX)
+ 04. Don't Let Go (feat. Mikky Ekko)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A8199F2D9099BD0107740862A8FAFEE9AFBB87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907576   (637805) от 12.06.2015
+
+Lenka - The Bright Side (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637805.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Long Way Home (3:27)
+2. Blue Skies (4:09)
+3. Free (3:17)
+4. Unique (3:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00.35.23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58D0D8067F5334E4619C9641AEE37E7F20CD7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907450   (637819) от 12.06.2015
+
+Adam Lambert - The Original High (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Town
+ 02. The Original High
+ 03. Another Lonely Night
+ 04. Underground(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A552CF5434BFC13012482B10AE3B824F2ECD7706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907705   (637869) от 12.06.2015
+
+Mika - No Place in Heaven (2015) Deluxe Edition [FLAC|tracks]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk About You (3:22)
+02. All She Wants (3:39)
+03. Last Party (3:39)
+04. Good Guys (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E5E568A80C013BC82FE708850975CF511CDC79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907550   (637872) от 12.06.2015
+
+Саша Зверева (Ex. Demo) - Благодарю (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Благодарю
+ 02. Ядовита
+ 03. Схожу с ума
+ 04. Телефон(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5C5F7DF41B0FC2FAAE02AA3B4FEB6906A287DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907579   (637987) от 12.06.2015
+
+Hilary Duff - Breathe In. Breathe Out. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sparks
+02. My Kind
+03. One in a Million
+04. Confetti(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678F22A85D0D66E2A177ECC0EB13800EA10C61F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033448   (638138) от 11.07.2016
 
 VA - The Best Ever: Summer (2016) [MP3|320 Kbps] <Disco, Pop, RnB>
@@ -571,182 +745,6 @@ VA - Disco Music Comeback (The Return Of The Glory Hits) (2017) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ACAB3031C7E5DFE192882488350C99F304F9363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228082   (640932) от 29.05.2018
-
-Charles Aznavour - Mélodies inoubliables (2018) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Je m'voyais deja
-02. Jezebel
-03. Heureux avec des riens
-04. Il faut savoir(   Читать дальше...   )Жанр: French PopПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5F16B730FA2C862D873A7CF408072206F31E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518709   (641026) от 04.07.2012
-
-Валерия - Самое лучшее (1999) [APE|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты где-то там
-02. Обычные дела
-03. Не забудь былые увлеченья
-04. Кап-кап
-05. Жаль
-06. О том, что было
-07. Небеса
-08. Золотая рыбка
-09. Моя Москва
-10. Самолет(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293027   (641034) от 01.04.2019
-
-Samantha Fox - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Me (I Want Your Body)
-02. Wild Kinda Love
-03. You Started Something
-04. (I Can't Get No) Satisfaction(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E05C7436BE3EB1DD19A759DFEDA4BF2184A14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142802   (641058) от 15.06.2017
-
-Midnight Rhythm - Midnight Rhythm (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Workin' & Slavin' (I Need Love) (9:00)
-02. Midnight Rhythm (9:24)
-03. Climb / Rushin' To Meet You (15:08)Жанр: Electronic, DiscoПродолжительность: 00:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE4FB8CD4DAC13065093A18D653791906FAB141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142843   (641066) от 15.06.2017
-
-John Metcalfe - Wrapped (2016) [EP] [MP3|320 Kbps] <Alternative, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrapped (feat. Rosie Doonan)Жанр: Alternative, PopПродолжительность: 00:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D6105093714F669614D7613F126603F3CFA354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542131   (641090) от 05.04.2022
-
-Pure Energy - Party On (2004) Compilation 1980-88 [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Party On (8:33)
-02. You And Me (4:27)
-03. What Are You In The Mood For? (3:47)
-04. You've Got The Power (6:14)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A636FED6C6D132848A7EF63382542374F619A9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

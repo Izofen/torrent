@@ -1,3 +1,67 @@
+###  Публикация: 539444   (506747) от 26.08.2012
+
+VA - Ibiza Summer (2012) [MP3|320 кб/с]<Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для лучших ди-джеев  мира  Ibiza становится домом с середины июня до конца сентября. Они  развлекают многочисленную публику соответствующих клубов на Ибице каждую неделю. Назовите вашего любимого DJ и будьте уверенны, что он будет на Ибице этим летом. Просто назовем несколько самых популярных:1. Cristian Bergagna - Darkest Hour (5:53)
+2. Gon Munoz - Sleepless Night Fly Version (6:51)
+3. Young Doyle - Your Soul (6:51)
+4. Andrea Colina and Victor Elle - Simple Things (10:27)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 05:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF5F866E41B9ADCD866208747B274008AF3B155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539595   (506796) от 26.08.2012
+
+VA - Soul of Ibiza Volume 42 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506796.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Headstrong feat. Shelley Harland - Here In the Dark (Aurosonic Progressive Mix)
+002. Alexander Popov - Attractive Force (Original Mix)
+003. Armin Van Buuren - We Are Here To Make Some Noise (Extended Mix)
+004. Bartlett Bros., Matt Loki & Tiff Lacey - Sweet Child (Fabio XB Rework)
+005. Beat Service feat. Gemma Pavlovic - Masquerade (Original Mix)
+006. Chapter XJ - Believe (Original Mix)
+007. Cosmic Gate & JES - Flying Blind
+008. Daniel Kandi - Insert Generic Title (Original Mix)
+009. Dash Berlin feat. Sarah Howells - Go It Alone (Club Mix)
+010. Diddy feat. Skylar Grey - Coming Home (SHato & Paul Rockseek Bootleg)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F921CD158C9AB59D54D99A7D7CAECFDB547C9123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316323   (506864) от 25.07.2019
 
 VA - Dancehall And Best Reggae Music Songs (2019) [MP3|320 Kbps] <Reggae, Dancehall, Reggaeton>
@@ -715,64 +779,6 @@ VA - Pop Dance Maniac (2015) [MP3|320 кб/с]<Vocal, Dance, Club, Euro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:782E4631DE0276920FEA311DB334DAD4127DE6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932837   (508316) от 30.08.2015
-
-VA - Deep House Music - Sexy House Lounge (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jox Talay - SLS Pool
-02. Hoboken - Lampedusa Lounge
-03. Sonaya - Palma de Lounge
-04. Belloq - Bellini Groove(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B5C408465FC37FA4BFDD8C44CADAD4130EB84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932583   (508324) от 30.08.2015
-
-VA - LSD: Love, Sex & Diamonds (2015) [MP3|320 кб/с]<House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Las Vegas Boys - Living in a Fantasy (3:42)
-02. Plus 11 - Island Women - Ibiza Beach Mix (3:24)
-03. Teknologic - Totem Moment (3:40)
-04. Rhythm O' Tronik - Beautiful Brown - Vanguard Remix (3:21)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E94E7CC65CA54E21BCA31269A90312B5DC39E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

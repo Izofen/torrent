@@ -1,3 +1,32 @@
+###  Публикация: 1027190   (698242) от 18.06.2016
+
+John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From "The Nice Guys" (02:01)
+02. Kids Today (03:23)
+03. Disco Party Fight (04:00)
+04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C3E580776AB4719E290A3672AA33D9CA439196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027189   (698462) от 18.06.2016
 
 John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score>
@@ -722,35 +751,6 @@ Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926FF174363ACFAE1B1D390379C751C00094834B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132572   (701115) от 09.05.2017
-
-Divine Works - Soundtrack to the new millenium (1997) [FLAC|Lossless|tracks + .cue] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Works I (3:18)
-02. Ancient Person Of My Heart (5:52)
-03. O'Ecclesia (3:35)
-04. Interlude I (1:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A76F53AEAE67879E5DD966EA714194E2B8E6BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

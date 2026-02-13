@@ -1,3 +1,179 @@
+###  Публикация: 1228082   (640932) от 29.05.2018
+
+Charles Aznavour - Mélodies inoubliables (2018) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je m'voyais deja
+02. Jezebel
+03. Heureux avec des riens
+04. Il faut savoir(   Читать дальше...   )Жанр: French PopПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5F16B730FA2C862D873A7CF408072206F31E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518709   (641026) от 04.07.2012
+
+Валерия - Самое лучшее (1999) [APE|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты где-то там
+02. Обычные дела
+03. Не забудь былые увлеченья
+04. Кап-кап
+05. Жаль
+06. О том, что было
+07. Небеса
+08. Золотая рыбка
+09. Моя Москва
+10. Самолет(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293027   (641034) от 01.04.2019
+
+Samantha Fox - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Me (I Want Your Body)
+02. Wild Kinda Love
+03. You Started Something
+04. (I Can't Get No) Satisfaction(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E05C7436BE3EB1DD19A759DFEDA4BF2184A14D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142802   (641058) от 15.06.2017
+
+Midnight Rhythm - Midnight Rhythm (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Workin' & Slavin' (I Need Love) (9:00)
+02. Midnight Rhythm (9:24)
+03. Climb / Rushin' To Meet You (15:08)Жанр: Electronic, DiscoПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE4FB8CD4DAC13065093A18D653791906FAB141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142843   (641066) от 15.06.2017
+
+John Metcalfe - Wrapped (2016) [EP] [MP3|320 Kbps] <Alternative, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrapped (feat. Rosie Doonan)Жанр: Alternative, PopПродолжительность: 00:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D6105093714F669614D7613F126603F3CFA354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542131   (641090) от 05.04.2022
+
+Pure Energy - Party On (2004) Compilation 1980-88 [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Party On (8:33)
+02. You And Me (4:27)
+03. What Are You In The Mood For? (3:47)
+04. You've Got The Power (6:14)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A636FED6C6D132848A7EF63382542374F619A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518656   (641144) от 04.07.2012
 
 Весёлые Ребята - Песни Вячеслава Добрынина (1996) [MP3|320 кб/с]<Pop>
@@ -583,180 +759,6 @@ Supermax - Spirits Of Love (1996) [APE|Lossless|image + .cue] <Disco, Reggae>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B27DA998D3C7BBF8E8095E01D9D21EA75248306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227839   (642917) от 28.05.2018
-
-VA - Заяц Рор Шоу-2 (1996) [FLAC|Lossless|image + .cue]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Привет от Индиры Ганди ( Л.И.Брежнев )
-02.Родина Мая,Биларусия / Канэшешна, Вдую ( DJ Хачик Special Mix )
-03. Fuck me,Колобок ( М.С.Гнил )
-04. Say You'll Never ( House Division )(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A770757F48F37B822DD8CB81CA94301EB7F865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142496   (642968) от 14.06.2017
-
-Martin Circus - Martin "Disco" Circus (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ite Missa Est (6:40)
-02. Pour M'en Aller Plus Loin (8:29)
-03. Pouett (0:25)
-04. Disco Circus (14:07)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A4DFB07D0D159A58022B32335FBD73BE773164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142245   (642977) от 14.06.2017
-
-Billy Ocean - Suddenly (Japanese Pressing) (1984) 1989,  JRCD 8213 [APE|Lossless|image + .cue] <Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642977.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Caribbean Queen (No More Love On The Run) [0:07:55.55]
-2. Mystery Lady [0:05:02.70]
-3. Syncopation [0:05:22.25]
-4. The Long And Winding Road [0:04:43.62](   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 44:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45CDA6CE5B4C3FC395C0D9996A60F4BCDDBA056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292937   (643068) от 31.03.2019
-
-VA - 538 Hitzone 88 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Folk, World>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достаточно давно на трекере не появлялись релизы этой популярной Нидерландской студии Радио 538. Продолжаем в этом году серию новым выпуском свеженьких новинок популярной музыки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.01. Mark Ronson - Nothing Breaks Like A Heart  (3:37)
-02. Nielson - IJskoud  (3:31)
-03. Rita Ora - Let You Love Me  (3:11)
-04. Panic! At The Disco - High Hopes  (3:12)(   Читать дальше...   )Релиз состоялся: 01 марта 2019 г.Жанр: Pop, Rock, Folk, WorldПродолжительность: 01:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389FC4854CB0969A789B24324A88F820FAEA05B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142460   (643108) от 14.06.2017
-
-Toxic Friends - Cleaning up the Mess (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sellouts  (04:25) 
-02. 87 Night Warriorz  (04:58) 
-03. Hangin' with My Boys  (03:41) 
-04. The Candidate  (03:54) (   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567F88AF5EDA9B5814E55E7EEBAFD0BFF79C8413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292741   (643195) от 31.03.2019
-
-VA - Eurodance Evolution 2019.01 (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Pop-Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.G. The Prince Of Rap - Eurodance Megamix 2k19
-02. J.O.Y.C.E feat. A.k.-s.w.i.f.t. - Get 2Gether (Real Thing Remix)
-03. Free 2 Night - Music in Your Mind (Remastered)
-04. Alex feat. Marwa - Intuition(   Читать дальше...   )Жанр: Euro-Dance, Pop-DanceПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2629864888F45F9F586679CE8293B69D56A83AF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

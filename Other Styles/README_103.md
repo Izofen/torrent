@@ -1,3 +1,29 @@
+###  Публикация: 349866   (632031) от 12.06.2011
+
+Steve Grossman - Standards (1985) [MP3|224 kbps]<Instrumental,Saxophone Jazz>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental,Saxophone JazzПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F811CA289070C9D33F4287F64E1462F5CA5C648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034563   (632438) от 14.07.2016
 
 Louis Landon - Healing Hearts 2 - Solo Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
@@ -755,41 +781,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C16AC08196C6D2D69D89A65D6432DBAA65E18C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519464   (637218) от 06.07.2012
-
-Людмила Гурченко - Песни военных лет (1984) [MP3|320 кб/с]<Военная песня>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Где же вы теперь, друзья-однополчане (1:35)
- 2. Казак уходил на войну (0:59)
- 3. Прощайте, скалистые горы (0:39)
- 4. Заветный камень (0:58)
- 5. Ой, туманы мои, растуманы (1:07)
- 6. Дороги (1:04)
- 7. Моя любимая (2:12)
- 8. Кто сказал, что надо бросить песню на войне (0:43)
- 9. В лесу прифронтовом (1:15)
- 10. Вечер на рейде (1:02)(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BCDB6576A7FF78B17E9812FC98BFFFDA172F41
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,66 +1,22 @@
-###  Публикация: 569038   (393193) от 02.11.2012
+###  Публикация: 571544   (388006) от 07.11.2012
 
-VA - FabricLive 62 by Kasra (2012) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockwell - Underpass (Aliz Perez VIP) 2:36
-02. Foreign Concept - Detuned Souls 2:14
-03. Dub Phizix - Handmade 1:50
-04. Phace & Noisia - Micro Organism 2:14
-05. Hybris - The Cleaner VIP 1:51
-06. Sabre, Stray & Halogenix Feat. Frank Carter III - Oblique VIP 2:58
-07. Mortem - Uprising 2:13
-08. Alix Perez - Myriads (Jubei Remix) 2:13
-09. Break - Soundwaves 1:51
-10. Judda - Pressure Plate VIP 2:13(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF5D33D8C1AB7552EB898DB7ACE483D15D04350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569352   (393197) от 02.11.2012
-
-Orphalis - Human Individual Metamorphosis (2012) [MP3|320 кб/с]<Technical Brutal Death>
+Manon Delacroix - персонажи, карикатуры и шаржи художника из Великобритании [Графика]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393197.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
- 02. Hypnagogia
- 03. Watchmaker
- 04. Veins Of Delusion
- 05. Prelude To Exsanguination
- 06. Gnosis In Self-Immolation
- 07. Monuments To Aneristic Illusion
- 08. Giving Birth To A Hydrocephalic Deity
- 09. Black Floods
- 10. Anthropocene PurgationЖанр: Technical Brutal DeathПродолжительность: 00:31:49
+Manon Delacroix - персонажи, карикатуры и шаржи художника из Великобритании
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67032FF1AE94A3D57C74C8F0A4A081334E86DAC0
+magnet:?xt=urn:btih:2E4D66FE3BC2EBCFB4A8171CD174943DB10371DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,34 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569055   (393198) от 02.11.2012
+###  Публикация: 571605   (388007) от 07.11.2012
 
-Car Bomb - 2 Albums (2007 - 2012) [MP3|320 кб/с]<Mathcore\Experimental>
+Журнал | Ателье №11 [ноябрь 2012] [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393198.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Sentinel
-02. Auto-named
-03. Finish It
-04. Lower The Blade
-05. Garrucha
-06. Third Revelation (feat. Joseph Duplantier)
-07. Recursive Patterns
-08. Spirit Of Poison
-09. Magic Bullet
-10. Crud(   Читать дальше...   )Жанр: Mathcore\ExperimentalПродолжительность: 00:50:03
+В каждом номере можно найти массу интересных и профессиональных статей, предназначенных для специалистов швейного бизнеса. Основные материалы журнала посвящены последним новостям моды в России и за рубежом, персоналиям, так или иначе связанным с модой и производством одежды, производственным и техническим моментам в изготовлении одежды, тканям и методам их обработки, последним тенденциям в стиле и моде.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A6F72A9D19774CF1029C14F3E46703452EE9EF9
+magnet:?xt=urn:btih:6166A39E1DE9160CB9BDAE0E4A0B8E80DA72D063
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,32 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569360   (393200) от 02.11.2012
+###  Публикация: 571523   (388016) от 07.11.2012
 
-Kalopsia - Amongst The Ruins (2012) [MP3|320 кб/с]<Death Metal>
+Evave feat. Aelyn - Hand To Hand (2012) [H.264/720p] WEBRip
 
->>Архив торрентов
->>Архив Музыки
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393200.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Salt Sown Earth 05:15
-02. Green Eyed Monster 03:44
-03. Messiah Complex 02:56
-04. Marred By Tragedy 05:33
-05. Pillars Of Ash 05:50
-06. Death Starts The Horror 04:15
-07. Liar's Eulogy 03:51
-08. Scatter The Remains 04:54Жанр: Death MetalПродолжительность: 00:36:22
+Жанр: TranceПродолжительность: 00:06:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:820EBBBC2010AD6B5869794A8FF45671F1745681
+magnet:?xt=urn:btih:CD716F14FA7D971328EBA8D33D680BF394CDA0AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,32 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569367   (393203) от 02.11.2012
+###  Публикация: 571595   (388017) от 07.11.2012
 
-Nepente - Suffering Is The Seed (2012) [MP3|160 кб/с]<Blackned Death>
+Журнал | Похудей. Спецвыпуски №1, 2 [сентябрь-декабрь 2012] [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393203.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Suffering Is The Seed [00:05:12]
-02. Hell Is The Name Of This Land [00:04:28]
-03. Merciful Death [00:04:42]
-04. Hear Me Howl [00:04:23]
-05. Slaves Will Always Be Slaves [00:06:16]
-06. Die For Me [00:04:56]
-07. This Shroud Is Yours [00:05:17]
-08. The Swamp [00:05:34]Жанр: Blackned DeathПродолжительность: 00:40:52
+"Похудей" - журнал для женщин , стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8822D2E6DDF35B7114FAEE598E649857F02C89DD
+magnet:?xt=urn:btih:F87DEA0B4597F497946A937984672DC4D7899BB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,34 +102,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569355   (393204) от 02.11.2012
+###  Публикация: 571718   (388019) от 07.11.2012
 
-Malignancy - Eugenics (2012) [MP3|320 кб/с]<Brutal Technical Death>
+Трио Сергея Жилина - Tchaikovsky In Jazz. Seasons 2009 (2009) [FLAC|Lossless]<Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393204.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_388019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Type Zero Civilization (02:53)
- 03. Eugenics (02:55)
- 03. Extinction Event (03:03)
- 04. Global Systemic Collapse (03:51)
- 05. Cataclysmic Euphoria (03:17)
- 06. Separatists (04:44)
- 07. Monstrous Indifference (01:23)
- 08. Cryptobiosis (02:28)
- 09. Creatures Of Conformity (02:53)
- 10. The Breach (04:06)Жанр: Brutal Technical DeathПродолжительность: 00:31:38
+01. Декабрь. Святки (7:08)
+02. Январь. У камелька (4:03)
+03. Июнь. Баркарола (10:29)
+04. Март. Песня жаворонка (2:11)
+05. Октябрь. Осенняя песня (7:58)
+06. Апрель. Подснежник (4:04)
+07. Вальс цветов из балета 'Щелкунчик' (6:00)
+08. Февраль. Масленица (3:08)
+09. Ноябрь. На тройке (6:45)Жанр: JazzПродолжительность: 00:51:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7922692C74B4F8A252360CDFC1313454146E9B8D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -204,26 +136,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 402011   (393212) от 20.10.2011
+###  Публикация: 1252718   (388020) от 07.10.2018
 
-Дмитрий Силлов | Кремль 2222. Юг [2011] [MP3]
+Vicki Brown - Lady Of Time (1989) [FLAC|Lossless|image + .cue] <Pop,  Classical>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393212.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цивилизация погибла. Все, что осталось от России - Поля Смерти и горстка людей, обороняющих московский Кремль от биороботов, киборгов, безумных шаманов, и прочей нечисти, порожденной Третьей мировой войной.
- Молодой кремлевский дружинник Данила, сбежавший из плена нелюдей, в руинах бывшей столицы России встречает человека, который не боится ни биороботов, ни телепатов. (   Читать дальше...   )Жанр: фантастика
+1.	Just For You. Music By – Brahms
+2.	To Me You Are So Beautiful Written-By – A. Lee, J. Brown
+3.	Sunflower. Written-By – Smith , Chappelle , Taylor
+4.	Jesu, Joy Of Man's Desiring.   Music By – Bach(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:41:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11083593D6202215231A5765D1C7AF8373106A60
+magnet:?xt=urn:btih:8D0FB9840A19A7813D7B50068EF9ACC0E1C8FF85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -231,25 +165,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172692   (393225) от 08.10.2017
+###  Публикация: 1252917   (388021) от 07.10.2018
 
-Петр Алексеевич Преображенский (сост.) | Памятники древней христианской письменности в русском переводе [7 Томов] (1860-1866) [PDF]
+В. И. Голубович (сост.) | Почему мы порвали с религией (1959) [DJVU]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393225.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В релизе представлены памятники древней христианской письменности в русском переводе, изданные протоиереем Петром Алексеевичем Преображенским.Жанр: ПатрологияФормат: PDF
+В книге «Почему мы порвали с религией» собраны рассказы бывших верующих, опубликованные в 1957—1958 годах в районных, городских, областных и республиканских газетах и других изданиях РСФСР, Украины, Белоруссии, Казахстана, Молдавии, Латвии.
+
+Книга представляет интерес как для верующего, так и для неверующего читателя. Вместе с тем она дает богатый материал для лекторов, (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FFB1EB5426499DE9AD9421A326D888E1403D146
+magnet:?xt=urn:btih:74BF746B61458ECE4EA4E0F31B4706D6F04010FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,54 +193,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172456   (393226) от 08.10.2017
+###  Публикация: 1252881   (388022) от 07.10.2018
 
-Игорь Сахновский | Ревнивый бог случайностей (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это вечные истории о прекрасных чувствах мужчины и женщины, размышления о материнской любви, о дружбе и ответственности. От каждого произведения из сборника «Ревнивый бог случайностей» веет неизгладимым ощущением чуда, которое может приключиться с любым из нас в ближайший момент.Жанр: Современная прозаПродолжительность: 03:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5AD7E7366366B9389A382284CDEA6FA3A24254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172346   (393227) от 08.10.2017
-
-Loudness - Super Best (2013) japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+Omnium Gatherum - The Burning Cold (Japan Edition) (2018) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393227.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Let It Go
-02 Black Star Oblivion
-03 S.D.I.
-04 Rock'n Roll Gypsy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:03
+01. The Burning 02:07
+02. Gods Go First 04:31
+03. Refining Fire 05:14
+04. Rest in Your Heart 04:52(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:00:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5F25118B07FCA0D1157B490F531F4DA440DE581
+magnet:?xt=urn:btih:476C02E3C0F12E8553572EF934C03273AD084D5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,83 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172474   (393228) от 08.10.2017
+###  Публикация: 1253056   (388023) от 07.10.2018
 
-Fogh Depot - Turmalinturm (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental Electronic>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quicksilver Spoon (5:06)
-02. Oscar (5:47)
-03. Who The Last Says No (4:23)
-04. Svetly Prazdnik (4:57)(   Читать дальше...   )Производство: Denovali Records - DEN268Жанр: Dark Jazz, Doom Jazz, Experimental ElectronicПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172483   (393229) от 08.10.2017
-
-У. З. Фостер | Негритянский народ в истории Америки (1955) [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Негритянская проблема — одна из основных и центральных проблем во внутриполитической жизни США. Неудивительно поэтому, что проблема эта привлекает внимание историков, экономистов, социологов, публицистов и политических деятелей США. За последние десятилетия в США издана поистине огромная литература по истории негритянского народа. Литература эта может быть подразделена (   Читать дальше...   )Жанр: История, политология, экономика, социология, культурологияФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172394   (393230) от 08.10.2017
-
-Hydra - Land Of Money (1975) Reissue, 1999, Capricorn Records [MP3|320 Kbps] <Rock, Hard Rock>
+Ива Нова - Уба Хоба (2018) [MP3|320 Kbps] <Folk Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393230.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Little Miss Rock N' Roll
-2. The Pistol
-3. Makin' Plans
-4. Land Of Money(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:34:44
+01. Интро
+02. Кричала мать
+03. Не хочу!
+04. Перепёлка(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:40:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19411C65C9823EC663B5AC5064872D9487F12A86
+magnet:?xt=urn:btih:7B4F0B466D29A63953E9D1F1F783E64B9A422230
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,28 +251,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172468   (393231) от 08.10.2017
+###  Публикация: 1253087   (388024) от 07.10.2018
 
-Fogh Depot - Fogh Depot (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental Electronic>
+CocCoc 75.4.118 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393231.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anticyclone (6:50)
-02. Mining (BTC) (5:12)
-03. Nevalyashka (4:07)
-04. Sagittarius (4:14)(   Читать дальше...   )Производство: Denovali Records - den224Жанр: Dark Jazz, Doom Jazz, Experimental ElectronicПродолжительность: 00:39:20
+CocCoc Browser - браузер, который является продуктом вьетнамской компании Cốc Cốc. Браузер основан на открытом исходном коде проекта Chromium, поэтому браузер очень похож на Google Chrome.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADE1EE9182669C7986F43E3536A993D554B426DA
+magnet:?xt=urn:btih:78F7FB198D9C007392E691D9875DD237F26C486C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -425,25 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172342   (393232) от 08.10.2017
+###  Публикация: 1252953   (388025) от 07.10.2018
 
-Infinity - Hybris (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+Спортивная гимнастика. Чемпионат Европы 2018. Глазго (Великобритания). Мужчины. Командное многоборье. Финал (2018) WEB-DL [H.264/720p-LQ]
 
->>
->>
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393232.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arousing the Sleeping SerpentЖанр: Black MetalПродолжительность: 00:52:13
+1-й Объединённый Чемпионат Европы 2018 по летним видам спорта. Глазго (Великобритания).
+32-й Чемпионат Европы по спортивной гимнастике среди женщин 2018 года.
+11 августа 2018
+Мужчины. Командное многоборье. Финал(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:37:58
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8911ADF3F5CB10283E6034C59155C3B765AD1B40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,28 +306,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172309   (393233) от 08.10.2017
+###  Публикация: 1252869   (388026) от 07.10.2018
 
-Helker - A.D.N. (2010) [FLAC|Lossless|image + .cue] <Power Metal>
+Сымон-Музыка - Сымон-Музыка (2011) [FLAC|Lossless|image + .cue] <Folk Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393233.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arde Dentro Nuestro
-02. Tus Mentiras
-03. Falsos Profetas
-04. Igual Que A Vos(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:58
+01. Сымон-Музыка (5:21)
+02. Разважанне Аб Смерцi (3:55)
+03. Родны Край (3:35)
+04. Крыж Няволi (4:22)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:39:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AF513B22DA1FD462AD1A3446B302206DF0B5B6F
+magnet:?xt=urn:btih:5A8F90C24DFBFDD793E9C8A2FEB82E8154653786
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,25 +335,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172510   (393234) от 08.10.2017
+###  Публикация: 1252951   (388027) от 07.10.2018
 
-Журнал | Ступени Оракула №10 (2017) [PDF]
+Спортивная гимнастика. Чемпионат Европы 2018. Глазго (Великобритания). Мужчины. Командное многоборье. Финал (2018) WEB-DL [H.264/1080p-LQ] [EN]
 
->>Журналы
->>Другие журналы
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393234.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание предлагает разнообразие точек зрения — от фантастических предположений до научных теорий, оставляя выбор за читателем. Мнения профессионалов и свидетельства очевидцев, факты, феномены, версии. Журнал, открывающий мир!Жанр: Популярный журналФормат: PDF
+1-й Объединённый Чемпионат Европы 2018 по летним видам спорта. Глазго (Великобритания).
+32-й Чемпионат Европы по спортивной гимнастике среди женщин 2018 года.
+11 августа 2018
+Мужчины. Командное многоборье. Финал(   Читать дальше...   )Телекомпания: Eurovision SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:54:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34A757F0E1B1B239FDEA07C376195DED17C165B5
+magnet:?xt=urn:btih:32320F5B36C266C348625AB4FD57B803B6F2C505
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,25 +364,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172449   (393235) от 08.10.2017
+###  Публикация: 1252911   (388028) от 07.10.2018
 
-М. И. Брагинский (отв. ред.) | Рабочий класс и рабочее движение в Африке [60—70-е годы XX века)] (1979) [DJVU]
+Я. А. Балагуров (ред.) | Кижское восстание [1769-1771] (1977) [DJVU]
 
 >>Научная и техническая литература
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393235.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник посвящен исследованию состава, структуры, положения рабочего класса Африки, его роли в борьбе за социальный прогресс после завоевания независимости. Авторы статей исследуют новые тенденции в развитии рабочего класса и рабочего движения в Африке, связанные с формированием кадрового пролетариата, ростом его организованности, усилением роли профсоюзов в жизни (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+Выступление олонецких приписных крестьян в 1769-1771 годах было наиболее значительным событием в истории Карелии феодальной эпохи. Движение крестьян охватило русские, карельские и вепсские погосты и волости с населением около 40 тыс. человек. Центром движения стала территория старинного Кижского погоста. В настоящем сборнике представлены документы, рассказывающие (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F77AEEBC578CBFD7D2BADFA1694D235817536CDA
+magnet:?xt=urn:btih:5376D6FFE03AB06E6E6C07326C92AA754A0C90F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,92 +390,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172311   (393236) от 08.10.2017
+###  Публикация: 1252872   (388029) от 07.10.2018
 
-Helker - En Algun Lugar Del Circulo (2013) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuevo Circo Romano
-02. Redencióm
-03. Fantasmas Del Pasado
-04. Al Final Del Camino(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568959   (393238) от 02.11.2012
-
-VA - Believe Motion Love (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Van Dyk Feat Plumb - I Don't Deserve You (Radio Edit) 03:33
- 02. Protoculture - Perpetual Motion (Original Mix) 07:08
- 03. Ralphie B - Face Off (Original Mix) 09:36
- 04. Ronny K Vs Vasaio Ft Jakub Hubner - Im Missing You (Radio Mix) 03:44
- 05. Simon O'shine - Your Distant World (Original Mix) 09:43
- 06. Tenishia - Where Do We Begin (Club Mix) 06:29
- 07. Yigit & Jirihin - Rotundjere (Original Mix) 09:01
- 08. Matt Davey - Believe In Me (Original Mix) 07:34
- 09. Arjan Nilsen - Burana (Original Mix) 06:10
- 10. Susana & Shogun - Only You (Original Mix) 08:10(   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEBC5EB421E534923727C378A1BE7277B2436DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172308   (393240) от 08.10.2017
-
-Helker - Resistir (2008) [FLAC|Lossless|image + .cue] <Power Metal>
+Dim Mak - Knives Of Ice (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393240.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388029.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Resistir
-02. Basurero Nuclear
-03. Contra la Corriente
-04. Nunca Más(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:07
+01. Knives of Ice
+02. Seeing Crows in Silver
+03. Great Worm of Hell
+04. Devil Finding Mirror(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9AFF5AE7005B6B45E1F0345BACA7BDB2E6EBC7E
+magnet:?xt=urn:btih:E7C2FB88ECC65CDAEA7F27A09F8DC3E9B55DFC9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,28 +419,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172318   (393242) от 08.10.2017
+###  Публикация: 1253134   (388030) от 07.10.2018
 
-Oxiplegatz - Worlds and Worlds (1997) [APE|Lossless|image + .cue] <Avant-garde Black Metal>
+VA - Body Of Work - The Best Of Denise Rivera (The Radio Edits) (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 
->>
->>
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393242.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388030.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Battle of Species
-02. First Contact - Conflict
-03. Aftermath
-04. Quest(   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 00:38:36
+01. The Blizzard & Denise Rivera - Love Is In The Little Things (Original Mix)
+02. Ruslan Radriges & Denise Rivera - The Voice Of Freedom (Original Mix)
+03. Cosmic Gate feat. Denise Rivera - Body Of Conflict (Vocal Edit)
+04. Ferry Corsten - Possession (Radio Edit)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:51:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E826E786B908A47F594BA4D5814616DBB8B09695
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,28 +448,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172332   (393244) от 08.10.2017
+###  Публикация: 1252945   (388031) от 07.10.2018
 
-Mystery Blue - Conquer The World (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
+A Made Up Sound - At Klangendum (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno Ambient, Techno>
 
->>
->>
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393244.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Conquer The World (04:28)
-02. Innocent Crime (04:51)
-03. Running With The Pack (03:59)
-04. Evil Spell (04:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:01
+01. At Klangendum (46:21)Жанр: Ambient, Techno Ambient, TechnoПродолжительность: 00:46:21
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:AFED7EBADF082E63A0C23604FAA258F8F3DC2F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,28 +474,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172336   (393246) от 08.10.2017
+###  Публикация: 1252907   (388032) от 07.10.2018
 
-Orcrist - From the Forgotten Forest (2005) [FLAC|Lossless|image + .cue] <Black Metal>
+И. Пинксис и др. | Революционная Лиепая (1956) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393246.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro/My Thoughts at the End of the World
-02. Pictures of a Murder
-03. Over Man’s Doom
-04. I’m Here in the Forest Enthroned(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:06
+Сборник популярных статей «Революционная Лиепая» является первой в исторической литературе Советской Латвии попыткой познакомить трудящихся нашей республики с историей Лиепаи — одного из крупнейших промышленных и культурных центров Советской Латвии, со славными революционными традициями этого города в борьбе за советскую власть, а также с его достижениями в социалистическом (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B4C4D528805B30C3CDF01A6F27D1664265D67A6
+magnet:?xt=urn:btih:AD3C7CE29F0566D04096D020E01DB98D37E8BED7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,28 +500,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172303   (393248) от 08.10.2017
+###  Публикация: 1252965   (388033) от 07.10.2018
 
-Helker - Legado Secreto (2002) [FLAC|Lossless|image + .cue] <Power Metal>
+Александр Федоров-Давыдов | Веселые мореплаватели (1908) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393248.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Renacer
-02. Buscando una ilusión
-03. El final
-04. Amo universal(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:23
+Сказка для детей младшего школьного возраста.Жанр: Детская проза. Сказка.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4445EF119503A5A572A519CC70D60C8EA1A9CE20
+magnet:?xt=urn:btih:A194A9CD456691FBCD242B43DF25DF761ECC7AC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -741,28 +526,198 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172454   (393249) от 08.10.2017
+###  Публикация: 1252964   (388034) от 07.10.2018
 
-Art Taylor - Taylor's Wailers (1957) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+Willie Lewis - 1941 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393249.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Batland [09:53]
-02. C.T.A. [04:44]
-03. Exhibit A [06:16]
-04. Cubano Chant [06:36](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:08
+01. What Will I Do? [2:43]
+02. Happy Feet [3:05]
+03. Baby Ain't You Satisfied [3:04]
+04. Ti-Pi-Tin [3:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B138098AC5D3CF6AA10169C7069B6DFE76E4BC5
+magnet:?xt=urn:btih:DC51EFE12F9C1B34F16C7D04991FBCA923472F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574331   (388036) от 04.09.2022
+
+Epica - Live At Paradiso (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hunab K'u (Live At Paradiso) [00:01:58]
+02 - Dance Of Fate (Live At Paradiso) [00:05:47]
+03 - Sensorium (Live At Paradiso) [00:04:58]
+04 - The Last Crusade (Live At Paradiso) [00:04:26](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1749CBC5218B86CAA4C9C302C2A12BA8C97B346B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574261   (388037) от 04.09.2022
+
+Venus 5 - Venus 5 (2022) [FLAC|Lossless|image + .cue] <Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lioness (3:22)
+02. The Simulation (3:20)
+03. Nothing But A Heartache (3:09)
+04. Bride With Blackend Eyes (4:36)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BBD8B05B2E4631EE42AAD2C47127AC6DD41C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574149   (388038) от 04.09.2022
+
+Machine Head - Of Kingdom and Crown (2022) [FLAC|Lossless|image + .cue] <Groove, Thrash Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slaughter the martyr (10:26)
+02. Choke on the ashes of your hate (4:06)
+03. Become the firestorm (5:00)
+04. Overdose (0:58)(   Читать дальше...   )Жанр: Groove, Thrash Metal, Nu-MetalПродолжительность: 01:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0B391A32A5E2218C0D6A76E48B216F4312AC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574250   (388039) от 04.09.2022
+
+Сергей Лазарев | Диагностика кармы  (Книга 11). Завершение диалога 2005-2007 (2022) [MP3, Сергей Лазарев]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир прекрасен. Он прекрасен в каждом своем проявлении, прекрасен по своей сути, ибо он Божественен. И поскольку любая ситуация ведет к любви и Богу, ни в какой ситуации мы не имеем права отказываться от любви, улыбки, радости и оптимизма.
+
+И если мы сохраняем такой взгляд на мир, то начинаем правильно оценивать происходящее и нам легче увидеть, как связываются причины (   Читать дальше...   )Жанр: Психология, эзотерикаПродолжительность: 160:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E18B1D6DDC165CF3E20401D5079966E9956ADEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574294   (388040) от 04.09.2022
+
+Femme Fatale - One More For The Road (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Mean Nothin' (3:29)
+02. Lady In Waiting (4:05)
+03. I Know (3:48)
+04. One More For The Road (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D37D3AA77974AB566CE65AC17D8847511C34F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574302   (388041) от 04.09.2022
+
+Мишель Филгейт (сост.) | О чём мы молчим с моей матерью. 16 очень личных историй, которые знакомы многим (2020) [MP3, Алёна Комолова и др.]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проговаривание – способ исцелить наши отношения с другими и собой. На страницах книги шестнадцать талантливых писателей делятся переживаниями, которыми они так и не решились поделиться со своими матерями, а также тем, как это сказалось на них потом.Жанр: биографии и мемуары, зарубежная публицистика, семейная психологияПеревод: О. В. Терентьева, Екатерина Петрова, Марина ФлейшманПродолжительность: 09:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C045E1C509E81891AD4147BAE6D2DA3AFF20A65B
 ```
 
 https://mybot314.ru/tekegram_catalog/

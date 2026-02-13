@@ -1,22 +1,139 @@
-###  Публикация: 1618233   (1034255) от 10.03.2023
+###  Публикация: 1447205   (1032127) от 12.02.2021
 
-Adobe Photoshop 2023 24.2.1.358 RePack by KpoJIuK [Multi/Ru]
+VA - Markus Schulz - Global DJ Broadcast - Escape to Narva (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz - Escape to Narva
+01. Markus Schulz - Hanging in a Moment
+02. Kyau & Albert & Steve Brian - Candy
+03. Cosmic Gate & Andrew Bayer - The Launch(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9619C1489F031F22D2B55C5E6A2607496D98EABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447192   (1032128) от 12.02.2021
+
+Illuminae - Dark Horizons (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lighthouse
+02. Blood on Your Hands
+03. Edge of Darkness
+04. Lullaby(   Читать дальше...   )Жанр: Progressive Rock, Neo-Prog, Female VocalПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAF3C66A565CCAE02D5236D6285D43518421545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447072   (1032129) от 12.02.2021
+
+Clap Your Hands Say Yeah - New Fragility (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hesitating Nation (03:14)
+02. Thousand Oaks (04:47)
+03. Dee, Forgiven (04:08)
+04. New Fragility (03:26)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B848DFE3A1B0D58E420B82F4AEB49C18A5D0D52A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447158   (1032130) от 12.02.2021
+
+Roseanna Vitro - Live At The Kennedy Center (2006) Challenge Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone in Love [4:47]
+02. Like a Lover [6:09]
+03. Please Do Something [5:40]
+04. Introduction to Commitment [0:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CDE19FDC466B450B3277FFA0B0E01092C1F2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447143   (1032131) от 12.02.2021
+
+Exposure Software Blow Up 3 v3.1.4.367 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034255.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Photoshop 2023 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
+Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:378CBB462F1570A9ACCCBB66B32A88BA034FCA7E
+magnet:?xt=urn:btih:D2E3BFA2B06A5C70D50BE9D0006BD514866D1D16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618228   (1034256) от 10.03.2023
+###  Публикация: 1447202   (1032132) от 12.02.2021
 
-FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse (2023) [Multi] (Build 10547139/dlc) Repack Other s [Digital Deluxe]
+Prometheo - Quello Che Rimane (2021) [FLAC|Lossless|WEB-DL|tracks] <RPI, Progressive Rock>
 
->>Win Игры
->>Adventure/Quest
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034256.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Японский хоррор на выживание FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse возвращается с улучшенной графикой. Во время праздника на острове Рогецу (Rogetsu Isle) таинственным образом исчезли несколько детей. Позже пропавших нашли, но те ничего не помнили. И вот уже подростками они возвращаются на остров. Исследуя разные места и защищаясь от призраков, они (   Читать дальше...   )Тип издания: RepackРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Adventure (Horror), 3rd Person, 3DЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+01. Arkeos (2:32)
+02. Quello che Rimane (4:12)
+03. Iena (3:59)
+04. La Ballata dello Stagista (5:12)(   Читать дальше...   )Жанр: RPI, Progressive RockПродолжительность: 00:35:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FAFEF75F8DE42785FCFB24E1B4D1275170C28B9
+magnet:?xt=urn:btih:BE0A4910C9FA9203C64A0FD1DD705C2CFDCEA15D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +170,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612480   (1034257) от 10.03.2023
+###  Публикация: 1447200   (1032133) от 12.02.2021
 
-Цельнометаллическая оболочка / Full Metal Jacket (1987) BDRip [H.265/1080p] [10-bit] [JPN Transfer]
+3.2 - Third Impression (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034257.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Американская база подготовки новобранцев корпуса морской пехоты. Жесточайшая, бесчеловечная система призвана превратить домашних мальчишек в натренированных хладнокровных убийц. Их готовят к войне во Вьетнаме, где им придётся часто задавать себе вопрос «Разве война - это не ад?», а иначе просто невозможно убивать каждый день, не понимая, для чего это?Производство: Великобритания, США / Natant, Stanley Kubrick Productions, Warner Bros.Жанр: драма, военныйРежиссер: Стэнли КубрикАктеры: Мэттью Модайн, Адам Болдуин, Винсент Д’Онофрио, Р. Ли Эрми, Дориан Хэрвуд, Кевин Мейджор Ховард, Арлисс Ховард, Эд О’Росс, Джон Терри, Кирон ДжеккинисПеревод: дублированный, многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:56:37
+01. Top Of The World
+02. What Side You’re On
+03. Black Of Night
+04. Killer Of Hope(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7E18913CF49E0592BC761C8E1AA4AD4C12EE713
+magnet:?xt=urn:btih:C528CA4B4AA12CAAF4829D0E94F36903635F1E35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +199,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583628   (1034258) от 10.03.2023
+###  Публикация: 1620308   (1032134) от 20.03.2023
 
-Винчестеры / The Winchesters (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-13 из 13) LostFilm
+Nikolay - Mother Russia (1995) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 
->>Зарубежные сериалы
->>Сверхъестественное / Supernatural
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034258.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История любви Джона и Мэри — родителей Дина и Сэма Винчестеров. Джон возвращается с войны во Вьетнаме и встречает 19-летнюю охотницу на демонов Мэри. Они объединяются, чтобы узнать правду о своих семьях и защитить мир от зла. При этом мать Джона, Милли, хочет уберечь сына от опасной охоты на демонов.Производство: США, CBS Studios, Chaos Machine Productions, WBTVЖанр: боевик, приключенияРежиссер: Глен Винтер, Джон Т. Кречмер, Джон Шоуолтер, ...Актеры: Jojo Fleites, Деметрия МакКинни, Бьянка Кэйлик, Мэг Доннелли, Дрэйк Роджер, Нида Хуршид, Гил МакКинни, Бриджет Риган, Майкл Таккони, Энджел Розарио мл.Перевод: Многоголосый профессиональный (LostFilm)Язык озвучки: Русский, английскийПродолжительность: ~00:45:00 серия
+01. Best Of Best 4:20
+02. Hope Dies Last 5:18
+03. Power Of Beuty 4:49
+04. High On Love 4:06(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:55:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65C96EBB464FA7942DDC47180D395881A79E2442
+magnet:?xt=urn:btih:E5686D8081D6742B99CB30659DE08583D2B5373B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,26 +228,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491174   (1034259) от 10.03.2023
+###  Публикация: 1620346   (1032135) от 20.03.2023
 
-Zero To Mastery Academy (ZTM), Jayson Lennon | Rust Programming: The Complete Developer's Guide (2023) WEB-DL [EN]
+Inner Prospekt - Canvas Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034259.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изучите язык программирования Rust с нуля! Узнайте, как писать и создавать реальные приложения с помощью Rust, чтобы вас приняли на работу и признали лучшим программистом. Предыдущий опыт не требуется.Основы концепций компьютерного программирования, таких как условная логика, циклы и преобразования данных
-Основные темы информатики, такие как компьютерная память, (   Читать дальше...   )Производство: Zero To Mastery Academy (ZTM)Жанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 26:07:19
+01. Scratches [00:08:03]
+02. The Island of Despair [00:11:47]
+03. A Wordless Fable [00:11:20]
+04. The Showdown [00:20:16](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DCC5D68445445FB41F3A16140496A4434E9BD4C
+magnet:?xt=urn:btih:2E6893A9F2DC238EA0039AA242C0A8B47650A097
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,25 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618234   (1034260) от 10.03.2023
+###  Публикация: 1620395   (1032136) от 20.03.2023
 
-Уральские пельмени. Эффект папочки (2023.03.10) SATRip
+Field Music - Commontime (2016) [FLAC|Lossless|WEB-DL|tracks] <Art rock, Indie-pop>
 
->>Юмор (ТВ)
->>ПостКВН
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034260.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье. Когда кофе в постель - это эффект лапочки. Когда пол холодный, а ногам тепло - это эффект тапочки. А когда (   Читать дальше...   )Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:07:47
+01 - The Noisy Days Are Over
+02 - Disappointed
+03 - But Not For You
+04 - I'm Glad(   Читать дальше...   )Жанр: Art rock, Indie-popПродолжительность: 00:57:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7923CCB58EDFE44F19FA7443A9D9922B770DC460
+magnet:?xt=urn:btih:29A5743EEFB1F41A9083247775891C53937FEF9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,25 +286,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611987   (1034261) от 10.03.2023
+###  Публикация: 1620500   (1032137) от 20.03.2023
 
-Патриот (2022) WEBRip [H.264] (сезон 3, серии 1-16 из 16)
+Dante's View - Happiness Is a War (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Отечественные сериалы
->>
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034261.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В продолжении комедии бравый патриот продолжит учить всех вокруг любить Родину, параллельно разбираясь со своими личными проблемами. Главного героя ждёт много откровений, в том числе ответ на главный вопрос: является ли он на самом деле родственником бывшего президента США Дональда Трампа? До выяснения всех обстоятельств Кучина отстраняют от обучения в Академии ФСБ, (   Читать дальше...   )Производство: Россия | Good Story MediaЖанр: комедияРежиссер: Николай БурлакАктеры: Антон Жижин, Анастасия Талызина, Алексей Базанов, Алёна Савастова, Дмитрий Журавлёв (IV), Евгения Капралова, Владимир Сычёв, Екатерина Новокрещенова, Наталья Бадирова, Георгий БергалПродолжительность: ~00:25:00 серия
+01. Just Another Guy (4:38)
+02. Wrong (3:18)
+03. Pretend (3:44)
+04. It's a Crime (4:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC4595B70B5454BE34A8584B81449BDF7E0BA5D4
+magnet:?xt=urn:btih:2841612B64E9D83FD65A8E2AC80B6B423022D487
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,51 +315,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541980   (1034262) от 10.03.2023
+###  Публикация: 1620454   (1032138) от 20.03.2023
 
-Солярис / Solaris (2002) BDRip [H.264]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034262.jpg" />
-</div>
-
-
-###  Подробнее
-
-На космическую станцию, движущуюся по орбите загадочной планеты Солярис, прибывает психолог Крис Кельвин. Его цель — понять, что за необъяснимые вещи происходят с работающими там учеными. Крис обнаруживает, что руководитель экспедиции и его старый друг погиб при таинственных обстоятельствах. А вскоре он сам сталкивается с силой, стоящей за гранью человеческого понимания.Производство: США, Lightstorm Entertainment, Twentieth Century Fox Film CorporationЖанр: фантастика, драма, мелодрама, детективРежиссер: Стивен СодербергАктеры: Джордж Клуни, Наташа МакЭлхоун, Виола Дэвис, Джереми Дэвис, Ульрих Тукур, Морган Раслер, Донна КимбаллПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: отсутствуютПродолжительность: 01:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69FEED83CB2014C89C10641CF31AFB42C2A57353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681255   (1034263) от 10.03.2023
-
-Миллион для чайников / The Brass Teapot (2012) BDRip [H.264]
+Совсем мало времени / Am zin (1999) BDRip [H.264/720p] [AVO]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034263.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Признайтесь, каждому бы хотелось иметь волшебный чайник под кроватью, который выдает по первому требованию наличные?! Но кто знает, через что должен пройти миллионер? Богатые тоже плачут, ведь чайник производит деньги, как только кто-то из окружающих чувствует боль. Как далеко готовы зайти ради денег молодожены Джон и Эллис в погоне за богатством?Производство: США, Atlantic Pictures (II), Laundry FilmsЖанр: фэнтези, комедия, драмаРежиссер: Рамаа МозлиАктеры: Джуно Темпл, Майкл Ангарано, Алексис Бледел, Билли Магнуссен, Алиа Шокат, Бобби Мойнахан, Стив Пак, Бен Раппапорт, Люси Уолтерс, Джек МакбрайерПеревод: Многоголосый профессиональный (Лицензия)Язык озвучки: русский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 01:45:10
+Инспектор полиции и превосходный переговорщик по захвату заложников Хо Шен Сан оказывается в затруднительном положении, когда его втягивает в 72-часовую игру больной раком преступник, жаждущий мести организованным преступным синдикатам Гонконга...Производство: Гонконг, China Star Entertainment, Win's Entertainment Ltd.Жанр: драма, криминал, боевик, триллерРежиссер: Джонни ТоАктеры: Энди Лау, Чин Ван Лау, Ёё Мунг, Уэйз Ли, Шиу Хунг Хуи, Сует Лам, Руби Вонг, Вэй Аи, Вэй Кин Лам, Роберт СпарксПеревод: авторскийЯзык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:33:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42B112EEF310028EB3A409B0A3B54F229138EC37
+magnet:?xt=urn:btih:9513127659B2EDDAFD5A2C4791F24326BEB223F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,25 +341,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583612   (1034264) от 10.03.2023
+###  Публикация: 1620519   (1032139) от 20.03.2023
 
-Винчестеры / The Winchesters (2022) WEBRip (сезон 1, серии 1-13 из 13) LostFilm [PR]
+Old Scars - Власть Химеры (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Groove Metal, Thrash Metal>
 
->>Зарубежные сериалы
->>Сверхъестественное / Supernatural
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034264.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История любви Джона и Мэри — родителей Дина и Сэма Винчестеров. Джон возвращается с войны во Вьетнаме и встречает 19-летнюю охотницу на демонов Мэри. Они объединяются, чтобы узнать правду о своих семьях и защитить мир от зла. При этом мать Джона, Милли, хочет уберечь сына от опасной охоты на демонов.Производство: США, CBS Studios, Chaos Machine Productions, WBTVЖанр: боевик, приключенияРежиссер: Глен Винтер, Джон Т. Кречмер, Джон Шоуолтер, ...Актеры: Jojo Fleites, Деметрия МакКинни, Бьянка Кэйлик, Мэг Доннелли, Дрэйк Роджер, Нида Хуршид, Гил МакКинни, Бриджет Риган, Майкл Таккони, Энджел Розарио мл.Перевод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийПродолжительность: ~00:45:00 серия
+01. Intro [00:01:09]
+02. Власть химеры [00:05:03]
+03. Чужая сила [00:07:00]
+04. Активист [00:05:08](   Читать дальше...   )Жанр: Metalcore, Groove Metal, Thrash MetalПродолжительность: 00:38:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C2DEBEAF651C6330D86CB7C98E1DB34B825038E
+magnet:?xt=urn:btih:818E400B3618574773935AC470653403608F5477
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +370,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618282   (1034265) от 10.03.2023
+###  Публикация: 1620309   (1032140) от 20.03.2023
 
-Бойся тишины / Sound of Silence (2022) WEBRip [H.264/1080p-LQ] [Line, AD]
+Stream of Passion - Embrace The Storm (2005) [FLAC|Lossless|image + .cue] <Progressive Metal, Symphonic Metal, Gothic Metal>
 
->>Остальное
->>Фильмы с Рекламой
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034265.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После несчастного случая, произошедшего с ее отцом, Эмма приезжает из Нью-Йорка в родной дом. Там она сталкивается с загадочным явлением: когда наступает тишина, где бы Эмма ни находилась — при любом звуке или шорохе на нее нападают зловещие существа из потустороннего мира.Производство: Италия / Eryde Produzioni, T3 Directors S.r.l.Жанр: ужасыРежиссер: Алессандро Антоначи, Даниэль Ласкар, Стефано МандалаАктеры: Люсия Капорасо, Кьяра Касолари, Даниэле Де Мартино, Клаудио Дугера, Рокко Мараццита, Алессандро Марморини, Сандра Пиццулло, Пенелопа Санджорджи, Питер Стивен ВолмарансПеревод: Дублированный (Line)Язык озвучки: РусскийСубтитры: Английские (hardsub)Продолжительность: 01:32:00Реклама: Присутствует баннер!
+Дебютный альбом нидерландско-мексиканской симфоник-метал группы Stream of Passion, где тексты и музыку к песням писали участники коллектива —01. Spellbound 3:35
+02. Passion 5:21
+03. Deceiver 5:07
+04. I'll Keep on Dreaming 3:46(   Читать дальше...   )Жанр: Progressive Metal, Symphonic Metal, Gothic MetalПродолжительность: 01:18:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8B2E89B1AE8830D52C7FDCD1E4F6682F704E8C7
+magnet:?xt=urn:btih:B5E2833A1D3A50DEE1E7913D5326BD710EC41F94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,25 +399,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618128   (1034266) от 10.03.2023
+###  Публикация: 1620348   (1032141) от 20.03.2023
 
-MCBoot WinPE VN 2023 PRO v9.6 build 010323 [En]
+Humanrise - You're Never Alone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034266.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MCBoot WinPE VN 2023 PRO Набор инструментов для восстановления компьютера с современным дизайном, чрезвычайно быстрой скоростью загрузки, совместимый со старыми компьютерами и новейшими компьютерами. MCBoot WinPE VN 2023 PRO предлагает множество расширенных функций для решения компьютерных проблем, особенно подходящих для инженеров-ИТ. Каждая деталь MCBoot WinPE (   Читать дальше...   )Язык интерфейса: Английский
+01. Ashia Unika [00:02:56]
+02. Warriors Never Lose Hope [00:06:36]
+03. Fear or Die [00:04:42]
+04. You're Never Alone [00:05:43](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:53:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09F2AF662AE3EF48C0CCF3F2367F1D0DF05A9C8B
+magnet:?xt=urn:btih:EC5C5E7E96EFD31008C3CFC74162EBAB1BF89CD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,25 +428,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611410   (1034267) от 10.03.2023
+###  Публикация: 1620330   (1032142) от 20.03.2023
 
-The Trasamire Campaigns (2023) [En] (1.3) License GOG
+The Waking Sleeper Band - Planetarium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>Win Игры
->>Strategy (Manage/Busin)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034267.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Trasamire Campaigns - это напоминающая настольную игру стратегия с оригинальной стилистикой и механиками. Король Унмор умер не оставив наследника из-за чего некогда процветающее королевство Трасамир превратилось в гигантское поле битвы. Войдите в историю в качестве одного из легендарных основателей нового мира, а для этого проделайте серьезную работу. Разработайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Gemcutter GamesЖанр: Стратегия, ГоловоломкаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+01. Planetarium [00:04:55]
+02. Astral Mathematics [00:03:42]
+03. The Earth Is the Center [00:03:43]
+04. Perception [00:04:14](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E19C2F44E2C4CBD6526949CBBD28E53144882B5A
+magnet:?xt=urn:btih:A01518CCBD68350E1A9A4FBA5A39814E434C709B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +457,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 730003   (1034268) от 02.02.2021
+###  Публикация: 1620509   (1032143) от 20.03.2023
 
-Сталинград (2013) BDRip [H.264/1080p] 3D [Вертикальная анаморфная стереопара]
+VA - Should have held your hand (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gracie Abrams - I miss you, I?m sorry
+02. Maroon 5 - Girls Like You
+03. Katy Perry - Part Of Me
+04. The Vamps - Somebody To You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D1BD5B9C0B0D67023E410AA76D5FE5DC77C143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620480   (1032144) от 20.03.2023
+
+Malcolm Strachan - Point Of No Return (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nossa Dança (6:06)
+02. Soul Trip (5:28)
+03. The Wanderer (6:05)
+04. The Last Goodbye (4:57)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967421123794998117D88FB6F54CF51F37456932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620457   (1032145) от 20.03.2023
+
+Words That Burn - Cut Throat Culture (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den of Lions [00:03:59]
+02. Sunshine [00:03:27]
+03. Play God [00:05:04]
+04. Sirens [00:04:17](   Читать дальше...   )Жанр: Alt. Metal, Modern MetalПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C4E8B0C7682576FFFE6CB502C6F8A308E4B803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620499   (1032146) от 20.03.2023
+
+Щенки - Комплекс и синдром (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мир обречён [00:02:36]
+02. Похмелье и несчастная любовь [00:03:24]
+03. Смерть неизбежна [00:03:00]
+04. Не хватает слов [00:02:59](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF83CB2FF3E720B3E800D3C3F2130FFD928515BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620342   (1032147) от 20.03.2023
+
+Paakallo - Paakallo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Dark, Occult, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kuoleman taikaa [00:04:37]
+02. Muodonmuuttaja [00:04:17]
+03. Musta monoliitti [00:04:05]
+04. Kuparikäärme [00:06:25](   Читать дальше...   )Жанр: Heavy Rock, Psych, Dark, Occult, 70'sПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349A815EDB5E635962C22807598913BFA823F06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620389   (1032148) от 20.03.2023
+
+Control Denied - The Fragile Art Of Existence (1999) [2CD] Remastered-2020 [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Consumed 7:25
+02 Breaking The Broken 5:41
+03 Expect The Unexpected 7:17
+04 What If...? 4:30(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6179F372F7BB7D12C29B47063CFA4A47F74F6CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319359   (1032149) от 11.02.2021
+
+Assetto Corsa Competizione (2019) [Ru/Multi] (1.7.0/dlc) Repack xatab
 
 >>След.
->>Отечественные Фильмы (3D)
+>>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034268.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1942-й год. Сталинград. Советские войска планируют контрнаступление на немецкие части, занявшие правый берег Волги. Наступление сорвано. Лишь разведчикам под командованием капитана Громова удается перебраться на другой берег и закрепиться в одном из домов. Им дан приказ удержать его любой ценой. Кроме нескольких чудом уцелевших советских солдат они находят в доме (   Читать дальше...   )Производство: Россия /Арт Пикчерс Студия, Нон-стоп Продакшн, Main Road PostЖанр: Военный, Драма, БоевикРежиссер: Федор БондарчукАктеры: Мария Смольникова, Янина Студилина, Пётр Фёдоров, Томас Кречман, Сергей Бондарчук, Дмитрий Лысенков, Андрей Смоляков, Алексей Барабаш, Олег Волку, Хайнер Лаутербах, Полина Райкина, Анна Вон Аблер, Юрий НазаровПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 02:10:48
+Assetto Corsa Competizione — продолжение реалистичного гоночного симулятора Assetto Corsa, посвященного соревнованию Blancpain GT, которое ежегодно организовывает автомобитестроительная корпорация SRO Motorsports Group. В игре вас ожидает невероятная графика и фотореалистичные погодные условия, что позволят максимально погрузиться в атмосферу высокоскоростного гоночного (   Читать дальше...   )Тип издания: RepackРазработчик: Kunos SimulazioniЖанр: Simulator, Racing, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Французский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:429E29416A49D0C7711858D3A09FD7CC6592385B
+magnet:?xt=urn:btih:2375E30AB2A4C173815FEAA6B385EF0C42988B78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,51 +657,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335604   (1034269) от 02.02.2021
+###  Публикация: 1367422   (1032150) от 11.02.2021
 
-Subnautica: Below Zero (2019) [Ru/Multi] (41555) Repack xatab [Early Access]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subnautica: Below Zero - самостоятельное дополнение Subnautica, объединяющий в себе элементы ролевой игры, геймплей-песочницу и немного от исследовательских и кинематографических игр. Действие игры разворачиваются после сюжета оригинальной Subnautica. Вы снова отправитесь на 4546B, но уже в ее неизведанную обледеневшую часть. Окунитесь с головой в мир полярных подводных (   Читать дальше...   )Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игры, Инди, Ранний доступЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1318B9FB1DE2A98ABBC5CA56FC3E7DD9C95170E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340358   (1034270) от 02.02.2021
-
-Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.08/dlc) Repack xatab
+State of Decay 2 (2020) [Ru/Multi] (1.0.417403u24/dlc) Repack xatab [Juggernaut Edition]
 
 >>3
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034270.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Выполняйте контракты с точными задачами, чтобы получить фиксированное денежное вознаграждение и возможность пройти дополнительно оплачиваемые испытания. Вы можете устранять свои цели сотнями различных способов: Contracts позволяет насладиться потрясающе выверенной, стратегической игрой от лица снайпера.Тип издания: RepackРазработчик: CI GamesЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+Как будешь выживать ты? Мертвые восстали из могил, и цивилизация пала. Даже военные не смогли остановить зомби, и человечество оказалось на грани исчезновения. Собирай выживших, создавай свое сообщество, узнай, сможет ли оно выстоять, и научись выживать в нечеловеческих условиях.Тип издания: RepackРазработчик: Undead LabsЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:620B729BE8806A057F646C00796FA6A062A0C26F
+magnet:?xt=urn:btih:90FCFC550DCAC01D3EAB739F58140AF433933B62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,25 +683,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444353   (1034271) от 02.02.2021
+###  Публикация: 1446012   (1032151) от 11.02.2021
 
-Bootable Flash Drive USB by StartSoft Happy New Year! 01-2021 [Ru/En]
+Космические чистильщики / Seungriho (Space Sweepers) (2021) WEB-DL [H.264/1080p] [DVO]
 
->>След.
->>LiveCD/DVD/Flash
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034271.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Загрузочный образ ISO предназначен для настройки компьютеров перед началом установки на них Windows, либо непосредственно для установки на компьютерные машины операционных систем Windows 7 sp1, Windows 8.1 Update и Windows 10 с разной архитектурой разрядности. Их установка может быть с русскоязычным, или с англоязычным интерфейсами.Язык интерфейса: Русский. Английский
+2092 год. Из-за глобального загрязнения Земля становится непригодной для жизни, поэтому компания UTS с помощью нанотехнологий планирует терраформировать Марс. Но в светлое будущее возьмут далеко не всё население, и команда космического корабля «Победа» в число этих счастливчиков не входит. Нищеброд Тхэ-хо, красавица-капитан Чан, матёрый космонавт Тайгер Пак и робот, (   Читать дальше...   )Производство: Корея Южная / Bidangil Pictures, Huayi Tencent Entertainment Company, Merry Christmas EntertainmentЖанр: Фантастика, комедия, приключения, боевикРежиссер: Чо Сон-хиАктеры: Сон Джун-ги, Ким Тхэ-ри, Чин Сон-гю, Ю Хэ-джин, Ричард Армитедж, Пак Е-рин, Ким Му-ёль, О Джи-юль, Нас Браун, Кевин ДокриПеревод: Любительский двухголосый (Zozya & Numinel)Субтитры: Русские (Netflix), английскиеПродолжительность: 02:17:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFE778DC11F47C4B18C55DE46D776BE08C408E61
+magnet:?xt=urn:btih:3490634DB498A05AE50DD238AC2A772C5CC72989
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,239 +709,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444540   (1034272) от 02.02.2021
+###  Публикация: 1446941   (1032152) от 11.02.2021
 
-Udemy, Chad Darby и др. | Full Stack: Angular and Java Spring Boot (2020) PCRec [En / En Sub]
+Psycho-Pass: Sinners of the System | Психопаспорт: Грешники системы [2019, Movie, 3 из 3] WEBRip 1080p rus
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034272.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Узнайте, как создать приложение Full Stack с помощью Angular и Java Spring Boot.
-Angular и Spring Boot - две из самых популярных технологий для разработки приложений Full Stack.
-Знание того, как создавать приложения Full Stack с помощью Angular и Java Spring Boot, может дать вам работу или улучшить то, что у вас есть. Это горячие навыки, и компании отчаянно ищут (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: ~19:35:00
+Трилогия полнометражных фильмов, действие которых будет сосредоточено на пяти персонажах:
+
+Фильм 1: Преступление и наказание (Мика и Гино)
+(   Читать дальше...   )Производство: Япония, Production I.G / プロダクション・アイジーЖанр: приключения, фантастикаРежиссер: Сиотани НаоёсиПеревод: Sovet Romantica (1), YouNet Translate (2,3)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 1-2 фильм по 60 мин. 3 фильм 70 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A4E9356522067E143200135DA7FCE1AD78C4603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288214   (1034273) от 02.02.2021
-
-Сборник | Рабочие тетради дошкольника. Солнечные ступеньки. Часть 6 (2007-2009) [JPEG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается серия папок для дошкольного образования "Солнечные ступеньки". "Солнечные ступеньки" предназначены для всестороннего развития способностей ребенка. Все задания соответствуют задачам умственного развития и воспитания, определенным "Типовой программой обучения и воспитания в детском саду". Тысячи детишек, обучаясь (   Читать дальше...   )Жанр: Рабочие тетради дошкольникаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BB7E5A65EEDFB0EBF003257DB92AE39BCF4621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443896   (1034274) от 02.02.2021
-
-The Lord of the Rings The Fellowship of the Ring / Властелин Колец: Содружество кольца (2002) [Ru] (1.0) Repack HDlab
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Средиземье - волшебный мир знаменитого английского писателя Дж. Р. Р. Толкина! Вместе с Фродо, Арагорном и Гэндальфом ты пройдешь весь путь, описанный в первой книге трилогии "Властелин Колец". Ты побываешь в уютных деревнях Заселья и мрачных Курганах, поднимешься на вершину Амон Сул и спустишься в глубины Мории, сразишься с коварными (   Читать дальше...   )Тип издания: RepackРазработчик: Surreal SoftwareЖанр: ArcadeЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38C9F904566A40B3DAF85F1E44A7D7C162F1B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444663   (1034275) от 02.02.2021
-
-Киберсталкер / Stalk (2019) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) Марафон
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лукас поступает в лучшую инженерную школу мира, но популярные ученики школы постоянно унижают одаренного 18-летнего гика, и тогда он решается на месть. Лукас, он же Люкс, взламывает мобильные телефоны и компьютеры знакомых, включая Алму, девушку, в которую он влюблен. Парень быстро превращается в человека, которым всегда мечтал быть, но при этом сам создает себе (   Читать дальше...   )Производство: Франция / Silex Films, France TélévisionsЖанр: драма, триллер, детективРежиссер: Симон БуиссонАктеры: Пабло Кобо, Азиза Диабат Абдулаи, Тео Фернандез, Ясин Уиша, Кармен Кассовиц, Клеман Сибони, Манон Валентен, Рио Вега, Анна-Мей Фабр, Зои Херан и др.Перевод: Дублированный (Студия "Марафон")Язык озвучки: РусскийПродолжительность: ~00:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDECB98B85783CE1F0843A255F8F6AC7CE9B143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444513   (1034276) от 02.02.2021
-
-Дрон / The Drone (2020) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рейчел и Крис — молодожены, переехавшие в новый дом. Крис находит на заднем дворе новый дрон и с радостью включает беспилотник, чтобы поразвлечься. Однако высокотехнологичный гаджет имеет свой собственный интеллект, которое подарил ему серийный убийца. Теперь дрон живет своей жизнью и начинает терроризировать своих новых хозяев и всех в округе.Производство: США / Bazelevs Production, Hall²Жанр: Ужасы, комедия, фантастикаРежиссер: Джордан РубинАктеры: Александра Эссоу, Джон Бразертон, Анита Брием, Гонсало Менендес, Сэм Адегоке, Нил Сэндилэндс, Саймон Рекс, Мэтт Кук, Рекс Линн, Эдгар БлэкмонПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E72A49F5B927FA9389E5DDC016697F8BA3D598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444654   (1034277) от 02.02.2021
-
-Город мошенников / Bronx (Rogue City) (2020) WEBRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы защитить ребят из своего отдела, честному полицейскому приходится бороться не только с враждующими марсельскими бандами, но и с коррумпированными коллегами.Производство: Франция / Gaumont, Umedia, uFundЖанр: Боевик, триллер, драма, криминалРежиссер: Оливье МаршальАктеры: Ланник Готри, Станислас Мерхар, Каарис, Давид Белль, Патрик Каталифо, Жан Рено, Мусса Мааскри, Катрин Маршаль, Франсис Рено, Эрика СэйнтПеревод: Многоголосый, любительский (MUZOBOZ)Субтитры: Русские, английские (отдельно)Продолжительность: 01:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A37B6E476B5B1450C531F21D011837B5822DE6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444702   (1034278) от 02.02.2021
-
-Гэри Джон Бишоп | Stop doing that sh*t. Прекрати самосаботаж и начни жить по максимуму (2020) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекратите искать оправдания – начинайте жить!
-Снова потратили все отложенные деньги на ерунду? Влюбились в неподходящего человека? Налегли на сладкое и набрали те 5 кг, которые сбросили с таким трудом? Вы стремитесь к лучшей жизни, но снова и снова терпите неудачу? Может, пришло время выйти из замкнутого круга?
-Автор международного бестселлера Unfu*k Yourself Гэри (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: Ю.А. ПетьковаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2CF0E721B47E2F0A6C0EE57EF99BECD29FAC42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444669   (1034279) от 02.02.2021
-
-Гудбай, Америка (2020) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Сергеевич едет в Америку в гости к дочери и с ужасом обнаруживает, что его внук Пол хоть и говорит по-русски, но не понимает простых вещей, знакомых и понятных каждому мальчишке в России. Неунывающий Армен пытается закрепиться в США, постепенно постигая все прелести фиктивного брака. Для давно обосновавшейся в Штатах Юли неожиданной проблемой становится невозможность (   Читать дальше...   )Производство: Россия / Кинокомпания Большое Кино, Fresh FilmЖанр: Мелодрама, комедияРежиссер: Сарик АндреасянАктеры: Дмитрий Нагиев, Владимир Яглыч, Елизавета Моряк, Юрий Стоянов, Лянка Грыу, Надежда Михалкова, Грант Тохатян, Ирина Темичева, Микаэл Арамян, Добромир Машуков и др.Перевод: Не требуется (русский)Субтитры: отсутствуют (хардсаб на англ. речь обрезаны вместе с черными полями) см. здесьПродолжительность: 01:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03317B1EB65062456B394D6B8789D182432C5A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444500   (1034280) от 02.02.2021
-
-Udemy,  Dr. Angela Yu  | 100 Days of Code - The Complete Python Pro Bootcamp for 2021 (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на 100 Days of Code - The Complete Python Pro Bootcamp, единственный курс, который вам нужно научиться программировать с помощью Python. С более чем 100 000 отзывов и средней оценкой 4,8 мои курсы являются одними из САМЫХ ВЫСОКИХ РЕЙТИНГОВ в истории Udemy!
-100 дней, 1 час в день, научитесь строить 1 проект в день - вот как вы осваиваете Python.
-Этот (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 59:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0A3A09A268B9DA566B82EA89EBF413002BEE86
+magnet:?xt=urn:btih:0F196121398DC4DC1ED98943DC82D6C6B0768CBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

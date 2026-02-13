@@ -1,3 +1,32 @@
+###  Публикация: 1000930   (853846) от 28.03.2016
+
+WANT/ed - Fringe (2016) [MP3|320 кб/с] <Synth Pop, Coldwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий полноформатный альбом группы из Калининграда (Кёнигсберга - так его почему-то до сих пор на Западе называют!).01. (You) Won't Regret (feat. Holger Muller)
+02. Baiter (feat. Holger Muller)
+03. Sputnik 1 (feat. Holger Muller)
+04. Let's Get Entwined (feat. Patrik Hansson)(   Читать дальше...   )Жанр: Synth Pop, ColdwaveПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75EC50F23D4E008031E771D1B64D8F2BB288141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001443   (853922) от 28.03.2016
 
 VA - Global DJ Broadcast Top 20 March (2016) [MP3|320 кб/с] <Trance>
@@ -712,35 +741,6 @@ VA - Timeless And Luxury Lounge Affairs Vol.2 (2017) [MP3|320 Kbps] <Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE5605D25B0ECD64C3DAFB4F450CD24CC5971195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109659   (857373) от 28.02.2017
-
-VA - Balearic Daylight Bar Vol.1 (Balearic Hang Out Tunes) (2017) [MP3|320 Kbps] <Deep House,Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Living Room - World Traveller  4:36
-02.  Badetasche & Deat Marotta - Sunshine (Radio Edit)  3:44
-03.  Runthesphere - Fade Away  6:17
-04.  Benno Blome & Hopperider - Father Of Birds (Fish Eye Collective Remix)  7:28(   Читать дальше...   )Жанр: Deep House,DowntempoПродолжительность: 02:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B77896AE03E98367E22A2D9050D21C7FF98C88
 ```
 
 https://mybot314.ru/tekegram_catalog/

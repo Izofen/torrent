@@ -1,3 +1,35 @@
+###  Публикация: 602115   (997585) от 13.01.2013
+
+Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Arrow Chamber 11 [00:08:16]
+02. Ancient Arrow Chamber 12 [00:08:13]
+03. Ancient Arrow Chamber 13 [00:10:32]
+04. Ancient Arrow Chamber 14 [00:04:27]
+05. Ancient Arrow Chamber 15 [00:06:38]
+06. Ancient Arrow Chamber 16 [00:06:53]
+07. Ancient Arrow Chamber 17 [00:07:27]Жанр: Native American,New AgeПродолжительность: 01:01:21 + 00:34:47 + 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED5D74692E07549DFCC0E97AF8851FF5C212F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 406528   (997676) от 12.01.2013
 
 Toto - Дюна/Dune (1984) [MP3|320 kbps]<OST/Score/Soundtrack>
@@ -788,35 +820,6 @@ Films - A Forbidden Garden (2013) (Ricco) [FLAC|Lossless|tracks] <Instrumental, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:321CB13B889FA98FA1FEC909CBAED234311470DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350688   (1002942) от 07.01.2020
-
-Modern Spirit - Infinite Wisdom (2019) [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Preparation (04:24)
-02. Epiphany (05:12)
-03. Resurrection (06:37)
-04. Hope (05:38)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7840141A0243FD684BD8D1085E0E9F261E88A89
 ```
 
 https://mybot314.ru/tekegram_catalog/

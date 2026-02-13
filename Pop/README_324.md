@@ -1,3 +1,177 @@
+###  Публикация: 1095931   (922678) от 22.01.2017
+
+O.R.S. (Orlando Riva Sound) - Body To Body (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body To Body Boogie  (6:02)
+02. Moon Boots  (9:33)
+03. Sweet Release  (3:57)
+04. Disc Mussorgsky  (5:17)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F62791887ADF57E495D86A550B8A0A82302CCFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095624   (922689) от 22.01.2017
+
+The Spotnicks - The Premium Best Collection (2006) Compilation, 2CD [MP3|320 Kbps] <Surf-Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструментальная группа из Швеции, которая была сформирована в 1961 году. Вместе  "The Shadows" и "The Ventures" считаются одним из самых известных инструментальных коллективов в 1960-70х годах. Выпустили 42 альбома, продав более 18 миллионов записей. Славились своими "космическими" костюмами на сцене, и  инновационными электронными гитарами. (   Читать дальше...   )01. Karelia  (2:22)
+02. The Rocket Man  (2:00)
+03. Space Party  (2:31)
+04. Orange Blossom Special  (2:19)(   Читать дальше...   )Жанр: Surf-Rock, PopПродолжительность: 02:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D27B7A3D77B162F0A5ADC939272ECB10BDFDCFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988029   (922729) от 19.02.2016
+
+VA - I Saw You Dancing (2001) S&V #03/2001 [FLAC|Lossless|tracks + .cue] <Euro-Disco, Disco, Mambo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaft - Mucho Mambo (3:29)
+02. Q-pow! - Summer Holiday (3:19)
+03. Loona - Bailando (3:36)
+04. Crystal Waters - 100% Pure Love (4:40)(   Читать дальше...   )Жанр: Euro-Disco, Disco, Mambo, Euro HouseПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1263673D52D449F83CA47E20DB30F7F0917736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095804   (922800) от 22.01.2017
+
+VA - Brazilian Lifestyle (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922800.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rosferra Marsalis, Toni Macles - Bossa de Saudad 4:34
+ 2. Nandy Xavier - Garota de Vitine 4:37
+ 3. Joao Martins - Don't Speak (Bossa Style) 4:05
+ 4. Sergio Augusto - Nao Ha Nada Como Aqui 3:07(   Читать дальше...   )Жанр: Pop, Bossa Nova, LatinПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4141AED490D76DEB7DD1549FAB376790BEC302C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 176681   (923065) от 26.02.2010
+
+Ирина Аллегрова - Дискография (1994-2008) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 02:42:09
+
+1.Всё сначала (5:26)
+2.Не верю (дуэт с Григорием Лепсом) (4:05)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094044   (924320) от 21.01.2017
+
+VA - 10 песен о любви (2004) бесплатное приложение к журналу Yes! [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924320.jpg" />
+</div>
+
+
+###  Подробнее
+
+В январе 2003 года журнал YES! обьявил о намерении собрать музыкальную группу с одноименным названием и устроил конкурс под названием "YES! зажигает звёзды!" Всё, что нужно было сделать - это прислать в редакцию фото, аудио- или видеозапись, где были бы "запечатлены таланты". В редакцию пришло n-ое количество записей. После жесткого отбора остались (   Читать дальше...   )01. Yes! - Ты не знаешь...
+02. Yes! - Передумала
+03. Мумий Тролль - Это по любви (Japanese version)
+04. Smash!! - Freeway(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B219D190C8C41BCB48B100B1ABF625EF98DBAF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095571   (924392) от 21.01.2017
 
 Emma King - Emma King (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul, Folk>
@@ -570,180 +744,6 @@ VA - Radio 538 Hitzone 76 (2016) [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8130C562489909069FD946FB8D3752196A05BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094622   (929043) от 18.01.2017
-
-Afric Simone - 6 Albums (1974-1990) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Африк Симон (род. 17 июля 1956, Сан-Паулу, Бразилия) — западноевропейский певец. Настоящее имя — Энрике Жуаким Симон. Дебютировал в 1974 году с песней «Mr. Barracuda». В 1975 году выпустил сингл «Ramaya». В том же году выступил с хитом «Hafanana». Исполнитель, который помимо немецкого, разговаривает на английском, португальском, французском и различных африканских (   Читать дальше...   )Список альбомов:
-1974 - Mr. Barracuda
-1975 - Ramaya
-1976 - Aloha Playa Blanca(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 03:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD50855584FB3474C11EFC7AEB1DDB2522E407A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862489   (929805) от 23.01.2015
-
-Марк Бернес - Grand Collection (2005) [FLAC|Lossless|image + .cue]<Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  С чего начинается Родина   (2:31)
-02.  Три года ты мне снилась   (3:12)
-03.  Песня Рощина   (2:37)
-04.  Вечерняя песня   (3:14)(   Читать дальше...   )Жанр: RetroПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5420E42ACD82E49B6F590768832CE381CCB893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365416   (930162) от 07.03.2020
-
-A-ha - Greatest Hits: Japanese Single Collection (2020) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me
-02. The Sun Always Shines On T.V. (Single Mix)
-03. Train Of Thought (Remix)
-04. Hunting High And Low (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E43263AD7C065B3623C5100A882C82DBD81FD65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365044   (930392) от 07.03.2020
-
-George Michael - Older (1996) [FLAC|Lossless|image + .cue] <Electronic, Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus To A Child [06:51]
-02. Fastlove [05:25]
-03. Older [05:34]
-04. Spinning The Wheel [06:22](   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FDCC2B052D49CE437FB33C14E33C36B4D6D51C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365385   (930394) от 07.03.2020
-
-МГК - Звёздная серия (Новые и лучшие песни) (2000) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты забыл я помню (3:42)
-02. Ещё раз про любовь (4:09)
-03. Позвони (3:44)
-04. Ах какие ты... (4:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47763B0F6D9E9EF63829C9006D4488FE8E1059A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986535   (930555) от 14.02.2016
-
-VA - BRAVO Hits 92 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EFF - Stimme (3:08)
-02. Major Lazer feat. Nyla & Fuse ODG - Light It Up (Remix) (2:46)
-03. Matt Simons - Catch & Release (Deepend Remix) (3:15)
-04. Justin Bieber - Sorry (3:20)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep-House, Electro, Synthpop, Pop Rock, Indie Rock, Country RockПродолжительность: 02:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD81590EEA6F234EBE31FA5654F8DA7302BAF630
 ```
 
 https://mybot314.ru/tekegram_catalog/

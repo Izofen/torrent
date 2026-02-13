@@ -1,3 +1,32 @@
+###  Публикация: 981591   (951405) от 01.02.2016
+
+VA - Serenity Sexy Lounge & Chill out Pearls Vol 2 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Rodgers - Say You Say Me (04:10)
+02. The Chill-Out Orchestra - Shout (04:50)
+03. Ashley & Doria - When You Believe (04:40)
+04. Devon Boy - Get Away (Beach Bar Mix) (04:43)(   Читать дальше...   )Производство: White Isle RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB575233DC0D5DFA99B9F9575BB05914B81357B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981198   (951462) от 01.02.2016
 
 VA - I Like to Move It (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
@@ -716,33 +745,6 @@ Snakeskin - Medusa's Spell (2020) [MP3|320 Kbps] <EBM, Synth, Gothic-Rock, Darkw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27779E8F6BE5C6CE9D743F6E2F01F7BA5006354C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361424   (955910) от 19.02.2020
-
-Marc Romboy - Voyage De La Planète (New Interpretations) (2020) Hyperharmonic [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tech House>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deuxieme Voyage De La Planete (Ben Lukas Boysen Rework) (06:47)
- 02. Voyage De La Planete (Ocoeur Remix) (03:11)Жанр: Ambient, Tech HouseПродолжительность: 00:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41D2851077940560EC69B4DE26E5142F7E117C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

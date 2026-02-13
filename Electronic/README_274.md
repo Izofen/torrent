@@ -1,3 +1,32 @@
+###  Публикация: 1149772   (534085) от 03.07.2019
+
+The Nautilus Project - Discography 16 Releases (2008-2016) ZeECc, Forest Roots [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Drone, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between Space & Place (18:22)
+ 02. Docking Station (09:40)
+ 03. Colliding Stars (03:06)
+ 04. Between Space & Place (Lars Leonhard Remix) (06:56)Тип издания: CD, Web •Жанр: Dub Techno, Ambient, Minimal, Drone, Techno •Продолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3E1936F1C6B0ACC6EB0C71EBC9DED7A93F6089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312349   (534086) от 03.07.2019
 
 Feed Me - High Street Creeps (2019) [MP3|320 Kbps] <Electro House, Progressive House>
@@ -710,35 +739,6 @@ Cj Stereogun - Top & New (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1114AD0FB4323D9B491D034B6EF0814CD9C6B793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925705   (537267) от 08.08.2015
-
-VA - Best Of Chill Lounge (2015) [MP3|320 кб/с]<Lounge, Chill Out, Chill House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj-Chart - Wish (03:44)
-02. Eddy Chrome - In Love (Double Deep More Love Mix) (05:37)
-03. Privat Projekt Feat. Maysha - Sunshine (05:22)
-04. Dj-Chart - Get In Mood (04:22)(   Читать дальше...   )Производство: IH Music ProductionsЖанр: Lounge, Chill Out, Chill HouseПродолжительность: 05:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7C389C2298F507CAB535581914B91E57F8BC03
 ```
 
 https://mybot314.ru/tekegram_catalog/

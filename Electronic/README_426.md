@@ -1,3 +1,32 @@
+###  Публикация: 1505570   (804368) от 27.10.2021
+
+Yota - Lucid Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Nu-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blame Me (00:06:07)
+02 - Paris (00:05:52)
+03 - The Light of Your Bright Sun (00:04:00)
+04 - Tangled Love (00:04:48)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Nu-DiscoПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0293CFEFD89F6CDDA16139DB919E122B3C1B3296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010350   (804389) от 24.04.2016
 
 VA - Venera Music Vol.10 (2016) [MP3|320 кб/с] <House, Tech House>
@@ -715,35 +744,6 @@ VA - Supermoon Chilling Tunes (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:955E519F0DA1AD116561592B5DEC9EA3044A6C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198106   (806374) от 12.01.2018
-
-Michał Wolski (Michal Wolski) - Collection 8 Releases (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The New World (07:07)
- 02. Moment By Moment (06:26)
- 03. Polar Day (10:30)
- 04. No Beginning No End (07:23)Тип издания: WEBЖанр: Techno/AmbientПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF32EAB033197DB1167D6065C6AA25D82896553
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 934493   (502536) от 05.09.2015
+
+VA - Big City Chillout Moments (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scarlett Copley - Sea of Change [04:31]
+02. Parker Thornhill - 22 Past [04:38]
+03. Natalie Goldwyn - Sextetto Visceral [03:55]
+04. Natacha Nygard - Fire of Desire [04:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E403269BEE9BAA41F675C8EF6D2FAE1ED86638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563968   (502617) от 16.07.2022
 
 Lovers Lake - Lovers Lake (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Retrowave, Dreamwave>
@@ -717,35 +746,6 @@ VA - Time To Shine (Best Lounge Music) (2015) [MP3|320 кб/с]<Downtempo, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4051938EB3D536BC9E1A8470D9E1A30DC690C8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316436   (505970) от 26.07.2019
-
-VA - Summer Party 2019 [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norah B. & Lorenz Koin - Don't Break My Heart (Radio Edit) 3:28
-02. Rene Rodrigezz feat. Lova - Stand My Ground (Original Mix) 3:06
-03. Teknova - Dragostea Din Tei 2K19 (Original Mix) 3:16
-04. Mad Fiftyone & Federico Seven - Una Canzone Che Fa (Radio Edit) 2:41(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92ED24BFEF974E4C5C1A856AA429140548F9366
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1106914   (868131) от 22.02.2017
+
+VA - Sexy Collection Deep House Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Levent Lodos - Circle of Fifths
+02. Michael Paul - Call Me On the Weekend
+03. M.O.O.N. Pro - So Hot
+04. Leno - Explosion(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76085863F0029ABDEC328FDE4331B53F0BC48863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997135   (868208) от 20.03.2016
 
 Yellow Magic Orchestra - 17Albums, 5Compilations, 3Singles & EPs (1978-2015) [MP3|320 кб/с] <Electronic, Electro, Synth-pop>
@@ -711,35 +740,6 @@ VA - Hardstyle Workout 2021.1 Explicit [MP3|320 Kbps] <Hardstyle, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE70C7925D6D132BC9C478F614A85407441D6D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496798   (869794) от 19.09.2021
-
-VA - Hardstyle Workout 2021.2 Explicit [MP3|320 Kbps] <Hardstyle, Dance>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Isaac - Follow Me (04:09)
-02. Headhunterz - Transcendence (04:06)
-03. Keltek - The Alignment (Cinematic Version) (09:06)
-04. Ran-D - Fight Fire with Fire (Radio Edit) (03:55)(   Читать дальше...   )Жанр: Hardstyle, DanceПродолжительность: 02:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C604F0A86303424030B1182960AE3A69BD9E40
 ```
 
 https://mybot314.ru/tekegram_catalog/

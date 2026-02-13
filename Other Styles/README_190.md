@@ -1,3 +1,32 @@
+###  Публикация: 1350688   (1002942) от 07.01.2020
+
+Modern Spirit - Infinite Wisdom (2019) [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Preparation (04:24)
+02. Epiphany (05:12)
+03. Resurrection (06:37)
+04. Hope (05:38)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7840141A0243FD684BD8D1085E0E9F261E88A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350150   (1003243) от 06.01.2020
 
 Кай Метов - Для тебя и о тебе (Инструментальный альбом) (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Pop>
@@ -713,35 +742,6 @@ Kárpátia (Karpatia) - Csatazaj (2021) [FLAC|Lossless|tracks + .cue] <Folk Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAC94F09E45906E774CC20B899034192CD340BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788862   (1007838) от 06.07.2021
-
-Дживан Гаспарян - 5 альбомов (2004) [MP3|224 Kbps] <Instrumental, Ethnic>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джива́н Арамаи́сович Гаспаря́н (арм. Ջիվան Գասպարյան; 12 октября 1928, деревня Солак, Армения) — всемирно известный армянский музыкант и композитор, знаток армянской национальной музыки, мастер игры на дудуке. Народный артист Республики Армения. Профессор Ереванской (   Читать дальше...   )01. Zucchabar Gladiator Soundtrack
-02. To The River
-03. With This Love
-04. Fallen Star(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D1F90CA9D92D9F64936020FC216FF5A188DD14
 ```
 
 https://mybot314.ru/tekegram_catalog/

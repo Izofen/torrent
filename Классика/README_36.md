@@ -1,3 +1,32 @@
+###  Публикация: 1012785   (778257) от 02.05.2016
+
+Wolfgang Amadeus Mozart - Sonatas For Piano & Violin (2012) [MP3|320 кб/с] <Classical, Piano>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonata for Piano and Violin in F, K.377
+01. 1. Allegro (3:52)
+02. 2. Tema (Andante) con variazioni (10:08)
+03. 3. Tempo di menuetto (5:57)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1A42F347D05C04F68865216ADF33C9D976CE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210336   (778623) от 03.03.2018
 
 VA - 100 Violin Masterworks (2018) [MP3|320 Kbps] <Classical>
@@ -714,33 +743,6 @@ Andrew Lawrence-King - Harp Music of The Italian Renaissance (1987) reissue  200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:656188F787666D8EF06460DA29D0535C6D497984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011080   (796756) от 27.04.2016
-
-Aram Khachaturian / Арам Хачатурян - Spartacus / Спартак  (1992) [FLAC|Lossless|tracks + .cue] <Classical, ballet>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 01:02:46
-Act 2Жанр: Classical, balletПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D74E9B04F4845EC1F6608CB43EA4941C220D72
 ```
 
 https://mybot314.ru/tekegram_catalog/

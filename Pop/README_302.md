@@ -1,3 +1,177 @@
+###  Публикация: 1005949   (830744) от 10.04.2016
+
+Moulin Rouge - Tea For Two (1991) [FLAC|Lossless|tracks] <Hi-NRG, Synth Pop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tea For Two
+02. Get Over You
+03. Fooling Me Too Long
+04. Promised Land(   Читать дальше...   )Жанр: Hi-NRG, Synth Pop, Italo-DiscoПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7EF77157F134BA85DB3617C8CD7F3957E51A192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005871   (830808) от 10.04.2016
+
+All Saints - Red Flag (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый альбом выпущенный с промежутком в 10 лет.01. One Strike (03:34)
+02. One Woman Man (04:01)
+03. Make U Love Me (03:46)
+04. Summer Rain (03:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C49B615B8D234EB76E132734A425B3AF4D06786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380767   (831360) от 04.05.2020
+
+VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый выпуск нового десятилетия состоялся в январе 2020 г. Очередной сборник новинок из топов США (и немножко Великобритании) получился несколько более спокойным и "приглушенным" по сравнению с общим тоном предыдущих выпусков. Пожалуй, энергия на короткое время дает всплеск на 11 и 12 треках с дивами следующей волны Camila Cabello и Dua Lipa, но в остальном (   Читать дальше...   )01. Maroon 5 - Memories  (3:05)
+02. Taylor Swift feat. Shawn Mendes - Lover (Remix)  (3:39)
+03. Halsey - Graveyard  (3:01)
+04. Shaed & Zayn - Trampoline  (3:02)(   Читать дальше...   )Релиз состоялся: 24 января 2020Жанр: Pop, Rock, DanceПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D15955FCB7FE75CBAD1724A5FEBF44FEE80D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114757   (831381) от 15.03.2017
+
+Потап и Настя - Золотые Киты (2017) [FLAC|Lossless|image + .cue] <Pop, R&B>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Пара
+02. Крепкие Орешки
+03. Не Люби Мне Мозги
+04. Позвони Своей Зае(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68ECB0BA343F768E1C88E500A4C15344B07C755B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380531   (831451) от 04.05.2020
+
+VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UB40 - (I Can't Help) Falling In Love With You (3:24)
+02. Bryan Ferry - Slave To Love (4:18)
+03. Cat Stevens - Wild World (3:20)
+04. Carpenters - We've Only Just Begun (3:04)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881E026BE3B2BD874CF17E14F5EE8E01F38B9258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114768   (831557) от 12.10.2021
+
+Rockets - The Reissue Collection (1976 - 2021) [MP3|320 Kbps] <Electronic, Synth-pop, Space Rock, Disco, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французская поп-рок группа. Известны своим имиджем "пришельцев из космоса", одними из первых в истории музыки масштабными шоу с использованием целого каскада спецэффектов (в частности, "инопланетных" декораций, пиротехники, лазеров). Альбомы Plasteroid и Galaxy стали золотым и платиновым соответственно.Список альбомов:
+1976 - Rockets (2002)
+1978 - On The Road Again (1996)
+1979 - Plasteroid (2004)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Space Rock, Disco, HouseПродолжительность: 11:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB40535394AC5B2A3A617A60A5C083626CAB408B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380697   (831666) от 04.05.2020
 
 Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
@@ -571,180 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1E96123D0BC52DB45305273E5FFEDF72042D605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380290   (835055) от 02.05.2020
-
-VA - The Party Dance Mix Vol.1 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speedy Gonzales - Pat Boone (1:23)
-02. The Twist - Chubby Checker (1:17)
-03. Wild One - Bobby Rydell (1:21)
-04. Swinging School - Bobby Rydell (1:34)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14E2DCFBBCB3B395587B9A8E102F7DA9144FEC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380303   (835062) от 02.05.2020
-
-VA - Party Dance Mix Vol.2 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dizzy - Tommy Roe (1:35)
-02. Silence Is Golden - The Tremeloes (1:58)
-03. Don't Let the Sun Catch Your Crying - Gerry & the Pacemakers (1:27)
-04. (I Don't Know Why) But I Do - Clarence -Frogman- Henry (1:15)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D468977D10A4C51410B688E83C95671AE02492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501502   (835122) от 10.10.2021
-
-VA - Serious Beats 97 (2021) [MP3|320 Kbps] <Dance-pop, Techno, Disco, Progressive House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kungs - Never Going Home
-02. DJ Licious - Hope (feat Armen Paul - extended mix)
-03. Calvin Harris - By Your Side (feat Tom Grennan)
-04. Becky Hill & David Guetta - Remember(   Читать дальше...   )Жанр: Dance-pop, Techno, Disco, Progressive HouseПродолжительность: 04:27:10 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B9728D20A7030A8D3B727C4124C26C0E1DB9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501593   (835186) от 10.10.2021
-
-Lisa Nemzo - Out of Desire (серия "Другие восьмидесятые") (1986) [MP3|320 Kbps] <Electronic Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking on Ice
-02. Addicted to You
-03. Out of Desire
-04. It's so Dark Tonight(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473BDB4F96C370896F19AA5285B21E5AD3B6E563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501656   (835189) от 10.10.2021
-
-Harmony Cats - Harmony Cats (1982) LP [MP3|320 Kbps] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bate Bate (3:10)
-02. A Terra Do Faz De Conta (Land Of Make Believe) (3:42)
-03. Eu Amo Amar Voce (3:24)
-04. Estrela Amiga (3:05)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4005B1A9443E33F531C684F11F3D58162678BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501574   (835204) от 10.10.2021
-
-Humphrey Robertson - Essentials (2021) [MP3|320 Kbps] <Eurodance, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love in Your Eyes (Radio Version) (3:30)
-02. Don't Stop Loving Me (Radio Version) (3:51)
-03. Touch of Summer (Radio Version) (3:35)
-04. One Step Closer (Radio Remixed) (3:38)(   Читать дальше...   )Жанр: Eurodance, Euro-DiscoПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA6E288AC68B65789B4B300C1E71241CA914ECC
 ```
 
 https://mybot314.ru/tekegram_catalog/

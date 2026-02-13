@@ -1,3 +1,67 @@
+###  Публикация: 1140217   (656931) от 05.06.2017
+
+VA - The Best Of Trance 56 (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  NoMosk - Black Cloud (Extended Mix) 6:23
+02.  Solarstone & Meredith Call - I Found You (Giuseppe Ottaviani Remix) 6:51
+03.  PureNRG - Cala Blanca 7:53
+04.  Roman Messer - Lost (Extended Mix) 6:21(   Читать дальше...   )Жанр: TranceПродолжительность: 05:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAF25D9C15096CFC20772D6A392F57A15F78D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515007   (656951) от 25.06.2012
+
+VA - Летний спецвыпуск Золотого Граммофона (2012) [MP3|256 kbps]<Pop|Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656951.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+001 ВИА Гра - Алло, Мам
+002 Герр Антон (Herr Anton) - Алка Now!
+003 Размер Project - My Moscow Love
+004 IKA - Москва Слезам Не Верит
+005 Ю. Волкова - All Because Of You
+006 Steel Deluxe feat. Olya Milaxa - За Стенами
+007 Слава - Sex Не Любовь
+008 Тимур Темиров - Лето Жаркое
+009 Ани Лорак - Обними Меня Крепче(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 12:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B81933FC9610DF87FF9221A9C5FA18772E9ECA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904019   (656987) от 01.06.2015
 
 VA - Paris Lounge Airport (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -726,70 +790,6 @@ VA - Billboard Hot 100 Singles Chart 06th June (2015) [MP3|256-320 кб/с]<Hip-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C1352D1B5400D18669DB5AD3783B875CCD824EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513780   (658056) от 24.06.2012
-
-VA - Шоферской хитовичок в дорогу Vol. 4 (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658056.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Виталий Синица - Песня дальнобойщика (3:17)
-2. Юрий Соловей - Таксист (3:30)
-3. Юрий Белошевский - Инспектор ДПС (3:33)
-4. Катерина Голицына - Уезжаешь (3:11)
-5. Андрей Приклонский - Дорожная (4:25)
-6. Юрий Маковей - Полторуха (3:36)
-7. Евгений Шапорев - Такси - шансон (3:54)
-8. Владимир Самарин - Дорога (3:17)
-9. Сергей Куприк - Доброй дороги (2:57)
-10. Юрий Соловей - Дальнобойное сердце (2:56)2012Жанр: ШансонПродолжительность: 06:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C67806DD47B860F9AA1FCEDDFEEBE62351C624D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902767   (658081) от 31.05.2015
-
-VA - Black (2015) [MP3|320 кб/с]<Techno, Electro, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658081.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tom Nihil - 5MeO (6:38)
-2. KATA - Hole Mole (5:22)
-3. SKuRR - Sledgehammer (6:17)
-4. PSyD - Step In To The Darkness (3:13)(   Читать дальше...   )Жанр: Techno, Electro, DubstepПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F289DED8B6F4E456D5DD96E96E1342103535E40
 ```
 
 https://mybot314.ru/tekegram_catalog/

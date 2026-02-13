@@ -1,3 +1,177 @@
+###  Публикация: 1214855   (340423) от 28.10.2018
+
+МакSим - 5 Альбомов (2006 - 2015) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовь алого цвета
+02. Золотыми рыбками
+03. Иди
+04. В лето(   Читать дальше...   )Жанр: PopПродолжительность: 03:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA4B987378A17F180728F14617A6B6C06BA5A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578595   (340798) от 25.09.2022
+
+VA - Golden Pop Ballads '97 Volume 1 (1997) [FLAC|Lossless|image + .cue] <Pop, Ballads>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Braxton - Un-Break My Hear [4:34]
+02. No Doubt - Don't Speak [4:25}
+03. Spice Girls - 2 Become 1 [4:04]
+04. East Seventeen - Hey Child [4:34](   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55557D7D885EF4146383C050CE11D4335A8DD81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258022   (340903) от 28.10.2018
+
+Татьяна Снежина - Я не могу без тебя (2017) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой старый дом
+02. На далёкой станции
+03. Ночь пришла
+04. Млечного пути мостик(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93455A50053B4F01586D9466BF8D88954A2B57AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330511   (341000) от 10.10.2019
+
+ВИА «Синяя птица» - Белый теплоход (1995) Compilation [FLAC|Lossless|image + .cue] <Ретро, Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Белый теплоход (Ю. Антонов - В. Дюнин)[3:41]
+ 02 - В семь часов у Никитских ворот (Т. Ефимов - М. Любезнов)[3:54]
+ 03 - Я иду тебе навстречу (Ю. Антонов - В. Дюнин)[4:17]
+ 04 - В море ходят пароходы (И. Крутой - И. Шаферан)[3:39](   Читать дальше...   )Жанр: Ретро, Советская эстрадаПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA9AB51BF96B66B0A1E9750784C6FA1D1CDF7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330498   (341010) от 10.10.2019
+
+Ани Лорак - За мечтой (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341010.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы нарушаем
+2. Небо
+3. Я тебя ждала
+4. Запомни эту любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204EE21CAEA7B620EE7A08D9C10F12B12EA6644F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257954   (341065) от 28.10.2018
+
+VA - New Italo Disco Top 25 Compilation, Vol.10 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Momento - Forever (Short Remix)
+02. Naomi - Domani (Tomorrow) (Short Mix)
+03. Solitario - Leave Me Alone (Short Fly Mix)
+04. Momento - Never Too Late (Short Remix)(   Читать дальше...   )Жанр: Italo-Disco, NuDisco, HiNRG, DanceПродолжительность: 01:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78999D63DF733B7D70CD09F3642E71066998F21A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419105   (341850) от 27.10.2020
 
 VA - Now 100 Hits The Legends (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
@@ -571,180 +745,6 @@ Chantereau, Dahan & Pezin - Disco & Co  (vol. 1-3) (1979) 3 LP [MP3|320 Kbps] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBF58A18D74CDBE434A38ECC9029C9C25D0B4885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257764   (343442) от 27.10.2018
-
-C.J. & Co - Deadeye Dick (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Drums Of Fire (5:19)
-02. Deadeye Dick (6:58)
-03. Beware The Stranger (6:18)
-04. Big City Sidewalk (6:24)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43ECE365CAC4E91F100792C9A5363D7CE9FF42F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953994   (343820) от 06.11.2015
-
-Mylene Farmer - Interstellaires (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellaires
-02. Stolen Car (en duo avec Sting)
-03. À Rebours
-04. C'est pas moi(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67623C4C83805AFA98C5431EAE15146FD9FA73CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953840   (344162) от 06.11.2015
-
-Братья Жуковы - Засыпай (2015) [MP3|320 кб/с]<Поп>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Засыпай (03:35)
-02. Не надо (03:03)
-03. Глупая (03:40)
-04. Летний вечер (04:24)(   Читать дальше...   )Жанр: ПопПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD0CC6A930D708CD2634DEDAE86BD0A5BA840C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953361   (344163) от 06.11.2015
-
-Radiorama - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire (03:50)
-02. Yeti (05:49)
-03. Vampires (06:10)
-04. Chanse to desire (04:04)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9958093A1F1233969020DB2E451112EF17C81085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953984   (344258) от 06.11.2015
-
-Дмитрий Колдун - Манекен (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Почему
- 02. Манекен
- 03. Я буду любить тебя
- 04. Медленно(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FF20C4C3D4043ACCAB0DD42C4DF4ED73B8F557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954055   (344267) от 06.11.2015
-
-Lara Fabian - Ma Vie Dans La Tienne (2015) [FLAC|Lossless|WEB-DL]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quand Je Ne Chante Pas
-02. Ma Vie Dans La Tienne
-03. Le Désamour
-04. S'il Ne Reste Qu'un Ami(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D4CCC4DEAC45AE4876CF738E0646E06118F281
 ```
 
 https://mybot314.ru/tekegram_catalog/

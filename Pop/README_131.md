@@ -1,3 +1,61 @@
+###  Публикация: 1422581   (308560) от 09.11.2020
+
+Workout Music Tv - Running Fall Hits 2020 Session [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firework - Workout Remix 160 Bpm (4:12)
+02. Locked Out Of Heaven - Workout Remix 160 Bpm (4:12)
+03. Warrior - Workout Remix 160 Bpm (3:36)
+04. Crazy Train - Workout Remix 160 Bpm (4:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699BFF582C5B21F82CB23DB2C1B8615348648544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422559   (308561) от 09.11.2020
+
+Workout Music Tv - 40 Happy Aerobic & Cardio Hits 2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Got Love - Workout Remix 128 Bpm (4:33)
+02. Take Your Time - Workout Remix 128 Bpm (5:50)
+03. Faith - Workout Remix 128 Bpm (5:39)
+04. Good As Hell - Workout Remix 128 Bpm (4:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E78D94341BF9D6142072AF3ABF3D9C093A0C2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422564   (308565) от 09.11.2020
 
 Workout Music Tv - Best Happy Pop Hits 2020 For Jogging [MP3|320 Kbps] <Pop, Dance>
@@ -692,69 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8678C5B3166DAC7F68311A1E0409D6AB03D11A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583746   (311955) от 02.12.2012
-
-Mylène Farmer - Monkey Me (2012) [MP3|320 kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elle a dit (03:52)
-02. À l'ombre (04:51)
-03. Monkey Me (04:13)
-04. Tu ne le dis pas (04:22)
-05. Love Dance (04:06)
-06. Quand (04:07)
-07. J'ai essayé de vivre... (04:40)
-08. Ici-bas (04:33)
-09. A-t-on jamais (03:47)
-10. Nuit d'hiver (05:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D90B6361795CEBCA7BF32CC291296BE6E74E7A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260079   (312020) от 07.11.2018
-
-VERA - Полускромная; Слабая; Название альбома (2017-2018) 3 EP [MP3|320 Kbps] <Alternative Pop, Alternative Rock, Blues Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312020.jpg" />
-</div>
-
-
-###  Подробнее
-
-2017 - Полускромная
-2018 - Слабая
-2018 - Название альбомаЖанр: Alternative Pop, Alternative Rock, Blues Rock, Indietronic, RockПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:372188506D84981A6DA6C8E906A044D6CCEF3907
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1274127   (795050) от 05.01.2019
+
+Dreamtime - Farout (2009) [APE|Lossless|image + .cue] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleeping Prophet Part One (2:18)
+02. Ghosthack (5:47)
+03. Escape to the Past (6:16)
+04. New Horizons (6:51)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867A0498C0149BEA0D1929DA1990C43BE6AF6D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274172   (795054) от 05.01.2019
 
 VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
@@ -713,35 +742,6 @@ Monolog - Discography 16 Releases (2001-2020) Tender Productions, Hymen Records,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1BE436A301F8065CE26D546AE05ACA6217F97F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011572   (795965) от 28.04.2016
-
-Blue Man Group - Three (2016) [MP3|320 кб/с] <Electronic, Experimental>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dispatches 1
-02. The Forge
-03. Hex Suit
-04. 3 to 1 (feat. Mike Relm & Rob Swift)(   Читать дальше...   )Жанр: Electronic, ExperimentalПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CEC3262937F34474133F26EDFFC1ECB585AE5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

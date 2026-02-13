@@ -1,3 +1,67 @@
+###  Публикация: 559092   (408373) от 13.10.2012
+
+VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.25 (2012) [MP3|128-320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Мишель - Здравствуй, Знаешь
+02.Andamiro feat. Dani B. & Jonathan Carey - I Don't Care
+03.Dzham - Без Тебя
+04.Estela Martin feat. Young James - Love Me Tonight (Radio Edit)
+05.Денис Любимов - Ещё Не Закончен Бой
+06.Mavado feat. Karian Sang - Take It
+07.Пальчики Оближешь - Сжигаю Боль
+08.Carlprit - Fiesta (Michael Mind Project Radio Edit)
+09.Влад Соколовский - Мир Сошёл С Ума
+10.Olly Murs feat. Flo Rida - Troublemaker(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90676587F09C39839DC225A07911297BE35FE6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067268   (408382) от 28.10.2016
+
+VA - Блатная волна Радио Шансон (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Александр Вестов - Золушка 3:33
+002.Александр Закшевский - За Тобой 3:27
+003.Александр Келеберда - Все Лучшее В Прошлом 3:26
+004.Александр Климм - Верь Мне 3:53(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9D2E108A207EA6D8DFBF9519FA7D8980D347D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066747   (408391) от 28.10.2016
 
 VA - Promo Only Dance Radio October (2016) [320] <Tropical, Indietronica, Club, Progressive>
@@ -723,64 +787,6 @@ Compiled by ZeByte01. Redders - Vintage (feat.MC DRS) [04:54]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F2FDC013596A02FD7381019149F58679993DE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948951   (409439) от 21.10.2015
-
-VA - Новинки Шансона 38 (2015) [MP3|320 кб/с]<Шансон, Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Павел Павлецов - Крылья
-02. Сергей Куренков - Ангел мой
-03. Виктор Калина - Моя Наталья
-04. Дмитрий Прянов - Любить обещаю(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 05:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31458D4EA7B38FAD52980C2900AD37232BAFEBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413256   (409569) от 03.10.2020
-
-VA - The most fun Disco, let's dance! (2020) 5CD [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - I Want To Break Free
-02. Boney M. - Rivers of Babylon
-03. Blondie - Heart Of Glass
-04. Generation X, Billy Idol - Dancing with Myself (2001 Remaster)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 19:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D570AE2FE2710BDF415FAE1ABAF5E954D41F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

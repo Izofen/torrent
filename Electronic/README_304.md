@@ -1,3 +1,32 @@
+###  Публикация: 1039017   (598996) от 30.07.2016
+
+VA - Anjunadeep In Ibiza (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yotto - The Owls (07:55)
+02. Cubicolor - Mirror Play (feat Tim Digby-Bell) (05:56)
+03. Way Out West - Tuesday Maybe (I:Cube's Sunrise remix) (07:10)
+04. Lane 8 - Fingerprint (06:44)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695DDBB18FCD9D4A67B5F89363F03A09AB8C15EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038787   (599286) от 30.07.2016
 
 Chicane - Twenty (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Ambient>
@@ -710,35 +739,6 @@ VA - York Planet Chill: The Best Of Volume 1 (2015) [MP3|320 кб/с]<Chill Out,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF9D67E684F804D713747186E44B25FB3D26FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914150   (600435) от 01.07.2015
-
-VA - Sargamassa Ambient Ibiza (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rafal Kulik - Line from Snake Constellation [06:57]
-02. Pacator - Trдnen - Ambient Mix [06:27]
-03. Ambiworx - Swamp Ash Shuffle [07:42]
-04. Minor - Cafe Transparence [04:43](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892A56ABA25F9D5955040FE964E5503378E295F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

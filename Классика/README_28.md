@@ -1,3 +1,32 @@
+###  Публикация: 1300455   (588105) от 08.05.2019
+
+Neon Philharmonic Orchestra - Switched On Classics, Vol. 1 (1995?) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Classics On 45 (5:33)
+-Piano Concerto No. 1
+-Flight Of The Bumble Bee
+-Symphony No.40(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2131A755862D165C06E785696A2AAA5765EEDAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039865   (588294) от 03.08.2016
 
 Ensemble Guidantus - Antonio Vivaldi: Concertos RV 248, RV306, RV385, RV165, RV355, RV223 (2005) Promo [MP3|320 Kbps] <Classical, Baroque>
@@ -719,35 +748,6 @@ Secret Garden - Storyteller (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical Cros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D97F45E53FF8A32964F628E47C6724C04B771C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148904   (602475) от 09.07.2017
-
-New London Chamber Choir, James Wood - Secular Choral Music, Francis Poulenc -(2004) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Un soir de neige
-1. De grandes cuillers
-2. La bonne neige
-3. Bois meurtri(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6656BB9BF503D8458A2062D4F870B81A2E207A
 ```
 
 https://mybot314.ru/tekegram_catalog/

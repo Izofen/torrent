@@ -1,3 +1,61 @@
+###  Публикация: 1294199   (629455) от 07.04.2019
+
+VA - SEXofon (Relaxing and romantic saxophone music) (2019) [MP3|320 Kbps] <Dream SAX, Romantic Relax, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fausto Papetti - I Just Called To Say 'I Love You' 3:12
+02. Gil Ventura - Love Story 3:51
+03. Peter Schilperoort Quintet - Petite Fleur 2:29
+04. Sil Austin - Unchained Melody 2:44(   Читать дальше...   )Жанр: Dream SAX, Romantic Relax, InstrumentalПродолжительность: 03:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ECB3D85754B70D54329549E955CA5CF37D66226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229104   (629555) от 04.06.2018
+
+VA - Hot Dance Summer 2018 [MP3|256-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit - Solo (feat. Demi Lovato)
+02. David Guetta, Sia - Flames
+03. U2, Cheat Codes - Love Is Bigger Than Anything In Its Way
+04. Merk & Kremont, DNCE, Andrew Bullimore, Cole Whitt - Hands Up(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24739F82384A635B67EDDBF95A9999DD24352631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229115   (629558) от 04.06.2018
 
 VA - Club Dance Ambience Vol.150 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
@@ -699,70 +757,6 @@ VA - DJ Radio Show Latino RnB (2017) [MP3|192-320 Kbps] <RnB, Hip Radioshow>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF192EBCD6CE78B46BE61F2F171CC0761F74222C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144008   (631352) от 20.06.2017
-
-Zucchero - Hybrid of Zucchero Sugar Fornaciari (2017) [MP3|192-320 CBR,VBR Kbps] <Rock, Pop Rock, Blues>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamante
-02. Va pensiero
-03. Menta E Rosmarino
-04. Cosi Celeste(   Читать дальше...   )Жанр: Rock, Pop Rock, BluesПродолжительность: 04:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA883292DE3457A42088335F8FC8E5C0CDB7D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520530   (631420) от 09.07.2012
-
-VA - Шальной блатной музон (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631420.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Евгений Дашин - Были Встречи (2:41)
-2. Михаил Пермский - Таксисты (3:28)
-3. А.Т.А.С. - Города (3:26)
-4. Владимир Асмолов - Сон Любви (4:09)
-5. Маргарита Орская - Загуляю (2:50)
-6. Александр Егоров - Отбой (2:56)
-7. Владимир Соболь - Водка, водочка (3:32)
-8. Грин Гарик и группа На Троих - Морошка (3:08)
-9. Валерий Лукашевский - Каприз (3:29)
-10. Николай Тимошенков - У камня (3:37)Жанр: ШансонПродолжительность: 06:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7492E3618D291673E144CF9BEB2646A09064F1F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

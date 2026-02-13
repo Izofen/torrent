@@ -1,3 +1,32 @@
+###  Публикация: 1168779   (404924) от 25.09.2017
+
+VA - Black Hole Presents Best Of Vocal Trance Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cosmic Gate & JES - Fall Into You (Sunny Lax Remix)  5:58
+02.  Markus Schulz - In The Night (feat. Brooke Tomlinson) (4 Strings Remix)  5:19
+03.  Artisan - Thank You (feat. Anki) (Extended Mix)  5:18
+04.  Planet Perfecto - Bullet In The Gun (Timelapse By Marco V Remix)  5:07(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9238B3B8585A271B017FD9AAFDBB156F152DB96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168839   (404984) от 25.09.2017
 
 Richard Clayderman - Movie Favourites (2017) [FLAC|Lossless|tracks] <Easy Listening>
@@ -761,35 +790,6 @@ Timecop1983 - Night Drive (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA3D6D3E7B24F28228EB2589D7D829D3B1224567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252576   (407990) от 06.10.2018
-
-Andrea Parker - Discography 18 Releases (1995-2011) Touchin' Bass, Mo Wax [FLAC|Lossless|tracks+.cue, tracks] <Electro, Abstract, Leftfield, IDM, Downtempo, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Parker / David Morley - After Dark (04:39)
- 02. Andrea Parker - Empty Words (04:52)
- 03. Clatterbox - Peripheral Vision (03:08)
- 04. Two Sandwiches Short Of A Lunchbox - Too Good To Be Strange (01:14)(   Читать дальше...   )Жанр: Electro/IDM/ExperimentalПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312F56B6B2182CFE937787D98EFAFE3195220086
 ```
 
 https://mybot314.ru/tekegram_catalog/

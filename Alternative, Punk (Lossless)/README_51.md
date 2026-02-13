@@ -1,3 +1,32 @@
+###  Публикация: 1289284   (686756) от 16.03.2019
+
+Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Jazz-Rock, Indie-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corner Painter
+02. Counterfeit
+03. Hard To Be Alone
+04. Haunted Love(   Читать дальше...   )Жанр: Alternative, Jazz-Rock, Indie-PopПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F8F683639336E8058C50D7CA1DCBCB756B18F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403642   (688449) от 21.08.2020
 
 The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
@@ -716,35 +745,6 @@ The 1975 - I Like It When You Sleep, for You Are So Beautiful Yet So Unaware of 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD9511BB49F040E89A9E1F3F95F41A7031EE04F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131972   (700844) от 09.05.2017
-
-Grayscale - Adornment (2017) [FLAC|Lossless|tracks|WEB] <Alternative, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Let It Rain (03:07)
-2. Come Undone (feat. Patty Walters) (03:30)
-3. Slipping Away (03:34)
-4. Atlantic (03:53)(   Читать дальше...   )Жанр: Alternative, Pop-PunkПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E7FB837C91DB3E17C75FAC8CCE8F9793265275
 ```
 
 https://mybot314.ru/tekegram_catalog/

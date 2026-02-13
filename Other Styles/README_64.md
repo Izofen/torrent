@@ -1,3 +1,32 @@
+###  Публикация: 1172136   (392902) от 08.10.2017
+
+Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Deal With The Devil
+02. Don't Deal With The Devil (Instrumental)
+03. Introduction
+04. Tutorial(   Читать дальше...   )Жанр: Score / Jazz, Stage & ScreenПродолжительность: 02:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340C29F5700769848F3D079CC5F558A91FD55DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171826   (393706) от 07.10.2017
 
 Hans Zimmer & Benjamin Wallfisch - Blade Runner 2049 / Бегущий по лезвию 2049 (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -740,35 +769,6 @@ Jean-Michel Jarre - Original Album Classics 5CD (2017) Remastered [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78663E68EB41F7DC3F6FBBAB0CD53E83D819281E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169978   (400505) от 30.09.2017
-
-Medwyn Goodall - Stepping Stones (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sovereign
-02. Dreamweaver
-03. Unbroken
-04. Daybreak(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51EDDB4FCF4153C873707FB5EDA37F804A1FDDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

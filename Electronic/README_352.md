@@ -1,3 +1,32 @@
+###  Публикация: 1403078   (695942) от 17.08.2020
+
+VA - Discover Trance 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sly One vs. Jurrane - Everything to Me (Original Mix) (8:36)
+02. Adam Foley - Fourteen Falls (Original Mix) (8:21)
+03. Gary Maguire - Secrets (Original Mix) (7:29)
+04. Tom Colontonio - Subdued (Mike Nichol Remix) (7:50)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B4F0AA5243412C3C8D9F9DCB8A8A6EBC38B9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027573   (696292) от 19.06.2016
 
 Bassnectar - Unlimited (2016) [FLAC|Lossless|tracks] <Electronic, Breakbeat, Dubstep>
@@ -716,35 +745,6 @@ Alex Cortiz - Oddities (2016) [MP3|320 кб/с] <Downtempo, Electronic, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD173F2A2C7F60298F25793A2CDE1B97FCB72F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221104   (698512) от 22.04.2018
-
-VA - Instrumental Club Hits (2018) [MP3|320 Kbps] <Dance, Club-House, Electro-House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernd Loorbach - Cafe Del Mar (TbO and Vega Trance Mix) (04:57)
-02. Project Blue Sun - Fiesta (Club Mix) (07:17)
-03. KCB - 9 PM (Till I Come) (Klubbmix) (04:54)
-04. Naxwell - Fable (Club Mix) (05:19)(   Читать дальше...   )Жанр: Dance, Club-House, Electro-HouseПродолжительность: 01:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF37CF8E22772C77AD5CB05876417E6271D97A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

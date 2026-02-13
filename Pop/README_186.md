@@ -1,3 +1,186 @@
+###  Публикация: 1315552   (512857) от 20.07.2019
+
+Jackie Robinson - I'm Different (1976) [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up Jones (4:15)
+02. Stone The Crows (3:03)
+03. Moving Like A Superstar (3:25)
+04. Mother (4:03)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2554CBF1819E49FA7F34A832DD7EF64B7DECB7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375685   (513090) от 14.08.2011
+
+C.C. Catch - Super Disco Hits (1989) [FLAC|Lossless]<Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreak Hotel (''Room 69'' Mix)   [04:55]
+02. One Night's Not Enough (Maxi Version)   [05:17]
+03. Back Seat Of Your Cadillac   [05:21]
+04. I Can Lose My Heart Tonight (Extended Club Remix)   [05:54](   Читать дальше...   )Жанр: Disco, Euro-DiscoФормат: CD, CompilationПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375833   (513164) от 14.08.2011
+
+Modern Talking - Romantic Dreams (1988) [FLAC|Lossless]<EuroPop, Synth-pop, Disco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: EuroPop, Synth-pop, DiscoПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536796   (513266) от 19.08.2012
+
+VA - Best Of Dance '85 '86 '87 ZYX Music (1995-1997) [MP3|320 кб/с]<Pop, Disco, Retro, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick Astley - Never Gonna Give You Up [03:34]
+02. Delegation - Where Is The Love (We Used To Know) [04:18]
+03. OFF - Electrica Salsa [03:34]
+04. Man To Man Meet Parish - Male Stripper [04:06]
+05. Mel & Kim - Showing Out [05:10]
+06. Eddy Huntington - U.S.S.R. [03:26]
+07. Tina Charles - I Love To Love [03:06]
+08. Silver Pozzolli - Pretty Baby (Italo Boot Mix) [01:54]
+09. Albert One - For Your Love (Italo Boot Mix) [01:56]
+10. Solo - Harem (Italo Boot Mix) [00:56](   Читать дальше...   )Жанр: Pop, Disco, Retro, Italo-DiscoПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA37C1ED99AD719563DDD857F9A52F456300744B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535712   (513362) от 19.08.2012
+
+Brainstorm - Another Still Life (English version) (2012) [MP3|320 kbps] <Indie-Rock / Pop Rock / New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lantern (04:27)
+02. Europa (04:43)
+03. So Low Lullaby (04:21)
+04. Don't You Get It (02:12)
+05. Queen of England's Treasure (03:41)
+06. Mēles (04:08)
+07. Men of Snow (02:58)
+08. Violet (04:52)
+09. Another Still Life (04:16)
+10. Knife (04:05)(   Читать дальше...   )Жанр: Indie-Rock / Pop Rock / New WaveПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039039F94DADF9620905260DEA248ABF51643780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561538   (513530) от 06.07.2022
+
+Barbra Streisand - Rose Of New York City: Barbra, 1961-1962 Live Recordings (2022) Remastered [FLAC 2.0|96/24|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sleepin' Bee (The Tonight Show, April 1961) (Remastered)
+02. Moon River (P.M. East, January 1962) (Remastered)
+03. When The Sun Comes Out (The Garry Moore Show, May 1962) (Remastered)
+04. Happy Days Are Here Again (The Garry Moore Show, May 1962) (Remastered)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AADEB08F5E41EC0E9708FF4172AF2CFA3B91AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315356   (513721) от 19.07.2019
 
 VA - Best Radio Tracks, Vol. 17 (2019) [MP3|320 Kbps] <Dance, Pop, Electronic>
@@ -575,180 +758,6 @@ Chris de Burgh - Footsteps (2008) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14A93C02950BF2765EE74E1C8362E839D667C528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930096   (515298) от 23.08.2015
-
-One Dove - Morning Dove White (1993) [MP3|256 кб/с]<Trip-Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515298.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fallen (7:18)
-2. White Love (Guitar Paradise mix) (10:15)
-3. Breakdown (Cellophane Boat mix) (6:39)
-4. There Goes the Cure (8:03)(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEBC88111F6E9430A03549E04E43271CCA16E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561342   (515523) от 04.07.2022
-
-VA - 80's Hits (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - What's Love Got to Do with It (3:50)
-02. Limahl - Never Ending Story (3:30)
-03. a-ha - Take On Me (3:48)
-04. Narada Michael Walden - Gimme Gimme Gimme (feat. Patti Austin) (4:41)(   Читать дальше...   )Жанр: PopПродолжительность: 03:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6386887EE340DAA7EA906A9802034F17B488DBF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242343   (516040) от 21.08.2018
-
-Whitney Houston - I Wish You Love: More From The Bodyguard (2017) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Always Love You (Alternate Mix) (5:04)
- 02. I Have Nothing (Film Version) (4:56)
- 03. I'm Every Woman (Clivillés & Cole House Mix I Edit) (5:43)
- 04. Run to You (Film Version) (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5E740F26DF926A37744787F58CFFDBEF8B3FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315021   (516073) от 17.07.2019
-
-Oliver Cheatham - Get Down Saturday Night (1983) 1990 [FLAC|Lossless|tracks + .cue] <House, Soul, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Get down Saturday Night (Remixed by Matiz - AC16) (06:46)
-02 Make your mind up (04:20)
-03 Something about you (04:37)
-04 Bless the ladies (04:15)(   Читать дальше...   )Жанр: House, Soul, Funk, DiscoПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D70E3FDFE602473924B6605B8EA76F73A59F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241883   (516118) от 21.08.2018
-
-VA - Classic Pop - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516118.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. ABC - The Look Of Love
-02. Madness - Baggy Trousers
-03. Culture Club - Karma Chameleon(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A0B396E18FF3421E7280E199FE53D83B84524C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242014   (516998) от 20.08.2018
-
-VA - Ibiza House Anthems: The Summer 2018 (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.G. The Prince Of Rap feat. Timi Kullai & Nathan Reynolds III - You'll Be Mine (Chrizz Morisson Remix) 3:31
-02. Sync Diversity - The Meaning (Randy Norton Tropical Remix) 3:55
-03. Frank Clarck feat. Anne Marie Bush - You Belong To Me 4:32
-04. Chrizz Morisson feat. Timi Kullai - Here I Go 2018 (Dolls Edit) 3:09(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC8A7DB7B7A8787BD26E926A56B38F60262A7715
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 994470   (889801) от 08.03.2016
+
+VA - Радио Шансон. Подарок любимой женщине (2016) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889801.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Александр  Маршал и Ариана-Я тебя никогда не забуду
+002.  Владимир  Асимов-Ближе тебя
+003.  Анатолий  Корж-Красивая  и  смелая
+004.  Виктор  Королев-Алые  розы(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6919EC60E5C3194F76642AEF71A5837C961F0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994717   (889802) от 08.03.2016
+
+VA - Top 100 Order Vocal Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889802.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Radion6 & Neev Kennedy - Nothing Here But Goodbye (Ron Alperin Remix)
+002. Dash Berlin - Till The Sky Falls Down (Andrew Rayel Radio Edit)
+003. Kaimo K - Love Will Never Leave (Radio Edit)
+004. Orjan Nilsen Ft Mike James - What It's All About (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Uplifting, Progressive TranceПродолжительность: 09:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661515929CBE5DE7F1F1861EA201640DEF7F3375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994462   (889823) от 08.03.2016
 
 VA - Clubничка №100 (2016) [MP3|256 кб/с] <Club , Dance>
@@ -692,64 +750,6 @@ VA - Star Hit. Самая желанная (2016) [MP3|192 kbps - 256 kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0C13D7D33BADDD4F017077D179A4A9B94D88AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994199   (891644) от 07.03.2016
-
-VA - Ibiza Dance Sensation (2016) [MP3|320 кб/с] <Soulful, House, Funky, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankyboy - You Make Me (Original Mix) 05:00
-02. Escadia - Far Cry (Original Mix) 06:48
-03. Delighters, Viofly & Stev Dive - My Music (Original Mix) 05:01
-04. Yanter - Down Dugs (Original Mix) 05:21(   Читать дальше...   )Жанр: Soulful, House, Funky, Nu DiscoПродолжительность: 02:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E590AE97341FF0617FB7909F1B0820EDDA676031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994271   (891649) от 07.03.2016
-
-VA - Милым дамам к празднику весны (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Светлана Тарабарова - Главный Герой.mp3
-002.  Авиатор - В Твоих Глазах.mp3
-003.  SAHA - Всего Лишь Три Слова.mp3
-004.  Алекс Юлдашев - Сердцебиение.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856898FAFD325C7494054520C1A3A12714BC781E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 371249   (523685) от 04.08.2011
+
+A-ha - 25 (The Very Best of A-ha) 2CD (2010) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move To Memphis (Single Version)
+02. Dark Is The Night For All
+03. Cold As Stone (Re-Mix)
+04. Angel In The Snow (Edit)
+05. Shapes That Go Together
+06. Summer Moved On
+07. Minor Earth Major Sky (Niven's Radio Edit)
+08. The Sun Never Shone That Day (Radio Edit)
+09. Velvet
+10. Forever Not Yours(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927785   (524059) от 14.08.2015
+
+Hanne Sorvaag - Talk Of The Town (2006) [FLAC|image + .cue]<Pop / Soft Rock / Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk Of The Town [04:08]
+02. Let The Rain Come Pouring Down [03:19]
+03. I Don't Feel A Thing [03:34]
+04. Suewie [03:25](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2F4822E2DE952550BE0DFA013948691BFF4FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927851   (524064) от 14.08.2015
+
+Bim - Two (2015) [OGG| 448-524 кб/с]<Alternative, Indie Pop, ELectronic, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Look (03:28)
+02. My Body My Mind (03:34)
+03. Atlas (03:22)
+04. The Show (01:01)(   Читать дальше...   )Жанр: Alternative, Indie Pop, ELectronic, AcousticПродолжительность: 00:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1A0EF3B1A84C34B71C20AD81F63036C9E0761C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927822   (524107) от 14.08.2015
+
+Виола - Понимаешь (2004) [TAK|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Понимаешь
+03. Я тебя люблю
+04. Океан(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50187916C663C438BBF9C86D1D601CC9CAAB8119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053743   (524194) от 18.09.2016
+
+Тутси - Капучино (2007) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Он ушёл
+02 - Сама по себе
+03 - Холодно мне
+04 - Незамужняя(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F531E4FA2CD5B8DBA385D23822C1B86B36F4A7A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240466   (524526) от 12.08.2018
+
+Giusy Ferreri - Hits (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volevo te (2:50)
+02. Come un'ora fa (2:55)
+03. Prometto di sbagliare (3:23)
+04. Roma - Bangkok (feat. Baby K) (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFF54BFB3E75865701F05A0F4329673650EF626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157885   (524645) от 13.08.2017
 
 VA - NRJ Summer Hits Only (3CD) (2017) [MP3|320 Kbps] <Pop, RnB, Dance>
@@ -570,181 +750,6 @@ VA - The Best Projects Of Dieter Bohlen (1989) [APE|Lossless]<Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B30AB3B9334D6F1D9D837AA8E4C17EE19228644C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156060   (527599) от 07.08.2017
-
-Ken Laszlo - Disco collection (2002) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hey Hey Guy
-02.Tonight
-03.Don't Cry
-04.1,2,3,4,5,6,7,8(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F16F6655D80BB41AC837B67405D65B37EA7BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156100   (527604) от 07.08.2017
-
-D. White - One Wish (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fоllоw Mе
-02. Оnе Wіsh
-03. Wаlkіng
-04. Оnе Dау(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4848C5DC41A767A6D729DB28BD558491ECE6BEF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156392   (527658) от 07.08.2017
-
-VA - Het Allerbeste Uit Radio1 Classics 1000 (2017) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Queen - Killer Queen  3:01
-02.  U2 - One  4:35
-03.  The Beach Boys - God Only Knows  2:51
-04.  Bob Dylan - Hurricane  8:34(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92879EA246DD2E914A8488C74FECA8F9BED57490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156379   (527665) от 07.08.2017
-
-Patrick Cowley - 3 Studio Albums (1981-1982) LP [MP3|320 Kbps] <Electro, Hi NRG, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патрик Коули (англ. Patrick Cowley; 19 октября 1950, Буффало, штат Нью-Йорк, - 12 ноября 1982, Сан-Франциско, Калифорния) -  американский музыкант и композитор работавший в жанрах Disco, Synth-pop и Hi-NRG. Создал практически все свои композиции - хитами и безвременно - печально покинул этот, жаждавший от него дальнейшего продолжения - мир.Список альбомов:
-1981 - Menergy
-1981 - Megatron Man
-1982 - Mind Warp(   Читать дальше...   )Жанр: Electro, Hi NRG, Synth-pop, DiscoПродолжительность: 01:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1534107F1EE98033E2213B4F6DD2519EF40CE3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558887   (527745) от 23.06.2022
-
-Vanessa Mai - No Hard Feelings (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Hard Feelings (2:38)
-02. Schwarze Herzen (2:24)
-03. Melatonin (2:19)
-04. Happy End (feat. Sido) (2:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F187E0A98438A047F092C5CBE82D955C191FCB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313235   (528109) от 07.07.2019
-
-VA - Top Of The Pops '1984 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528109.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так -  продолжаем путешествие по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского сингла. (   Читать дальше...   )CD1:
-01. Chaka Khan - I Feel For You  (4:11)
-02. Cyndi Lauper - Girls Just Wanna Have Fun  (3:48)
-03. Kenny Loggins - Footloose  (3:42)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 03:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4F66040D374319A3D08E378561B83F2EDD3889
 ```
 
 https://mybot314.ru/tekegram_catalog/

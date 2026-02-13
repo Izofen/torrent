@@ -1,3 +1,32 @@
+###  Публикация: 1157349   (525533) от 11.08.2017
+
+VA - Trance Hits Top 20: 2017-08 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenishia – Sun Comes Again (feat. Jonathan Mendelsohn) (Eximinds Remix) (03:26)
+02. Fisherman & Hawkins – Antidote (Dave Neven Remix) (03:30)
+03. Airscape – Be Who You Are (03:28)
+04. Robert Nickson – Euphorica (04:18)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E71006884438AFCC021BE680E9C9A0EBEFB03C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157386   (525534) от 11.08.2017
 
 L'Ombre - Discography 4 Releases (2002-2009) Ant-Zen [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient, Industrial, Experimental>
@@ -715,35 +744,6 @@ VA - Ibiza Beach Vibes Vol 1 (Finest Balearic Deep House) (2017) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86BDCE4575D236F0864A2C63F95BE68AF156650A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156264   (527734) от 07.08.2017
-
-VA - Big House Nights (25 Groovy House Tunes) Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereoliner & Cirque Du Freak - Freakshow (Club mix)
-02. Chris Ve - I Got It
-03. Seolo - My Time (Radio Edit)
-04. TittoBlast & Olesia Bond - Ghetto Blaster(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB4C2112DAEAAB2D6E3CAE1F6219C48B1A02626
 ```
 
 https://mybot314.ru/tekegram_catalog/

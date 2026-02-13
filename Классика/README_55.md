@@ -1,3 +1,32 @@
+###  Публикация: 1437110   (1042242) от 04.01.2021
+
+VA - Relaxing 2021 [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042242.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Claude Debussy, Arturo Benedetti Michelangeli. Preludes Book 1, L. 117 8. La fille aux cheveux de lin (2:50)
+002. Frederic Chopin, Maria Joao Pires. Nocturne No. 1 in B-Flat Minor, Op. 9, No. 1 (5:36)
+003. Frederic Chopin, Maria Joao Pires. Nocturne No. 2 in E-Flat, Op. 9, No. 2 (4:29)
+004. Claude Debussy, Alexis Weissenberg. Suite bergamasque, L. 75 III. Clair (   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43CF3FA0A6501D28C0AFCABF86AE822688AB87DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436995   (1042249) от 04.01.2021
 
 J. S. Bach ‎ - Organ Works (Lionel Rogg) (1998) [FLAC|Lossless|image + .cue] <Classical, Baroque>

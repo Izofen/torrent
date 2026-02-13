@@ -1,3 +1,177 @@
+###  Публикация: 1484813   (1005803) от 22.07.2021
+
+VA - Cosmic Discotheque - 12 Junkshop Disco Funk Gems From The 70s (2021) Vol.4, LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fu King - Fu King (1975) (3:15)
+02. Kebekelektrik - War Dance (1978) (3:28)
+03. Epsilon - Wake Up (1976) (3:15)
+04. Kawasaki Band - Japan Disco (1978) (2:56)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D03A01991D03AD31843E6FEC7015A9550E9E76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484862   (1005806) от 22.07.2021
+
+Олег Газманов - 7:0 в мою пользу (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005806.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Отбой
+2. Скорая помощь
+3. Крылья
+4. В городе сонном (feat. Валерия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCB26124430490DAECEB0FF11D5D2609851E512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484777   (1005821) от 22.07.2021
+
+Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break My Heart Myself (feat. Travis Barker)
+02. Sabotage
+03. Trust Fall
+04. Better Mistakes(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B70F5718B576FA6E73490D435C3181EBFA6BE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484592   (1005938) от 21.07.2021
+
+VA - Summer Body Fitness Hits (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riley Simpson - Paradise (02:50)
+02. Nicholas Carr - Circles (03:35)
+03. Alan Jensen - Ride It (02:40)
+04. Callum Hunt - Hot Girl Bummer (03:05)(   Читать дальше...   )Жанр: PopПродолжительность: 02:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1871A8E54EE9AE2E6FF1AA5B223854D7122A5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484470   (1006142) от 19.07.2021
+
+VA - Sweaty Workout Hits (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lenox Hills - WITHOUT YOU (02:41)
+02. Winston Ross - Heather (03:15)
+03. Warren Campbell - Golden (03:29)
+04. Thomas Leroux - Lonely (02:30)(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B533F4BAAF8DCC5F2E6F49B4CC2D37241B46A57B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484131   (1006295) от 18.07.2021
+
+Tina Turner - Foreign Affair (1989) 4CD, Remaster, Capitol Records, 2021 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best (Live in Barcelona 1990; 2021 Remaster) [00:05:47]
+02. I Don’t Wanna Lose You (Live in Barcelona 1990; 2021 Remaster) [00:05:45]
+03. What's Love Got To Do With It (Live in Barcelona 1990; 2021 Remaster) [00:06:33]
+04. Let's Stay Together (Live in Barcelona 1990; 2021 Remaster) [00:07:27](   Читать дальше...   )Жанр: PopПродолжительность: 4CD, 03:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63DB9F0FB0CA1BAA9E66B3E58E3AF98663D9DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483954   (1006482) от 16.07.2021
 
 VA - 100 Greatest TikTok Songs & Viral Hits (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -572,180 +746,6 @@ VA - Песня года Беларуси (2004) [FLAC|Lossless|tracks + .cue]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA55265855ECD9DAFE00C48C46F7F01749024599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479375   (1009259) от 26.06.2021
-
-Винтаж (Анна Плетнева) - 9 альбомов, 4 сборника, 1 концерт, 23 сингла (2007-2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009259.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 - Криминальная любовь
-2009 - Sex
-2011 - Анечка
-2013 - Very DanceЖанр: PopПродолжительность: 13:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCADEA3489214F0425094D29B5339AA54FFCD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479926   (1009298) от 26.06.2021
-
-Andy Williams - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop, Vocal, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Howard Andrew Williams (3.12.1927 - 25.09.2012) - американский певец, который провел на музыкальных подмостках 74 года своей жизни и активно занимался музыкальной индустрией вплоть до своей смерти в 2012 году. За свою карьеру он записал 43 альбома, 18 из них стали золотыми и 3 получили платиновый сертфикат. По всему миру было продано более 100 млн пластинок с его (   Читать дальше...   )CD - 1:
-01. Can't Get Used To Losing You (2:21)
-02. Music To Watch Girls By (2:31)
-03. Speak Softly Love (Love Theme from ''The Godfather'') (3:03)(   Читать дальше...   )Жанр: Pop, Vocal, OldiesПродолжительность: 03:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34B1B2749C17246DBBDF340AF5D36D028E911B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479598   (1009559) от 24.06.2021
-
-VA - Female Voices (2021) Explicit [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Rodrigo - drivers license (04:02)
-02. Hailee Steinfeld - Let Me Go (02:54)
-03. Selena Gomez - Lose You To Love Me (03:26)
-04. Bülow - Revolver (02:48)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ACE4757128EFAF306585D303EF1E4BD37B4265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479490   (1009586) от 24.06.2021
-
-VA - You're In My Heart: Acoustic Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rod Stewart - You're In My Heart (The Final Acclaim)
-02. Tamia - Officially Missing You
-03. Jess Glynne - I'll Be There (Acoustic)
-04. Donna Lewis - I Could Be the One(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E4D548DFCBC86E8270840F7BD4C4186B297238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479524   (1009600) от 24.06.2021
-
-Melanie C - In And Out Of Love (Acoustic) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In And Out Of Love (Acoustic)
-02. Who I Am (Acoustic)
-03. Never Be The Same Again (Acoustic)
-04. Too Much (Acoustic)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881360CD3407F5280DDF17F0D7D616CEAA3FE235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479410   (1009720) от 23.06.2021
-
-VA - Acoustic Pop 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Stay With Me - Live At Abbey Road Studios (3:46)
-02. Katy Perry - The One That Got Away - Acoustic (4:19)
-03. Sarah Jarosz - I Still Haven't Found What I'm Looking For (3:32)
-04. Milo Meskens - Daddy Issues - Acoustic Version (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DE311485477A0D300A34A41150651B9E08BB04
 ```
 
 https://mybot314.ru/tekegram_catalog/

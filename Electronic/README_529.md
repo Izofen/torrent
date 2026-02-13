@@ -1,3 +1,32 @@
+###  Публикация: 1615366   (1037845) от 25.02.2023
+
+VA - The Sound of 2023 Mix 4: Kuala Lumpur (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Tech Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mac & Monday, Difstate -  Opmet (Difstate Remix)  (5:52)
+02.  Daniel Testas -  Hypogeal  (5:15)
+03.  Bjorn Fogelberg -  One Thousand Days  (6:17)
+04.  Kay-D -  Generation Spiral  (5:09)(   Читать дальше...   )Жанр: Progressive House, Techno, Tech TranceПродолжительность: 01:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C43C037C1366ECBA05514CF903CA8B1C1E23DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615190   (1037851) от 25.02.2023
 
 Diary of Dreams - Melancholin (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Goth Industrial>
@@ -713,35 +742,6 @@ VA - Defected Presents House Masters - Mr. V (2022)[FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:381C57D6C86A27659FF1194823E2ABD68EB8407C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613985   (1039087) от 20.02.2023
-
-VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blufeld -  Allusive Alive  (6:00)
-02.  Gabriel Carminatti, Abel Mezzomo -  Ignition  (4:19)
-03.  Vladislav Maximov, 3-YA -  Heartbeat  (3:52)
-04.  DatabassЖанр: Progressive House, Techno, TranceПродолжительность: 01:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DC7EC3732B648A7383405ECFADA9DB6DBEE857
 ```
 
 https://mybot314.ru/tekegram_catalog/

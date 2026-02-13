@@ -1,3 +1,32 @@
+###  Публикация: 1401184   (711014) от 09.08.2020
+
+Delpano Shock - Wired (2020) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wired [00:04:43]
+02. Runaway [00:03:34]
+03. Powerlines [00:03:29]
+04. Neon Void [00:03:34](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A78D15D3B1D388A87F05CE5588ECCCCECE8A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400965   (711151) от 09.08.2020
 
 Ost+Front - Dein Helfer In Der Not (2020) 3xCD [FLAC|Lossless|image + .cue] <Industrial Metal>
@@ -712,35 +741,6 @@ Entheogenic - Animism (2020) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C7713B0DCCFFF1F7C9924BEECC9255FED261306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111571   (712926) от 02.03.2019
-
-Jens Vydt (Herbstlaub, Die Nachtstunde) - Discography 15 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal, IDM, Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gemeinsam. (08:40)
- 02. Im Fernblau. (07:35)
- 03. Herbsttau. (02:48)
- 04. Und es nachtet. (07:42)(   Читать дальше...   )Тип издания: WEB •Жанр: Ambient, Experimental, Minimal, IDM, Techno •Продолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A62D366628D28695CD49A3B131213C3B1E7F582
 ```
 
 https://mybot314.ru/tekegram_catalog/

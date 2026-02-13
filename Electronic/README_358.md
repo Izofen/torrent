@@ -1,3 +1,32 @@
+###  Публикация: 1111571   (712926) от 02.03.2019
+
+Jens Vydt (Herbstlaub, Die Nachtstunde) - Discography 15 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal, IDM, Techno>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gemeinsam. (08:40)
+ 02. Im Fernblau. (07:35)
+ 03. Herbsttau. (02:48)
+ 04. Und es nachtet. (07:42)(   Читать дальше...   )Тип издания: WEB •Жанр: Ambient, Experimental, Minimal, IDM, Techno •Продолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A62D366628D28695CD49A3B131213C3B1E7F582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532714   (712927) от 20.02.2022
 
 Spacehawk - Space Opera (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco, Spacedance>
@@ -716,35 +745,6 @@ VA - Bhudda Propensity (Deep Serendipity Mind State) (2017) [MP3|320 Kbps] <Bale
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63A53F9544413046495081894F64EF1C7302A5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130648   (714487) от 02.05.2017
-
-VA - Chill Out Brain Playlist (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nils Hahn - Piange dolcemente [00:05:22]
-02. Chris Snelling - Hoppipolla [00:02:57]
-03. Ethereal Isolation - Take Me With You [00:03:42]
-04. Unique Chill - Destiny [00:03:13](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0B577C27CCBB2BF215D712B1CB91759C78B255
 ```
 
 https://mybot314.ru/tekegram_catalog/

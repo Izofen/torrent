@@ -1,3 +1,32 @@
+###  Публикация: 990174   (912166) от 25.02.2016
+
+VA - Carnaval Electro 2016 (Deluxe Edition) (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Dyson — Alcatrax Vol. 1 (Miles Dyson Breakfest Edit)
+ 02. Aaren San — Friction (Davis Kay Remix)
+ 03. Bad Tempo — Partycool Accelerator (Original Mix)
+ 04. PrototypeRaptor — ECSD (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD10D4CCB397A32EC578ED8B26432681B38266F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990428   (912174) от 25.02.2016
 
 VA - Reflections (Dub) (2015) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Minimal, Ambient, Downtempo>
@@ -707,41 +736,6 @@ Hybrid - Black Halo (Special Edition) - 2021 [FLAC|Lossless|WEB-DL|tracks] <Brea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ACE9E6A1DD9C0FBEB49F45100D9DB424C4A95BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289452   (915160) от 02.02.2011
-
-Owl City - Ocean Eyes Deluxe Edition-2CD (2009) [FLAC|Lossless]<synthpop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915160.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-  1. Cave In (00:04:02)
-   2. The Bird and the Worm (00:03:28)
-   3. Hello Seattle (00:02:47)
-   4. Umbrella Beach (00:03:51)
-   5. The Saltwater Room (00:04:03)
-   6. Dental Care (00:03:11)
-   7. Meteor Shower (00:02:14)
-   8. On the Wing (00:05:01)
-   9. Fireflies (00:03:48)(   Читать дальше...)Жанр: synthpop, ElectronicПродолжительность: 1:48:27
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

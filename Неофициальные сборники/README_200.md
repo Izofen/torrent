@@ -1,3 +1,61 @@
+###  Публикация: 1074028   (340366) от 18.11.2016
+
+VA - Осторожно!!! Лавина хитов (2016) [MP3|256~320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340366.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sia - Never Give Up 3:42
+002. Татьяна Решетняк - Осень 3:29
+003. Hann - Я Тебя Приму Любой 2:58
+004. Brandon Stone & Вахтанг - Она 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA412DD8F14F1235DF78E3A3DF034D63A132B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074064   (340367) от 18.11.2016
+
+VA - EDM Top 50 [Compiled by Zebyte] (2016) [MP3|320 Kbps] <EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Campell - Tonight (Holmes & Watson Remix) [02:42]
+02. Patrick Miller - Who's Gonna Know (David May Remix) [03:22]
+03. Andrew Spencer & Aquagen - Here Without You 2.5 (Cj Stone Festival Remix) [03:23]
+04. Astoria Feat. Pitbull - Show Me What U Got (Bodybangers Remix) [03:35](   Читать дальше...   )Жанр: EDMПродолжительность: 05:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDB24957C0F340A75B19FCEB7E2C25C5AB9CB8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257846   (340497) от 28.10.2018
 
 VA - Громкие новинки месяца Vol.15 (2018) [MP3|320 Kbps] <Pop>
@@ -714,64 +772,6 @@ VA - Clubsolute 2016.01 (2015) [MP3|320 кб/с]<House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0099ECD8124C6C9D0C6D8E8F261FB3CEE6F011BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419107   (341924) от 27.10.2020
-
-VA - Music News vol.43 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Skaya - Мальчик-Футболист (02:55)
- 002. 2Wizard - Levitation (07:17)
- 003. 3 Inches of Blood - Deadly Sinners (04:31)
- 004. 7Roses - Out Of Control (04:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15866E5D8215B2256957AD637AB18532F5CA0DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180153   (342067) от 03.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 001 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мираж - Звезды Нас Ждут ( 1987 )
-02. Ласковый Май - Озорная Девчонка ( 1990 )
-03. Мона Лиза - Наши Бабы Лучше Аббы! ( 1994 )
-04. Кристина - С Января До Января ( 1990 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6484F3F4B3925F2471D9E531D3874A2B074E3096
 ```
 
 https://mybot314.ru/tekegram_catalog/

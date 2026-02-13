@@ -1,3 +1,32 @@
+###  Публикация: 1403180   (694404) от 18.08.2020
+
+ALPHA 9 - Anjunabeats Worldwide 689 2020-08-17 [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694404.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ALPHA 9 - ID
+2. ALPHA 9 - All That I Cant
+3. Above & Beyond feat. Zoë Johnston - My Own Hymn (ALPHA 9 Remix)
+4. ALPHA 9 - Before The Dawn(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D870299A63EDF5D044B9D021C0468535C77F888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027756   (694450) от 20.06.2016
 
 Vanilla - Origin (2015) [FLAC|Lossless|Web-DL|tracks] <Electronic, Jazz, Experimental>
@@ -714,35 +743,6 @@ Sun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57A9D71CC1D70F584DCFFB345C65623097F9FA8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403078   (695942) от 17.08.2020
-
-VA - Discover Trance 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sly One vs. Jurrane - Everything to Me (Original Mix) (8:36)
-02. Adam Foley - Fourteen Falls (Original Mix) (8:21)
-03. Gary Maguire - Secrets (Original Mix) (7:29)
-04. Tom Colontonio - Subdued (Mike Nichol Remix) (7:50)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B4F0AA5243412C3C8D9F9DCB8A8A6EBC38B9E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

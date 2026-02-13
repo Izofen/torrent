@@ -1,3 +1,32 @@
+###  Публикация: 1613985   (1039087) от 20.02.2023
+
+VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blufeld -  Allusive Alive  (6:00)
+02.  Gabriel Carminatti, Abel Mezzomo -  Ignition  (4:19)
+03.  Vladislav Maximov, 3-YA -  Heartbeat  (3:52)
+04.  DatabassЖанр: Progressive House, Techno, TranceПродолжительность: 01:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DC7EC3732B648A7383405ECFADA9DB6DBEE857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440182   (1039174) от 16.01.2021
 
 VA - Ellie Lawson - Becoming (2021) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -716,35 +745,6 @@ VA - The VERSE Uplifting Trance Journey 2020 (2021) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4969066B16C95A4B3CA2F0EB32563E280FF00A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439265   (1040160) от 12.01.2021
-
-VA - Best Of Trancer (Mixed by Nick Turner) (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocoro - Meari (Original Mix)
-02. Etasonic - Rainbowland (AirLab7 Remix)
-03. Air Project - Crystal Illusion (Original Mix)
-04. Nick Parker - Forever You (Dalmoori Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D44EF8E77F01F2F5A734E4A40E0D8DF876B8CA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

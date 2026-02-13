@@ -1,3 +1,32 @@
+###  Публикация: 1091505   (943127) от 09.01.2017
+
+VA - Chillout January 2017 (Top 10 January Relaxing Chill Out & Lounge Music)  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legobyte - The Mall - Chillout Mix
+02. Various Artists - Love or War - Chillout Mix
+03. Vladimir Belyaev - Lika 'N' Tropy - Chillout Mix
+04. Alex Field - Become Kinder - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D059943CB9CD06DB48E531D260C8E40D8C8350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091441   (943133) от 09.01.2017
 
 VA - Best of Aethereal 2016 (2017) [MP3|320 Kbps] <Progressive House>
@@ -716,35 +745,6 @@ VA - OPTICA (Mixed by Dj Бинокль) (2004) [MP3|320 Kbps] <House, Spanish T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F09EBAD88BAA62656849464DA237B29CD6B97B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982858   (946710) от 04.02.2016
-
-Eric Prydz - Opus (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liam
-02. Black Dyce
-03. Collider
-04. Som Sas(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8DFD73EEB51D99924A7ECD8B02A414795035AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1296341   (613445) от 16.04.2019
+
+Innersync - The Gate To The Shire (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Trance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Glory (Original Mix)
+02. Forever Planet Earth (Original Mix)
+03. The Garden Within (Original Mix)
+04. The Gate To The Shire (Original Mix)(   Читать дальше...   )Жанр: Downtempo, ChillOut, TranceПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF109E4191CAE276ED10403D368032ABF2A7037B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524414   (613511) от 18.07.2012
 
 VA - Illuminate (2012-07-17) [MP3|320 кб/с]<Progressive House>
@@ -725,35 +754,6 @@ Syn Drome - Silence Vol. 40 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09DCD864850527FB52AB1C916190D021D5AF4475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036590   (615746) от 23.07.2016
-
-VA - Future EDM Essentials Vol.01 (2016) [MP3|320 Kbps] <House, Electro House, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tieries Azzier -  Fires Of Maria (Original Mix) 5:41
-02. YoungHwan -  Moodang (Original Mix) 5:06
-03. Mpohj -  Fire Fuel (Original Mix) 5:10
-04. Hypster & Raff -  Candy Hearts (Tieries Azzier Remix) 5:49(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 01:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D703E2B968420012DEA15ED08FCE07FEE5AAE98C
 ```
 
 https://mybot314.ru/tekegram_catalog/

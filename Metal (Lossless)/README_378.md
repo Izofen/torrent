@@ -1,3 +1,143 @@
+###  Публикация: 610600   (989967) от 29.01.2013
+
+Otep - 7 Альбомов (2002-2013) Дискография [FLAC|Lossless]<Alt. Metal | Nu Metal | Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989967.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+----------------------------------------------------------------------------
+01. Rising
+02. Blowtorch Nightlight
+03. Seduce & Destroy
+04. Crush
+05. Hematopia
+06. Necromatic
+07. Quarantine
+08. Voyeur(   Читать дальше...   )Тип издания: ДискографияЖанр: Alt. Metal | Nu Metal | Female VocalПродолжительность: 00:72:44 >>>
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432557   (989989) от 07.01.2012
+
+Suidakra - Book Of Dowth (Japanese Limited Edition) (2011) [FLAC|Lossless]<Epic Metal,Melodic Death,Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Over Nine Waves 1:58
+02. Dowth 2059 4:38
+03. Battle-Cairns 3:36
+04. Biróg's Oath 4:19
+05. Mag Mell 3:20
+06. The Dark Mound 5:14
+07. Balor 4:43
+08. Stone of the Seven Suns 5:02
+09. Fury Fomoraigh 5:43
+10. Otherworlds Collide 1:42(   Читать дальше...   )2011Жанр: Epic Metal,Melodic Death,Viking MetalПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610673   (990287) от 29.01.2013
+
+Dreamshade - 3 Альбома (2008-2013) Дискография [FLAC|Lossless]<Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990287.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+----------------------------------------------------------------------------
+01. Photographs
+02. Your Voice
+03. The Gift of Life
+04. Sandcastles
+05. Consumed Future
+06. Our Flame
+07. Late Confessions
+08. Sincere(   Читать дальше...   )Тип издания: ДискографияЖанр: Modern Melodic Death MetalПродолжительность: 00:37:45 >>>
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610472   (990576) от 29.01.2013
+
+Ancient Ceremony - 2CD (1997 - 2002) [WavPack|Lossless]<Symphonic Black/Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ex Insula Angelorum [01:25]
+02. Al Shaitan Mahrid [04:12]
+03. Litanies In Blood [05:02]
+04. Seed Of Evil [05:28]
+05. A Black Requiem [06:20]
+06. With Mephistophelic Egotheism [04:22]
+07. The Ultimate Nemesis [04:47]
+08. On Khaos Wings [05:07]
+09. Salute O Satana [03:05]
+10. Under Astral Tyranny [05:13](   Читать дальше...   )Жанр: Symphonic Black/Gothic MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353858   (990798) от 19.01.2020
 
 Dusk Dwell - Through the Bright Halls (2018) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Doom Metal>
@@ -691,146 +831,6 @@ Helloween - Straight Out Of Hell (Limited Edition) (2013) [FLAC|Lossless]<Power 
 08. Wanna Be God (2:02)
 09. Straight Out of Hell (4:35)
 10. Asshole (4:10)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430186   (994296) от 01.01.2012
-
-Various Artists - Covering 20 Years Of Extremes (2CD) (2008) [FLAC|Lossless]<Brutal Death,Death,Melodic Death,Power,Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В продолжение торжеств в честь юбилея Century Media Records выпустили уникальный сборник "Covering 20 Years Of Extremes", состоящий из 2 CD. Сборник состоит исключительно из каверов; на него попали 32 преимущественно эксклюзивных записи. Century Media обратились к своим исполнителям с просьбой сделать кавера на песни других групп, релизы которых входят в репертуар лейбла, и ответ музыкантов был поистине ошеломляющим. Выбор некоторых композиций был очевиден, музыканты выражали свое уважение тем группам, которые на них повлияли; другие же кавера были выбраны по подсказке. Это сочетание в итоге привело к появлению очень занимательного и поистине уникального окончательного релиза, охватывающего все подстили тяжелой музыки.1. Firewind: Nevermore “Believe In Nothing” (4:22)
-2. Dream Evil: Arch Enemy “Let The Killing Begin” (5:28)
-3. Fear My Thoughts: Heaven Shall Burn “The Weapon They Fear” (4:33)
-4. The Agonist: Dark Tranquillity “Monochromatic Stains” (3:33)
-5. The Forsaken: Grave “You’ll Never See” (5:10)
-6. Devian: Morgoth “Isolated” (5:21)
-7. Heaven Shall Burn: Merauder “Downfall Of Christ” (3:12)
-8. Aborted: Turmoil “Playing Dead” (2:09)
-9. Terror: SubZero “Boxed In” (2:52)
-10. Napalm Death: Hellhammer “Messiah” (3:30)(   Читать дальше...   )2008Жанр: Brutal Death,Death,Melodic Death,Power,Thrash MetalПродолжительность: 01:06:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607313   (994455) от 23.01.2013
-
-Bullet For My Valentine - The Poison (2006) [FLAC|Lossless]<Heavy Metal, Rock, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 		Intro  	2:21
-02. 		Her Voice Resides 	4:18
-03. 		4 Words (To Choke Upon) 	3:44
-04. 		Tears Don't Fall 	5:48
-05. 		Suffocating Under Words Of Sorrow (What Can I Do) 	3:36
-06. 		Hit The Floor 	3:30
-07. 		All These Things I Hate (Revolve Around Me) 	3:45
-08. 		Room 409 	4:01
-09. 		The Poison 	3:39
-10. 		10 Years Today 	3:56(   Читать дальше...   )Жанр: Heavy Metal, Rock, HardcoreПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511651   (994824) от 22.01.2013
-
-Baroness - 4 albums (2007-2009) [FLAC/APE|Lossless] <Sludge, Progressive / Doom Metal, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994824.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: (00:44:29)
-01. Bullhead's Psalm (01:20)
-02. The Sweetest Curse (04:30)
-03. Jake Leg (04:23)
-04. Steel that Sleeps the Eye (02:38)
-05. Swollen and Halo (06:35)
-06. Ogeechee Hymnal (02:35)
-07. A Horse Called Golgotha (05:21)
-08. O'er Hell and Hide (04:22)
-09. War, Wisdom, and Rhyme (04:25)(   Читать дальше...   )Жанр: Sludge, Progressive / Doom Metal, Post-RockПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605022   (995912) от 19.01.2013
-
-Velcra - 3 Альбома (2002-2007) Дискография [FLAC|Lossless]<Industrial Metal | Electronic | Rapcore | Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995912.jpg" />
-</div>
-
-
-###  Подробнее
-
-<<<
-----------------------------------------------------------------------------
-01. The Big Sleep
-02. White Knuckle Mountains
-03. New Recruit
-04. Dusk Becomes A Dawn
-05. Dead End Lane
-06. We Must Start Again
-07. Nautifungus
-08. Higher State Of Truth(   Читать дальше...   )Тип издания: ДискографияЖанр: Industrial Metal | Electronic | Rapcore | Female VocalПродолжительность: 00:46:43 >>>
 
 ## Скачать торент
 ```bash

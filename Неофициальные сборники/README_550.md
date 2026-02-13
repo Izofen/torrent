@@ -1,3 +1,61 @@
+###  Публикация: 1114281   (833503) от 14.03.2017
+
+VA - Club Music Get On Up (2017) [MP3|320 Kbps] <Dance, Club, Funky>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Austin Mahone ft. Pitbull - Lady (Modjo Cover / Richard Vission Remix) 5:21
+002. The Weeknd vs. Don Diablo - Might Not Switch (Mighty Mi Hype Bootleg / Dirty / Acapella Out) 4:15
+003. Bruno Mars - That's What I Like (Dirty / Short Edit) 3:23
+004. Claptone - Party Girl (Format B Remix) 7:06(   Читать дальше...   )Жанр: Dance, Club, FunkyПродолжительность: 08:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B77E503A7F5445A3DE1874F1372E6593F1A541F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114182   (833504) от 14.03.2017
+
+VA - Я слушаю шансон. Реальный блатняк. Выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833504.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Тартанов - Рубиновое Сердце 4:20
+002. Андрей Шпехт - Придет Весна 3:52
+003. Ян Марти - Гейзер Страсти 3:19
+004. Игорь Голубев & Юлия Прокофьева - А Счастья Хочется 3:54(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CEC86DDE1A19BCD18C829FBBB4348227887752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114174   (833600) от 14.03.2017
 
 VA - Лучшая дискотека на Europa Plus выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -688,64 +746,6 @@ VA - Русский Шансон 96. от Виталия 72 (2020) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ADEF3AA053B43FFDA232B4915B4C1A124546E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005123   (834557) от 08.04.2016
-
-VA - Bass Killer 4 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Drum and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. L 33 — Clublife (Original Mix) (4:11)
- 2. Agressor Bunx — Total Destroy (Original Mix) (5:39)
- 3. Chase & Status — NRG (feat. Novelist) (3:16)
- 4. Datsik feat. Trinidad James — Tantrum (4:10)(   Читать дальше...   )Жанр: Electro House, Dubstep, Drum and BassПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BCF61104CFB13FB7708FB3408752A372C23BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005345   (834560) от 08.04.2016
-
-VA - Sweet Afternoon: Music Romantic and Chilling Pop Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenny Dickenson - Goldenflower
-02. Jan Liesefeld - Americana
-03. Rupert Christopher Embleton Smith - Roady Guitar
-04. St. Project - White Windmill(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FD3463D130E3C14838BD4146680D29E32A3B0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

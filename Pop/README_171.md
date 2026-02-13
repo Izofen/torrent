@@ -1,3 +1,177 @@
+###  Публикация: 1408558   (453473) от 13.09.2020
+
+VA - ZYX Italo Disco New Generation Vol. 17 (2020) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Italodisco (Flemming Dalum Remix) (6:27)
+02. Italove - The Mirror (Extended Version) (7:08)
+03. Synergic Silence feat. Fred Ventura - You're So Fine (Italoconnection Remix) (6:08)
+04. KNIGHT$ - Gelato (Flemming Dalum Remix) (5:41)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 02:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBFD7B7D6FFAE976B5CF651FC2C6D148F29918E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569371   (453499) от 12.08.2022
+
+Fancy - Flames Of Love (1988) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames Of Love (4:03)
+02. Moscow Is Calling (5:13)
+03. I Can't Live Without You (Lonely Nights) (5:38)
+04. What's Your Name, What's Your Game (3:56)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27385158364DCC7A939426063F3766E06269BEBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569327   (453504) от 12.08.2022
+
+Bad Boys Blue - Totally (1992) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have You Ever Had A Love Like This	3:35
+02. I Totally Miss You	3:57
+03. What A Feeling	3:52
+04. Who's That Man?	3:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB05C79010259496884F0C50D82D2A173B4BADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942686   (453568) от 01.10.2015
+
+Mad'House - Absolutely Mad (2002) [APE|image+.cue]<Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Like A Prayer
+02	La Isla Bonita
+03	Papa Don't Preach
+04	Holiday(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D7E9DA6F06BF8864D289EEE1D565CBF9DBEE53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942718   (453570) от 01.10.2015
+
+VA - KuschelRock 29 (2015) [FLAC|tracks|WEB-DL]<Ballad, Pop, Rock, R&B, Voca>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You+Me - You And Me (2014) - 3:12
+02. Yusuf - I Was Raised In Babylon (2014) - 3:53
+03. Mr. Probz - Nothing Really Matters (2014) - 3:39
+04. En Vogue - Too Gone, Too Long (1997) - 4:43(   Читать дальше...   )Жанр: Ballad, Pop, Rock, Pop Rock, R&B, VocalПродолжительность: 03:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCC6B36D64D974F1076F6310E724F81EF1B23B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569244   (453657) от 12.08.2022
+
+VA - EFFECTIVE COVERS, Vol. 3 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ONEIL/KANVISE/SMOLA - I Will Be Here
+2. Slider & Magnit - I Feel Your Voice
+3. Denis First - Enjoy the Silence
+4. DJ DimixeR/Serge Legran/MURANA - Tom's Diner(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6A8CDAE66635F211196D0E3498FF116A03FDFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942755   (453760) от 01.10.2015
 
 Michael Cretu - Moon Light Flowers (1989) [FLAC|image+.cue]<Pop, Synth-pop, Disco>
@@ -581,180 +755,6 @@ The Chaplin Band - 2 Albums (1979, 1982) LP [MP3|320 Kbps] <Electronic, Funk Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C7AD870A6E1B6E60011FAEA66624EF618B175DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408056   (455909) от 12.09.2020
-
-Everything Everything - RE-ANIMATOR (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Powers (03:41)
-02. Big Climb (03:54)
-03. It Was a Monstering (04:34)
-04. Planets (03:57)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9789B8ACB0CD823449695398D272702623E0361A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942188   (455970) от 30.09.2015
-
-Gregoire - Poesies De Notre Enfance (2015) [MP3|320 кб/с]<French Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Cigale Et La Fourmi
-02. Je Voulais Dans Mon Cartable
-03. Chahut
-04. C'Est Demain Dimanche(   Читать дальше...   )Жанр: French Pop, ChansonПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0939F6227224E251C2F657B44741B9C1B2A62F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246870   (456637) от 13.09.2018
-
-VA - The All Time Greatest Love Songs of the 60's, 70's, 80's & 90's, Vol. II (1997) 2CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Ballads>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wet Wet Wet - Love Is All Around
-02. Celine Dion - Because You Loved Me
-03. Cherry - 7 Seconds
-04. Texas - Say What You Want(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 02:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6202F84FD64A829558994A3E7E63748D5A736DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060214   (457252) от 06.10.2016
-
-Роман Рябцев - Красный День Календаря (1997) [FLAC|Lossless|image + .cue] <Techno-Pop, House>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здравствуй, Дедушка Мороз! (Новый Год) [05:01]
-02. Лайка (День Космонавтики) [05:56]
-03. Странные танцы (Международный Женский День) [05:51]
-04. День защиты чилдренов от Роберта Майлза (Международный День Защиты Детей) [05:19](   Читать дальше...   )Жанр: Techno-Pop, HouseПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793D4A3094C6F723ACDEF8A28C280BBAD421E874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942048   (457461) от 29.09.2015
-
-VA - Romantic Collection. France (1996) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Joe Dassin - L'ete Indien  [4:32]
- 02.  Patricia Kaas - Mon Mac A Moi  [4:15]
- 03.  Charles Aznavour - Il Te Suffisait Que Je T'ame  [3:08]
- 04.  Ennio Morricone - Le Vent, Le Cri  [5:18](   Читать дальше...   )Жанр: PopПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7959105474AE345E5F47DCA3BEC380011C9BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568314   (457614) от 10.08.2022
-
-Modern Talking - Ready For Romance (1986) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brother Louie 3:44
-02. Just We Two (Mona Lisa) 3:56
-03. Lady Lai 4:59
-04. Doctor For My Heart 3:21(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CBC7E122CB59C02C7F0B5FD12D5C266B7EA65C
 ```
 
 https://mybot314.ru/tekegram_catalog/

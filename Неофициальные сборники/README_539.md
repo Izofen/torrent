@@ -1,3 +1,61 @@
+###  Публикация: 1008409   (816116) от 18.04.2016
+
+VA - Uplifting Spring Addiction (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gateway 88 - Dark Brotherhood (Aldo Henrycho Remix) 07:21
+02. Toby Hedges - Images (Johan Vilborg Remix) 07:34
+03. Ather - Evelyn (O.B.M Notion Rmx) 07:44
+04. Dreamy - Know Thy Self (Original Mix) 08:46(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B363BB0B69AD49EF50F90F8358EDFA090AB6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117273   (816374) от 23.03.2017
+
+VA - Дискотека 80-90 годов по-новому. Зарубежный выпуск № 5 (2017) [MP3|320 Kbps] <Disco , Pop , Remixes>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816374.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robbie Williams - Supreme (Yastreb Remix) 3:38
+002. Ace of Base - All For You (DJ Kapral Remix) 5:12
+003. Scooter - No Fate (Dmitriy Rs And DJ Cheeful Remix)(Radio Ver ) 3:45
+004. Tom Dot Kom - One Night in Bangkok (HouseTronic Edit) 3:39(   Читать дальше...   )Жанр: Disco , Pop , RemixesПродолжительность: 09:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45826C08B705C8923A0295E8D0E0B8DB120B1B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 776897   (816505) от 13.04.2014
 
 VA - Lounge At The Seashore 9 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
@@ -687,64 +745,6 @@ VA - Вечеринка на радио Шансон выпуск № 6 (2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7807969DDC1DC9958D2AC203A611CD1714D14578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117259   (817181) от 23.03.2017
-
-VA - Отдыхаем душой на стильном радио Шансон выпуск № 7 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817181.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Игорь Махачкалинский - Крест Бродяги 4:04
-002. Александр Марцинкевич - За Тобою 3:04
-003. Михаил Княжевич - Авто-Леди 3:15
-004. Виктор Тартанов - На Юга 3:51(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4810AA6657D83E5D8CE02B5F347CEAE918A1A744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117716   (817183) от 23.03.2017
-
-VA - Miami Nights Trance Party (2017) [MP3|320 Kbps] <Dance, Club, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817183.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Xten - Love Is The Answer (Air Project Remix Radio Edit)
-002. John 00 Fleming - Chemical Equilibrium (Original Mix)
-003. Indecent Noise - Blade Dancer (Extended Mix)
-004. Angelika Yutt - Fantasia Del Amor (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, TranceПродолжительность: 11:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB49958E4EF21C8335CF059BEEC751CAB25DCD53
 ```
 
 https://mybot314.ru/tekegram_catalog/

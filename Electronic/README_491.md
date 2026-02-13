@@ -1,3 +1,32 @@
+###  Публикация: 972236   (983500) от 05.01.2016
+
+VA - Fantasy Lounge Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Way - Faster [03:19]
+02. Nicole - Into It [03:17]
+03. Maria - Sway with Me [03:16]
+04. Oscar Salguero - With You [05:05](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8876812454F787216C6E63F40280B9C25E910BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972248   (983507) от 05.01.2016
 
 VA - Sotto Il Sole A Ritmo Di Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -733,35 +762,6 @@ Pet Shop Boys - Hotspot (2020) [MP3|320 Kbps] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56AE83566658C783320359DD3B8C6A62FC153901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354808   (986975) от 23.01.2020
-
-Pet Shop Boys - Hotspot (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will-o-the-wisp
-02. You are the one
-03. Happy people
-04. Dreamland (feat. Years & Years)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F289E7D50E4A9F2AA00FA0B36ACD1D8763EFB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

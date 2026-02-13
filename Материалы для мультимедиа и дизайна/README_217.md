@@ -1,3 +1,217 @@
+###  Публикация: 1409284   (446933) от 16.09.2020
+
+Звуковые библиотеки - Visual Tone - Essential Flow Sound Effects [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный пакет разработан и создан режиссером-путешественником Bryn North  и чрезвычайно талантливым композитором Daniel Deuschle. Цель заключалась в том, чтобы просто объединить самые важные и полезные звуковые эффекты, а также воплотить ваши идеи в жизнь, для того, чтобы ваша аудитория была вовлечена в течение вашей кинематографической истории.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FB023056FF25208BB09A54646B87FF44DC5584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552397   (447632) от 26.09.2012
+
+Digital Juice - Toxic Templates: Collection 03 Broadcast (AE) (Files)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toxic Templates Collection 3: Broadcast - Новый и захватывающий набор шаблонов анимации для After Effects с отполированным профессиональным видом, которые прекрасно подойдут для всего - от домашнего видео, рекламных заставок и свадебных видео-альбомов, до телевизионных трансляций, корпоративных презентаций, портфолио и фото-галерей. Эти шаблоны с гибкими возможностями для медиа-контента - новый захватывающий способ, позволяющий выдвинуть вашу продукцию на передний край. Они предназначены для использования в различных проектах анимированной графики и видео производстве, и состоят из анимационных сегментов, которые могут быть смешаны, совмещены и настроены как вам угодно!
+
+http://youtu.be/eWfNJqv-jyU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C79EEE3669C8255D5D16881671FF10921F12C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552129   (447648) от 26.09.2012
+
+Рамки - Рамки вырезы для фото [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рамки вырезы высокого качества с фоном PSD слои включены.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84281B322318D102EB838C3D9A1A0227215F1833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552041   (447649) от 26.09.2012
+
+Digital Juice - Editor's Themekit 042: Director's Cut (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Editor's Themekit 42: Directors Cut - набор анимированной графики для дополнения вашего видео-проекта. Тема - кинематограф, съёмка фильма. Прекрасно впишется практически в любой проект. Сборник включает фоны, видео-переходы, анимированные элементы, маски, звуковые эффекты.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2008722BCF8A150A19466FA3D09A6E35E494B1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552587   (447720) от 26.09.2012
+
+Digital Juice - Swipes! 37: Chromed Themes (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: 60 Full Screen Animated Wipes 30 - SD ( PAL & NTSC ) 30 - HD
+60 Matching Sound FX (2 - Sound effects per wipe, 1.5 Seconds average length)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE3750F7732AD777FB7718858B721C934068E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552580   (447724) от 26.09.2012
+
+Digital Juice - Swipes! 36: Money Money Money (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: 60 Full Screen Animated Wipes 30 - SD ( PAL & NTSC ) 30 - HD
+60 Matching Sound FX (2 - Sound effects per wipe, 1.5 Seconds average length)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086D539F7741862F49054321364B90EDFA608763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552127   (447735) от 26.09.2012
+
+Digital Juice - Swipes! 34: Under Construction (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: 60 Full Screen Animated Wipes 30 - SD ( PAL & NTSC ) 30 - HD
+60 Matching Sound FX (2 - Sound effects per wipe, 1.5 Seconds average length)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84FF264E7A3A8CA363157EA5481C621F6117FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552114   (447822) от 26.09.2012
+
+Digital Juice - Swipes! 33: Nothing But Net (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: 60 Full Screen Animated Wipes 30 - SD ( PAL & NTSC ) 30 - HD
+60 Matching Sound FX (2 - Sound effects per wipe, 1.5 Seconds average length)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C070EE57B9E1D9906FB0C235B41C7A87E1BA6233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247871   (448326) от 17.09.2018
 
 Растровый клипарт - Fotolia - Carnaval mask [JPG]
@@ -480,223 +694,6 @@ Double Exposure - Простой в использовании и неогран
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E311BC5E63EF0B3171C2C53620966DEBDD996D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247721   (450741) от 16.09.2018
-
-Экшены - GraphicRiver - Premium Cartoon Oil Paint - 22485359 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Premium Cartoon Oil Paint - картина маслом, простой в использовании экшен фотошоп без особого усилия превратит вашу обычную фотографию в стилизованную картинку из комикса.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C345E5854731FA59B884D08747F7CB9CA4DC8F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942833   (450855) от 02.10.2015
-
-Футажи - VideoHive - 14 Tear & Rip Transition Videos [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450855.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 разных 1080р переходов «рвущиеся салфетки» для использования в качестве перехода от одного видеоклипа к другому или очистки всего экрана. Каждый клип имеет Альфа-канал.
-Переходы могут быть смоделированы как бумага, ткань, рваные дыры, прорыв в новую сцену, и т. д.Формат: MOVРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF74910B7D152790C47A1E09B9B9ACD3099AA2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942876   (450866) от 02.10.2015
-
-Растровый клипарт - Shutterstock - Спорт и отдых [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shutterstock это самый известный магазин с фотографиями. Огромная коллекция и качественные снимки. В этой раздаче часть моей большой коллекции Shutterstock. Все фотографии разложены по тематике. Берите то, что нужно. Или качайте все подряд на будущееФормат: JPGРазрешение файлов: 1024х719 – 24979х7173
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE20FC65CCFD3F5D53A6C61CC4069ED01DDA5C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247869   (450928) от 16.09.2018
-
-Растровый клипарт - Canned vegetables stock photo set [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор овощей для заготовок, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3600x2400-7776x5184
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E10FA4BFC012D8FB6B6EA982C386B2AA43370F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408938   (450970) от 14.09.2020
-
-3D модели - Daz 3D - Twosret 8 Pharaoh Living Bundle - 73007 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Twosret 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F351779750B38BC8D31E90625D38E46DD7B77379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 826995   (450996) от 01.10.2014
-
-Digital Juice - Drag & Drop Series 3 [ISO]
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Drag & Drop Series - клипы на основе визуальных эффектов, которые преобразят и дополнят ваши футажи. Это захватывающая новая серия эффектов - именно то, что действительно нужно видео-редакторам, дизайнерам анимированной графики и визуальных эффектов, чтобы поднять их видео до уровня, о котором они, вероятно, даже не думали или считали невозможным. Все эти эффекты (   Читать дальше...   )Разрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79428F5C4EB200CC6C6E0123C9CBB10D181D5545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408927   (451450) от 14.09.2020
-
-Растровый клипарт - Fantaisy #1 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 166x219-1280x1005
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA6B378E0DF6782E133E089F2CD90C1D74D9D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551193   (452130) от 24.09.2012
-
-Футажи - Rampant Ultimate Design Elements Sampler Packs  [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник - Rampant Ultimate Design Elements Sampler PacksНазвание: Rampant Ultimate Design Elements Sampler Packs
-Дата релиза: Nov 3 2011
-Издатель: Rampant Media Design Tools
-Домашняя страница: _store.rampantdesigntools.com/pages/Sampler-Pack-1.html
-Платформа Windows, MACOSX
-Расширение файлов: MOV  JPEG  Fill HD, 3KRampant Ultimate Design Elements Sampler Packs - Этот огромный пакет содержит элементы из всех популярных линий продукции Rampant, в том числе огонь, клубы дыма и элементы стрелок в полном 3K-разрешении, чернила, туман и дым в HD-разрешении, гранжевые текстуры, облака и небо, брызги краски, эффекты фильма и царапины, сцены природы, текстуры кирпича, акварели и фото текстуры, плюс два туториала и шаблон для After Effects CS4 и выше. И всё это абсолютно БЕСПЛАТНО!
------------------------
-Rampant Ultimate Design Elements Sampler Packs offers over 2GB of FREE design elements from various volumes Rampant's including 3K Fire, Cloud Chambers, HD Smoke and Fog, Ink, Skies, Arrows, Paint, Watercolors, Grunge Textures, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C830F83A34AAE4188E7F3B74FA795D3ACD72760
 ```
 
 https://mybot314.ru/tekegram_catalog/

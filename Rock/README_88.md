@@ -1,3 +1,61 @@
+###  Публикация: 994027   (894188) от 06.03.2016
+
+Hank Marvin - Heartbeat (1993) [MP3|320 кб/с] <Pop Rock, Classic Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbeat  02:46
+02. Oxygene, IV  04:32
+03. Mrs Robinson  04:07
+04. Space Oddity  05:08(   Читать дальше...   )Жанр: Pop Rock, Classic Rock, InstrumentalПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD041CCC13232C4C64213CC8C9756CECF1C01CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493751   (894237) от 04.09.2021
+
+Downtown Association - Urban Legends (2021) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - River To Drown [00:04:20]
+02 - All Of My Love [00:03:48]
+03 - Brother [00:04:31]
+04 - Foolin' My Head [00:04:47](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178C5CDBAB576443D9195B73354E62E05E75E44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370800   (895187) от 28.03.2020
 
 Тінь Сонця - Танець (2019) EP [MP3|320 Kbps] <Folk Rock, Heavy Metal>
@@ -686,64 +744,6 @@ Brenda Lee - Queen Of Rock'n'Roll (2009) [MP3|320 кб/с] <Rock 'n' Roll, Count
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE7550B83D7DBA4E849F195ED35ACC2ADF94714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098595   (908924) от 30.01.2017
-
-Banchee - Banchee / Thinkin' (1969/1971) Remastered, 2001, Lizard Records [MP3|320 Kbps] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908924.jpg" />
-</div>
-
-
-###  Подробнее
-
-BANCHEE
-01. The Night is Calling
-02. Train of Life
-03. As me Thinks(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2627A5F3317F0937DAE542B5615FCAC641453EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098625   (908934) от 30.01.2017
-
-Apple Pie Motherhood Band - Apple Pie (1969) Remastered, 2004, Estrella Rockera [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908934.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Orangutang
-2. I Just Want To Make Love To You
-3. Brown Eyed Handsome Man
-4. Grandmother Hooker(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2AF3E3C7612B1EE224D2868578DC134D844811
 ```
 
 https://mybot314.ru/tekegram_catalog/

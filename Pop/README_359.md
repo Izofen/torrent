@@ -1,3 +1,177 @@
+###  Публикация: 1444733   (1034217) от 03.02.2021
+
+The Persuaders - It's All About Love (1976) LP [MP3|320 Kbps] <Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Love (2:57)
+02. Count The Ways (4:58)
+03. I Need Love (4:15)
+04. Quickest Way Out (Vocal) (4:11)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B886262AAB7C476F05300D84D4DB0E88C201586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444943   (1034229) от 03.02.2021
+
+C.O.D. - Tears (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears (3:20)
+02. Groovin' (2:52)
+03. Good Time (3:21)
+04. I Just Want To Be With You (3:21)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59580E61C026A14B5EFE8654D6977BFCA7123E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618182   (1034298) от 10.03.2023
+
+Miley Cyrus - Endless Summer Vacation (2023) [FLAC|Lossless|WEB-DL|tracks] <pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowers [00:03:20]
+02. Jaded [00:03:05]
+03. Rose Colored Lenses [00:03:43]
+04. Thousand Miles (feat. Brandi Carlile) [00:03:51](   Читать дальше...   )Жанр: popПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E62164876C0AB013CD2E3D4E5EE832FE23CC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444692   (1034435) от 02.02.2021
+
+VA - Modernation, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, EBM, Electro, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kid Machine - Music Inside (8:43)
+02. Luca Dell'orso - Pulsario (5:15)
+03. Adrian Marth - New Vision (6:50)
+04. Ali Renault - Maghtab Mirror (5:19)(   Читать дальше...   )Жанр: Italo-Disco, EBM, Electro, SynthpopПродолжительность: 01:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A16286C44DE6189CBC19EA228281689541EEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444691   (1034436) от 02.02.2021
+
+VA - Modernation, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, EBM, Electro, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sophie Du Palais - I Don't Wanna Go to Work Today (5:40)
+02. Adrian Marth - Sintesis Analogica (5:07)
+03. Antoni Maiovvi - Edge of Knowle (4:36)
+04. Black Light Smoke - Work for Love (5:56)(   Читать дальше...   )Жанр: Italo-Disco, EBM, Electro, SynthpopПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C2D7A204D1F21324CDA60BEE360C2BB95C1906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444662   (1034454) от 02.02.2021
+
+Henri-Michel Raschle - Daemonia: The Magic Trip Through Your Soul (1981) LP [MP3|320 Kbps] <Electronic, Prog Rock, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Magic Trip (7:53)
+02. 666 (2:16)
+03. Voodoo (5:31)
+04. The Serpent (2:15)(   Читать дальше...   )Жанр: Electronic, Prog Rock, DiscoПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F951270C6793A17C1315C47433667A188E2468F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444170   (1034647) от 01.02.2021
 
 VA - New Italo Disco Music Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
@@ -571,180 +745,6 @@ Birizdo I Am - Mademoiselle (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:059EDA1053BAAC254F8144A622B26A9CA6A46781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443713   (1035208) от 30.01.2021
-
-Birizdo I Am - Sound of Yesteryear (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Say I Love You (Maybe Baby 2) (4:38)
-02. Indiana Jones (6:13)
-03. Sound of Yesteryear (5:46)
-04. If I Could... (7:00)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16FF36635BD7C09FC5A2DFFE7442A815F802A139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443712   (1035215) от 30.01.2021
-
-Birizdo I Am - eRETROshock (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:58)
-02. Cannot Buy Happiness (5:54)
-03. Senorita (4:15)
-04. Diamond of My Heart (5:38)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEE11E7D52E327DA4255CAB4A1166AB24D9B3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617281   (1035260) от 06.03.2023
-
-VA - We Love Italo (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Circle - Touch in the Night (5:19)
-02. D.White & DimaD. - 600 KM (4:17)
-03. Boys Next Door - Lady of the Night (The Night Affair Mix) (4:58)
-04. Bruce & Bongo - Geil (Ben Liebrand Mix) (7:09)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A3B54E42B92936A106C29410E98E8B7677DF22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443593   (1035457) от 29.01.2021
-
-Mark Ashley - Greatest Hits 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tragedy of Love (Maxi Version) (6:05)
-02. Hot Like Fire (Maxi Version) (6:03)
-03. Face on the Wall (Maxi Version) (6:02)
-04. Loving Tonight 2020 (Multi Dance Maxi) (7:36)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 02:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29A45B2E1BF0966670DE073BC66CE306F5E6B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443589   (1035473) от 29.01.2021
-
-Mark Ashley - Christmas for My Fans (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Wish You a Merry Christmas (Radio Version) (3:39)
-02. Give a Little Sweet Love (Lr Extended Version) (4:45)
-03. You're My Love, You're My Life (Modern Remix 2020) (3:47)
-04. Cinderella's Heart (Original Version) (4:42)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D90C779B2ED7E8E5C730684E306073D32FCE22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443596   (1035475) от 29.01.2021
-
-Mark Ashley - MT (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are Not Alone (Radio Version) (3:39)
-02. The Fans of Modern Talking (Club Mix) (5:35)
-03. Cheri Cheri Lady (Extended 2018) (4:43)
-04. You're My Heart You're My Soul (Radio Version) (3:44)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11A2DD9775D8DD1BFF69761FF936F357A4B9B7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

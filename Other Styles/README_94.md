@@ -1,3 +1,29 @@
+###  Публикация: 357621   (585764) от 02.07.2011
+
+Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9996BABADECEFD4780210A0CC7D44B79141C1093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357450   (585771) от 02.07.2011
 
 OST Трансформеры 3: Тёмная сторона Луны / Transformers: Dark of the Moon (ITunes Deluxe Exclusive + Gamestop Exclusive) (2011) [MP3|320 kbps]<Soundtrack>
@@ -728,35 +754,6 @@ Spiritu (986) - Spiritu (986) (2000) Legacy Recordings, 2021 Remastered [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C21F90E561167B0B278C29E8637C1B4C3CFF80A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915388   (592385) от 05.07.2015
-
-Blackwater - Earth Rhythms Spirit Of The Drum (2006) [MP3|320 кб/с]<Native American, World, Ethnic Fusion>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Of The Drum (5:31)
-02. Land Of Dreams (5:48)
-03. Awakening (4:23)
-04. Earth Dance (4:42)(   Читать дальше...   )Жанр: Native American, World, Ethnic Fusion, FolkПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15B4183D249E6C8220F50AF50A08DCC58351986
 ```
 
 https://mybot314.ru/tekegram_catalog/

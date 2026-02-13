@@ -1,3 +1,32 @@
+###  Публикация: 1574792   (381540) от 07.09.2022
+
+George Fitzgerald - Stellar Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Deep House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further and Further [00:02:02]
+02. Passed Tense [00:04:01]
+03. Rainbows and Dreams [00:04:41]
+04. Cold [00:04:42](   Читать дальше...   )Жанр: Downtempo, Deep House, ElectronicПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD59E837C9B8969A8935CA2F224DEEF52122C590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574948   (381545) от 07.09.2022
 
 VA - The Sound Of Progressive Trance Vol.15 (2022) [MP3|320 Kbps] <Trance>
@@ -713,35 +742,6 @@ VA - Digital Empire - Miami Underground (2018) [MP3|320 Kbps] <House, Electro-Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27CBB40B4A7DFF260AA1FB0967C17F0365359EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414656   (383634) от 09.10.2020
-
-Sciama - Broken Circle (2019) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383634.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Sediment	5:54
-2	Winter Noon	3:09
-3	A Sunless Sea	5:14
-4	Gleams Of Past Existence	5:43(   Читать дальше...   )Жанр: Ambient, Experimental, DroneПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BB0948906ECE95CFE9FEF3E6561CF795C8D19A
 ```
 
 https://mybot314.ru/tekegram_catalog/

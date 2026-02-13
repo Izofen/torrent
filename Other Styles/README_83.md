@@ -1,3 +1,32 @@
+###  Публикация: 927209   (524847) от 13.08.2015
+
+Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (Remix)
+02. Don't Go Away
+03. The Mass
+04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C306D3B1FCE6FA62B9C671497A226DF1D0CB0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927331   (524848) от 13.08.2015
 
 Era - The Best Of (2013) [MP3|320 кб/с]<New Age>
@@ -720,35 +749,6 @@ Anastasia - Songs of the Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75250D94AD252061CBB8CAAE2854F04D18F12E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927215   (529929) от 12.08.2015
-
-Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantastic Four Prelude
-02. The Garage
-03. The Unveiling
-04. Baxter(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AF5B133D712339D04EF0EBACA5FFD319FEBFCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

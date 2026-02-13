@@ -1,3 +1,32 @@
+###  Публикация: 1441781   (1033248) от 07.02.2021
+
+Wardruna - Kvitravn (2021) [FLAC 2.0|24/48|tracks + .cue|WEB-DL] <Nordic, Ambient, Neofolk>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synkverv [00:04:50]
+02. Kvitravn [00:06:17]
+03. Skugge [00:06:38]
+04. Grá [00:03:32](   Читать дальше...   )Жанр: Nordic, Ambient, NeofolkПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356F4653DFC6E6CB6CC77757BFF69952971679F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444627   (1033267) от 07.02.2021
 
 Deguess - Chillstep Piano Renditions Vol. 1 (2014) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Instrumental>
@@ -716,35 +745,6 @@ Chinmaya Dunster - The Akasha Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Worl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDEC5661B5775981E031785695202086247DE213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441638   (1037437) от 22.01.2021
-
-Steve Hackett - Under A Mediterranean Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mdina (The Walled City)
-02. Adriatic Blue
-03. Sirocco
-04. Joie De Vivre(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF1D15E6294230953C3EC1AC2F4C9533648298E
 ```
 
 https://mybot314.ru/tekegram_catalog/

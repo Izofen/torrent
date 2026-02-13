@@ -1,3 +1,32 @@
+###  Публикация: 1846038   (1051173) от 05.01.2026
+
+VA - We Love Trance 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Quiet - Sonar [02:49]
+02. Juan Alminana Obando & Chris Hunt (UK) - Skyline [06:03]
+03. Inner Heart - Balearic Sunrise [08:51]
+04. Parcker Montivero - Tailored To Your Existence [06:03](   Читать дальше...   )Жанр: TranceПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B231EA1643CCE97E20322E4B1029BDC8C1926D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846119   (1051175) от 05.01.2026
 
 Kasablanca - Higher Resolution (Side-A, Side-A-The Remixes, Side-B) (2024-2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance>
@@ -716,35 +745,6 @@ VA - Relaxing Background Music for Spa & Lounge (2025) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C1E39CF36C88FE26445AC77BBA25092E3B4CD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848753   (1052895) от 18.01.2026
-
-VA - Winter Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin - Be My Lover (Radio Edit) (2:12)
-02. Cristian Ferrer - Careless Whisper (Radio Edit) (3:21)
-03. Dellahouse - It's a promise we will keep (3:39)
-04. Julian Runge - Let Me Go (3:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B50159C5EABDA377AB9ABFE279AC2F1561FD1AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

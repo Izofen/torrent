@@ -1,3 +1,32 @@
+###  Публикация: 1091672   (940115) от 11.01.2017
+
+Visage - Demons To Diamonds (2015) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before You Win (5:26)
+ 02. Become (3:40)
+ 03. Loving The Alien (4:28)
+ 04. Days Become Dark (4:37)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F19404D36FFB364779C2DB70486AAD603038416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984273   (940156) от 08.02.2016
 
 VA - 12"/80s/2 (2005) 3CD Compilation [FLAC|Lossless|tracks + .cue] <New Wave, Pop Rock, Synth-pop>
@@ -720,35 +749,6 @@ VA - Freaky Lounge Vol. 1 (Cool Grooves & Relaxed Sounds) (2017) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33A13A711D31EE3D3019A4194C2A67F932B50150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091717   (941767) от 10.01.2017
-
-VA - New Metropolitan Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bananaquit - Hold Me Up  6:21
-02.  Boring Sax - Hand In Hand  6:09
-03.  Enrico Donner - Xonado Por Vocк  5:55
-04.  Cane Garden Quartet - Love Goddess  5:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A07FBBD0779FAB5E8CFD5CE1BA3201301F040E
 ```
 
 https://mybot314.ru/tekegram_catalog/

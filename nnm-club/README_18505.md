@@ -1,228 +1,25 @@
-###  Публикация: 1026219   (706153) от 14.06.2016
+###  Публикация: 1132395   (702493) от 08.05.2017
 
-The Super Premium Band - Sounds of New York (2011) Happinet Corporation[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Take The 'A' Train [03:35]
- 02.Stompin' At The Savoy [06:49]
- 03.Moon River [06:22]
- 04.Autumn In New York [05:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6753455A94209C62FF848B0CDC7A0B301274543C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026173   (706154) от 14.06.2016
-
-Wanda De Sah - Softly! (1965) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ho Ba La La [02:31]
- 02.Sweet Happy Life (Samba De Orfeu) [02:36]
- 03.Quiet Nights (Corcovado) [02:06]
- 04.Aruanda [01:55](   Читать дальше...   )Жанр: Latin Jazz, Vocal JazzПродолжительность: 00:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7349F603C122C689AA0127B0A434FD09DDB8177E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026139   (706155) от 14.06.2016
-
-VA - Melodies For Ravers (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prash - Bring That Bass (Extended Mix) (4:48)
-02. Chives & Splash - Love & Rage (Extended Mix) (4:50)
-03. United States of Dance - We Are the Night (Extended Mix) (4:57)
-04. Rock Massive - You Know Why (Ph Electro Radio Mix) (3:36)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED72647A38A4ED81B66FF83BD0F901964F3643E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026172   (706156) от 14.06.2016
-
-Хоккей. НХЛ 2015-2016. Плей-офф. Кубок Стэнли. Сан Хосе - Питтсбург. 6-й матч (12.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706156.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 июня 2016, понедельник. 03:00 МСК
-Кубок Стэнли. 6-й матч
-
-Стадион: САП-центр (Сан-Хосе, США) , 17 562 зрителя (100 % при вместимости 17 562)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Александр Хаванов, Александр Ткачев)Продолжительность: 02:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAF6DAA79168575E63DFE2AE9461176E16CB27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026297   (706157) от 14.06.2016
-
-Johnny “Hammond” Smith - That Good Feelin' (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.That Good Feelin' [05:39]
- 02.Bye, Bye Blackbird [04:33]
- 03.Autumn Leaves [04:28]
- 04.I'll Remember April [04:41](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB98414E336E491966D4C94CEEB90E263C1CB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026132   (706158) от 14.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа E. 1-й тур. Бельгия - Италия (13.06.2016) HDTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706158.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 июня 2016, понедельник. 22:00 МСК
-Группа E. 1-й тур
-
-Стадион: Стад де Люмьер (Лион, Франция) , 55 406 зрителей (93 % при вместимости 59 500)(   Читать дальше...   )Телекомпания: Матч Футбол 1 HDЖанр: СпортПродолжительность: 02:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4EC6BDA5903867DFC51FAA3F31F4ED500B648E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220201   (706179) от 18.04.2018
-
-М.А. Батанова (сост.) | Старец на озере. Воспоминания (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706179.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 августа 2002 года на 93 году жизни скончался известный старец — митрофорный протоиерей Николай Гурьянов.
-
-После его кончины стало известно, что в своё время он принял тайный монашеский постриг, который скрывал по смирению.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17757124FDA4A0E1EF59E8538644E8D3A39E7C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220247   (706180) от 18.04.2018
-
-Олег Чилап (Оптимальный Вариант) и Пчела-Бэнд - Акустический Бродячий Цирк (2018) [MP3|320 Kbps] <Rock>
+Браво - Бравоспектива (2017) 2CD [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706180.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Акустический бродячий цирк I
-2. Увы…
-3. Мим
-4. Это было вчера(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:17
+"Двойной CD, в котором представлены все наши песни, вся история группы «Браво» в песнях. Плюс два трека, которые никогда не издавались. Там будет песня, которая должна была войти в саундтрек к фильму «Асса», но не вошла по разным причинам. И совершенно случайно она обнаружилась у одного из московских меломанов. Также на этом сборнике «Бравоспектива» будет песня, (   Читать дальше...   )01. Кошки
+02. Жёлтые ботинки
+03. Старый отель
+04. Ленинградский рок-н-ролл(   Читать дальше...   )Жанр: RockПродолжительность: 02:34:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:962F685A94521823D4C0E8E9B94E2B811D58EEDA
+magnet:?xt=urn:btih:EE92F8C9630FED4BEB22E2F5377D4B3F4C627888
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,25 +27,193 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220250   (706181) от 18.04.2018
+###  Публикация: 1131884   (702495) от 08.05.2017
 
-Федор Кнорре | Родная кровь (2018) [MP3]
+Татьяна Семенистая | Ипотека. Энциклопедия (2017) [RTF, FB2]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702495.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние годы ипотека стала самым приоритетным способом решения квартирного вопроса. В последнее время более 70 % сделок на первичном и вторичном рынке жилья осуществляются с использованием ипотечного кредита. Увеличению ипотечных сделок способствует также принятие законов о материнском капитале и накопительно-ипотечной системе для военнослужащих (военной ипотеке). (   Читать дальше...   )Жанр: ИпотекаФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAD826693729560FA8C79CEFAEA9E48807EDA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132062   (702497) от 08.05.2017
+
+VA - Песни военного времени (2011) 3CD [MP3|320 Kbps] <Ретро, Военные песни>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ретро, Военные песниПродолжительность: 03:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103A61E20FEB0144FB8B0CDABA2FE111516A8E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026666   (702504) от 16.06.2016
+
+VA - Trip to Ibiza 2014. Chill Out (2016) [MP3|320 кб/с] <Chill Out, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antica Fabbrica Del Suono - La Demografia Dell'intellett (D-Soriani chilly mix)  04:54min
+02. Innate Joy - Morning Instinct  06:05min
+03. Chillwalker - Dancing in the Sunrise (Bossa Beach cut)  05:21min
+04. Living Room - Urbanism  04:06min(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 04:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FA7ADCA3CCD134BDFFC919FF356169D0C7F254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026707   (702505) от 16.06.2016
+
+The Blues Rebels - Voodoo Land (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changed My Ways (3:51)
+02. Voodoo Land (4:30)
+03. Good Enough (3:44)
+04. Well Run Dry (3:34)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3818C419C41C5EB9E4D6CC7994F11251B1010122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026772   (702506) от 16.06.2016
+
+Coming soon 2.82 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coming soon - Календарь выхода фильмов..
+С Coming soon Вы сможете получить последнюю информацию о предстоящих выпусках фильмов.
+
+  Поддерживаемые функции: (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 мая 2016Разработчик: Ivan KashkarovПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF0D1A0A36D29A73D7DA2E53C8396274C097269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026474   (702507) от 16.06.2016
+
+Shotgun Revolution - All This Could Be Yours (2016) [FLAC|Lossless|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Stop That Grind
+02. Rise To Power
+03. All This Could Be Yours
+04. Refugee(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A40A09720BE5829AEAB1B5295787004AFB7FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026652   (702509) от 16.06.2016
+
+Наум Синдаловский | На языке улиц (2015) [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706181.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"В всякий раз после того, как "Добрыня", обогнув крутую излучину Волги, выходил на прямую и далеко впереди на желтом обрыве показывалась редкая сосновая роща, сквозь деревья которой розовели одинаковые домики Рабочего поселка, - над трубой, клубясь, возникал крутой столбик белого пара и гудок, тягучий и хриповатый, оторвавшись от парохода, летел над (   Читать дальше...   )Жанр: ПовестьПродолжительность: 02:33:27
+В книге Наума Синдаловского собраны пословицы, поговорки, каламбуры, чье появление связано с Петербургом. Некоторые из них восходят к первым годам существования города, но бытуют в речи петербуржцев и по сей день. Фольклор предлагает нам свою историю города и его жителей, в которой политические и культурные события соседствуют с деталями повседневного быта. Равно (   Читать дальше...   )Жанр: Рассказы о петербургской фразеологииПродолжительность: 09:10:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DD01627F2C2340FBBD74AA71D36234E2AF47E99
+magnet:?xt=urn:btih:C5AAE3FE604DE429317A9AC656CC92F4430C6532
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +221,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220234   (706182) от 18.04.2018
+###  Публикация: 1026702   (702511) от 16.06.2016
 
-Joe's Garage - The Best Of (2018) [MP3|320 Kbps] <Electronic Pop Rock, Female Vocal>
+Juicy Lucy - Blue Thunder (1996) [FLAC|Lossless|image + .cue] <Blues Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706182.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mission Love
-02. Big Palais
-03. If You Hear
-04. The Sun(   Читать дальше...   )Жанр: Electronic Pop Rock, Female VocalПродолжительность: 00:36:39
+01. Running Blue
+02. Fool to Yourself
+03. Win or Lose
+04. Woman of Mine(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67D0C3127833F6B74733AE999D0950A45B32E5D8
+magnet:?xt=urn:btih:12C1385CE865C78E753B612CCC12A538EC24AE76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,86 +250,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220284   (706183) от 18.04.2018
+###  Публикация: 1026738   (702513) от 16.06.2016
 
-Roland Nipp - Better Days (2018) [MP3|320 Kbps] <Roots Rock, Instrumental Rock, Electric Guitar>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake These Blues
-02. Better Days
-03. In a Lifetime
-04. Echoes(   Читать дальше...   )Жанр: Roots Rock, Instrumental Rock, Electric GuitarПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33CEFC20A41D131E33FA5E498E600017C65517A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220316   (706184) от 18.04.2018
-
-Roland Nipp - In the Cool of the Dawn (2017) [MP3|320 Kbps] <Roots Rock, Instrumental Rock, Electric Guitar>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Cool of the Dawn
-02. Beauty and Demons
-03. Sand
-04. It's Time(   Читать дальше...   )Жанр: Roots Rock, Instrumental Rock, Electric GuitarПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BC61679541FAE59B34FDA4618E32FFAF79F7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220215   (706185) от 18.04.2018
-
-VA - We Love Eurodance (2018) [MP3|320 Kbps] <Eurodance>
+VA - Flash Party Line DJ (2016) [MP3|320 кб/с] <House, Future House, Bigroom>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706185.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soundstream - Back Once Again (EuroDJ Remix)
-02. Pump Up The Jam (DJ SHABAYOFF RMX) - Technotronic
-03. Soundstream feat. Freeze - Time to Fly
-04. Space Master - Hold Me Baby (Radio Edit)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:49:14
+01. Mari Ferrari - Hello, Hello (Extended Mix) 4:00
+02. Oxidyon - I Want to Say (Radio Edit) 3:36
+03. Martin Garrix Vs Matisse & Sadko - Break Through the Silence (Original Mix) 4:43
+04. Pulsedriver - I Want Your Soul (Club Mix) 4:33(   Читать дальше...   )Жанр: House, Future House, BigroomПродолжительность: 04:13:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:890B490BF710E02FCCAB1302990EB361B0F5C885
+magnet:?xt=urn:btih:8DF9A0F234190462331A50AFA4CAB38AA851E64F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,28 +279,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220332   (706186) от 18.04.2018
+###  Публикация: 1026771   (702514) от 16.06.2016
 
-Lucky Star - Who's Foolin' Who (1978) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
+Время покажет с Петром Толстым (16.06.2016) SATRip
 
->>Pop
->>Зарубежная поп-музыка
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706186.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Who's Foolin' Who (4:27)
-02. Even The Bad Times (3:31)
-03. You Are My Lucky Star (5:08)
-04. Uncle Jack (3:49)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:32:05
+В студии программы «Время покажет» говорят о партизанском движении на Украине. Эксперты программы пытаются понять, с кем собирается воевать Украина, и как события, происходящие на Украине, повлияли на европейское сообщество.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:25:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20746739D64014584F0633867010AE8F1F15A9B3
+magnet:?xt=urn:btih:0294492640078D49078807012FA09F42939CA28C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,27 +305,143 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220207   (706187) от 18.04.2018
+###  Публикация: 1026743   (702515) от 16.06.2016
 
-Михаил Костин | Полотно судьбы (2016) [FB2]
+Inside War - Autophagic Butchering (2016) [MP3|320 кб/с] <Thrash Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avesso
+02. Chaos Within
+03. Bloodmass
+04. Chemical Carnage(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773CB1957EBFB16B90E76034985598F1FD2A69C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026483   (702516) от 16.06.2016
+
+Blood For Blood - Outlaw Anthems (2002) [FLAC|Lossless|tracks] <Rock, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Post Card From The Edge    03:13
+02. Mother Dear    01:49
+03. Ain't Like You (wasted Youth Ii)    03:29
+04. Dead End Street    02:57(   Читать дальше...   )Жанр: Rock, HardcoreПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51ECDEB5A18E8E35321496AC37F83E5FBBEC7EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026767   (702518) от 16.06.2016
+
+Joe Lovano & Dave Douglas - Sound Prints (2015) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sound Prints [04:39]
+ 02.Sprints [13:59]
+ 03.Destination Unknown [08:33]
+ 04.To Sail Beyond The Sunset [10:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00673B36A5C67DFA1D5CE9E15EDCD6AC8E51694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026679   (702520) от 16.06.2016
+
+Johnny Griffin & Matthew Gee - Soul Groove (1963) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Oh Gee! [02:22]
+ 02.Here [05:11]
+ 03.At Sundown [04:52]
+ 04.The Swingers Get The Blues Too [08:01](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE51A88DD097BC613DF93ADE4C01228161FD63F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026633   (702522) от 16.06.2016
+
+Умар Гайсултанов | Арби (1987) [FB2]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706187.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В пятой книге цикла «Хроники Этории» разворачивается грандиозное полотно судьбы не только отдельных людей, но и целого мира…
+Повесть рассказывает о судьбе горских детей, живших в ту героическую эпоху, когда трудовой народ свергнул царя и поднялся против врагов Советской власти.
 
-Исполинские армии топчут землю Этории, горят города, течет ручьями кровь, выходят из векового заточения под землей или в лесах народы, о которых успели забыть люди. И по объятому пламенем миру странствуют, расходясь и снова сходясь, друзья (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+Для младшего школьного возраста.Жанр: Детская прозаПеревод: Ольга РоманченкоФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB0C3874AFD156CCBF9D56CCDE535F0A01D8A5EE
+magnet:?xt=urn:btih:D2F1BE16D420A07259F694B2512EE303B438A65D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,28 +449,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220305   (706188) от 18.04.2018
+###  Публикация: 1026737   (702524) от 16.06.2016
 
-VA - Deep Session (2018) [MP3|320 Kbps] <Deep House, Nu Disco>
+Stryctnyne - Unfinished Business (2016) [MP3|320 кб/с] <Heavy Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706188.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Robert Cristian - Sunrise In Your Eyes (Original Mix)
-02. Kasey Kaotto, Touch The Sound - Colors Of The Rainbow (Original Mix)
-03. Dudu Zacharias & Kesia - Stay A While (Original Mix)
-04. DeeRiVee Ft. Tara Louise - Tell Me Who I Am (Extended Mix)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 02:36:56
+01. Blasphemer
+02. Last Rite
+03. Kill Or Be Killed
+04. Line Them Up(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24614B052425CEDDACD03CE0546FF7429468F06B
+magnet:?xt=urn:btih:8AF91BD8F016597D767915BBC81979A25085E639
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,83 +478,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220196   (706189) от 18.04.2018
+###  Публикация: 1026601   (702526) от 16.06.2016
 
-VA - Essential House Spring 2018 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tzesar - Spring Break (Original Mix) [00:05:15]
-02. Chris Kaufman - Burning My Socks [00:05:30]
-03. Tzesar - April Lady (Original Mix) [00:05:18]
-04. Renee - Music Heals All Wounds (Ice Cream edit) [00:05:35](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1905EDCF5AE35FECE4ADA04D4AD28E443CA0343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220349   (706190) от 18.04.2018
-
-Nick Straker Band - The Very Best Of (1997) CD [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Walk In The Park (3:51)
-02. Don't Come Back (3:40)
-03. A Little Bit Of Jazz (5:28)
-04. Straight Ahead (6:44)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E404E858C6E667B916D0A4028ECA3EE9C20348C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220302   (706191) от 18.04.2018
-
-CoolUtils Total PDF Converter 6.1.0.143 RePack by вовава [Ru/En]
+Футбол. Чемпионат Европы 2016. Группа A. 2-й тур. Франция - Албания (15.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706191.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский
+15 июня 2016, среда. 22:00 МСК
+Группа A. 2-й тур
+
+Стадион: Велодром (Марсель, Франция) , вместимость: 67394(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Юрий Розанов, Михаил Поленов)Продолжительность: 02:01:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88DA77775F56B208946744251F5CAC04B1A2E9D9
+magnet:?xt=urn:btih:383F8E7E46C90234E0305919BBF1CE31BA60D471
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,115 +507,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220357   (706192) от 18.04.2018
+###  Публикация: 1026681   (702528) от 16.06.2016
 
-VA - Nothing But... The Future of Trance Vol. 06 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Exo - Skybouncer (Original Mix)
-02. Ultimate - Enru (Original Mix)
-03. Tau-Rine - New Life (Radio Edit)
-04. Paul Arcane - Transcend (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67109D5EFDF9BB5E9B10FD20BF8BD8831AD0EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220187   (706193) от 18.04.2018
-
-VA - Trance Spring Essentials (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airdraw,Aaren, Jo.E - Bryde's Whale (Club Mix)
-02. LTN,Stendahl, Arielle Maren - Black Hole (Blood Groove & Kikis Instrumental Remix)
-03. PROFF - Innervate (Original Mix)
-04. Sound Quelle & Piramex - Shoreline (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545D7AD83E6875F69B5FAA47EF8E1AB4D2BBB326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220352   (706194) от 18.04.2018
-
-Mr. Cloudy - IRIT (2018) Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/08. Irit (0:40)
- 02/08. The Version (12:35)
- 03/08. Nautilus Lo-Fi Replication (9:25)
- 04/08. Desove Blessed Dub (7:21)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440B8E606472C2A8B9E2BA78B6C38511E86111DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220252   (706195) от 18.04.2018
-
-Bo Sundstrom - Mitt Dumma Jag: Svensk Jazz (2018) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+The Three Sounds - Here We Come (1960) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706195.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forsvann du [04:01]
-02. Kommer du till mig inatt [02:37]
-03. Sommaren vi alskade varann [04:08]
-04. Allt ar som forut [04:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:16
+01.Now's The Time [05:42]
+ 02.Summertime [05:43]
+ 03.Here We Come [04:43]
+ 04.Just Squeeze Me [04:21](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:48:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41366B9ADDBD8C0DC1286095322B26B7D9C5B198
+magnet:?xt=urn:btih:DFC51D6596042BE78ACF4BD90BD485EA0E8AF823
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,28 +536,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220254   (706196) от 18.04.2018
+###  Публикация: 672586   (702529) от 25.06.2013
 
-Prato Bell Luckin Trio - Through The Tunnel (2017) Self-Released [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+Рестлинг / WWE Friday Night SmackDown! 21.06.2013 (2013) HDTVRip [H.264] [EN]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706196.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Through the Tunnel [04:47]
-02. Freedom of Mind [05:52]
-03. Black Orpheus [06:37]
-04. Tortoise [06:18](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:50:58
+722-й выпуск Friday Night SmackDown!Жанр: СпортПеревод: ОтсутствуетПродолжительность: 01:23:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9EFEFAA57DDADAD74C7BFE08080A97D2B0E43B4
+magnet:?xt=urn:btih:7FDA6DF7EB93616E929B1869A21B45CCD8A30FA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,28 +562,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220248   (706197) от 18.04.2018
+###  Публикация: 1026674   (702530) от 16.06.2016
 
-Mose Allison - V-8 Ford Blues (1959 - 1961) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
+Футбол. Чемпионат Европы 2016. Группа A. 2-й тур. Франция - Албания (15.06.2016) HDTV [H.264/1080i]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706197.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. V-8 Ford Blues [02:17]
-02. Please Don't Talk About Me When I'm Gone [01:32]
-03. Baby, Please Don't Go [02:38]
-04. Hey, Good Lookin' [01:46](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:38:42
+15 июня 2016, среда. 22:00 МСК
+Группа A. 2-й тур
+
+Стадион: Велодром (Марсель, Франция) , 63 670 зрителей (94 % при вместимости 67 394)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 01:55:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A26BD3CC7D942841806A2008E36E1138D415120
+magnet:?xt=urn:btih:2C33E535C6468BC7F168890DD577C11CC7656A9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -716,34 +591,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 330289   (706211) от 01.05.2011
+###  Публикация: 1026664   (702532) от 16.06.2016
 
-VA - Лучшая клубная сотня 13 (2011) [MP3|160-320 kbps]<Dance, House, Trance, R'n'B>
+Футбол. Чемпионат Европы 2016. Группа A. 2-й тур. Франция - Албания (15.06.2016) IPTV [H.264/1080p-LQ]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706211.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex C Feat. Y-Ass - You've Got The Sweetest Ass In The World (Puma Scorz Remix Edit)
-02. Andy Harding - You Bring Me Joy (Original Mix)
-03. Avicii - Malo (Alex Gaudino & Jason Rooney Remix)
-04. Basshunter - Saturday
-05. Ben DJ - Alive - Original Mix
-06. DJ Jeroenski, Mavis Aquah - Reach For The Stars feat. Mavis Aquah - Dan Castro Remix
-07. DJ Sequenza - Follow Me Tonight
-08. Edward Maya and Vika Jigulina - Desert Rain (Edward Maya XTD Club Version)
-09. G-Line - More (Original Mix)
-10. Gareth Emery feat. Lucy Saunders - Sanctuary (Club Mix)(   Читать дальше...   )Жанр: Dance, House, Trance, R'n'BПродолжительность: 09:47:09
+15 июня 2016, среда. 22:00 МСК
+Группа A. 2-й тур
+
+Стадион: Велодром (Марсель, Франция) , 63 670 зрителей (94 % при вместимости 67 394)(   Читать дальше...   )Телекомпания: Матч Футбол 1 HDЖанр: СпортПродолжительность: 02:45:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81602BEA5E0931A6382F58D14F347FD6BFD9E937
+magnet:?xt=urn:btih:EEF4321CE4F546B0800721AE2638BEB719611105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026565   (702534) от 16.06.2016
+
+Футбол. Чемпионат Европы 2016. Группа A. 2-й тур. Румыния - Швейцария (15.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702534.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 июня 2016, среда. 19:00 МСК
+Группа A. 2-й тур
+
+Стадион: Парк де Пренс (Париж, Франция) , вместимость: 48713(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Александр Шмурнов, Нобель Арустамян)Продолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676EAD91D9908BFF0EFCEF72B3B80B9F3AD07955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026649   (702536) от 16.06.2016
+
+Футбол. Чемпионат Европы 2016. Группа A. 2-й тур. Румыния - Швейцария (15.06.2016) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702536.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 июня 2016, среда. 19:00 МСК
+Группа A. 2-й тур
+
+Стадион: Парк де Пренс (Париж, Франция) , вместимость: 48713(   Читать дальше...   )Телекомпания: Матч Футбол 1 HDЖанр: СпортПродолжительность: 02:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30917052B22288D0B356008AC91DBADB726A8212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672087   (702539) от 25.06.2013
+
+Сборник клипов - VA - Various Music part. 43 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702539.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 9-11 - Cum se face 1080p (3:30)
+2. A.M. SNiPER - ROAR 1080p (2:39)
+3. Abel The Kid & Julio Iglesias Jr. feat Snoop Dogg A Piece Of My Love 720p (4:02)
+4. ALEXANDER PROJECT FEAT. MAAX - Сердце 1080p (3:23)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F8EED913F8E6D54F7580E1C1A13780F4125149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672181   (702543) от 25.06.2013
+
+Горец 3: Последнее измерение / Highlander III: The Sorcerer (1994) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессмертный воин Коннор Маклауд вновь вызван на поединок, на этот раз своим самым могущественным врагом, Колдуном Кейном, заточенным под мистической горой в Японии 300 лет назад и достигшим невероятной магической силы.Ничего не подозревающие археологи освобождают Кейна. Для того, чтобы править миром колдуну нужна магическая энергия, которую он сможет получить только (   Читать дальше...   )Производство: Канада, Франция, Великобритания,  Fallingcloud, Initial Groupe, Lumière PicturesЖанр: Боевик, Фантастика, ФэнтезиРежиссер: Эндрю МорахэнАктеры: Кристофер Ламберт, Марио Ван Пиблз, Дебора Кара Ангер, Мако, Рауль Трухильо, Мартин Неуфелд, Фредерик Й. Окимура, Дэниэл ДоПеревод: Многоголосый закадровыйЯзык субтитров: отсутствуютПродолжительность: 01:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FED490208C7AD710CA9715B19C2CA4B5B33E10
 ```
 
 https://mybot314.ru/tekegram_catalog/

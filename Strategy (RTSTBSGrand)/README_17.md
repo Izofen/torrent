@@ -1,3 +1,29 @@
+###  Публикация: 1295486   (620078) от 12.04.2019
+
+Weedcraft (2019) [Ru/Multi] (1.02) License CODEX
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Weedcraft Inc изучает индустрию производства, выращивания и распространения курительной травки в Америке, глубоко погружаясь в финансовые, политические и культурные стороны сложных государственных отношений с проблемным, но многообещающим растением.Тип издания: LicenseРазработчик: Vile MonarchЖанр: Strategy, Indie, 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C13B9D00588CE2BA774A8F5024313C579478D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910591   (621269) от 20.06.2015
 
 Total War: ATTILA (2015) [Ru/Multi] (1.2.1.0) License CPY
@@ -649,32 +675,6 @@ Total War: Medieval II / Total War: Medieval 2 (2018) [Ru/Multi] (1.52) SteamRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA4C4F602A384C9A8D262D8CC74F4A98CB093DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291458   (670021) от 24.03.2019
-
-Total War: Empire (2018) [Ru/Multi] (1.5.0) SteamRip R.G. Origins [Definitive Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повелевайте морями, контролируйте земли, выкуйте новую нацию и покорите мир. Total War: EMPIRE переносит франшизу Total War в восемнадцатый век, эпоху Просвещения – время политических беспорядков, военных прорывов и радикального мышления, невероятно детально проиллюстрированное в игре.Тип издания: SteamRipРазработчик: The Creative AssemblyЖанр: Strategy (Real-time, Turn-based), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1A9A4F68C4744230BEBD05CABEE6448AC1FF9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

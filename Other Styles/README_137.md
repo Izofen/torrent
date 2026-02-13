@@ -1,3 +1,32 @@
+###  Публикация: 1201009   (792778) от 24.01.2018
+
+Ernesto Cortazar - Legend Of The Sea (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Message In A Bottle  (2:47)
+ 02/10. As The Sun Rises (4:12)
+ 03/10. Legend Of The Sea (4:33)
+ 04/10. Dancing Waves (4:09)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B081DFDF5B1E1B0212D643238099E64E1D0C2F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274529   (792989) от 07.01.2019
 
 Deuter - Mirage (2019) [MP3|320 Kbps] <New Age>
@@ -716,35 +745,6 @@ Green Crow - Пауза (2017) [MP3|320 Kbps] <Pub Folk, Celtic Punk, Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F492547E72796C9456EFF921B06F1F1D6DF02BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200898   (793899) от 23.01.2018
-
-Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|CD|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandre Desplat - The Shape of Water (03:44)
-02. Renee Fleming - You'll Never Know (04:40)
-03. Alexandre Desplat - The Creature (01:48)
-04. Alexandre Desplat - Elisa's Theme (02:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF56C8910A627DE46B52FCC75451AB4C2CE840A
 ```
 
 https://mybot314.ru/tekegram_catalog/

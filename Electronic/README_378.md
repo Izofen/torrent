@@ -1,3 +1,32 @@
+###  Публикация: 1395399   (755571) от 10.07.2020
+
+The Reels - Beautiful (1982) LP [MP3|320 Kbps] <Electronic, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Guy's In Love (With You) (4:34)
+02. Where Is The Love? (2:03)
+03. La Mer (3:18)
+04. Cry (3:16)(   Читать дальше...   )Жанр: Electronic, New WaveПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87696516C57CC427181FFEB7CD2E3E514BEB7526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018574   (756119) от 20.05.2016
 
 Rick Pier O'Neil - Mysterious (2016) [MP3|320 кб/с] <Progressive House, Techno>
@@ -716,35 +745,6 @@ Michael E - Cotton Blossom (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:818BC4A186CE1CEA69464EF662AFCC53EDDC857D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215553   (758101) от 26.03.2018
-
-Fa Calor - A Chill Out Moment (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ascending  3:26
-02.  Androm  3:40
-03.  Best Part Of Us  3:37
-04.  Blurred  4:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68042CC59CFF3BD67677EA8F7020959C29F22AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

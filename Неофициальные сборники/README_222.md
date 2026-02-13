@@ -1,3 +1,62 @@
+###  Публикация: 1176222   (371795) от 21.10.2017
+
+VA - По волне моей памяти: Том 3 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Михаил Боярский - Вот и расстались  5:54
+02.  Алла Пугачёва - Песня на бис  7:13
+03.  Игорь Тальков - Бывший подъесаул  5:59
+04.  Александр Барыкин - Букет  3:40(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA41FC622B2F014D22FCD19D146BECB2D1EADB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415551   (371901) от 14.10.2020
+
+Виктор Аргонов Project - Русалочка (2013) (+bonus) [MP3|320 Kbps] <Trance, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет произведения относится к жанру научной фантастики. Действие происходит в современной России. Простой гражданин, прогуливаясь по берегу моря, встречает странную немую девушку. Она преследует его и вскоре излагает о себе невероятную историю, которая звучит как завязка сюжета сказки о Русалочке...
+Развитие событий показывает, что девушка действительно не является (   Читать дальше...   )CD1:
+01. Предания неведомых миров (инструментал) [3:27]
+02. Сделать шаг (ария Сказочницы) [2:50]
+03. Ты идёшь наверх (ария Отца) [3:04](   Читать дальше...   )Жанр: trance, technoПродолжительность: 00:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A4C81649E72616190035CA2D51D60100763587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176167   (371919) от 21.10.2017
 
 VA - Miss Caramelle: Classic Vocal House (2017) [MP3|320 Kbps] <Vocal House>
@@ -693,64 +752,6 @@ VA - Erotic Summer Night Vol.1: Sexy Chill Out Tunes (2016) [MP3|320 Kbps] <Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C832F9DD438A27EB9D531C4C7A798937A4B8DD68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069281   (373956) от 04.11.2016
-
-VA - Trance 100 Best Of 2016 (2016) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373956.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren Ft. BullySongs - Freefall (Manse Remix)  2:33
-002. Gareth Emery Ft. Wayward Daughter - Reckless  3:22
-003. Chicane - Offshore (Grum Remix)  3:39
-004. Super8 & Tab - Mega  3:04(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 05:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2008C5DD4DE1C6866E1DECAD38469FBE108D8D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069537   (373978) от 04.11.2016
-
-VA - Clubfire Times 100 Power (2016) [MP3|240-320 Kbps] <Indie Dance, Bigroom, Electro, Dancehall, Trap, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix & The Federal Empire - Hold On & Believe (Clean) (Radio Edit) 03:54
-02. Flyboy Ft Gavrielle & Jake Newton - Maze (Clean) (Short Edit) 02:46
-03. Party Favor Ft Georgia Ku - In My Head (Clean) (Radio Edit) 03:30
-04. Luca Debonaire - Klubb Killer (Clean) (Short Edit) 02:56(   Читать дальше...   )Жанр: Indie Dance, Bigroom, Electro, Dancehall, Trap, HouseПродолжительность: 08:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD88B1A2A2FFDEDA8C4B6D82E0CA1889A7D462C
 ```
 
 https://mybot314.ru/tekegram_catalog/

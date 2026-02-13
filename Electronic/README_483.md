@@ -1,3 +1,32 @@
+###  Публикация: 1362320   (949506) от 23.02.2020
+
+Peter Pearson - Making Waves (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Évocation (5:20)
+ 02. Making Waves (4:27)
+ 03. Searching (5:34)
+ 04. We Meet Again (4:10)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, DowntempoПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354BBA42C06B68DEE3154938B71AD5073BCBF9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362518   (949547) от 23.02.2020
 
 VA - Anjunadeep 11 (Mixed by Jody Wisternoff & James Grant) (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Progressive House, Deep House>
@@ -710,35 +739,6 @@ VA - Retro Promenade: Carpenter (2015) [MP3|320 кб/с] <80's Retrowave, Synthp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE82CD68F2878875B00BFF613F403C2CD6C2C2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981591   (951405) от 01.02.2016
-
-VA - Serenity Sexy Lounge & Chill out Pearls Vol 2 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Rodgers - Say You Say Me (04:10)
-02. The Chill-Out Orchestra - Shout (04:50)
-03. Ashley & Doria - When You Believe (04:40)
-04. Devon Boy - Get Away (Beach Bar Mix) (04:43)(   Читать дальше...   )Производство: White Isle RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB575233DC0D5DFA99B9F9575BB05914B81357B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

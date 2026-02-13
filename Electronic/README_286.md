@@ -1,3 +1,32 @@
+###  Публикация: 1235614   (557337) от 13.07.2018
+
+VA - Synthesize Me (2007) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antilles - You And Me (4:23)
+02. Makina Girgir - Frozen Gloss (4:18)
+03. Lasertanz - Robot Muscle Power (4:27)
+04. Keen K & Dorian E - Lost But Not Found (3:12)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB31FA4D185AFDC6218DFB4EE7894E0C76F459C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235750   (557363) от 13.07.2018
 
 Paul St. Hilaire + Rhauder - Derdeoc (2017) Sushitech Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
@@ -716,35 +745,6 @@ Thomas Lemmer - Zero Gravity (2014) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C00D9DA323D2F885C9D7F575BE4FA8F420E72D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153327   (559550) от 26.07.2017
-
-VA - Nothing But... Progressive House Vol.04 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boskii - Rouge (Original Mix)  7:38
-02.  AkroSonix - Fade Away (Original Mix)  5:21
-03.  Andski - Aye Dee (Platunoff Deep Retouch)  6:22
-04.  Max Tarasov - Sun Valley (Original Mix)  4:52(   Читать дальше...   )Жанр: HouseПродолжительность: 02:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729C3FAE3918750D9E49928DFB9ACA085BBC509E
 ```
 
 https://mybot314.ru/tekegram_catalog/

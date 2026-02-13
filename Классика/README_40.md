@@ -1,3 +1,32 @@
+###  Публикация: 1001635   (846504) от 01.04.2016
+
+Franz Schubert - Complete Symphonies (Les Musiciens du Louvre, Grenoble, Marc Minkowski) (2012) [FLAC 2.0|48/24|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphonie No. 3 in D major, D 200
+  1  Adagio maestoso - Allegro con brio  9:06
+  2  Allegretto                          4:30
+  3  Menuetto. Vivace                    3:34(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111F1829F0CE4C3DDE9DF05126F47B23455DD764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001607   (846507) от 01.04.2016
 
 Prokofiev, Shostakovich - Cello Concertos (Isserlis, Frankfurt Radio Symphony Orchestra, Jarvi) (2015) [FLAC 2.0|48/24|Lossless|tracks] <Classical>
@@ -710,35 +739,6 @@ Michele Benuzzi - Christoph Nichelmann: Harpsichord Sonatas (2015) 2CD [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6062D3C786A4C9118BD320FA7A80AEA1FDA4338C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001565   (852097) от 29.03.2016
-
-Ewald Demeyere - Arne: Eight Sonatas or Lessons for the Harpsichord (2002) [FLAC|Lossless|tracks + .cue] <Classical, Baroque, Keyboard>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sonata I in F-major: Andante  2:58
-02.  Sonata I in F-major: Adagio  0:14
-03.  Sonata I in F-major: Allegro  3:15
-04.  Sonata II in e-minor: Andante  5:11(   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DB237F6D19A56DC9384522FCAB7C82067B1A2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 798232   (539626) от 30.06.2019
+
+kairo — 11 альбомов (2010-2013) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2013.04.29 例大祭新譜無料配布デモCD (M3-31)
+2013.05.26 (KAIRO-007) Do not distract the eye in the here andnow (Reitaisai 10)
+2013.12.30 So, All we have (not) created equal (C85)Тип издания: DoujinЖанр: J-MetalФормат: Touhou VocalПродолжительность: 00:04:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158235C11CE01C79AD419B5A48712BD216D3B000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936527   (539631) от 30.06.2019
 
 IZMIZM — 14 альбомов (2007-2018) Touhou Instrumental /Doujin/ [FLAC|Lossless|tracks] <Electronic>
@@ -733,35 +762,6 @@ Tears Of Tragedy - & (Acoustic) (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45E651A0FF3A363E3CA264A2EFB4515971420442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300995   (583084) от 13.05.2019
-
-MACROSS 82-99 - Idol, Sakura (2017) [FLAC|Lossless|WEB-DL|tracks] <Vaporwave, Nu-Disco, Electronic>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Belong (2:24)
-02.Back At It (w/ Lotus Cloud, ft/ Le Real) (2:40)
-03.Cherry (w/ Night Tempo, ft/ Punipunidenki) (3:55)
-04.Harajuku Heat (w/ Facy Sedated) (2:10)(   Читать дальше...   )Жанр: Vaporwave, Nu-Disco, ElectronicПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C4E9FE9951A8D22D6F00397140C455E6363397
 ```
 
 https://mybot314.ru/tekegram_catalog/

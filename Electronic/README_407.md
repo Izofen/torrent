@@ -1,3 +1,32 @@
+###  Публикация: 1203631   (787717) от 03.02.2018
+
+VA - Relax Culture Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cayo Largo  -  I Don't Need Your Number (Original Mix)  3:55
+02.  Eguana  -  Puddles Of Autumn (Original Mix)  5:07
+03.  D. Batistatos  -  This Road (Original Mix)  5:32
+04.  GMO & Dense  -  Into A New Dimension (Original Mix)  7:36(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A70A385083CF35F7C94AA2CCFD3D1A1D60380C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203700   (787719) от 03.02.2018
 
 Known Rebel - Discography 4 Releases (2010-2014) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Dubstep, UK Garage>
@@ -716,35 +745,6 @@ IAMX - Alive In New Light (2018) [MP3|320 Kbps] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9164C859E3386B3C5B67368BFB1B89985C56196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203246   (788608) от 01.02.2018
-
-Krama - Made in Dancefloors (2018) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neelix & Caroline Harrison – Makeup (Krama Remix)
-02. Krama & Linimi – Made in Dancefloors (Original Mix)
-03. Krama & Normalize – Hexapole (Original Mix)
-04. Krama – Master of Elements (Extended Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92BB2E7CCD63BC9DCE9BE03664951E2521C3B6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1552201   (588554) от 19.05.2022
+
+Angelo Taylor - The Best of Angelo 2008 (2008) [MP3|320 Kbps] <Synthpop, Space, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шамбала, Ч. 2 (5:25)
+02. Вояджер, Ч. 2 (2:55)
+03. Когда я один, я скучаю по тебе (Remix) (3:10)
+04. Одинокий ангел (4:26)(   Читать дальше...   )Жанр: Synthpop, Space, AmbientПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72098179205D3242662F7E0769235E0D9FDF8882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552239   (588555) от 19.05.2022
 
 Angelo Taylor - The Best of Angelo 2008 (2008) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space, Ambient>
@@ -714,35 +743,6 @@ VA - Festival Favorites 2015 - Armada Music (2015) [MP3|320 кб/с]<Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB89365C9289DE308AA8B65BB195CA4581B55F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550924   (591158) от 13.05.2022
-
-Asia 2001 - Eternal (2022) [FLAC|Lossless|WEB|tracks] <Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doing This (Club Mix) (6:15)
-02. No One (Club Mix) (6:10)
-03. Stand By (Club Mix) (6:03)
-04. Sound Addiction (Club Mix) (5:58)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88EDE99F1C948862548FD6911C46FB57D7C28878
 ```
 
 https://mybot314.ru/tekegram_catalog/

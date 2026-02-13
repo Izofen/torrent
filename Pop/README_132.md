@@ -1,3 +1,66 @@
+###  Публикация: 583746   (311955) от 02.12.2012
+
+Mylène Farmer - Monkey Me (2012) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elle a dit (03:52)
+02. À l'ombre (04:51)
+03. Monkey Me (04:13)
+04. Tu ne le dis pas (04:22)
+05. Love Dance (04:06)
+06. Quand (04:07)
+07. J'ai essayé de vivre... (04:40)
+08. Ici-bas (04:33)
+09. A-t-on jamais (03:47)
+10. Nuit d'hiver (05:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D90B6361795CEBCA7BF32CC291296BE6E74E7A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260079   (312020) от 07.11.2018
+
+VERA - Полускромная; Слабая; Название альбома (2017-2018) 3 EP [MP3|320 Kbps] <Alternative Pop, Alternative Rock, Blues Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312020.jpg" />
+</div>
+
+
+###  Подробнее
+
+2017 - Полускромная
+2018 - Слабая
+2018 - Название альбомаЖанр: Alternative Pop, Alternative Rock, Blues Rock, Indietronic, RockПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:372188506D84981A6DA6C8E906A044D6CCEF3907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 157255   (312115) от 10.12.2009
 
 Ольга Орлова - Первый (2001) [FLAC|Lossless]<Pop>
@@ -703,64 +766,6 @@ VA - 90s 00s and 10s Love Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00AAB8A708D1AE7DAA2982034F8BA620C4CEC1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182510   (314360) от 11.11.2017
-
-Technotronic - Best Of (2012) Compilation [FLAC|Lossless|tracks + .cue] <Euro House, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pump Up The Jam (3:36)
- 02. Get Up (Before The Night Is Over) (3:29)
- 03. This Beat Is Technotronic (feat. MC Eric) (3:38)
- 04. Rockin Over The Beat (Rockin' Over Manchester) (7'' rmx) (4:08)(   Читать дальше...   )Жанр: Euro House, TechnopopПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1E43EC0C42B741578D95A00A2F0C9DA66B7179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959437   (314381) от 25.11.2015
-
-VA - Disco Discharge (2009-2012) [MP3|184-320 кб/с]<Disco, Italo Disco, Hi NRG, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Buzzard's Original Savannah Band - Cherchez La Femme/Se Si Bon (5:47)
-02. Double Discovery - Thanks For Loving Me (8:45)
-03. Cheryl Lynn - Got To Be Real (5:08)
-04. Rose Royce - Do Your Dance (9:19)(   Читать дальше...   )Жанр: Disco, Italo Disco, Hi NRG, Funk|Продолжительность: 39:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB3CD71DF6506A72378672615223EC780283105
 ```
 
 https://mybot314.ru/tekegram_catalog/

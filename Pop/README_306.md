@@ -1,3 +1,174 @@
+###  Публикация: 1002655   (846928) от 01.04.2016
+
+Amelia Brightman - Amelia Brightman (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop Rock, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confide In Me [04:14]
+02. Fly [03:56]
+03. Your House [03:58]
+04. Rain [03:37](   Читать дальше...   )Жанр: Pop Rock, Pop, VocalПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB362477ADC2617A39F9ED150E61D1D532E84B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002663   (846930) от 01.04.2016
+
+Elisa (Elisa Toffoli) - On (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Habits
+02. Rain Over My Head
+03. Love Me Forever
+04. Love As A Kinda War(   Читать дальше...   )Жанр: Pop, Dance Pop, ElectronicПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7211854CC6F2960F7482CE807C994A1C6A0E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002652   (846931) от 01.04.2016
+
+VA - Super Sanremo (2015) Compilation, 2 CD [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846931.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+01. Il Volo - Grande Amore    03:46
+02. Chiara - Straordinario    03:09(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4944804B7A174002CE69318F50A6DBA1A1DF7F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002581   (847104) от 01.04.2016
+
+Aurora & The Betrayers - Vudu (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul-Jazz Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey, Hey!
+02. Voodoo
+03. Pay Me Back
+04. You Can Come Back(   Читать дальше...   )Жанр: Pop, Rock, Soul-Jazz Female VocalПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2085F7708D493BCA58D7BAE2076A6AEC60CCA0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 649735   (847314) от 28.04.2013
+
+Татьяна Овсиенко - Созвездие Хитов /The Best Of/ (2005) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:06:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499518   (847578) от 02.10.2021
+
+NILETTO - юбилейный 30 (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847578.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. привет пока
+2. навигатор
+3. Someone like you
+4. проблем(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F35EF679405B7345268F09C14CF10F20801D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499516   (847827) от 02.10.2021
 
 RSAC - не важно что говорят кисы (2021) [MP3|320 Kbps] <Alternative Pop, Indie Pop>
@@ -577,180 +748,6 @@ VA - All I Think About Is You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FD17CE68ECB1F29A24B4FDF8E07CA7E8E798A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377598   (851502) от 22.04.2020
-
-ABBA - The Essential Collection (2012) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851502.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. People Need Love (2:48)
-02. He is Your Brother (3:21)
-03. Ring Ring (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F959C6C64A4DD7848118977BBC840A69488BFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377465   (851732) от 22.04.2020
-
-Дмитрий Маликов - The Best (2003) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты одна, ты такая (4:31)
- 02. Шепотом (4:15)
- 03. Черный дрозд и белый аист (ремэйк 2003) (4:32)
- 04. Ты не прячь улыбку (4:44)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924588260C26177A3AD2B0DE3D7DB6EFFBB793FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377698   (851828) от 22.04.2020
-
-Shona Laing - South (серия "Другие восьмидесятые") (1987) [MP3|320 Kbps] <Synthpop, New Wave, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soviet Snow
-02. (Glad I'm Not) a Kennedy
-03. Caught
-04. The Bishop(   Читать дальше...   )Жанр: Synthpop, New Wave, Pop RockПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858B9684D76ABF3AC0B5598920962F1CCC8D6C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377725   (851880) от 22.04.2020
-
-Max-B - Sex Revolution (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Afrobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex Revolution (7:54)
-02. Super Bwana (9:35)
-03. Jungle (4:14)
-04. Bembe (4:05)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, AfrobeatПродолжительность: 00:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE3192206F6447845C2E59CC84B6615758235B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377502   (851883) от 22.04.2020
-
-Cristina - Doll In The Box (1980) Reissue CD, 2004, ZE Records [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungle Love (5:21)
-02. Don't Be Greedy (6:18)
-03. Mamma Mia (4:04)
-04. Interlude (0:24)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD33B5EB288FC2583DE2CF4698B5B1E84D36BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110629   (851954) от 03.03.2017
-
-VA - High Life - 20 Original Top Hits (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco, New Wave, Europop, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzi Quatro - Rock Hard (3:21)
-02. Stacy Lattisaw - Jump To The Beat (3:30)
-03. The Gap Band - Oops Up Side Your Head (3:29)
-04. Roxy Music - Oh Yeah (There's A Band Playing On The Radio) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Disco, New Wave, Europop, FunkПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C7BF8A6362CD385E78748900A79AF50F3D6DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

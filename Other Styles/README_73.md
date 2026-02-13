@@ -1,3 +1,32 @@
+###  Публикация: 1321583   (456802) от 25.08.2019
+
+Christopher Phillips - Piano Chill: Songs of Billy Joel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Always a Woman (3:40)
+ 02. She's Got a Way (3:17)
+ 03. Piano Man (2:53)
+ 04. Allentown (4:10)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9526E9C62549E6855E457E1C5BBA12535BBF717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246966   (456986) от 13.09.2018
 
 Matt English - Inspire Me (2018) [MP3|320 Kbps] <New Age, Piano>
@@ -722,35 +751,6 @@ Cristina Branco - Коллекция, 9 альбомов (1998-2011) [MP3|320 kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF31B84B8E500D60596901F9F58829072386B4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161410   (464913) от 29.08.2017
-
-Tyler Bates & VA - Atomic Blonde / Взрывная блондинка (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bowie - Cat People (Putting out Fire) (06:43)
-02. Peter Schilling - Major Tom (vollig losgelost) (04:59)
-03. HEALTH - Blue Monday (04:46)
-04. Tyler Bates - C*cks*cker (01:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934B8BF86FA20B33CB2B315AC3B8827AE087FB14
 ```
 
 https://mybot314.ru/tekegram_catalog/

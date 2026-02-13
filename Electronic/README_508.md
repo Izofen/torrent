@@ -1,3 +1,32 @@
+###  Публикация: 1462515   (1021187) от 14.04.2021
+
+VA - Первому Покорителю Космоса (To The First Conqueror of Space) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbeat, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PPK (Pimenov Plus Khramkov) - Zodiac Reload (Mashur X Mad-A Remix) (4:09)
+02. Soulstring - Gagarin (5:50)
+03. Dmitriy Zhavoronkov - Fly (3:26)
+04. ESTRADARADA - Ночь космонавтики - Мантра о счастье свободного человека (7:33)(   Читать дальше...   )Жанр: Electronic, Breakbeat, SynthpopПродолжительность: 02:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A92A9FD955E0805965980A5C9A40BA7C64D0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462417   (1021192) от 14.04.2021
 
 VA - Moments to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -709,35 +738,6 @@ W O L F C L U B (Wolfclub) - Just Drive - Part 1 (2021) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B825EEBD8445F877FE7103D07AAF5AABE8B22A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461057   (1021951) от 09.04.2021
-
-Faithless - All Blessed (2020) [FLAC|Lossless|image + .cue] <Dance, House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poetry (3:39)
-02. Gains (3:27)
-03. I Need Someone (4:54)
-04. Remember (7:05)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9062F5A36AE2CA960ED3BAA132C58728005F6388
 ```
 
 https://mybot314.ru/tekegram_catalog/

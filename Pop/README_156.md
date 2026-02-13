@@ -1,3 +1,177 @@
+###  Публикация: 1067434   (387276) от 29.10.2016
+
+Madness - Can’t Touch Us Now (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Touch Us Now 04:13
+02. Good Times 02:54
+03. Mr. Apples 03:39
+04. I Believe 03:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A499A14AE12CFE726638878B93BB1865A419EC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326261   (387303) от 19.09.2019
+
+Mabel - High Expectations (2019) [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387303.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 High Expectations (Intro) 1:29
+2 Bad Behaviour 3:26
+3 Don't Call Me Up 2:58
+4 FML 3:13(   Читать дальше...   )Жанр: Pop, R&B, DanceПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EF6779B6D10FAC2BDB586BE0FF7D02CC4A8C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067705   (387377) от 29.10.2016
+
+Andy Williams - Reflections (1977) Compilation [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moon River
+2. Sad
+3. Both Sides Now
+4. Home Lovin' Man(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10332C3F7ECBF3EC3904A85703C3E337CEE5AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067613   (387379) от 29.10.2016
+
+Madness - Can’t Touch Us Now (2016) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Touch Us Now 04:13
+02. Good Times 02:54
+03. Mr. Apples 03:39
+04. I Believe 03:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50836888C1582F81F460859F7E4D107DFC86CD95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067077   (387554) от 29.10.2016
+
+VA - Disco Edits - Halloween  (2016) [MP3|320 Kbps] <House, Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jon Rich - Chicos - Original Mix (06:07)
+02. Spank - The Start - Original mix (05:20)
+03. Dat Butterflies - Never Stop - Original Mix (05:17)
+04. Angelo-K - Highway Feat. Amos To - Original mix (05:20)(   Читать дальше...   )Жанр: House, Disco, Nu-DiscoПродолжительность: 01:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411B2957FA512571D34630D615CE665834EB9B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252973   (387581) от 07.10.2018
+
+VA - 110 Hits 2018 (2017) 5CD [MP3|320 Kbps] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387581.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Louane - Si t'etais la
+02. Bigflo & Oli - Dommage (Acoustic)
+03. Kendji Girac - L'envie(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E272C60AE2C0F470E93B3755330B2A586187A858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571284   (387622) от 07.11.2012
 
 Céline Dion - Sans Attendre (2012) (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, French Vocal>
@@ -594,180 +768,6 @@ Jeanne Mas - Le Disque D'or (2012) [MP3|320 кб/с]<French Pop, Electropop, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD73A72CDA7381C547885D0873FF181D18EFDB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172514   (393048) от 08.10.2017
-
-Gwen Stefani - You Make It Feel Like Christmas (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells
-02. Let It Snow
-03. My Gift Is You
-04. Silent Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A73A10756A194FC820E663D0E0B00FC830437BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172563   (393166) от 08.10.2017
-
-Rod Stewart - Star profile (2000) [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Baby Jane
-02.Da Ya Think I'm Sexy
-03.Sailing
-04.Ooh la la(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD62A8B14197EFD4C8FD6B7EE6E8CC37D79AAE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172638   (393174) от 08.10.2017
-
-Santaren & The Lovin' Girls - Love Killer (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Killer (5:38)
-02. Sit Down (5:45)
-03. Dance Tango Tango (Part 1) (4:09)
-04. Dance Tango Tango (Part 2) (3:01)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F9BB048718B0EB31EB9C6A02042931139E327C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172201   (393830) от 07.10.2017
-
-Lara Fabian - Camouflage (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growing Wings
-02. Chameleon
-03. If I Let You Love Me
-04. Choose What You Love Most (Let It Kill You)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA94F9F7DED9FF0B33CCEFA84DEBEB29DD8B7A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171985   (393922) от 07.10.2017
-
-Lara Fabian - Camouflage (2017) [MP3|320 Kbps] <Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growing Wings (2:58)
- 02. Chameleon (3:19)
- 03. If I Let You Love Me (3:36)
- 04. Choose What You Love Most (Let It Kill You) (3:53)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33709A1AF627E93C33910E9F27A56B3F6C926935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171616   (393947) от 07.10.2017
-
-Lili & Susie - The Sisters (1990) [FLAC|Lossless|image + .cue] <Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boyfriend
-02. Can't Let You Go
-03. Can You Keep A Secret?
-04. Evelyn [0:04:02.08](   Читать дальше...   )Жанр: EuropopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDCE5A0DAE60E29BB5EFD5EACA5CADEFC8FADC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

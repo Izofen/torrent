@@ -1,3 +1,32 @@
+###  Публикация: 1315187   (513901) от 19.07.2019
+
+VA - Power Lifting Platinum Hits Fitness Session (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morgana - Nobody Love (Fitness Version)
+02. Speedmaster - Kids In America (Fitness Version)
+03. Speedmaster - Get Ur Freak On (Fitness Version)
+04. Mazerati - Hold Each Other (Fitness Version)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DF4DCA814A89A20E6779D931230D6E03AC06AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242564   (513984) от 23.08.2018
 
 VA - Barcelona to Mykonos - The Circuit Music Guide (2018) [MP3|320 Kbps] <House, Big Room, Progressive House>
@@ -714,35 +743,6 @@ El Choop - render_series (2019) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06C89C3692C86EAFD77CFDE3C6C3F7C00510429A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560961   (517657) от 02.07.2022
-
-V.A. - Coffee Bar Lounge, Vol. 27 (2022) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Hartman – Dreams Are Reality
-02. Lazy Hammock – One Love
-03. Mo'jardo – Late Night Lattè
-04. Jens Buchert – Rosetta(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E88343082BFF0C496E5F5513F3246E0E1A698A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

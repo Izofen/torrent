@@ -1,3 +1,73 @@
+###  Публикация: 539454   (504819) от 28.08.2012
+
+VA - Хит Шансона хитов Vol.2 (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504819.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Елена Кантер - Пью за любовь
+002. М. Круг и В. Цыганова - Дорога дальняя
+003. О. Лифановский - Я Тебя Больше Не Жду
+004. М. Баталов - Вор
+005. Борис Гулярин - Сонька Золотая ручка
+006. С. Джанни - Я От Тебя Вдали
+007. Михаил Шуфутинский - Анжелина
+008. Назар - Люба-Любаша
+009. А. Новиков - Это Было У Моря
+010. А. Климнюк - Удачи тебе браток(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D11AA9703CACFCD26A84505F1713D943530F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539936   (504879) от 28.08.2012
+
+VA - I love Electro Music vol.1 (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504879.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 13
+2. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 16
+3. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 2
+4. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 7
+5. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 8
+6. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 9
+7. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 14
+8. Alex Sayz ft Nadia Ali - Free To Go (Original Mix)
+9. Alexander Popov Feat. Kyler England - My World (Dub Mix Edit)
+10. Bel Suono & DJ Magic Finger  - Te Quiero(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219D00CEBE765877F2C61AE83A1FA479D6D1A31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933603   (505201) от 02.09.2015
 
 VA - Всё сразу. 200 хитов. Выпуск 6 (2015) [MP3|128 - 320 кб/с]<Pop, Dance, Rock>
@@ -717,70 +787,6 @@ VA - Лучшая 100ка Record: Взорви танцпол Vol.4 (2012) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4D355C3E3097F514C3E51987D7D38076C2DB4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539444   (506747) от 26.08.2012
-
-VA - Ibiza Summer (2012) [MP3|320 кб/с]<Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для лучших ди-джеев  мира  Ibiza становится домом с середины июня до конца сентября. Они  развлекают многочисленную публику соответствующих клубов на Ибице каждую неделю. Назовите вашего любимого DJ и будьте уверенны, что он будет на Ибице этим летом. Просто назовем несколько самых популярных:1. Cristian Bergagna - Darkest Hour (5:53)
-2. Gon Munoz - Sleepless Night Fly Version (6:51)
-3. Young Doyle - Your Soul (6:51)
-4. Andrea Colina and Victor Elle - Simple Things (10:27)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 05:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF5F866E41B9ADCD866208747B274008AF3B155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539595   (506796) от 26.08.2012
-
-VA - Soul of Ibiza Volume 42 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506796.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Headstrong feat. Shelley Harland - Here In the Dark (Aurosonic Progressive Mix)
-002. Alexander Popov - Attractive Force (Original Mix)
-003. Armin Van Buuren - We Are Here To Make Some Noise (Extended Mix)
-004. Bartlett Bros., Matt Loki & Tiff Lacey - Sweet Child (Fabio XB Rework)
-005. Beat Service feat. Gemma Pavlovic - Masquerade (Original Mix)
-006. Chapter XJ - Believe (Original Mix)
-007. Cosmic Gate & JES - Flying Blind
-008. Daniel Kandi - Insert Generic Title (Original Mix)
-009. Dash Berlin feat. Sarah Howells - Go It Alone (Club Mix)
-010. Diddy feat. Skylar Grey - Coming Home (SHato & Paul Rockseek Bootleg)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F921CD158C9AB59D54D99A7D7CAECFDB547C9123
 ```
 
 https://mybot314.ru/tekegram_catalog/

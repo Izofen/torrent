@@ -1,3 +1,29 @@
+###  Публикация: 350824   (627296) от 14.06.2011
+
+Franck Pourcel - plays Abba & The Beatles (2010) [MP3|320 kbps]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55CFB65A89F5BC02BB3534E372BEB9521C33058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909522   (627629) от 17.06.2015
 
 Jesse Cook - One World (2015) [FLAC|Lossless|WEB-DL]<Flamenco, New Age, World music>
@@ -746,32 +772,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:114ADBEC23D15614F3CCBA115358CD22248A2C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349866   (632031) от 12.06.2011
-
-Steve Grossman - Standards (1985) [MP3|224 kbps]<Instrumental,Saxophone Jazz>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental,Saxophone JazzПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F811CA289070C9D33F4287F64E1462F5CA5C648
 ```
 
 https://mybot314.ru/tekegram_catalog/

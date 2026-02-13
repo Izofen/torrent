@@ -1,3 +1,32 @@
+###  Публикация: 1153327   (559550) от 26.07.2017
+
+VA - Nothing But... Progressive House Vol.04 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boskii - Rouge (Original Mix)  7:38
+02.  AkroSonix - Fade Away (Original Mix)  5:21
+03.  Andski - Aye Dee (Platunoff Deep Retouch)  6:22
+04.  Max Tarasov - Sun Valley (Original Mix)  4:52(   Читать дальше...   )Жанр: HouseПродолжительность: 02:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729C3FAE3918750D9E49928DFB9ACA085BBC509E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045540   (559684) от 23.08.2016
 
 VA - Defected present: For The Love Of House, Vol. 10 (2016) [MP3|320 Kbps] <House>
@@ -714,35 +743,6 @@ Label Pack - Supercell Recordings - 14 Releases (2015-2016) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C21A3C4079BDCF1A316BB80822FDCE3D18ADC05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045230   (561264) от 22.08.2016
-
-C.C.C.P. - Album & Compilation (1990, 1992) [MP3|320 Kbps] <Electronic, Industrial, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая синти-поп-группа. Выделились от "депеш мод подражателей 80-х" имея более жесткий и энергичный звук. Первые же дебютные синглы "American-Soviets" в 1986 попадают в танцевальные клубы и на пост-панк-вечеринки, став любимцами ди-джеев на протяжении 80-х - начала 90-х. Первый и самый интересный альбом, включающий названные, последующие и (   Читать дальше...   )01. The World Part I (1:03)
-02. American Soviets (5:14)
-03. Don't Kill The Rain Forrest (6:37)
-04. Conquestadores (4:53)(   Читать дальше...   )Жанр: Electronic, Industrial, Synth-popПродолжительность: 02:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D370F2796EBC339972111CB9EC2AB3A86B000EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

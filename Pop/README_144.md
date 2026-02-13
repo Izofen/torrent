@@ -1,3 +1,176 @@
+###  Публикация: 1257029   (347479) от 25.10.2018
+
+Лев Лещенко - Моя последняя любовь (2018) [MP3|320 Kbps] <Retro, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моя последняя любовь
+02. Счастье (& Жасмин)
+03. Не верь словам
+04. Никогда не забуду я тебя(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557D7B18DFC053E3F9BAE3BCAA06CBC6C867B332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257028   (347483) от 25.10.2018
+
+Иванушки International - Лучшее в нашей жизни (2015) 2CD, Deluxe [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вселенная (3:41)
+02. Тучи (4:11)
+03. Где-то (4:24)
+04. Кукла (5:17)(   Читать дальше...   )Жанр: PopПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5D7FB6385B683A5C7113F09D9150B5AF675D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257034   (347488) от 25.10.2018
+
+Николай Басков - Верую (2018) [MP3|320 Kbps] <Gospel Pop, Neo Soul>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Да пребуду в Господе вовек (3:11)
+02. Борюсь (4:08)
+03. Всё забывается (3:59)
+04. Всесильный Бог (3:33)(   Читать дальше...   )Жанр: Gospel Pop, Neo SoulПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4D768568317AECB00801239EED97E835F24E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073236   (347529) от 15.11.2016
+
+Pixie Geldof - I'm Yours (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Ethereal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Thing
+02. I'm Yours
+03. So Strong
+04. Woman Go Wild(   Читать дальше...   )Жанр: Alternative Pop, EtherealПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67C0869ED9D2390E413153DF518D096B5F93560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326426   (347539) от 07.10.2019
+
+Андрей Державин и Сталкер - Песни о хорошем, Часть 1 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347539.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не плачь, Алиса!
+2. Ночной город
+3. Когда ты уйдёшь
+4. Звёзды(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA01A2300EEB76E29FC010CA93DBAF988BE7E21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257253   (347617) от 25.10.2018
+
+Agnetha Faltskog - I Stand Alone (1987) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Time
+02. Little White Secrets
+03. I Wasn't The OneЖанр: PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E823819A1740C8C99064B1CDABD646378CFB61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257040   (347772) от 25.10.2018
 
 Устинья Малинина - Влюбишься (2018) [MP3|320 Kbps] <Pop>
@@ -581,177 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC24C6EF9CA442348103AC15D843D811C826641C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329385   (349719) от 06.10.2019
-
-Enrique Iglesias - Greatest Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bailando (Spanish Version) (feat. Descemer Bueno & Gente De Zona)
-02. Tonight (I'm Fuckin' You) (Explicit) (feat. Ludacris & DJ Frank E)
-03. Hero
-04. I Like It (feat. Pitbull)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A9C3E25E438563E9148A7DC5843C2DA4A6A804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329819   (349847) от 06.10.2019
-
-Сергей Минаев - Мишура (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349847.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не реально
-2. Ничего особенного
-3. Осень в глазах
-4. Балдею(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260D1E32756FD0FD3F6AEB872F984705476C6B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257048   (350028) от 24.10.2018
-
-Олег Яковлев - 1 альбом + 2 сингла (2013-2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Олимпиада 14 (4:12)Жанр: PopПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4C1FE3DBE405F692F15F072519C46350F2D472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577943   (350054) от 21.09.2022
-
-E-Type - Eurotopia (2007) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	E-Type–	True Believer	3:40
-02. 	E-Type–	The Tide	3:57
-03.	E-Type–	Eurofighter	3:47
-04. 	E-Type–	Make Us High	4:09(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F276CB696BD2A356A2E39624226B2718873E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577680   (350064) от 21.09.2022
-
-E-Type - The Explorer (1996) [OGG Vorbis|484 Kbps] <Electronic, Downtempo, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Explorer                                  	1:11
-02. Calling Your Name                         	3:38
-03. Back In The Loop                           	3:27
-04. I Just Wanna Be With You              	3:52(   Читать дальше...   )Жанр: Electronic, Downtempo, Euro HouseПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA86EBE3FF0BDAF0E9137020D4681CAE0783F5F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329354   (350146) от 06.10.2019
-
-Hot Cold - Love Is Like A Game (2019) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Italo-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can Hear Your Voice (12'' Version) (5:33)
-02. Just Gotta Tell Her (12'' Version) (4:16)
-03. Love Is Like A Game (12'' Version) (6:09)
-04. Don't Talk About It  (12'' European Version) (6:23)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFDF4995EEB8F3EE8742EFA0601BB522FB78379
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1411015   (429483) от 24.09.2020
+
+VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J. C. Aprile & His Orchestra / Feelings (04:14)
+02. Denny Wright / Try A Little Tenderness (02:59)
+03. Denny Wright / Fly Me To The Moon (02:57)
+04. Dick Abell / Minette (02:21)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F10C83EC4AE7FE4132907AB864FFFF07D065FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411010   (429613) от 24.09.2020
 
 Fleet Foxes - Shore (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie Rock>
@@ -724,35 +753,6 @@ VA - Meesters Der Sfeermuziek 2 - De beste Orkesten (2002) 3 CD [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12BCB014A69F319BCAFF5CAC30815FF956F45167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410708   (433867) от 22.09.2020
-
-François Mardirossian - Moondog Piano Works (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barn Dance (01:18)
-02. Mazurka (01:12)
-----
-Prelude and Fugue No.1 in A Minor(   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36CECFE9F554E0C20F96B4CF88AB96304A061FAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

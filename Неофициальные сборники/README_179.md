@@ -1,3 +1,32 @@
+###  Публикация: 1184143   (303608) от 16.11.2017
+
+VA - New Trance Vocal (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Frainbreeze feat. Ellie Lawson - I Pray (Extended Mix)  5:14
+02.  Attila Syah & Cari - Dark Side Of The Moon  6:28
+03.  Tau-Rine feat. Alaera - In The Memory (Original Mix)  6:23
+04.  Tom Exo feat. Jeena B - Sure Thing (Kiyoi & Eky Remix)  6:31(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1BB6A786D8DA8CD38C69585F349439F6BFD04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184123   (303610) от 16.11.2017
 
 VA - Future Electro House Essentials (2017) [MP3|287-320 Kbps] <Club, Dance, Electro House>
@@ -713,35 +742,6 @@ VA - Лучшая клубная музыка AndrS vol.30 (2012) (2012) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30E5BB2A925210625CEFEE3DA0E1A0D58FC069EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333235   (305270) от 24.10.2019
-
-VA - Autumn Chill Electronic (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305270.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Interstellaro - Splendid
-002. Sebhelyes - Bains Douches
-003. Gordon Geco - Awake (Original Mix)
-004. Electric Night - Spoq(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 09:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA1BEE50B7316AD1224604766556E72A73B6EE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

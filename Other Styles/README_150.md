@@ -1,3 +1,32 @@
+###  Публикация: 1110628   (852095) от 03.03.2017
+
+Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, World, Ambient, Hang>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Step (4:39)
+02. Between Oil And Water (4:55)
+03. Freeze (3:52)
+04. Pointillism (6:00)(   Читать дальше...   )Жанр: New Age, World, Ambient, HangПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118E70CA854E68EAC6622A71D2B5D164B16CBA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000891   (852107) от 29.03.2016
 
 John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -797,35 +826,6 @@ Henry Mancini - The Pink Panther (1963) [MP3|320 kbps]<Jazz/Soundtrack>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377018   (854787) от 20.04.2020
-
-Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Metal, Electro>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854787.jpg" />
-</div>
-
-
-###  Подробнее
-
-|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
-|05:33| 02. Mick Gordon - Cultist Base
-|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
-|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC05FB30D2C1B966AF5E7FF1041DB1E062F0C987
 ```
 
 https://mybot314.ru/tekegram_catalog/

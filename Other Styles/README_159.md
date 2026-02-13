@@ -1,3 +1,38 @@
+###  Публикация: 641325   (884629) от 08.04.2013
+
+Deep Forest - Deep Africa (2013) [MP3|320 кб/с]<New Age/World Music/Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Amber Opening 03:21
+02. Dub Africa 02:43
+03. Mosika 05:18
+04. Yelele 04:18
+05. Bedi 04:29
+06. Atali Wowo 04:43
+07. Wasis 06:57
+08. Zoulawa 03:44
+09. Ho Mambo 03:33
+10. Alaake 03:41(   Читать дальше...   )Жанр: New Age/World Music/EthnicПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6F1207FAF2CF852F7182DE172714BDF0746053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 641395   (884968) от 08.04.2013
 
 VA - Midnight Club: Street Racing Soundtrack (2000) [MP3|~245 кб/с (V0)]<Soundtrack>
@@ -758,41 +793,6 @@ VA - Музыка гармонии сна (2008) [FLAC|Lossless|image + .cue] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA9956FA93FC0AEAF0AE3B965974A5648A7A9FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185154   (888065) от 21.03.2010
-
-Balkan Beat Box - Blue Eyed Black Boy (2010) [MP3|320 кб/с]<Electronica / Rock Gypsy / Balkans Folk / Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Move It
-03. Blue Eyed Black Boy
-04. Marcha De La Vida
-05. Dancing With The Moon
-06. Kabulectro
-07. My Baby
-08. Balcumbia
-09. Look Them Act
-10. Smatron(   Читать дальше...   )Жанр: Electronica / Rock Gypsy / Balkans Folk / EthnicПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

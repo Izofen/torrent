@@ -1,3 +1,32 @@
+###  Публикация: 1151410   (572742) от 19.07.2017
+
+New Order - Music Complete: Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, New Wave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tutti Frutti (Takkyu Ishino Remix) (7:55)
+ 02. The Game (Mark Reeder Spielt Mit Version) (6:48)
+ 03. Academic (Mark Reeder's Akademix) (7:23)
+ 04. People on the High Line (Purple Disco Machine Remix) (7:05)(   Читать дальше...   )Жанр: House, Downtempo, New WaveПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E13ED1BDC371A5AF7F41D4B50B9BF817F3B1A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234350   (572806) от 04.07.2018
 
 VA - Trance Music 2018: Best Of Trance Music Vol.2 (Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <Trance>
@@ -723,35 +752,6 @@ Groove Armada - Goodbye Country (Hello Nightclub) (2CD) (2001) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C7ECE04FD6B855468A7CCF3660C8DA4DDB19965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361883   (575083) от 11.07.2011
-
-VA - Bar Lounge Classics: Late Night Edition (2009) [MP3|320 kbps]<Chillout, Lounge, Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575083.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Bar Lounge Classics: Late Night Edition (2009)
-Год: 2009
-Жанр: Chillout, Lounge, Downtempo
-Продолжительность: 03:52:14(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8076EE1B8121CDDA174310BBF7F99D8707DE4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

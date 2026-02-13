@@ -1,3 +1,32 @@
+###  Публикация: 959155   (540221) от 07.09.2016
+
+Rondo Veneziano - Concerto per Mozart (1990) [FLAC|tracks+.cue]<Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Così fan tutte (4:11)
+02. Don Giovanni (7:25)
+03. Sonata (K.545) (2:25)
+04. Serenata, Part 1 (3:59)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFD6AE0B0159BDEE2B00436A8113E90EE3C28BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959163   (540226) от 07.09.2016
 
 Rondo Veneziano - Fantasia d'Inverno -Fantasien zur Winterzeit (1998) [FLAC|tracks+.cue]<Modern Classical>
@@ -730,35 +759,6 @@ Mikhail Gnesin - Russian Futurism (Vol.4)(Konstantin Krimets & Russian Philarmon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEBFADFD8F32DCD7500103EEEBDD75FF20E00446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044300   (564763) от 20.08.2016
-
-Lindsey Stirling - Brave Enough (2016) Limited Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop, Electronic>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Girls - 4:35
-02. Brave Enough (feat. Christina Perri) - 4:23
-03. The Arena - 3:52
-04. The Phoenix - 4:04(   Читать дальше...   )Жанр: Classical Crossover, Pop, Electronic, Dubstep, ViolinПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE26942494E63A5C90D9F83A3D7C060614D688B
 ```
 
 https://mybot314.ru/tekegram_catalog/

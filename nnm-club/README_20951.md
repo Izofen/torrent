@@ -1,25 +1,22 @@
-###  Публикация: 1122175   (799241) от 04.04.2017
+###  Публикация: 1011412   (797048) от 27.04.2016
 
-PhotoStack (was Instastack) 3.6.3 [En]
+Русский вопрос (27.04.2016) SATRip
 
->>Архив торрентов
->>Архив 4Apple
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799241.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoStack (был Instastack) - настольный клиент Instagram.
-PhotoStack -  Это самый элегантный способ просмотра Instagram на Mac.
-PhotoStack - это новый инструмент, чтобы помочь вам открыть для себя Instagram и если вы хотите подключить свой аккаунт Instagram из строки меню на вашем Mac, PhotoStack это ваш инструмент.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 апреля 2017Разработчик: IcyArrow,Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+"Русский вопрос" – еженедельная авторская программа директора Института стран СНГ Константина Затулина.В этом выпуске: 1. Страсти по капремонту. 2. Сочи: в поисках формулы Евразии. Город зимней Олимпиады и Формулы-1 принимает сторонников евразийской интеграции.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаРежиссер: Александр ДавыдовПродолжительность: 00:39:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C592CD379DDBF6BEA6CB606AE0CDFD213420F230
+magnet:?xt=urn:btih:9FD5DBA92C28F448458667938AA2ACE4E7FB6B6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121951   (799242) от 04.04.2017
+###  Публикация: 1011351   (797049) от 27.04.2016
 
-VA - Submission Recordings Presents Miami 2017 (Mixed by INDI & Atragun) (2017) [MP3|320 Kbps] <Trance>
+Место встречи. Кому нужна была перестройка? (27.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE3C51CDFDE5A6625207FB20A0114C20FF2DCEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011260   (797050) от 27.04.2016
+
+Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	For Some Time Past
+02.	Dizoxin
+03.	Caliphone
+04.	Piko(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B1446512AC84C1A12EE73848223C81A6614701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011439   (797051) от 27.04.2016
+
+Нгуен Динь Тхи и др. | У подножия горы Нге (1975) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797051.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник входят повесть и рассказы известных современных детских писателей ДРВ и Южного Вьетнама, рисующие жизнь вьетнамских детей, их участие в пионерских делах, в борьбе народа за свою свободу. В книге читатель найдет повесть Ван Чаунга "Тайна храма Трех сестер", рассказы Фам Хо, Май Нгы, Нгуен Лая и других писателей.Жанр: Детская прозаПеревод: Инесса ЗимонинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011979E33ECEC4BFD24F37B3656A957FA288A25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011253   (797052) от 27.04.2016
+
+Футбол. Лига Чемпионов 2015-2016. 1/2 финала. Первый матч. Манчестер Сити (Англия) - Реал (Испания). (26.04.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797052.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 апреля 2016, вторник. 21:45 МСК
+1/2 финала. 1-й матч
+
+Стадион: Этихад - Сити оф Манчестер (Манчестер, Англия) , вместимость: 55097(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Михаил Поленов, Денис Казанский) / ИнтершумПродолжительность: 01:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAEE82513A578D999D5A81FFAD6AD5A20C4FF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011145   (797053) от 27.04.2016
+
+Jens Jakob - Another Dimension (2016) [MP3|320 кб/с] <Trance, Psy-Trance, Breaks>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799242.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Toast - Rise Up (Original Mix)  4:53
-02.  Amir Shahlaee - Summer Island (Michael Fearon Remix)  6:23
-03.  Tocalta - Fragments (Original Mix)  5:00
-04.  Biotones & Max Farewell  - Paraschute (Ion Luca Remix)  5:22(   Читать дальше...   )Жанр: TranceПродолжительность: 04:13:57
+01. Paranoia (Original Mix) (08:31)
+02. Sphere (Original Mix) (07:23)
+03. Another Dimension (Original Mix) (07:45)
+04. Supernova (Original Mix) (09:38)(   Читать дальше...   )Жанр: Trance, Psy-Trance, BreaksПродолжительность: 02:57:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B70E4D3FC69D6C7CD96BA897C1A8429D03A9E8CF
+magnet:?xt=urn:btih:D6496517792FA4FA080413F290D8E22025AB33EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,339 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122188   (799243) от 04.04.2017
+###  Публикация: 1011255   (797054) от 27.04.2016
 
-Dirty Dave Osti - Voodoo Guitar (2010) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play What the Man can't Say (04:37)
-02. Lit Again (04:43)
-03. Lips of a Liar (05:44)
-04. Wildside (03:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFFA0E5FA01E54E6E2F547FEE1AF1CDD14C76ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121851   (799244) от 04.04.2017
-
-Aldaria - Land Of Light (2017) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excitare Ad Lucem 01:06
-02. Another Life 06:14
-03. Guardians Of The Light 06:04
-04. Sands Of Time 04:52(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00: 59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0259AE5F4BDC3385FE350F34D27B6D0A3D83F66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121961   (799245) от 04.04.2017
-
-VA - Chill Pilates Music: 15 Cool Chill Out Tracks for Pilates and Yoga (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethereal Moments - Salutations to the Sun
-02. Peter Orbit - Les Nuits
-03. Bella Element - In This World
-04. Jonathan Sarlat - Moments in Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B320E197F34A5CF8B6AE7EB3CE0125EF0571449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121974   (799246) от 04.04.2017
-
-SteerMouse 5.0.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799246.jpg" />
-</div>
-
-
-###  Подробнее
-
-SteerMouse — продвинутый драйвер для USB и Bluetooth мышек, позволяющий присваивать их кнопкам дополнительные функции. Обладатели Mighty Mouse, а также манипуляторов от сторонних изготовителей могут увеличить производительность работы, используя новые возможности мышки: переключение приложений, нажатие горячих клавиш, быстрое наведение курсора на кнопки и многие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14 марта 2017Разработчик: plentycomПоддерживаемая ОС: macOS 10.6  +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B69ED334C0F0169ECD447BC3A663E98EC8E46D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122156   (799247) от 04.04.2017
-
-Elian West - Uplifting Trance Collection Vol 6 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road Home (08:17)
-02. Magic Winter (06:43)
-03. My Sun (08:43)
-04. I Miss You (04:37)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E1AA2905EC45A959086489413DECE6D9E84419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121983   (799248) от 04.04.2017
-
-VA - Chillout April 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Leonid Bannikov - Black Princess (Chillout Mix)  5:19
-02.  CJ RcM - Mallorca (Chillout Mix)  4:38
-03.  Doors In The Sand - True Story (Chillout Mix)  4:19
-04.  Diamans - Reach Heavens (Chillout Mix)  4:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABB0B2A5BD9A232B1525F78EAA4385F2D28E788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121979   (799249) от 04.04.2017
-
-Lingon X 4.3.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingon X  - автоматический запуск приложений и сценариев
-Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 февраля 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AA194DAE4567A1841C7920645D3F31201C37F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122055   (799250) от 04.04.2017
-
-Tempel - On The Steps Of The Temple (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain (08:31)
-02. Rising From The Abyss (09:06)
-03. Final Years (04:38)
-04. The Mist That Shrouds The Peaks (10:15)(   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DC76ED874C7BA9F4B410EB1B86AC28C5187381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122187   (799251) от 04.04.2017
-
-VA - Sexy Deep House (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Vegas - Hold Me Down
-02. Echoboy - Get Do It
-03. DJ Favorite - Beautiful Night - Mars3ll Remix
-04. Plastik Night - Bono(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB10F8E7228D4D849326609EE0500700D4F6435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121965   (799252) от 04.04.2017
-
-VA - Chillout Summer Session Ibiza Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Skendo - Romantic Beach Dinner  3:03
-02.  Mari Billa - Kids Of The Moon  3:01
-03.  Xavier Baptist - The Early Bird  3:33
-04.  Tom Hold - Journey  5:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A590DAC7F9BC88FC0D8CB2E349AEF70547AB27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122250   (799253) от 04.04.2017
-
-iFinance 4.2.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799253.jpg" />
-</div>
-
-
-###  Подробнее
-
-iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 апреля 2017Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F764E9B0E5F92E7A9E30836E68DBC032453B60C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122078   (799254) от 04.04.2017
-
-Ike Quebec - It Might As Well Be Spring (1961) 1998, Ars Nova [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Alexey Lapin & Yury Yaremchuk (Алексей Лапин и Юрий Яремчук) - Anatomy of Sound (2010) Solyd Records[APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799254.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.It Might As Well Be Spring [06:19]
- 02.A Light Reprieve [05:25]
- 03.Easy Don't Hurt [06:09]
- 04.Lover Man [05:58](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:46
+01.Birth [06:51]
+ 02.Transformations [07:25]
+ 03.Transmutations [06:03]
+ 04.Transconfigurations [10:57](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:47:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D98F74EBD8D5F55C04A78087F247933FC7624280
+magnet:?xt=urn:btih:DFC865A85A091D2A5CD5AA5BD7E5F679722E83D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,85 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122061   (799255) от 04.04.2017
+###  Публикация: 1010752   (797055) от 27.04.2016
 
-Tempel - The Moon Lit Our Path (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carvings In The Door (08:22)
-02. The Moon Lit Our Path (09:33)
-03. Descending Into The Labyrinth (12:20)
-04. Tomb Of The Ancients (09:59)(   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AD109E4485737641F75844E1A9034E9BC2B4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121899   (799256) от 04.04.2017
-
-VA - Beatport Trance  Pack (04.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  TrancEye - Ad Astra (Extended Mix)  6:38
-02.  Andre Visior & Mind X - Eclipse (Original Mix)  6:57
-03.  Solis & Sean Truby pres. S&ST - Roots (Extended Mix)  6:40
-04.  Sheridan Grout & Michele C - One Chance (Steve Allen Remix)  5:47(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 02:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9D75446FF95B484B81E84F327AD12B4A31674B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122281   (799257) от 04.04.2017
-
-Leaf 5.0.7 [En]
+Футбол. Чемпионат Франции 2015-2016. 35 тур. Марсель - Нант (24.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799257.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Leaf интуитивно понятная читалка для RSS новостей
-Leaf  является удивительным для чтения новостей для вашего Mac. Читайте, делитесь и пользуйтесь поиском новости на всех ваших любимых веб-сайтов.
-Leaf проще как по функциям, так и по внешнему виду. В читалке появилась поддержка агрегатора Feedly, так что теперь без проблем можно прыгать между Leaf, ReadKit и Reeder (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 апреля 2017Разработчик: Rocky Sand Studio Ltd.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+24 апреля 2016, воскресенье. 15:00 МСК
+35-й тур
+
+Стадион: Велодром (Марсель, Франция) , 19 898 зрителей (30 % при вместимости 67 394)(   Читать дальше...   )Телекомпания: Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Казаков)Продолжительность: 01:42:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11ED8034EA863C6C8FCAA622E94D46D5D8EE21CB
+magnet:?xt=urn:btih:341A709DF28B644AE1A6828FA1C6AB867ED8BCDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,25 +221,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120880   (799258) от 04.04.2017
+###  Публикация: 1011175   (797056) от 27.04.2016
 
-Ori Uplift - Uplifting Only, Episode 216 (2017) [MP3|192 Kbps] <Trance, Uplifting Trance>
+Футбол. Чемпионат России 2015-2016. 25 тур. Обзор матчей. (25.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799258.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. [0:00:33]: FAN FAVORITE: Javii Wind - Endless Waltz (DreamLife Remix)Жанр: Trance, Uplifting TranceПродолжительность: 02:10:27
+Обзор матчей 25-го тура.Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Филипп Кудрявцев)Продолжительность: 00:56:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F987B205180139D5236B20D4367336921956FE7
+magnet:?xt=urn:btih:E5A336F11F47F3BEE0FD31D5D2375CE57DB37D05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,28 +247,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122111   (799259) от 04.04.2017
+###  Публикация: 1011179   (797057) от 27.04.2016
 
-VA - Trance Spring Essentials (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+Футбол. Чемпионат Италии 2015-2016. 35 тур. Обзор матчей (26.04.2016) HDTVRip [H.264/720p-LQ]
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799259.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Vintage & Morelli ft. Arielle Maren - Awaken (Extended Mix)  7:49
-02.  Shingo Nakamura - The Four (Yuji Ono Remix)  5:53
-03.  LTN & Roni Joni - In Between (Sound Quelle Remix)  5:48
-04.  Gregory Esayan - Make a Wish (eleven.five Remix)  7:18(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:47:26
+Обзор матчей 35-го тура.Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Павел Занозин)Продолжительность: 00:40:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B277A1D774C38BC7DE6785E70353EA0F6916E57E
+magnet:?xt=urn:btih:25AC2E08B70C6BD07AD19A72D6A5A451C13D1A2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,28 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121972   (799260) от 04.04.2017
+###  Публикация: 1010685   (797058) от 27.04.2016
 
-VA - Relaxing Beach Chillout Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Футбол. Чемпионат Франции 2015-2016. 35 тур. Ренн - Монако (24.04.2016) HDTVRip [H.264/720p-LQ]
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799260.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ronner T - Belfast  5:44
-02.  Rudegroove - Sinergy  5:16
-03.  Rico Bonetti - Just Chillin'  3:08
-04.  Steven Moses - Call Me Now (Fresh & Martin's Chillout Mix)  2:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:56
+24 апреля 2016, воскресенье. 22:00 МСК
+35-й тур
+
+Стадион: Стад де ла Рут де Лорьян (Ренн, Франция) , 23 251 зритель (75 % при вместимости 31 127)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Зигаев)Продолжительность: 01:39:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30045D7CE016CEC65EA44AD087B53AF8E2CC599D
+magnet:?xt=urn:btih:3CB5455B42225ED15041FD4A480FD4D959B4AF8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,28 +302,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122118   (799261) от 04.04.2017
+###  Публикация: 1010693   (797059) от 27.04.2016
 
-Chano Dominguez - Chano (1993) Nuba Records [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Flamenco>
+Футбол. Чемпионат Германии 2015-2016. 31 тур. Айнтрахт (Франкфурт) - Майнц (24.04.2016) HDTVRip [H.264/720p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799261.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Refrito [05:09]
- 02.Naima [07:39]
- 03.Choricli Jul. [03:51]
- 04.Pa mi Nino ( Parte 1 ) [01:48](   Читать дальше...   )Жанр: World Fusion, Latin Jazz, FlamencoПродолжительность: 01:00:27
+24 апреля 2016, воскресенье. 18:30 МСК
+31-й тур
+
+Стадион: Коммерцбанк-Арена (Франкфурт, Германия) , 50 300 зрителей (96 % при вместимости 52 300)(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Михаил Мельников)Продолжительность: 01:41:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30B16044A53D74382E732A804B29C8CF3C6D92B4
+magnet:?xt=urn:btih:38DDB12CA84B2D5DD2C87F5D2F13C945BF1891D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,106 +331,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121942   (799262) от 04.04.2017
+###  Публикация: 1171551   (797060) от 25.05.2020
 
-Sectioned - Purulent Reality (2010) [FLAC|Lossless|image + .cue] <Death Metal>
+Road Redemption (2017) [Ru/Multi] (1.0/upd9/dlc) Repack Other s
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Lonely Grasp of Winter (07:01)
-02. My Love of Decay (06:54)
-03. Loneliest Man (04:59)
-04. Behind My Eyes (07:00)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6374F8A68EEA704E2CAF28938EE212921ABE0581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088833   (799263) от 03.01.2019
-
-LAZY IPTV v2.56 AdFree + clone [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное приложение позволяет просматривать ТВ на основе технологии IPTV. Это приложение не содержит встроенных плейлистов, а является лишь клиентом, позволяющим удобно и комфортно смотреть телевидение онлайн. Для просмотра необходимы плейлисты в формате m3u или xspf.Тип издания: AdFree + cloneРелиз состоялся: 29.12.2018Разработчик: LazyCat SoftwareПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D57BEA3E54D009AA29BFF6F8C0E8BC048C0F416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273558   (799264) от 03.01.2019
-
-Однажды в Америке или чисто русская сказка (2018) WEBRip [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799264.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленькой стране Аннунакия на престол восходит молодой король — Макбук-102-й. Согласно завещанию отца, Макбук должен взять в гарем юбилейную русскую жену. И так совпало, что как раз в это время по стране гастролирует русский народный ансамбль! В то время, пока молодой король ищет русскую красавицу, президент государства Самая Шибкодемократическая Автономия (сокращенно (   Читать дальше...   )Производство: Россия / ООО Кинокомпания «Задорное кино»Жанр: КомедияРежиссер: Дмитрий ПанченкоАктеры: Михаил Башкатов, Эммануил Виторган, Юрий Гальцев, Марина Орлова, Елена Синилова, братья Пономаренко, Николай Бандурин, Игорь Письменный, Елена ЗадорноваПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC324FF682192F825DBC665CB71C4689DFA0839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067074   (799265) от 03.01.2019
-
-Alice VR (2016) [Ru/Multi] (1.0/u7) License GOG
-
->>3
 >>След.
+>>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799265.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Alice VR - это остросюжетная исследовательская игра с множеством головоломок, уникальное приключение в виртуальной реальности. Игра создана по мотивам известной книги Льюиса Кэрролла "Алиса в Стране чудес", персонажи и сюжеты которой перенесены в фантастическую, инопланетную обстановку. Прекрасные пейзажи, стильная электронная музыка.Тип издания: LicenseРазработчик: Carbon StudioЖанр: Adventure, IndieЯзык озвучки: Английский и ПольскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+Road Redemption — это гоночная экшн-игра, в которой вы возглавляете банду мотоциклистов в эпичном путешествии по стране — грандиозном приключении с жестокими сражениями за рулем мотоцикла. Зарабатывайте деньги, проходя гонки, совершая убийства и ограбления, а также разбираясь с препятствиями на своем пути. Собрав лут, вы можете улучшать своего персонажа, мотоцикл (   Читать дальше...   )Тип издания: RepackРазработчик: Pixel Dash Studios, EQЖанр: Racing (Moto), Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16C28E7CB0BF9EE1B39C4372FDFD2AD0E598B416
+magnet:?xt=urn:btih:B518A999E02320F8406F0F6C2CB639FB6C1BBB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,25 +357,340 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227636   (799266) от 03.01.2019
+###  Публикация: 1362526   (797061) от 25.05.2020
 
-Dark Souls: Remastered (2018) [Ru/En] (1.0.3/Reg 1.04) Repack West4it
+Goblin Slayer | Убийца Гоблинов [2018, TV, 12 ep] BDRip 1080p raw+rus
 
->>3
->>4
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799266.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Затем появился огонь. Заново переживите события легендарной игры, с которой всё началось. Издание содержит основную игру и дополнение «Арториас из Бездны». В новом воплощении вас ждёт возвращение в Лордран, представленный в HD-графике с поддержкой 60 кадров/с.Тип издания: RepackРазработчик: QLOCЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+Юная Жрица вступает в гильдию авантюристов. Благодаря своим навыкам она стала желанной гостьей в любой команде, даже несмотря на то, что как авантюрист представляла из себя совершенно неопытного новичка.
+В этом мире существует множество монстров. Среди всего их разнообразия гоблины считаются слабейшими и почти всегда становятся первой добычей для начинающих авантюристов. (   Читать дальше...   )Производство: White Fox, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Одзаки ТакахаруОзвучка: Двуголосая, Многоголосая закадроваяЯзык озвучки: Японский и РусскийСубтитры: Надписи, ПолныеЯзык субтитров: РусскийПродолжительность: 12 Эпизодов по 23 Мин
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:190C8D1CB11112C87F4E0BBCF2E647A84B647871
+magnet:?xt=urn:btih:A2A91E96E88B0B0F2A837762DAC98A1B6E8007BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132920   (797062) от 25.05.2020
+
+STRAFE (2017) [Ru/Multi] (23.05.2020/dlc) License GOG [Gold Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797062.jpg" />
+</div>
+
+
+###  Подробнее
+
+STRAFE® - самый динамичный, кровопролитный и убойный боевик в стиле 90-х и с видом от первого лица. Устройте врагам мясорубку и залейте кровью все вокруг! Однако имейте в виду: на исследование леденящих кровь уровней вам отведена всего одна жизнь. После смерти все будет уже совсем иначе.Тип издания: LicenseРазработчик: Pixel TitansЖанр: Шутер, От первого лица, ФантастикаЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E26C56CEAF1672F8A63A70662E5AA8E33E4CF30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152650   (797063) от 25.05.2020
+
+Revhead (2017) [Ru/Multi] (1.4.6692/dlc) Repack Other s
+
+>>След.
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revhead - продвинутый автомобильный симулятор, в котором вам предоставлена возможность собрать свой собственный гоночный автомобиль из множества доступных деталей, а также участвовать в престижных гонках! У вас есть друг Чарли, который занимается сборкой гоночных автомобилей. Ему понадобилась ваша помощь и он пригласил вас в Австралию. Вы начнете свое путешествие (   Читать дальше...   )Тип издания: RepackРазработчик: Creative Pudding Hungary Llc.Жанр: Simulator (Cars), Racing, 3DЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA7BCC74A76CCC422E85F22DAF3F0A8B06E9CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385120   (797064) от 25.05.2020
+
+The Elder Scrolls III: Morrowind (2002) [Ru] (1.6.1820/dlc) License [Game of the Year Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозная нелинейная ролевая игра The Elder Scrolls: Morrowind позволяет вам создать такого персонажа, какого пожелаете. Вы можете продвигаться по главной сюжетной линии в поисках источника пагубной болезни, отравляющей землю, или же отправиться в собственное путешествие, изучая удивительные места и совершенствуя своего героя. Сногсшибательная трехмерная графика, (   Читать дальше...   )Тип издания: LicenseРазработчик: Bethesda SoftworksЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BBEAC824AD11846238CE5B4EF0795D8556533F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358101   (797065) от 25.05.2020
+
+Предатель / Il traditore / The Traitor (2019) HDRip [H.265/720p-LQ] [10-bit] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797065.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 1980-х между боссами сицилийской мафии разгорается война за героиновый рынок. Один из мафиози, Томмазо Бушетта, пытается скрыться в Бразилии. В то время, как на его родине начинается бойня, Бушетта вынужден издалека наблюдать за тем, как его сыновей и братьев убивают в Палермо. Он понимает, что может стать следующим. Бразильская полиция арестовывает Бушетту (   Читать дальше...   )Производство: Италия, Франция, Бразилия, Германия / Ad Vitam Production, Arte France, Gullane Filmes, IBC Movie, Kavac Film, Match Factory Productions, Rai CinemaЖанр: Драма, биография, криминалРежиссер: Марко БеллоккьоАктеры: Пьерфранческо Фавино, Луиджи Ло Кашио, Фаусто Руссо Алези, Мария Фернанда Кандиду, Фабрицио Ферракане, Calì Nicola, Джованни Калканьо, Бруно Карьелло, Бебо Сторти, Vincenzo PirrottaПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C729D1EB474C851476B4EDC7DFDA9B04D9D40DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385240   (797066) от 25.05.2020
+
+Джон Уик  / John Wick (2014-2019) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Уик - американская медиафраншиза, состоящая из боевиков, созданных Дереком Колстадом и режиссёром Чадом Стахелски. Первый фильм также включал Дэвида Литча как некредитованного сорежиссера. Киану Ривз играет одноименного персонажа, бывшего наёмного убийцу жаждущего мести.
+Серия началась в 2014 году с выпуска «Джона Уика». За ним последовал сиквел, который было (   Читать дальше...   )Производство: Китай, США, Гонконг / 87Eleven, Lionsgate, Summit Entertainment, Thunder Road, DefyNite Films, MJW FilmsЖанр: Боевик, Триллер, КриминалРежиссер: Чад Стахелски, Дэвид ЛитчАктеры: Киану Ривз, Микаэл Нюквист, Иэн МакШейн, Лэнс Реддик, Дэниэл Бернхард, Бриджет Риган, Эдрианн Палики, Элфи Оуэн-Аллен, Уиллем Дефо, Дин Уинтерс, Омер Барнеа, Тоби Мур, Бриджет МойнэхэнПеревод: Дублированный (Лицензия)Субтитры: русские, английскиеПродолжительность: 01:41:12 / 02:02:23 / 02:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A566A2E81D85449C7E33F37CF82DC0B4B105E871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378698   (797067) от 25.05.2020
+
+Filament (2020) [Ru/Multi] (1.0.2726) License GOG [Marmalade Edition]
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filament — это спокойная головоломка с увлекательной историей и насыщенным сюжетом. Приготовьтесь раскрыть тайны пустого, на первый взгляд, космического корабля, прокладывая нити света. Взойдите на борт «Алебастра», исследовательского флагмана корпорации «Нить», и познакомьтесь с Джунипер — последним членом экипажа корабля, дрейфующего на орбите неизвестной планеты.Тип издания: LicenseРазработчик: Beard EnvyЖанр: Стратегия, Головоломка, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3850841385235250C772B9A886CB07C4E461610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385682   (797068) от 25.05.2020
+
+Тёмное наследие / Inheritance (2020) WEB-DLRip H.264]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка Лорен из богатой семьи увлечённо делает карьеру окружного прокурора, когда её отец, ещё совсем нестарый мужчина в хорошей форме, внезапно умирает от сердечного приступа. Тут выясняется, что именно ей он оставил странное наследство — ключ от какого-то бункера. Спустившись в страшный подвал, девушка обнаруживает там закованного в цепи заросшего и грязного человека. (   Читать дальше...   )Производство: США, Highland Film Group (HFG), Ingenious Media, Southpaw EntertainmentЖанр: Триллер, драма, детективРежиссер: Вон СтайнАктеры: Лили Коллинз, Саймон Пегг, Конни Нильсен, Чейс Кроуфорд, Марке Ричардсон II, Майкл Бич, Крис Гэнн, Хосе Херрера, Кристина ДеРоса, Харрисон Стоун и др.Перевод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D69FD40C6CCED0D8A4C0FAF634A563E9B3114E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360753   (797069) от 25.05.2020
+
+Константин Назимов | Охранитель [Книга 1-3] (2019-2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван и думать забыл об эпизоде, когда его отблагодарил аксакал, проведя странный ритуал и дав непонятное напутствие. Прошло не так много времени, и пули киллера стали толчком к началу новой жизни… в другом мире и теле.Отброшен назад, и реальность другая. Несколько ключевых событий в России восемнадцатого – девятнадцатого веков пошли по другому сценарию.Жанр: Альтернативная история, попаданцыПродолжительность: 11:32:48
+Минул год, как Иван Чурков попал в имперскую Россию 1903 года. Реальность оказалась другой, на троне дочь Николая Второго, а живется явно лучше, чем в свое время в родном мире Ивана. Он уже сумел закрепиться в новой жизни, пройдя путь от подростка из села до охранителя. В полной мере свои знания и навыки, которые смог восстановить, применить не удалось. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C0A3D0B3E12E9734F1DA416E532425D9CCA85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385596   (797070) от 25.05.2020
+
+ICE Book Reader Professional 9.6.4 + Skin + (Maxim + Tatyana) Portable by Deodatto [Ru]
+
+>>След.
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797070.jpg" />
+</div>
+
+
+###  Подробнее
+
+ICE Book Reader - мощная читалка электронных текстов (книг). ICE Book Reader Professional - это первая альтернативная читалка для .LIT, .CHM и .ePub  файлов, не использующая компоненты Microsoft Reader или Microsoft HELP. Также возможно использовать ICE Book Reader Professional как конвертер файлов: TXT-HTML, HTML-TXT, TXT-DOC, DOC-TXT, PDB-TXT, LIT-TXT, FB2-TXT и (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901ABBD5E8AA82A4A701996466A98396F0584B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385667   (797071) от 25.05.2020
+
+Рэмбо: Последняя кровь / Rambo: Last Blood (2019) BDRip [H.264/720p] [Extended Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он хранил секреты всю жизнь, но пришло время взглянуть в глаза прошлому. В последний раз собраться и стать безжалостной машиной для убийства. Рэмбо снова встанет на смертельно опасный путь — путь мести, который ему придется пройти до конца.Производство: США, Испания, Болгария / Balboa Productions, Campbell Grobman Films, Dadi Film GroupЖанр: Боевик, триллер, приключенияРежиссер: Адриан ГрюнбергАктеры: Сильвестр Сталлоне, Пас Вега, Иветт Монреаль, Луис Мэндилор, Оскар Хаенада, Шила Шах, Серхио Перис-Менчета, Джессика Мэдсен, Хоакин Косио, Адриана Барраса, Джени Ким, Паскасио Лопес, Александр ДимитровПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E10ECC82EE71EFED2C2BE8F5F43E9A39C606B4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385724   (797072) от 25.05.2020
+
+Внутренний огонь (2020) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797072.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роскошной петербургской квартире бывшего наркобарона встречаются четыре незнакомца. Хозяин дома опаздывает, и четверым гостям ничего не остается, кроме как сидеть и разговаривать. Один из них пришел просить денег, другой - оружие, третий - с целью шантажа, а четвертый – чтобы убить третьего. Слово за слово, и то, что сначала начиналось как безобидный разговор между (   Читать дальше...   )Производство: Россия / Tarlo filmЖанр: Комедия, ужасыРежиссер: Михаил МарескинАктеры: Андрей Папанин, Михаил Павлик, Софья Синицына, Дмитрий "Хаски" Кузнецов, Яков Шамшин, Евгений Тарло ...Перевод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8A0AF0DDCFC9D6C0CF648D0B629F8855FE9598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385510   (797073) от 25.05.2020
+
+Любовнички / The Lovebirds (2020) WEB-DL [H.264/1080p-LQ] [MVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супруги на грани развода во время поездки в Новый Орлеан оказываются подозреваемыми в убийстве и, чтобы спастись, теперь вынуждены работать сообща.Производство: США / Quinn's House, 3 Arts Entertainment, Media Rights CapitalЖанр: Боевик, триллер, мелодрама, комедия, криминал, детективРежиссер: Майкл ШоуолтерАктеры: Кумэйл Нанджиани, Пол Спаркс, Анна Кэмп, Исса Рэй, Кайл Борнхаймер, Джо Крест, Кеннет Кинт Брайан, Махди Коччи, Андрин Уорд-Хэммонд, Келли МуртаПеревод: Двухголосый закадровый, профессиональный (Ideafilm)Субтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B16F65E2E6E5CF7A95350630A14364F05E87D4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

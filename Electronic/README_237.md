@@ -1,3 +1,32 @@
+###  Публикация: 1319767   (429712) от 07.09.2019
+
+Plains Apparition - Encrypt (2019) [MP3|320 Kbps] <Ambient, New Age, Hypnagogic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories of Love (03:25)
+02. Aimless (02:22)
+03. Out of Focus (03:13)
+04. Decade's Trace (06:21)(   Читать дальше...   )Жанр: Ambient, New Age, HypnagogicПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD507AA9E9BFF2B79A6D17B00E9E52C57A8ECF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324076   (429716) от 07.09.2019
 
 Sangam & Kid Smpl - Brave Warrior (2019) Display [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Techno, Jungle>
@@ -720,33 +749,6 @@ DJ Tiesto - In Search Of Sunrise 5 - Los Angeles (2006) (2CD) [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F44612096A3FAB8280CE6FEDB2DA39736204C21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945460   (431747) от 11.10.2015
-
-Dustin Nantais - Cloak / A Long Road (The Remixes) (31.08.2015) [MP3|320 кб/с]<Electronic, Deep, House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dustin Nantais feat. Amber Long - A Long Road (Kobana Remix)
-02. Dustin Nantais - Cloak (Max Cue Remix)Жанр: Electronic, Deep, House, ProgressiveПродолжительность: 00:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD1279437FD20F4DE02027CC7EA1BE730920313
 ```
 
 https://mybot314.ru/tekegram_catalog/

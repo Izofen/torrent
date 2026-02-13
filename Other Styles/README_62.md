@@ -1,3 +1,32 @@
+###  Публикация: 1253816   (379525) от 11.10.2018
+
+Constance Demby - Set Free (The Definitive Edition) (2006) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waltz of Joy (04:45)
+02. Tribal Gregorian (04:19)
+03. Jungle Jam (06:13)
+04. Javalon (04:19)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF95A4C93DE08DC0EAC38EB49EF2418C64B73C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253809   (379526) от 11.10.2018
 
 Constance Demby - Spirit Trance (2004) [FLAC|Lossless|tracks + .cue] <NewAge>
@@ -721,35 +750,6 @@ Covarino/Incorvaia - Chiodi (2018) [FLAC|Lossless|tracks + .cue] <Acoustic, Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3065B6AA03A1E71BCA4B08EA307F95AFC3391F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572932   (383646) от 06.09.2022
-
-Enigma - Le Roi Est Mort, Vive Le Roi! (1996) [OGG Vorbis|485 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le Roi Est Mort, Vive Le Roi!	1:57
-02. Morphing Thru Time	5:47
-03. Third Of Its Kind	0:19
-04. Beyond The Invisible	5:00(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419659B5305E843B52266522C5B2D2273178233A
 ```
 
 https://mybot314.ru/tekegram_catalog/

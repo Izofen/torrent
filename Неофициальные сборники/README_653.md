@@ -1,3 +1,61 @@
+###  Публикация: 1482077   (1007777) от 07.07.2021
+
+VA - Beatport Funky House: Sound Pack #312 (2021) [MP3|320 Kbps] <Funky, Disco House, Jackin House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007777.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elektromekanik - Over You
+002. Jonk & Spook - Get Down
+003. True2life - Bomb Jack 3
+004. Paul Parsons - We Know The Groove(   Читать дальше...   )Жанр: Funky, Disco House, Jackin HouseПродолжительность: 08:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AEAFBA5EA62BD166998274B66311B38703BE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482081   (1007786) от 07.07.2021
+
+VA - Beatport Tech House: Sound Pack #313 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007786.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Julian Iannone - Eclipse
+002. Greg Delon - Cezar
+003. Rex The Dog - Crasher
+004. Roc - Vocalicious(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5AE8A85813AE54232847688DBDE4348C5EC767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482043   (1007790) от 07.07.2021
 
 VA - A Quantum State: Synth Electronic Mix (2021) [MP3|320 Kbps] <Synthetic, Syntwave, Electronic>
@@ -687,64 +745,6 @@ VA - Music Cloud: Synthetic Party (2021) [MP3|320 Kbps] <Electronic, Synthetic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BAD83841F9A3E7AB752A0F11DB6F16A5749B458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480120   (1009101) от 27.06.2021
-
-VA - Music News vol.111 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009101.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stefania - Mucho Calor (03:00)
- 002. Aris feat. Ya Rick - I'm Not Your Kind (02:58)
- 003. Audien - Blue (03:34)
- 004. Ayyo - Ничего (02:28)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB0D2434F0FA4CFBFE479F36B876662532C10D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480110   (1009168) от 27.06.2021
-
-VA - The Official UK Top 100 Singles Chart 25.06.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Rodrigo - good 4 u
-02. KSI - Holiday (New Entry)
-03. The Weeknd, Ariana Grande - Save Your Tears
-04. Doja Cat, SZA - Kiss Me More(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676189003646CF3D4B49E9CA6836F59ACC2C9A12
 ```
 
 https://mybot314.ru/tekegram_catalog/

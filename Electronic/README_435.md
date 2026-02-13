@@ -1,3 +1,32 @@
+###  Публикация: 1115963   (824978) от 19.03.2017
+
+VA - Sirup Dance Anthems Miami (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Croatia Squad – Street Dance (Short Edit) 02:52
+02. Lika Morgan – Sweet Dreams (Andrey Keyton & Sharapov Radio Mix) 03:45
+03. Evelyn – Summer Dream (Jerome Radio Edit) 03:14
+04. Royal Djs – California Dreamin’ (2Elements Radio Mix) 03:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939BCC938A4325C3E19FAD5199E6FC9029D90698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115912   (824979) от 19.03.2017
 
 VA - Sirup House Anthems Miami (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -714,35 +743,6 @@ U96 - Das Boot (1992) [FLAC|Lossless|image + .cue] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28B7A7B560E523F8F6DC3AF6F09302D81D2ADAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005595   (828716) от 11.04.2016
-
-Azul Y Negro + Carlos Vaso - 22 Albums (1982-2012) [MP3|320 кб/с] <Electronic, Synth-pop, Techno>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Azul y Negro, название для дуэта придумано продюсером Джулианом Руисом, которое ему навеяла расцветка формы ФК "Интер" - синее (azul) и черное (negro), - пионеры музыки стиля техно-поп в Испании в 80-х. Первый и классический состав группы - дуэт Карлоса Васо (Carlos Vaso) и Хоакина Монтойи (Joaquin Montoya). Группа была создана в Мадриде, не смотря на то, (   Читать дальше...   )Azul Y Negro:
-01. 1982 - La Edad De Los Colores
-02. 1982 - La Noche
-03. 1983 - Digital (1983) & Digital Remix (1997)(   Читать дальше...   )Жанр: Electronic, Synth-pop, TechnoПродолжительность: 19:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF3D71C8744A9379211D704DEEA6AFBD9F2B716
 ```
 
 https://mybot314.ru/tekegram_catalog/

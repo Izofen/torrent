@@ -1,3 +1,61 @@
+###  Публикация: 1235500   (558678) от 12.07.2018
+
+VA - Courtesy Trance Euphoric (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate - YEAH (Extended Mix)
+02. Kevin Vergauwen & Chatry Van Hove - Glimmer Of Hope (Denis Sender Radio Edit)
+03. Glacial Storm - Tundra (Original Mix)
+04. Elite Electronic - Digital Age (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF61D96B94E231ECD79EE190C8198547F3C889E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924402   (558694) от 03.08.2015
+
+VA - 100 Хитов В Машине. Клубная музыка 2015 (2015) [MP3|320 кб/с]<Trance, Progressive Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558694.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A3 - Stay (Stereojackers Vs. Mark Loverush Club Mix)
+002. Adam Lamber - Ghost Town (Future Nation Remix)
+003. Ahmed Romel, Harmonic Rush - Sevda (Original Mix)
+004. Alessandra Roncone - Place Of Dreams (Sy Gardner Remix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 11:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFCCF620F3D7E829079D7B724F61FA6B3C93BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924395   (558773) от 03.08.2015
 
 VA - Top 100 Самых Красивых Песен 2015 (2015) [MP3|320 кб/с]<Pop, Dance, Club, Blues, Rock>
@@ -726,64 +784,6 @@ VA - Bass House Vol.1 (2016) [MP3|224~284 Kbps] <House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B401C935AAE5B181321F56F55B555506CBE00616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153256   (559841) от 26.07.2017
-
-VA - Italo Disco Retro Mix: New Generation (2017) [MP3|320 Kbps] <Disco, Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Digitalo - Russian Man (ZYX Extended Version)  5:19
-002.  23rd Underpass - Remember (Extended Version)  7:08
-003.  NEA! - It's A Sin (Maxi Version)  7:09
-004.  Italove & TQ - I Need Your Love  4:22(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 11:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE083FA79C455253C0F9FCE7B9E90A80A05C0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304920   (559921) от 28.05.2019
-
-VA - Right To Life: Punk Rock Collection (2019) [MP3|231-320 Kbps] <Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559921.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bad Religion - The Kids Are Alt
-002. Nations Afire - I'm A Brick In The Ocean
-003. Bye Bye California - Imperio
-004. Camiches - Damariz(   Читать дальше...   )Жанр: Punk RockПродолжительность: 06:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37469F444C70CF16F9400E9135F6C160A37DE401
 ```
 
 https://mybot314.ru/tekegram_catalog/

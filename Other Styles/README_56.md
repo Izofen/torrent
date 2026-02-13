@@ -1,3 +1,29 @@
+###  Публикация: 1257119   (345355) от 26.10.2018
+
+Thom Yorke - Suspiria (Music for the Luca Guadagnino Film) (2018) Soundtrack [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: IDM, Experimental, RockПродолжительность: 01:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2189E0D403FD5C0A841EDE37ACF615302930309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578062   (345384) от 23.09.2022
 
 VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Picture, OST [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Hard Rock>
@@ -722,35 +748,6 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D0409D2382028CBF24D22EB7A319F64D1314AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072432   (351831) от 13.11.2016
-
-Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtrack) (2016) [FLAC 2.0|48/24|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shells Landing (01:30)
-02. Around The Clock News (01:45)
-03. The Shell (03:12)
-04. Approaching The Shell (09:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE9BB24C397390DE7ADA3DF3CE5B08C58FEFD85
 ```
 
 https://mybot314.ru/tekegram_catalog/

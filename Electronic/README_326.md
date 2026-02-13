@@ -1,3 +1,32 @@
+###  Публикация: 1227608   (644878) от 27.05.2018
+
+Atsushi Izumi - Snow (2018) Subtrakt [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, IDM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dysprosium (07:29)
+ 02. Ruthenium (03:57)
+ 03. Skaul (03:59)
+ 04. Snow (03:55)(   Читать дальше...   )Жанр: Dark Ambient, IDM, IndustrialПродолжительность: 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123462EB9F2BFE2CAD51C92DB86573FF26BF8590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227633   (644882) от 27.05.2018
 
 Terra Nine - Laniakea (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
@@ -716,35 +745,6 @@ Actress x London Contemporary Orchestra - LAGEOS (2018) Ninja Tune [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF2B7C61DCBC76AAD0C879639F79431F1CC1C60F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232465   (646556) от 29.03.2019
-
-Aesthetic Perfection - Discography 23 Releases (2005-2019) [MP3|320 Kbps] <EBM, Industrial, Future Pop>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646556.jpg" />
-</div>
-
-
-###  Подробнее
-
-2005 - Close To Human
-2007 - Blood Spills Not Far From The Wound (Necessary Response)
-2008 - A Violent Emotion
-2009 - A Violent Emotion (Japanese Limited Edition)(   Читать дальше...   )Жанр: EBM, Industrial, Future PopПродолжительность: 13:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F508E5FFAF2303A47821468C307A2B6C9502B068
 ```
 
 https://mybot314.ru/tekegram_catalog/

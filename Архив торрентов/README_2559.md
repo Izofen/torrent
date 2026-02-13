@@ -1,319 +1,12 @@
-###  Публикация: 399422   (399036) от 14.10.2011
+###  Публикация: 567537   (396204) от 30.10.2012
 
-Вой: Перерождение / The Howling: Reborn (2011) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накануне окончания средней школы обыкновенному парню Уиллу Кидману все-таки удается обратить на себя внимание красавицы Элины Уинтер. Молодые люди счастливы, но внезапно открывается страшная тайна прошлого Уилла — близится час, когда ему предстоит стать оборотнем. Не желая смириться с судьбой, молодые люди нарушают древний мистический цикл и теперь за ними начинает (   Читать дальше...   )Производство: СШАЖанр: УжасыРежиссер: Джо НимзикиАктеры: Лэндон Либуарон, Ивана Миличевич, Линдси Шоу, Нильс Шнайдер, Эрин Симс, Эрин Агостино, Kristian Hodko, Шон Меркадо...Перевод: Двуголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419C10137429FA1CF6D7572D1934C62031F08386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566085   (399043) от 27.10.2012
-
-Убийства – мой конек, дорогая/ Mord ist mein Geschäft, Liebling (2009) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тони Рикарделли в целом доволен своей работой — он киллер. А это значит — хорошая зарплата, гибкий график и общение с новыми людьми. Для полного счастья ему не хватает одного — жениться. При выполнении очередного заказа он знакомится с Юлией. И чтобы быть к ней ближе он вынужден выдавать себя за убитого им мистера Пуцо.Жанр: Мелодрама, Комедия, КриминалРежиссер: Себастьян НимэннАктеры: Рик Каваниан (Rick Kavanian), Нора Чирнер (Nora Tschirner), Кристиан Трамиц (Christian Tramitz), Янек Рике (Janek Rieke), Ганс-Майкл Реберг (Hans-Michael Rehberg), Маттиас Целик (Matthias Zelic), Вольф Рот (Wolf Roth), Франко Неро (Franco Nero)Перевод: Профессиональный (двухголосый)Продолжительность: 01:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F51AE5874E2B3E0121BBEDFB9B7375088DABBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566110   (399050) от 27.10.2012
-
-Я хочу стать солдатом/ I Want to Be a Soldier (2010) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399050.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Алекса, 10-летнего ребенка, который всё больше и больше склоняется к насилию. У него начинаются проблемы общения со своими родителями и другими детьми в школе, он становится изгоем, выдумывая двух воображаемых друзей, астронавта — капитана Гарри и его второго я, Сержанта Джона Кластера.. Когда в его семье появляются родившиеся близнецы, Алекс чувствует себя одиноким и брошенным, потому что теперь всё внимание было приковано к младенцам. Он шантажирует отца, чтобы выполнить его самое большое желание— телевизор для своей спальни…Жанр: ДрамаРежиссер: Кристиан МолинаАктеры: Кэмерон Энтробус (Cameron Antrobus), Жозефин Барнс (Josephine Barnes), Роберт Инглунд (Robert Englund), Кассандра Гава (Cassandra Gava), Дэнни Гловер (Danny Glover), Валерия Марини (Valeria Marini), Хоан Остенч Мартинес (Joan Hostench Martinez), Фергус Риордан (Fergus Riordan)Перевод: Любительский (одноголосый)Продолжительность: 01:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654740907DBAC106B5B78C5A592A066C1519C189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566241   (399055) от 27.10.2012
-
-Guitar Heroes At The BBC (Vol.2)(2CD) (2009) DVDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol.1. Продолжительность: 00:59:11
-
-01. Jimi Hendrix — Hey Joe / Sunshine Of Your Love
-Happening For Lulu - 04/01/1969(   Читать дальше...   )Жанр: Музыка, Classc rockПродолжительность: 00:59:11 +00:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BD4A3CE26D1753FCC21036D9278CA06B96CA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566510   (399059) от 27.10.2012
-
-Дочь Гидеона/ Gideon's Daughter (2005) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о Гидеоне Уорнере, главе пиар-агентства, который должен переоценить свою жизнь, после того как его дочь, с которой у него не складываются отношения, решает уехать из дома.Жанр: ДрамаРежиссер: Стивен ПолякоффАктеры: Билл Найи (Bill Nighy), Миранда Ричардсон (Miranda Richardson), Эмили Блант (Emily Blunt), Роберт Линдсэй (Robert Lindsay), Ронни Анкона (Ronni Ancona), Том Харди (Tom Hardy), Том Гудман-Хилл (Tom Goodman-Hill), Джоанна Пейдж (Joanna Page)Перевод: Любительский (одноголосый)Продолжительность: 01:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C325FA4D1B851531CBC2188776DA0CB124BA1E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566466   (399060) от 27.10.2012
-
-Unitary - Misanthropy (2012) [MP3|320 kbps] <EBM,futurepop,synthpop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myth Parades (04:03)
-02. Miscreation (04:59)
-03. Mark Of Cain (04:59)
-04. Meth (04:33)
-05. Mkultra (04:40)
-06. My Profane (04:44)
-07. Maelstrom (05:51)
-08. Misery's Crown (04:38)
-09. Memesis (04:56)
-10. Miscreation (Acretongue Remix) (05:30)(   Читать дальше...   )Жанр: EBM,futurepop,synthpopПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743D93C34505899BCD6833355C191E5A8E461281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566519   (399096) от 27.10.2012
-
-Совершенные незнакомцы/ Perfect Strangers (1984) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный киллер колеблется, убивать ему или нет трехлетнего ребенка, который оказался свидетелем убийства торговца наркотиками. Вся ситуация осложняется еще тем, что киллер связан романом с матерью ребенка.Жанр: Триллер, Драма, КриминалРежиссер: Ларри КоэнАктеры: Энн Карлайл (Anne Carlisle), Brad Rijn, John Woehrle, Мэттью Стокли (Matthew Stockley), Стивен Лэк (Stephen Lack), Энн Магнусон (Ann Magnuson), Zachary Hains, Otto von WernherrПеревод: Любительский (одноголосый)Продолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55850FBBFC21934E03D83AE51CD870C80AE6D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566516   (399133) от 27.10.2012
-
-Пойманный аниматор/ Suspended Animation (2001) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том Кемптон — успешливый аниматор, которого слегка достала голливудская суета. Он соглашается на предложение своих друзей прокатиться по заснеженному мичиганскому лесу.  Заблудившись, Том набредает на одинокую избушку, в которой живут две пожилые сестры Ванесса и Энн Буллетт, и к ужасу своему выясняет, что сестренки имеют тягу к человеческому мясу и готовы даже им подзакусить.  Спасенный в последний момент, шокированный, но вдохновленный Том собирается свою историю воплотить в очередном мульт-проекте…Жанр: ТриллерРежиссер: Джон Д. ХэнкокАктеры: Алекс МакАртур (Alex McArthur), Ребекка Харрелл (Rebecca Harrell), Лаура Эстерман (Laura Esterman), Сэйдж Аллен (Sage Allen), Фред Мейерс (Fred Meyers), Дэниэл Риордан (Daniel Riordan), Джефф Пакетт (Jeff Puckett), Мария Сина (Maria Cina)Перевод: Любительский (одноголосый)Продолжительность: 01:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549F2E5481980BA477D35D58B270BF7A6F76D50B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566391   (399138) от 27.10.2012
-
-Профессия  репортер. Убойный отдел. Продолжение? (2012.10.27) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399138.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Он сгорел в полицейском УАЗе, а он умер после ночи в КПЗ. Кто виноват? Неужели снова убойный отдел?Жанр: ДокументальныйПродолжительность: ~ 00:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01625CF33CFC3188BE5652F15580A3C46482FC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566346   (399139) от 27.10.2012
-
-Paul van Dyk - Vonyc Sessions 322 (25-10-2012) [MP3|192 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399139.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: TranceПродолжительность: 02:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C902F812800D3A56E447FFA67002888FF56F2321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566558   (399141) от 27.10.2012
-
-Soundtaxi - Dynamic Chillout Vol.1 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399141.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. This Is the Time (6:07)
- 2. Sunflower (4:18)
- 3. Moneywood (5:00)
- 4. Full Legal (3:25)
- 5. Now Is the Time (3:34)
- 6. Delay of Sunset (4:53)
- 7. Smooth Move (5:24)
- 8. Mare di musica (3:34)
- 9. In This World (5:07)
-10. Smart (5:19)Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E2F47363C2C096DF32AB5E11B4C667C39B45B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566097   (399187) от 27.10.2012
-
-Computer Desktop Wallpapers Collection (26.10.12) [Wallpapers]
+Computer Desktop Wallpapers Collection (28.10.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399187.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396204.jpg" />
 </div>
 
 
@@ -323,7 +16,7 @@ Computer Desktop Wallpapers Collection (26.10.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61C28D2B7B654B5AB619F9B1447333D84907FF83
+magnet:?xt=urn:btih:6E9C28A0844F342B44DD329A03FC991BC2211D1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,15 +24,111 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566098   (399188) от 27.10.2012
+###  Публикация: 568009   (396205) от 30.10.2012
 
-Best HD Wallpapers Pack (26.10.12) [Wallpapers]
+VA - Русский Звук 4 (2012) [MP3|128 кб/с]<pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396205.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дима Билан - Всё Ускорилось
+002. Вера Брежнева и DJ Smash - Любовь на расстоянии
+003. Джиган (Geegun) - Держи Меня За Руку
+004. Анна Семенович - Любовь под облаками
+005. Влад Соколовский и Паулина Анис - Гонки
+006. Потап - Лайки
+007. Елка - Хочу
+008. Бьянка - Рага
+009. Света - Лондон-Москва
+010. Полина Гагарина - Нет(   Читать дальше...   )Жанр: popПродолжительность: 11:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2974CC09FCB9660EE7323442301DC4B66CA316E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567586   (396207) от 30.10.2012
+
+Geoff Tate - Kings & Thieves (2012) [MP3|320 кб/с]<Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Slipped Away
+02. Take A Bullet
+03. In The Dirt
+04. Say U Luv It
+05. The Way I Roll
+06. Tomorrow
+07. Evil
+08. Dark Money
+09. These Glory Days
+10. Change(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC51FBE528A35F59AA0828992BEB5F3981547DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567803   (396208) от 30.10.2012
+
+VA - Dj УлыбкIN - Love Story (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396208.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: Pop, DanceПродолжительность: 04:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8819711A2D178DF45A2ABA0DF6C9966EBE7DEDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567560   (396212) от 30.10.2012
+
+Computer Desktop Wallpapers Collection (29.10.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399188.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396212.jpg" />
 </div>
 
 
@@ -349,7 +138,7 @@ Best HD Wallpapers Pack (26.10.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0C531791AC046AB86BE9FA3E0385690512A4640
+magnet:?xt=urn:btih:E66164F5036102DA34F3887868F714CDEEC27DAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,30 +146,91 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566062   (399193) от 27.10.2012
+###  Публикация: 567625   (396215) от 30.10.2012
 
-Unearthly - Flagellum Dei (2011) [FLAC|Lossless]<Black Metal, Death Metal>
+VA - Новый Хит Экспресс. Зарубежный (2012) [MP3|256 кб/с]<Dance, Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399193.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 7.62 3:57
-2. Baptized in Blood 5:39
-3. Flagellum Dei 3:30
-4. Black Sun 5:06
-5. Osmotic Haeresis 3:08
-6. My Fault 3:27
-7. Eye for an Eye 5:00
-8. Lord of All Battles 3:48
-9. Limbus (Instrumental) 2:29
-10. Insurgency 4:15(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:45:18
+001. Lady GaGa - Glitter & Grease
+002. Itaka - La danza de ibiza (Radio mix)
+003. Nicola Fasano, Tommy Vee, Steve Forest & Luca Guerrieri feat. Mat Twice - Tell me waf
+004. Spencer and Hill feat. Nadia Ali - Believe It (Dance Radio Edit)
+005. Rihanna feat. Flo Rida - Where Have You Been (Remix)
+006. Meiko - Leave The Lights On
+007. Morandi - Serenada
+008. T-Moor Rodriguez - Welcome to the night
+009. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia
+010. Jennifer Lopez feat. Pitbull - Dance Again(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11B22EE0CF3795513006AF083B525E79A8DE816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567643   (396216) от 30.10.2012
+
+VA - MAXI. Попсовый Best Зарубежный (2012) [MP3|320 кб/с]<pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loreen - Sidewalk
+02. Dj Lucian - I Send You An Angel
+03. Y-Titty - Der Letzte Sommer
+04. Michael Mind Project feat. Dante Thomas - Feeling So Blue (Radio Edit)
+05. Oceana - Endless Summer
+06. Medina - Forever
+07. Loreen - Crying Out Your Name
+08. Liviu Hodor feat. Mona - Je Taime (French Version)
+09. Dj Assad feat. Mohombi, Craig David & Greg Parys - Addicted (Extended Mix)
+10. Arash feat. Sean Paul - She Makes Me Go(   Читать дальше...   )Жанр: popПродолжительность: 04:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1079D2AE5ACC1F244EE946C49C017AD1B4FCC11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399684   (396240) от 17.10.2011
+
+Ушедшее время / Awaydays (2009) [720p] HDTVRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_396240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДрамаРежиссер: Пэт ХолденАктеры: Стивен Грэхэм, Никки Белл, Лайам Бойл, Оливер Ли, Ли Бэттл, Шон Уорд, Майкл Райан, Йэн Полстон-Дэвис, Холли Грэйнджер, Саша ПаркинсонПеревод: Одноголосый закадровый -Язык субтитров: Русские (2 варианта), АнглийскиеПродолжительность: 01:45:01
 
 ## Скачать торент
 ```bash
@@ -392,15 +242,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566122   (399195) от 27.10.2012
+###  Публикация: 567538   (396246) от 30.10.2012
 
-HQ Wallpapers Perfect Women (26.10.12) [Wallpapers 16+]
+Best HD Wallpapers Pack (28.10.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399195.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC458AAFE3E82023A271B4B356D6AFD875B9F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567570   (396247) от 30.10.2012
+
+HQ Wallpapers Perfect Women (29.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396247.jpg" />
 </div>
 
 
@@ -410,7 +286,7 @@ HQ Wallpapers Perfect Women (26.10.12) [Wallpapers 16+]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C611F322E00B422B5EBDBC3E639C1C3E00A3B52
+magnet:?xt=urn:btih:886291B15034EE4488464557669CD802681DEF3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,15 +294,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566102   (399198) от 27.10.2012
+###  Публикация: 566570   (396249) от 30.10.2012
 
-Desktop Wallpapers (26.10.12) [Wallpapers]
+Wallpapers Sexy Girls Pack (27.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399198.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3000x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617DDA55BE2FD06EB74B3037327F1A5BB33036A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567562   (396250) от 30.10.2012
+
+Nature Wallpapers (29.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396250.jpg" />
 </div>
 
 
@@ -436,7 +338,7 @@ Desktop Wallpapers (26.10.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEFF955DF831E3E1CB77A23E3842A946794C009F
+magnet:?xt=urn:btih:27618D5A11F479632EEE447E78E0D5A3E4739689
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,15 +346,161 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566105   (399200) от 27.10.2012
+###  Публикация: 566569   (396252) от 30.10.2012
 
-Cityscapes Wallpapers (26.10.12) [Wallpapers]
+Sexy Girls Pack Wallpapers (27.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399200.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228993617D3501AB65836669D8F86ACE5DCD6F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567564   (396253) от 30.10.2012
+
+Wallpapers Sexy Girls Pack (29.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5000x3330
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE987CAC35F23F79EB0409F5B5D476DA476B91E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567841   (396254) от 30.10.2012
+
+Журнал | Помощник садовода №20 [октябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень интересное массовое издание для садоводов, огородников и любителей цветов. Наряду с рекомендациями учёных и специалистов широко представлен опыт самых известных садоводов-опытников. Много полезных советов, консультаций и ответов на вопросы читателей по всем направлениям ведения приусадебного хозяйства. Оперативно освещаются все необходимые работы в саду и на огороде. Большой раздел посвящён цветоводству и ландшафтному дизайну.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35347C0624330F61CCCFDE8CC05CA4FC08DDB35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567591   (396256) от 30.10.2012
+
+VA - Anjunabeats Vocal Trance 05 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396256.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Anjunabeats Vocal Trance 05 (2012)
+Год: 2012
+Жанр: Trance
+Продолжительность: 01:35:11Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Above & Beyond Featuring Richard Bedford - On My Way To Heaven (Above & Beyond Club Mix)
+ 02. Mat Zo Feat. Linnea Schossow - The Sky (Extended Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E02BD722F3316FD033DBF960BA79E9E72E3BF2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567646   (396257) от 30.10.2012
+
+VA - Осенняя Vip-Тусовка (2012) [MP3|256 кб/с]<pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зара - Ради Тебя
+02. Никита - Танец в Темноте (Andrey Keyton Official Remix) (Radio Edit)
+03. Danceboy Vs. Cary August - Drive By (Tale. Dutch Edit)
+04. Ирина Дубцова Feat. Dj Slider - Ешь, Молись, Люби (Dance Edit Radio Mix)
+05. DJ Night Rush feat. Biffguyz - Бум Бум Бум
+06. Mmdance - Без Одежды
+07. Sensato - La Banana
+08. PSY - Gangnam Style
+09. Inna feat. PlayWin - INNdiA
+10. Дилайс - Нежно-Нежно(   Читать дальше...   )Жанр: popПродолжительность: 05:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338FD29132D2C079E88B27FF17BE3AFC3414E996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567539   (396258) от 30.10.2012
+
+Nature Wallpapers (28.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396258.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Cityscapes Wallpapers (26.10.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:320953EA78C40A9DCA6495A8971BE7184B9A8F4E
+magnet:?xt=urn:btih:3F1076D20CB0E813E8EA294C6D75077893727D3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,207 +518,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566312   (399201) от 27.10.2012
+###  Публикация: 567544   (396259) от 30.10.2012
 
-Andy Moor - Moor Music 084 (26-10-2012) [MP3|256 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk feat. Plumb - I Don't Deserve You (Jerome Isma-ae Remix) (Vandit)
- 02. Dennis Shepherd - Edge Of The World (Original Dub Mix) (Armada)
- 03. Andy Moor feat. Sue McLaren - Trespass (Antillas & Dankann Club Mix) (AVA)
- 04. Faruk Subanci - Elveda (AVA)
- 05. Aruna - Save The Day (Tom Fall Remix) (Black Hole)
- 06. Andrew Rayel feat. Jano - How Do I Know (Club Mix) (Armind)
- 07. UCast - Genesis (Second Way Remix) (Interstate)
- 08. The Madison - uKnow (Enhanced Progressive)
- 09. Tritonal and Super8 & Tab - ARC (Instrumental Extended) (Air up There)
- 10. C-Systems & Jo Micali feat. Hanna Finsen - Love Is Strong (Estiva Remix) (Enhanced Progressive)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A0D30E8EE99DADDC6BE30440E55650798F6FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566114   (399202) от 27.10.2012
-
-Gilrs Wallpaper (26.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 4500х3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A978836F4D4CBC3BD81CF9AF9FD442EFB3D2463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566002   (399203) от 27.10.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1680х1050/1600х1200 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF0A4F541B073ED8FF3BE8485FB7E2466ACAF75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566108   (399204) от 27.10.2012
-
-Gilrs Wallpaper Collection (26.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 5616х3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5488D7D735EF83FEA9FAAB09D1B53BB396A1433F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566256   (399205) от 27.10.2012
-
-Guttural Slug - Intercranial Purgatory (2012) [MP3|320 кб/с]<Brutal Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intercranial Purgatory 01:48
- 02. Cerebral Polution 02:14
- 03. Necrotic Sanity 02:10
- 04. Head Slammed 02:54
- 05. Skull Fucked 03:04
- 06. Lacerated 03:02
- 07. Forsaken 02:18
- 08. Leeches 02:25
- 09. Blood Pact 02:25Жанр: Brutal DeathПродолжительность: 00:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069AFA0974027159F53C958E5D009E4C341878F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566247   (399206) от 27.10.2012
-
-Mirror Queen - From Earth Below (2011) [MP3|320 кб/с]<Stoner Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Earth Below 04:01
- 02. The Mirror Queen 03:41
- 03. Dark Ships Arrive 04:00
- 04. On Dark Ships 05:39
- 05. The Mirror Queen Part 2 07:28
- 06. Mindworm 05:20
- 07. Black Finger Satellite 03:49
- 08. Into The Nebula 07:19
- 09. Lazarus 05:40
- 10. Mesmerization Eclipse 06:35Жанр: Stoner MetalПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF19B148E53BC76318D8B4145E18C7BCD8E9161A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170603   (399212) от 01.10.2017
-
-Планета обезьян: Война / War for the Planet of the Apes (2017) WEBRip [H.264/720p-LQ] [EN / EN, KOR Sub]
+Плачидо Риззотто / Placido Rizzotto (2000) DVDRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399212.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Армию генетически модифицированных обезьян ожидает новый вызов: они вынуждены вступить в смертельную схватку с армией людей под руководством безжалостного полковника. После невообразимых потерь среди своих воинов вождь обезьян Цезарь начинает личную борьбу с темными инстинктами и собирается отомстить за весь свой вид. В конце концов он и полковник должны будут сойтись (   Читать дальше...   )Производство: США, Канада, Новая Зеландия / Chernin Entertainment, River Road Entertainment, TSG EntertainmentЖанр: Боевик, Приключения, ДрамаРежиссер: Мэтт РивзАктеры: Энди Серкис, Вуди Харрельсон, Стив Зан, Карин Коновал, Амайя Миллер, Терри Нотари, Тай Олссон, Майкл Адамуэйт, Тоби Кеббелл, Гэбриел Чаварриа ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отключаемые), Корейские (вшитые, неотключаемые)Продолжительность: 02:18:50
+Плачидо Ризотто, который еще в детстве насмотрелся, как бесчинствуют нацисты в Сицилии, становится одним из борцов с мафией. В то послевоенное время на Сицилии все было в руках криминальных группировок.  Плачидо становится Робин Гудом Сицилии, чтобы противостоять тирании и беззаконию. Однако, все меняется с появлением в жизни Плачидо девушки по имени Лиа. Ее семья — те, против кого герой фильма ведет борьбу…Жанр: Драма, криминал, биографияВ ролях: Марчелло Маццарелла, Винченцо Альбанезе, Кармелло Ди Маццарелли, Джоя Спациани, Артуро Тодаро, Бьяджо Бароне, Франко Каталано, Giuseppe GennusaПеревод: Профессиональный (многоголосый)Формат: AVIПродолжительность: 01:42:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57647659ADE5DAFE9C02A720797B1B864EBB96AC
+magnet:?xt=urn:btih:3FAD022AC0E49A5CE583977CD6DA0E6ABEEA6362
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,51 +544,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170418   (399217) от 01.10.2017
+###  Публикация: 567563   (396260) от 30.10.2012
 
-Вечерний квартал 95 (2017.09.30) WEB-DLRip (выпуск 100)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребята из "Вечернего квартала" продолжают устанавливать свои правила. И ни авторитет звезд шоу-бизнеса, ни статус влиятельных политиков, ни сам "президент Украины" не могут этому помешать. Здесь правила одни для всех, и "квартальщики" внимательно следят за тем, чтобы все "забавные законы" соблюдались. Злостных правонарушителей (   Читать дальше...   )Производство: "Студия 95 квартал", Телеканал "Интер"Телекомпания: 1+1Жанр: ЮморРежиссер: Владимир ЗеленскийАктеры: Владимир Зеленский, Юрий Крапов, Елена Кравец, Евгений Кошевой, Сергей Казанин, Александр Пикалов, Юрий КорявченковСубтитры: ОтсутствуютПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29087D088EA8F20EE9AF41AEECFE421845421DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566106   (399274) от 27.10.2012
-
-Wallpapers Sexy Girls Pack (26.10.12) [Wallpapers 16+]
+Sexy Girls Pack Wallpapers (29.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399274.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3000x2172
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09F7835E26AC8B30BB611962E80D1B0F23B4FD27
+magnet:?xt=urn:btih:0FDB8B561F401F360509124C3519B7051E251C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567614   (396262) от 30.10.2012
+
+Hatecraft - Lost Consolation (2005) [WavPack|Lossless]<Melodic Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_396262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lose your mind (3:39)
+02. The punisher (5:47)
+03. Demon of mine (5:02)
+04. Generation of obscenities (4:50)
+05. Fear of life & terror of death (4:42)
+06. Sad short story (1:23)
+07. Don't leave me apart (4:10)
+08. Lost consolation (4:10)
+09. Nothing (3:01)
+10. New day (7:15)Жанр: Melodic Death MetalПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566565   (396263) от 30.10.2012
+
+Sexy Girls Pack Wallpapers (26.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3000x1930
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF737852FAA0E8AFDB429917C7A2860CA04E66A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567541   (396264) от 30.10.2012
+
+Wallpapers Sexy Girls Pack (28.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3500x2329
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037429BB1BB0FC757C90A2A0ACEEB11B118E0229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715616   (396316) от 26.10.2013
+
+Мерзлая земля / The Frozen Ground (2013) Blu-Ray [1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все были уверены, что Роберт Хансен — приличный семьянин, владелец пекарни и славный охотник. Никто не подозревал, что на самом деле он — безжалостный маньяк, который похитил и убил более двадцати женщин. И только 17-летней Синди Полсон удалось сбежать от убийцы. Она наводит на след маньяка полицейского, который начинает опасное расследование. Ему никто не верит: (   Читать дальше...   )Производство: США / Cheetah Vision, Valentina FilmsЖанр: Триллер, Криминал, Биография, ИсторияРежиссер: Скотт Уокер / Scott WalkerАктеры: Николас Кейдж, Джон Кьюсак, Ванесса Энн Хадженс, Дин Норрис, Джина Мантенья, Роберт Форджит, Брэд Хенке, Майкл МакГрэйди, Кэтрин ЛаНаса, Райан О’НанПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4ABDA2B67D384D802DE768D00FAD295467FD598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171243   (396332) от 04.10.2017
+
+Человек-паук: Возвращение домой / Spider-Man: Homecoming (2017) BDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396332.jpg" />
+</div>
+
+
+###  Подробнее
+
+После исторической встречи с командой Мстителей Питер Паркер возвращается домой, стараясь зажить обычной жизнью под опекой своей тёти Мэй. Но теперь за Питером приглядывает ещё кое-что… Тони Старк видел Человека-Паука в деле и должен стать его наставником. Когда новый злодей Стервятник угрожает уничтожить всё, что дорого Питеру, приходит время доказать всем, что (   Читать дальше...   )Производство: США, Columbia Pictures, Marvel Studios Inc., Pascal PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джон УоттсАктеры: Том Холланд (II), Роберт Дауни мл., Майкл Китон, Мариса Томей, Джон Фавро, Джейкоб Баталон, Зендея, Лора Хэрриер, Тони Револори, Дональд ГловерПеревод: ДублированныйСубтитры: Русские (forced, full), английскиеПродолжительность: 02:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEEE21A4CB54663B4BA678C64FA39AB7BDDC072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171084   (396343) от 04.10.2017
+
+My Little Pony в кино / My Little Pony: The Movie (2017) WEB-DL [H.265/1080p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Король Шторм хочет лишить пони магии и захватывает Кантерлот. Под угрозой будущее всей Эквестрии! Чтобы остановить злодея, пони покидают родные края и отправляются в путешествие, полное чудес и опасностей. Им предстоит покорить волшебные горы, погрузиться в подводные миры и даже оказаться на летучем пиратском корабле!Производство: Канада, США, Lionsgate, Allspark Pictures, DHX MediaЖанр: Компьютерная анимация, Приключения, Музыкальный, ФентезиРежиссер: Джейсон ТиссенПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC66F8AF3A9D1BB19D2CA4738B348AD04733B764
 ```
 
 https://mybot314.ru/tekegram_catalog/

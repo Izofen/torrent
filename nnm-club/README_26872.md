@@ -1,22 +1,22 @@
-###  Публикация: 1850264   (1054145) от 
+###  Публикация: 1847098   (1052007) от 10.01.2026
 
-Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
+4K Downloader 6.1.1 [En]
 
->>Научная и техническая литература
->>Техническая литература
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054145.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+4K Downloader - программа для загрузки видео с YouTube и других веб-сайтов для обмена видео в форматах 4K Ultra HD. Учитывая, что большинство смартфонов, телевизоров, компьютеров и планшетов поддерживают форматы высокой четкости, неудивительно, что все больше пользователей хотят наслаждаться качественным контентом на своих устройствах. 4K Downloader - это простая (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
+magnet:?xt=urn:btih:3E96B40F8E49BADA882BD873D467C1AA3F6A0EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +24,130 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850271   (1054146) от 
+###  Публикация: 1847097   (1052008) от 10.01.2026
 
-Тони Парсонс | Сборник аудиокниг [2 книги] (2013-2015) [AAC, Nikosho]
+YT Downloader 10.1.2 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052008.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430735699227BF40DF0D04C851C0FA506BEE26DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847042   (1052009) от 10.01.2026
+
+Школа переговорщиков ШИП, Дмитрий Коткин | Стратегия и тактика переговоров (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнес — это всегда заключение сделок. Сейчас вопрос качества ведения переговоров встал особенно остро — пандемия изменила правила игры. Но теперь это проходит иначе: не в расслабленной беседе в ресторане, а рационально и с холодной головой. Время карантина и запретов требует от переговорщика заключения выгодных контрактов с первого дубля. Этот курс для вас, если (   Читать дальше...   )Производство: Школа переговорщиков ШИПЖанр: видеокурс, обучающий курс, саморазвитие, ораторское искусство, бизнес-переговорыЯзык озвучки: русскийПродолжительность: 16:01:16Реклама: наложение на видео (плашка спонсора и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC007C9095400B0F3AC23878EA746E1BFB7505F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847045   (1052010) от 10.01.2026
+
+Skillbox, Ренат Шагабутдинов, Евгений Намоконов | Ехсеl для бухгалтеров (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Excel — незаменимый инструмент для бухгалтеров. Он помогает сводить баланс, считать налоги и строить прогнозы. Изучите все возможности Excel и автоматизируйте рутину.Производство: SkillboxЖанр: видеокурс, обучающий курс, финансы, бухгалтерия, ExcelЯзык озвучки: русскийПродолжительность: 32:37:18Реклама: наложение на видео (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2522580629D46842B5ACA147DC3F5EDE179707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847091   (1052011) от 10.01.2026
+
+Иоахим К. Фест | Адольф Гитлер (Том 1-3) (2019) [MP3, Александр Харитонов]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга И. Феста с большим запозданием доходит до российского читателя, ей долго пришлось отлеживаться на полках спецхранов, как и большинству западных работ о фашизме. Тогда был опасен эффект узнавания. При всем своеобразии коричневого и красного тоталитаризма сходство структур и вождей было слишком очевидно. В наши дни внимание читателей скорее привлекут поразительные (   Читать дальше...   )Жанр: История, биографияИздательство: Аудиокнига своими рукамиПродолжительность: 54:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC78CA6FE8ABCE3540BD3FA62C43EFAA809CDFA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846990   (1052012) от 10.01.2026
+
+Экхарт Толле | Сборник аудиокниг [5 книг] (2013-2018) [AAC, Nikosho]
 
 >>Аудио и Видео
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054146.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта маленькая светлая книга возвращает человеку его естественное величие и неповторимую ценность. Тайна, которой нет, то единственное и прекрасное, что никогда нам не изменит, не будет никем похищено или разрушено. Тони Парсонс один из немногих, кто говорит о высочайших наслаждениях духа столь просто и доступно.
-Освобождение по своей природе очевидно, просто и естественно, (   Читать дальше...   )Жанр: АдвайтаИздательство: Аудиокнига своими рукамиПродолжительность: 01:25:38
+В этой книге есть сила, способная перенести вас в тихое место за пределами мыслей - туда, где исчезают порожденные разумом проблемы и где человек наконец понимает, что значит самому творить собственную жизнь.
+В книге приведено множество специальных практик, даны ясные ключи, которые позволят открыть для себя «изящество, легкость и свободу», появляющиеся в нашей жизни, (   Читать дальше...   )Жанр: Эзотерика, философияИздательство: Аудиокнига своими рукамиПродолжительность: 04:02:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50E6432EBF630C7F3F21293C3EC5A09D84D14B6E
+magnet:?xt=urn:btih:1926EC610F0E273B039A2597419C733B5DC7B13C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,26 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850272   (1054147) от 
+###  Публикация: 1847034   (1052013) от 10.01.2026
 
-Christopher Negus | Linux Bible. 11th Edition (2026) [PDF, EPUB] [EN]
+ProFinansy, Наталья Котовская | Искусственный интеллект. Как заработать на искусственном интеллекте (2025) WEB-DL [AD] [RU]
 
->>Компьютерная литература
->>
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054147.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The industry gold standard in Linux guides, fully updated
-In the newly updated eleventh edition of the Linux Bible, veteran Linux author and trainer Christopher Negus walks you through the latest and most popular Linux distributions, including Red Hat Enterprise 9, Ubuntu 24 LTS, and Fedora 41. Whether you're a brand new or power user, you'll learn hands-on ways (   Читать дальше...   )Жанр: Linux & UNIX Administration, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: SybexФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+На курсе вы узнаете, что такое искусственный интеллект и как он появился, какие есть основные перспективы развития в этой и смежных отраслях и в какие активы можно инвестировать, чтобы заработать на этом.Производство: ProFinansyЖанр: видеокурс, обучающий курс, финансы, инвестиции, искусственный интеллектЯзык озвучки: русскийПродолжительность: 02:29:50Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6924716470702716E78D42C690A985F8FE519CDC
+magnet:?xt=urn:btih:6EEEF3EA381BF578DA7CF4EE331C8A341675D549
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,25 +181,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850275   (1054148) от 
+###  Публикация: 1846926   (1052014) от 10.01.2026
 
-Torsten T. Will | C++. The Comprehensive Guide to Mastering Modern C++ from Basics to Advanced Concepts with Hands-on Examples, and Best Practices for Writing Efficient, Secure, and Scalable Code ( ...
+Богдан Кухар | Администратор 1С v 4.1 [все модули] (2025) PCRec [RU]
 
->>Компьютерная литература
->>
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054148.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-If you need to know C++, look no further! This comprehensive guide has everything you need to master the modern C++23 language, from syntax fundamentals to advanced development concepts. Follow practical code examples as you learn object-oriented programming, work with standard library containers, program concurrent applications, and more. Don’t just learn how to (   Читать дальше...   )Жанр: Object-Oriented Software Design, C++ Programming Language, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Путь от новичка и до эксперта Администратора 1С! Узнаете лучшие приемы по качественному обслуживанию, администрированию, настройке, установке,1С Предприятия и сопутствующего программного обеспечения. Престижная профессия в шаге от Вас! Действуйте!
+Вам нужен курс если:
+Вы хотите быстро освоить профессию Администратор 1С!
+Желаете больше узнать о технической стороне (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 54:36:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58AC16053360638447ECF0B5ACB3CC28225F7748
+magnet:?xt=urn:btih:2D16E9C81832CE5F41AC9D8712CA743322993BE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,25 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850280   (1054149) от 
+###  Публикация: 1847029   (1052015) от 10.01.2026
 
-Michael Kofler | Linux. The Comprehensive Guide to Mastering Linux—From Installation to Security, Virtualization, and System Administration Across All Major Distributions (Rheinwerk Computing) (202 ...
+Скорость / Speed (1994) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
->>Компьютерная литература
->>
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054149.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Beginner or expert, professional or hobbyist, this is the Linux guide you need! Install Linux and walk through the basics: working in the terminal, handling files and directories, using Bash, and more. Then get into the nitty-gritty details of configuring your system and server, from compiling kernel modules to using tools like Apache, Postfix, and Samba. With information (   Читать дальше...   )Жанр: Computer Operating Systems, Linux Networking & System Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Террорист устанавливает в рейсовом автобусе радиоуправляемую бомбу, которая взорвётся, если скорость автобуса упадёт ниже 80 км/ч. После того, как автобус выезжает на шоссе и набирает скорость, взрывное устройство активируется, и сам автобус превращается в «скоростную бомбу» с заложниками, не имея возможности остановиться. Сотрудник спецслужб вместе со случайной (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: боевик, триллер, приключенияРежиссер: Ян де БонтАктеры: Киану Ривз, Деннис Хоппер, Сандра Баллок, Джо Мортон, Джефф Дэниелс, Алан Рак, Гленн Пламмер, Ричард Лайнбэк, Бет Грант, Хоторн Джеймс и др.Перевод: Дублированный (Синхрон), многоголосый (20th Century Fox, Киномания)Язык озвучки: Русский, английскийСубтитры: Русские (PGS), английские (PGS)Продолжительность: 01:55:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB4E0AEFA8ACA68CA93F2F3BA56455D5C8921111
+magnet:?xt=urn:btih:45442DA689CA6AE004B12C1334CB56EFD7B087A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,25 +236,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850282   (1054150) от 
+###  Публикация: 1846994   (1052016) от 10.01.2026
 
-Bernd Oggl, Michael Kofler | Docker. Practical Guide for Developers and DevOps Teams - Unlock the Power of Containerization. Skills for Building, Securing, and Orchestrating with Docker (Rheinwerk  ...
+Тысяча ударов / A Thousand Blows (2026) WEB-DL [H.264/1080p] (сезон 2, серии 1-6 из 6) Dragon Money Studio
 
->>Компьютерная литература
+>>Зарубежные сериалы
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054150.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Learn the ins and outs of containerization in Docker with this practical guide! Begin by installing and setting up the platform. Then master the basics: get to know important terminology, understand how to run containers, and set up port redirecting and communication. You’ll learn to create custom images, work with commands, and use key containerization tools. Gain (   Читать дальше...   )Жанр: Software Design Tools, Computer Operating Systems, Computer Network AdministrationЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Два лучших друга с Ямайки, Иезекия и Алек, оказались в самой гуще ярких и жестоких событий постиндустриальной революции в лондонском Ист-Энде. Оказавшись в криминальном мире процветающей боксерской сцены, один из героев, Иезекия, встречает Мэри Карр, лидера печально известной лондонской банды под названием «Сорок слонов». Эта группировка состоит исключительно из (   Читать дальше...   )Производство: Великобритания / Matriarch Productions, The Story Collective, Water & Power ProductionsЖанр: Драма, история, спортРежиссер: Эшли Уолтерс, Dionne Edwards, Катрин ГеббеАктеры: Малакай Кирби, Эрин Доэрти, Фрэнсис Лавхолл, Morgan Hilaire, Jemma Carlton, Стивен Грэм, Джеймс Нельсон-Джойс, Джейсон Тобин, Дарси Шоу, Зигги ХитПеревод: Дублированный (Dragon Money Studio)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6D2C6800B2409A122EE69FCFE4896244A316F47
+magnet:?xt=urn:btih:84B51FF5D5F561C0655F89EE1AB0186470A09BA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,53 +262,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850283   (1054151) от 
+###  Публикация: 1847021   (1052017) от 10.01.2026
 
-Joachim Steinwendner, Roland Schwaiger | Programming Neural Networks with Python. Your Practical Guide to Building Smart AI Systems with Machine Learning and Deep Learning (Rheinwerk Computing) (20 ...
+Водный мир / Waterworld (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Ulysses Cut] [hand made Upscale AI]
 
->>Компьютерная литература
->>
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054151.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Neural networks are at the heart of AI—so ensure you’re on the cutting edge with this guide! For true beginners, get a crash course in Python and the mathematical concepts you’ll need to understand and create neural networks. Or jump right into programming your first neural network, from implementing the scikit-learn library to using the perceptron learning algorithm. (   Читать дальше...   )Жанр: Introductory & Beginning Programming, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4EA16B88AA76E6F09E150CE7B140784DA4747A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850284   (1054152) от 
-
-Alex Soto Bueno, Andrew Block | Red Hat Certified Engineer (RHCE) Ansible Automation Study Guide: In-Depth Guidance and Practice (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054152.jpg" />
-</div>
-
-
-###  Подробнее
-
-With the Ansible automation tool, developers and system administrators in the enterprise can automate the provisioning, configuration, and management of distributed and on-premises systems. This study guide prepares you for the Red Hat Certified Engineer (RHCE) certification exam, 90% of which covers Ansible.
+В далеком будущем полярные снега растаяли, покрыв практически всю Землю водой. И хотя ходят легенды, что где-то остался кусочек пригодной для жизни суши, её до сих пор никто не смог найти.
 
-Red Hat's Alex Soto Bueno and Andrew Block walk you through (   Читать дальше...   )Жанр: Linux Certification Guides, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+На Атолл приплывает Моряк. Он хочет продать землю, добытую при нырянии, но его принимают за шпиона «курильщиков» – самых опасных бандитов Водного мира. При помощи девушки Хелен (   Читать дальше...   )Производство: США / Davis Entertainment, Gordon Company, Universal PicturesЖанр: фантастика, боевик, приключенияРежиссер: Кевин РейнольдсАктеры: Кевин Костнер, Деннис Хоппер, Джинн Трипплхорн, Тина Мажорино, Майкл Джитер, Джек Блэк, Ким Коутс, Чайм Джирафи, Рик Авилес, Р.Д. Колл и др.Перевод: Многоголосый профессиональный (Киномания, СВ Студия)Язык озвучки: Русский, английскийСубтитры: Русские (PGS), английские (PGS)Продолжительность: 02:57:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FECFC46FE3654C346AA8780B005F81D54856362
+magnet:?xt=urn:btih:9C3009DC494A69948C996B28277DD6D72000C5BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,25 +290,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850285   (1054153) от 
+###  Публикация: 1847023   (1052018) от 10.01.2026
 
-Michael Kofler, Bernd Oggl, Sebastian Springer | AI-Assisted Coding. A Practical Guide to Boosting Software Development with ChatGPT, GitHub Copilot, Ollama, Aider, and Beyond (Rheinwerk Computing) ...
+Белорусский вокзал (1971) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
->>Компьютерная литература
->>
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054153.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Generative AI is transforming software development. Stay on the cutting edge with this guide to AI pair programming! Learn how to make the most of modern tools like ChatGPT and GitHub Copilot to improve your coding. Automate refactoring, debugging, and other tedious tasks, and use techniques such as prompt engineering and retrieval-augmented generation to get the (   Читать дальше...   )Жанр: Software Design Tools, Generative AI, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Герои фильма расстались на Белорусском вокзале летом 1945-го. Спустя четверть века они встречаются на похоронах боевого товарища. В их душах с новой силой оживает пережитое. Время не властно над их памятью: ветераны сохранили верность фронтовой дружбе, способность жертвовать собой, неистребимую любовь к жизни.Производство: СССР / МосфильмЖанр: драмаРежиссер: Андрей СмирновАктеры: Евгений Леонов, Анатолий Папанов, Алексей Глазырин, Всеволод Сафонов, Нина Ургант, Николай Волков мл., Любовь Соколова, Маргарита Терехова, Раиса Куркина, Юрий Визбор и др.Перевод: Не требуетсяСубтитры: отсутствуютПродолжительность: 01:39:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE80C91A7DB585100D1187D9C8FE3DC3278650D3
+magnet:?xt=urn:btih:9E134247623BD14A9BD7FD803D740F1FF0B7DF0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,27 +316,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850287   (1054154) от 
+###  Публикация: 1847041   (1052019) от 10.01.2026
 
-Jeremy McDowell | Acing the CCNA Exam. Volume 1. Fundamentals and Protocols. Volume 2. Advanced Networking and Security (2024) [PDF, EPUB] [EN]
+Профессия - следователь (1982) DVDRip [H.264] (сезон 1, серии 1-5 из 5)
 
->>Компьютерная литература
->>
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054154.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pass the Cisco Certified Network Associate (CCNA) exam on your very first try!
-
-Acing the CCNA Exam comes directly from Jeremy McDowell, a much-loved Cisco tutor who’s amazing courses have helped hundreds of thousands of students pass their exams. This comprehensive guide is split over two volumes—Acing the CCNA Exam, Volume 1 Fundamentals and Protocols and Acing (   Читать дальше...   )Жанр: LANs, Cisco Certification Guides, Computer Networking, Security CertificationsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Старшина милиции на Белорусском вокзале случайно замечает, что один мужчина оставляет ячейке камеры хранения чемодан, но забирает его уже другой человек. Милиционер решает провести досмотр и находит в чемодане крупную сумму денег. Задержанным оказывается Николай Николаевич Губанов, скромный пенсионер, который заявляет, что чемодан ему не принадлежит, и он не знает, (   Читать дальше...   )Производство: СССР / ТО «Экран»Жанр: криминал, детективРежиссер: Александр БланкАктеры: Георгий Бурков, Николай Пастухов, Эммануил Виторган, Армен Джигарханян, Юрий Гребенщиков, Ирина Мирошниченко, Николай Парфёнов, Клара Лучко, Игорь Овадис, Сергей Приселков и др.Субтитры: отсутствуютПродолжительность: ~01:05:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6279A8E2DF769837123567565D05B09044AFEC1
+magnet:?xt=urn:btih:4E5DB965269DAF367D3AAE8CE92963182D7774A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,216 +342,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850319   (1054155) от 
+###  Публикация: 1846969   (1052020) от 10.01.2026
 
-VA - Uplifting Only Top 15: January 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kvaii - Tenderness In Dreams (Intro Mix) [5:42]
-02. Evebe & Danny Claire - Everything (Timo Pralle Extended Remix) [5:54]
-03. Alex Nomak & Yuri Melnikov - Endless Spring (Extended Mix) [6:59]
-04. Mhammed El Alami & NELLY TGM - We Are One (Extended Mix) [6:31](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F8B4970020A542195CE016CF35E00DF3C1D69D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850345   (1054156) от 
-
-Борис Батыршин | Московский лес (Книга 1). День Ботаника (2025) [MP3, Дмитрий Хазанович]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если мегаполис вокруг тебя превратился в непроходимую чащобу, если на руинах спальных районов выросли гигантские, выше сталинских высоток, деревья, а улицы оказались во власти странных растений и ещё более странных существ - это ещё не повод, чтобы самому становиться зверем.
-Останься человеком - и неважно, с карабином в руках или с котомкой бродячего торговца за (   Читать дальше...   )Жанр: ПостапокалипсисИздательство: Аудиокнига своими руками (Творческая группа «СамИздат»)Продолжительность: 11:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364CA02BF4C90CEA453498382410848495F04878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850351   (1054157) от 
-
-Журнал | Сабрина №12 (2025) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054157.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: ВязаниеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEC1DF6AEEBAE681B535D3008FEDFE67997278A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850352   (1054158) от 
-
-Журнал | Сабрина №01 (2026) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054158.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: ВязаниеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77B17A6C16B6BC2C4E554273735B9896507CA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850362   (1054159) от 
-
-Журнал | Садовод и огородник №1 (568) (январь 2026) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054159.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6676E27C3E811B74AC5117A3294FDA11AD9E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850373   (1054160) от 
-
-Elise - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Vocal, Easy listening, French Deep House, AI>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bonne Nuit
-02 - Décembre
-03 - Disparu
-04 - Noël(   Читать дальше...   )Жанр: Vocal, Easy listening, French Deep House, AIПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CC4C67612674AB819C6B3B84C5AF4E295FE906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850251   (1054161) от 
-
-Цзинь Юйцзян | Тепло светлячков. О маленьких чудесах, что делают жизнь полной  (2026) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054161.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Каждый человек как светлячок. Он светит недолго, но если рядом много таких огоньков, становится теплее всем». Цзинь Юйцзян пишет о памяти, любви, одиночестве и о том, как уязвимость превращается в силу. В книге собраны истории о свете, который рождается в самых темных местах. Просто и трогательно она говорит о самом важном: о тепле и любви, которые человек может (   Читать дальше...   )Жанр: Популярная психологияПеревод: с кит. Д. ЖигульскойИздательство: Москва: МИФФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8598492C18C6C16E3CAB592F8AC11CDF8E2C3C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850247   (1054162) от 
-
-Джон Ронсон | Самовлюбленные, бессовестные и неутомимые. Захватывающие путешествия в мир психопатов (2022) [PDF, EPUB]
+М.А. Березовский, В.М. Писаренко | Краткий справочник радиолюбителя (1977) [PDF]
 
 >>Научная и техническая литература
->>Здоровье и медицина
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054162.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уэльский журналист Джон Ронсон берется за расследование мистификации, связавшей ведущих ученых по всему миру, и это решение становится отправной точкой для путешествия в мир безумия.
-
-Пытаясь понять, на чьей стороне истина, журналист реконструирует историю изучения психопатов. Он встречается с саентологами, убежденными в безнравственности психиатров и занимающимися (   Читать дальше...   )Жанр: ПсихиатрияИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Приведены справочные данные по электро- и радио-материалам, конденсаторам, резисторам, трансформаторам, дросселям низкой частоты, а также электровакуумным, полупроводниковым и электроакустическим приборам. Даны схемы усилителей низкой частоты, магнитофонов и радиовещательных приемников. Рассчитана на радиолюбителей, а также может быть полезной инженерно-техническим (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ТехнiкаФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D2C7B45DA795264C7C2286434DA52ED6B6DF247
+magnet:?xt=urn:btih:EA04DFC34B012DACEA535B804E7590CD5C8B2CFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,25 +368,214 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850371   (1054163) от 
+###  Публикация: 1847080   (1052021) от 10.01.2026
 
-Анаконда / Anaconda (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit]
+Legend of Kay Anniversary (2015) [Multi] (1.0.3) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя 10 лет после выхода оригинальной игры, разработчики выпустили Legend of Kay Anniversary – ремейк версию культового экшена от третьего лица, наполненного юмором, но в то же время интригующего. Ремейк получил улучшенные текстуры высокого разрешения, усовершенствованную анимацию и технологию рендеринга, а также обновлённый саундтрек с высоким качеством звука. (   Читать дальше...   )Тип издания: LicenseРазработчик: KAIKO, Neon StudiosЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AF87C8F2D80ACE6235341B9A640CB8146E7926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846956   (1052022) от 10.01.2026
+
+MOR - Разумное, громкое, вечное (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore, Southern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пламя [00:03:15]
+02. Гори ясно [00:03:33]
+03. Мантра [00:02:49]
+04. Надейся на себя [00:03:43](   Читать дальше...   )Жанр: Hardcore, Southern MetalПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D146294C85A50738DDA7606E1045C7F9BCF01303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847015   (1052023) от 10.01.2026
+
+Ocean Match / Рыбки: Три в ряд v3.3.4 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052023.jpg" />
+</div>
+
+
+###  Подробнее
+
+🐠 Добро пожаловать в Рыбки: Три в ряд (Ocean Match)! Совершенно новая игра от компании LinkDesks!
+Бесплатно играть! Попробуйте украшать уникальный аквариум, вы всегда можете зайти в игру и полюбоваться на пестрых рыбок, плавающих туда-сюда!Тип издания: ModРелиз состоялся: 09.01.2026Разработчик: LinkDesks Classic Puzzle GamesПоддерживаемая ОС: Android 6.0+Жанр: ГоловоломкаЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB28B19DC8CC6F30EDA06A9E20A199C8981108DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847013   (1052024) от 10.01.2026
+
+Eatr・Здоровые рецепты v2.11.1 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Eatr – идеальный помощник для всех, от новичков на кухне до опытных шеф-поваров! Наше приложение с искусственным интеллектом создано, чтобы провести вас через кулинарное приключение, подобранное специально для вас. Неважно, ограничены ли вы во времени или хотите неспешно насладиться готовкой, Eatr поможет вам.Тип издания: ModРелиз состоялся: 10.01.2026Разработчик: Eatr - MealPlansПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA813CD8C7F5C7B87F8E854B192D81F08BE625B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847035   (1052025) от 10.01.2026
+
+Чернобыль: Зона отчуждения (2014-2017) HDTVRip [AV1/1080p] (сезон 1-2, серии 1-16 из 16)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052025.jpg" />
+</div>
+
+
+###  Подробнее
+
+мистический, фантастический триллер о группе друзей, которые путешествуют во времени в альтернативные реальности, чтобы исправить прошлое и предотвратить катастрофу мирового масштаба, связанную с Чернобыльской зоной, сталкиваясь с последствиями своих вмешательств и загадочной «Зоной»-аномалией. Это история о том, как попытки изменить ход событий приводят к непредсказуемым (   Читать дальше...   )Производство: Россия / СинеЛаб ПродакшнЖанр: триллер, фантастикаРежиссер: Андерс Банке, Павел КостомаровАктеры: Константин Давыдов, Сергей Романович, Анвар Халилулаев, Кристина Казинская, Валерия Дмитриева, Илья Щербинин, Евгений Стычкин, Николай Иванов, Дарья Лузина, Евгения КаверауПродолжительность: ~00:45:00 серия, ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDF56B9BD41DCE2A9CCD16FEE87A29EB7589E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847348   (1052026) от 13.01.2026
+
+0xZeOn взломал Denuvo в Dead Space Remake, а voices38 обошел DRM в FIFA 22 и Sonic Colors Ultimate
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Похоже, что в сообществе «крякеров» появился еще один специалист, способный взламывать антипиратскую защиту Denuvo Anti-tamper.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847391   (1052027) от 13.01.2026
+
+Zapret GUI 1.01 [Ru] (авторский релиз)
+
+>>След.
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа предназначена для обхода DPI-блокировок (госцензуры с блокировкой сайтов) на базе Zapret.
+Используются скрипты от сборки Zapret-discord-youtube by Flowseal.
+Программа представляет собой графическую оболочку для более удобного запуска скриптов, представляющих собой различные варианты обхода DPI. Графическая оболочка для средства обхода блокировок разработана (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D41DF2F45B17F1ACA6E9354BEB93AD152287724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847441   (1052028) от 14.01.2026
+
+Один икс два / Uno equis dos / 1x2 (2025) WEB-DL [H.264/1080p] [MVO]
 
 >>Горячие новинки
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054163.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа друзей отправляется в джунгли, чтобы снять ремейк «Анаконды», их любимого фильма юности. Однако вскоре после начала съёмок змея, главная звезда фильма, погибает, и друзьям приходится продвигаться в глубь джунглей, чтобы найти ей замену.Производство: США / Columbia Pictures, Fully Formed Entertainment, TSG EntertainmentЖанр: боевик, комедия, приключенияРежиссер: Том ГормикэнАктеры: Джек Блэк, Пол Радд, Стив Зан, Тандиве Ньютон, Даниэла Мелшиор, Селтон Мелу, Айс Кьюб, Айони Скай, Руй Рикардо Диас, Джон Биллингсли, Себастьян СероПеревод: Дублированный (MovieDalen)Субтитры: русские (Forced, Full), английские (Forced, Full, SDH), украинские и др.Продолжительность: 01:38:50
+История о двух давних друзьях, Чино и Хосу, которые десятилетиями пытались угадать футбольный тотализатор. Когда они оказываются в шаге от джекпота в «15 очков», выходные в загородном доме превращаются в напряженное противостояние, полное скрытых тайн, жадности и абсурдного насилия.Производство: Испания / Buendía Estudios, Garajonay ProduccionesЖанр: драмаРежиссер: Альберто УтрераАктеры: Адам Йезерски, Пако Леон, Стефани Маньен, Рауль Техон, Кимберли Телл, Сильвия ВакасПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, ИспанскийСубтитры: Испанские, АнглийскиеПродолжительность: 01:24:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1ACB070C5294EB36610529EF87C9C448591D7C33
+magnet:?xt=urn:btih:CF6FA1A5CA5A70FB7CF4096A21A0F595A59CFFB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,25 +583,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850368   (1054164) от 
+###  Публикация: 1847442   (1052029) от 12.01.2026
 
-На тлеющих углях / From Embers (2024) BDRip [H.264/720p] [MVO]
+Revenge - Trust In Metal (2020) Limited Edition, Reissue, 2021, Thrashingfist Productions [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054164.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052029.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мать-одиночка Лили тяжело переживает смерть мужа, Рона, который погиб в результате взрыва в лаборатории. Она растит сына Кевина, который страдает аутизмом, мальчик скучает по отцу и чувствует себя одиноким. Лили и Кевин вынуждены переехать в дом поменьше, она пытается найти работу и получить страховые выплаты за Рона. Но следствие считает, что он покончил с собой, (   Читать дальше...   )Производство: США /  Studio 6688Жанр: триллерРежиссер: Кейт БоханАктеры: Кара Ван, Мэттью Моррисон, Kayla Bohan, Alexander Lee, Кэтрин Моррис, Кристофер Шайер, Лондон Ким, Сара Джес Остелл, Хантер Бодин, Тристан Майкл БраунПеревод: Многоголосый (IVI)Язык озвучки: Русский, английскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:39:09
+01. True Metal
+02. Fight, Wil & Ride
+03. Hellish Hammer
+04. Hard Ride - Black Sign(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:50:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA7F17E6098985BD132EDD05C6A8AC1E394A657E
+magnet:?xt=urn:btih:5A3079F3603A5F21D0181A8FCE5590072C8B38D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,25 +612,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850367   (1054165) от 
+###  Публикация: 1847440   (1052030) от 21.01.2026
 
-На тлеющих углях / From Embers (2024) BDRip [H.264/1080p] [MVO]
+Похищенная девушка / Girl Taken (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) RuDub
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054165.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052030.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мать-одиночка Лили тяжело переживает смерть мужа, Рона, который погиб в результате взрыва в лаборатории. Она растит сына Кевина, который страдает аутизмом, мальчик скучает по отцу и чувствует себя одиноким. Лили и Кевин вынуждены переехать в дом поменьше, она пытается найти работу и получить страховые выплаты за Рона. Но следствие считает, что он покончил с собой, (   Читать дальше...   )Производство: США /  Studio 6688Жанр: триллерРежиссер: Кейт БоханАктеры: Кара Ван, Мэттью Моррисон, Kayla Bohan, Alexander Lee, Кэтрин Моррис, Кристофер Шайер, Лондон Ким, Сара Джес Остелл, Хантер Бодин, Тристан Майкл БраунПеревод: Многоголосый (IVI)Язык озвучки: Русский, английскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:39:09
+История рассказывает о сёстрах-близнецах Лили и Эбби, чьи жизни рушатся, когда из их тихого английского провинциального городка любимый всеми местный учитель Рик Хансен похищает Лили. После многолетнего насилия в заточении Лили удаётся бежать - но она обнаруживает, что свобода приносит и свои испытания. Мир, в который она так мечтала вернуться, успел пойти дальше (   Читать дальше...   )Производство: Канада / CMW Springtime Productions, Directors Guild of Canada, Directors Guild of Canada, British ColumbiaЖанр: ТриллерРежиссер: Паула ЭльАктеры: Эрика Дюранс, Эрик Хикс, Кеннеди Роу, Шайрин Хаас, Tavia Cervi, Харрисон Коу, Sidney Quesnelle, Анна Ясишин, Крис Фроз, Дэннис КаундПеревод: Дублированный (RuDub)Язык озвучки: Русский, английскийСубтитры: Английские (full, SDH)Продолжительность: ~00:50:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:331DFE00841C20F6DBEE550875CACB2C10E53F26
+magnet:?xt=urn:btih:6F7C23C62465483C34227AD3AA70322C6549260B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,25 +638,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850365   (1054166) от 
+###  Публикация: 1847438   (1052031) от 12.01.2026
 
-Растровый клипарт - Adobe Stock - Birds #4 [PNG]
+Digiarty AIArty Image Matting 2.6 RePack (& Portable) by elchupacabra [Multi]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Мультимедиа и Графика
+>>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054166.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-30 стоковых изображений с птицами из Adobe Stock.Формат: PNGРазрешение файлов: 2464x1856 - 11648x6528
+Digiarty AIArty Image Matting — это инновационное программное решение, призванное кардинально изменить способ, которым пользователи справляются с удалением фона и смешиванием изображений. Используя передовые алгоритмы искусственного интеллекта, этот инструмент нацелен на обеспечение точной и бесшовной интеграции объектов переднего плана в новые фоны, что делает его (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие (Русский отсутствует)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D6430C6BBBE42666DA67353FC9E0249CD2069BB
+magnet:?xt=urn:btih:5309C040D553067BB6B66991F0E28DB791442F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,105 +664,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850364   (1054167) от 
+###  Публикация: 1847439   (1052032) от 12.01.2026
 
-StartAllBack 3.9.21 build 5350 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054167.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC3574E442C9A599CEB80EB6D8464BA7304E51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850363   (1054168) от 
-
-Проекты - VideoHive - Cinematic Titles - 61574050 [AEP]
+Проекты - VideoHive - Digital Mountain Graphics - 54294236 [AEP]
 
 >>Проекты
->>Титры (проекты)
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054168.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создавайте эффектные и кинематографичные анимации заголовков с помощью этого набора кинематографических заголовков. Этот шаблон, выполненный в чистом футуристическом стиле с мерцающими световыми полосами и плавной анимацией, идеально подходит для заставок, трейлеров, рекламных роликов и современных видеомонтажей.
-
-Этот проект включает в себя 5 уникальных заставок, (   Читать дальше...   )Формат: AEP
+Digital Mountain Graphics — это захватывающий набор визуальных фонов, погружающий зрителя в атмосферу киберпространства и высоких технологий. Эффектные цифровые ландшафты, созданные из светящихся линий, сеток и полигонов, напоминают эстетику ретро-вейва (Synthwave) или интерфейсов будущего.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB42ACFE75E2D17316A5F60C43495AC3622502C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850361   (1054169) от 
-
-Богач / Le Ruffian (1983) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам романа Хосе Джованни 1969 года "Les Ruffians"... На золотой прииск в горах крайнего севера Канады совершено нападение. Лишь работяге Альдо и двум новичкам-индейцам удаётся избежать смерти, попутно ловко уничтожив самих бандитов. Прихватив готовившееся к отправке золотишко, троица спешит подальше от этого места, при этом не испытывая (   Читать дальше...   )Производство: Франция, Канада / Corporation Image M & M, Les Films Christian Fechner, Parma FilmsЖанр: криминал, приключенияРежиссер: Жозе ДжованниАктеры: Лино Вентура, Бернар Жиродо, Клаудия Кардинале, Пьер Фраг, Аугуст Шелленберг, Джеймс Эрнест Дэвис, Роберт Бочар, Майк Брэдфорд, Дональд Браун, Лорни Кэрри, Уильям Коллинз, Джим Дрэйпер, Пьер Жар, Дэйв Хэй, Лосон ХэйПеревод: профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: русские (Вера Львовская), английские, французскиеПродолжительность: 01:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1B49492EB52D8C5860320D296459B799327A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850354   (1054170) от 
-
-Мелочи жизни / Small Things Like These (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландия, 1985 год. Накануне Рождества скромный угольщик и преданный отец семейства Билл Ферлонг случайно становится свидетелем ужасающих событий за стенами местного католического монастыря. В поисках справедливости ему приходится столкнуться с неодобрением семьи и бросить вызов обществу.Производство: Ирландия, Бельгия, США / Artists Equity, Big Things Films, Irish Film BoardЖанр: драмаРежиссер: Энда Уолш, Клэр КиганАктеры: Киллиан Мерфи, Эмили Уотсон, Айлин Уолш, Мишель Фэйрли, Клэр Данн, Хэлен Биэн, Патрик Райан, Питер Клэффи, Иэн О’Райли, Зара ДэвлинПеревод: Дублированный (CPI Films), многоголосый (TVShows), двухголосый (VirusProject)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские, французские, датскиеПродолжительность: 01:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17E63CB94E224C055C31E60956741C1801B1562
+magnet:?xt=urn:btih:52F7C1727542D84917366284A64F531B69C07436
 ```
 
 https://mybot314.ru/tekegram_catalog/

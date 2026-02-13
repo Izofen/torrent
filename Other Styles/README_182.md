@@ -1,3 +1,38 @@
+###  Публикация: 743409   (972988) от 10.01.2014
+
+CDT Audio - Demo CD - Part 1 (2006) [FLAC|Lossless]<Audiofile, Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 Track01
+02 Track02
+03 Track03
+04 Track04
+05 Track05
+06 Track06
+07 Track07
+08 Track08
+09 Track09
+10 Track10(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476ABA8FC2CB1FDA88EF2AB33E4D8A25F4A4CF48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743555   (973070) от 10.01.2014
 
 Revox - M100 Audio CD (2010) [FLAC|Lossless]<Audiofile, Test>
@@ -804,32 +839,6 @@ Dallas Wind Symphony - Pomp & Pipes! - Frederick Fennell, Paul Riedo (organ) (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A4805AF364D7B39254FEDAA86891783594F11F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616575   (974801) от 10.02.2013
-
-VA - Ultimate Classical Guitar - The Essential Masterpieces (2008) 5CD, Box Set [FLAC|Lossless]<Classical Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical GuitarПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

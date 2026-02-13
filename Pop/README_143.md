@@ -1,3 +1,177 @@
+###  Публикация: 1257764   (343442) от 27.10.2018
+
+C.J. & Co - Deadeye Dick (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Drums Of Fire (5:19)
+02. Deadeye Dick (6:58)
+03. Beware The Stranger (6:18)
+04. Big City Sidewalk (6:24)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43ECE365CAC4E91F100792C9A5363D7CE9FF42F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953994   (343820) от 06.11.2015
+
+Mylene Farmer - Interstellaires (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellaires
+02. Stolen Car (en duo avec Sting)
+03. À Rebours
+04. C'est pas moi(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67623C4C83805AFA98C5431EAE15146FD9FA73CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953840   (344162) от 06.11.2015
+
+Братья Жуковы - Засыпай (2015) [MP3|320 кб/с]<Поп>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Засыпай (03:35)
+02. Не надо (03:03)
+03. Глупая (03:40)
+04. Летний вечер (04:24)(   Читать дальше...   )Жанр: ПопПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD0CC6A930D708CD2634DEDAE86BD0A5BA840C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953361   (344163) от 06.11.2015
+
+Radiorama - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire (03:50)
+02. Yeti (05:49)
+03. Vampires (06:10)
+04. Chanse to desire (04:04)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9958093A1F1233969020DB2E451112EF17C81085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953984   (344258) от 06.11.2015
+
+Дмитрий Колдун - Манекен (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Почему
+ 02. Манекен
+ 03. Я буду любить тебя
+ 04. Медленно(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0FF20C4C3D4043ACCAB0DD42C4DF4ED73B8F557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954055   (344267) от 06.11.2015
+
+Lara Fabian - Ma Vie Dans La Tienne (2015) [FLAC|Lossless|WEB-DL]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quand Je Ne Chante Pas
+02. Ma Vie Dans La Tienne
+03. Le Désamour
+04. S'il Ne Reste Qu'un Ami(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D4CCC4DEAC45AE4876CF738E0646E06118F281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954038   (344270) от 06.11.2015
 
 Seal - 7 (2015) [FLAC|Lossless|WEB-DL]<Pop, Soul, R&B>
@@ -567,179 +741,6 @@ Michael Jackson - Off The Wall (1979) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03BB2BC27B2E38887DB97D983147A1CE1F9E9792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257029   (347479) от 25.10.2018
-
-Лев Лещенко - Моя последняя любовь (2018) [MP3|320 Kbps] <Retro, Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моя последняя любовь
-02. Счастье (& Жасмин)
-03. Не верь словам
-04. Никогда не забуду я тебя(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557D7B18DFC053E3F9BAE3BCAA06CBC6C867B332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257028   (347483) от 25.10.2018
-
-Иванушки International - Лучшее в нашей жизни (2015) 2CD, Deluxe [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вселенная (3:41)
-02. Тучи (4:11)
-03. Где-то (4:24)
-04. Кукла (5:17)(   Читать дальше...   )Жанр: PopПродолжительность: 01:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5D7FB6385B683A5C7113F09D9150B5AF675D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257034   (347488) от 25.10.2018
-
-Николай Басков - Верую (2018) [MP3|320 Kbps] <Gospel Pop, Neo Soul>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Да пребуду в Господе вовек (3:11)
-02. Борюсь (4:08)
-03. Всё забывается (3:59)
-04. Всесильный Бог (3:33)(   Читать дальше...   )Жанр: Gospel Pop, Neo SoulПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4D768568317AECB00801239EED97E835F24E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073236   (347529) от 15.11.2016
-
-Pixie Geldof - I'm Yours (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Ethereal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Thing
-02. I'm Yours
-03. So Strong
-04. Woman Go Wild(   Читать дальше...   )Жанр: Alternative Pop, EtherealПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67C0869ED9D2390E413153DF518D096B5F93560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326426   (347539) от 07.10.2019
-
-Андрей Державин и Сталкер - Песни о хорошем, Часть 1 (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347539.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не плачь, Алиса!
-2. Ночной город
-3. Когда ты уйдёшь
-4. Звёзды(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA01A2300EEB76E29FC010CA93DBAF988BE7E21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257253   (347617) от 25.10.2018
-
-Agnetha Faltskog - I Stand Alone (1987) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Time
-02. Little White Secrets
-03. I Wasn't The OneЖанр: PopПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E823819A1740C8C99064B1CDABD646378CFB61
 ```
 
 https://mybot314.ru/tekegram_catalog/

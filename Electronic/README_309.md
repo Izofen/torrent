@@ -1,3 +1,32 @@
+###  Публикация: 1297106   (606684) от 20.04.2019
+
+Fishimself - Ambrosia (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Million & Gusk - Sub Strata (06:39)
+ 02. Miktek - Light Tails (05:44)
+ 03. One Arc Degree - Distant Industries (06:27)
+ 04. Aes Dana - Principles Of Gravity (07:38)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D7D264F9F83DAB1DFC427D875D0F55CDFFFDFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297109   (606685) от 20.04.2019
 
 Mizoo - Greenosophy Chapter II (2017) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Ambient, IDM, Downtempo>
@@ -718,35 +747,6 @@ Zen - Live. Love. Create (2019) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26628391573A6F6F16C789B11C8820E7728FBE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231062   (608661) от 16.06.2018
-
-VA - Global Explosion Progressive House 8 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Paul Sparkes - Worgull (original)
-02.  C-Jay - Shogun (Dirty Disorder remix)
-03.  Alexi Bongioanni - Do It Yourself (original mix)
-04.  Downpour - Cloudy (original mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E96626243AFDB2292F344726DE6D3156449E05
 ```
 
 https://mybot314.ru/tekegram_catalog/

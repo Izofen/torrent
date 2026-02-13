@@ -1,168 +1,22 @@
-###  Публикация: 518330   (643739) от 03.07.2012
+###  Публикация: 907053   (641509) от 10.06.2015
 
-O S I B I S A - Black Magic Night-Live at the Royal Festival Hall 2 CD (1977) [MP3|320 кб/с]<Black Africa Ethno, Ethno Fusion, Jazz-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Intro-The Dawn 8:20
-2. Welcome Home 4:31
-3. Ayiko Bia 7:33
-4. Living Loving Feeling 6:00
-5. Woyaya 6:45
-6. Spirits Up Above 7:49Жанр: Black Africa Ethno, Ethno Fusion, Jazz-RockПродолжительность: 01:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0107B7BFC786457CF897C63EE76BB821F0A570C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517891   (643740) от 03.07.2012
-
-[EN] Чай для Зомби / Attack of the Herbals (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два друга Джексон и МакГрегор находят на берегу загадочный ящик со странной травой, которая на поверку оказывается неплохим чаем, действующим почище кокса. Очень быстро приятели налаживают сбыт и зарабатывают кучу денег. Только этот чай обладает неприятным побочным эффектом, превращая людей в зомби...Жанр: Ужасы, КомедияРежиссер: Дэвид Райан КитАктеры: Стив Уорсли, Клэр Маккуллок, Ричард Керри, Лиэм МэтэрсонПеревод: ОтсутствуетПродолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3800CED105188229F63618ED6AEA4EA136E2C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518100   (643743) от 03.07.2012
-
-Тринадцать мертвецов / 13 Dead Men (2003) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Похититель бриллиантов Мэлэкай по ложному обвинению осужден за убийство и помещен в камеру смертников тюрьмы строгого режима. Когда начальник тюрьмы узнает о припрятанных Мэлэкаем бриллиантах на сумму в пять миллионов долларов, он решает «надавить» на него, отодвинув срок казни на две недели, и заставить выдать местонахождение бриллиантов.
-Но времени все равно мало и начальник тюрьмы «подсказывает» смертнику, что тот должен связаться со своими друзьями на воле и попросить организовать побег. И Сантос, партнер Мэлэкая по преступному бизнесу, хочет вызволить напарника из тюрьмы раньше, чем его тайна умрет вместе с ним…Жанр: Боевик, КриминалРежиссер: Арт КамачоАктеры: Лоренцо Ламас, Трой Агуайо, Эшли Таккер, Шалена Хьюз, Марк Парра, Мистикал, Сузанна Кинг, Кевин БрюертонПеревод: Многоголосый закадровыйПродолжительность: 01:25:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516254   (643745) от 03.07.2012
-
-VA - Classical evolution: Spanish guitar music (2002) [FLAC|Lossless]<Classical>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concierto de Aranjuez, for guitar & orchestra - Joaquín Rodrigo [22:40]
-01. Allegro Con Spirito - Budapest Strings
-02. Adagio - Budapest Strings
-03. Allegro Gentile - Budapest Strings
-
-Sonata for guitar in C major ("Grande Sonate"), Op. 22 - Fernando Sor [19:11]
-04. Allegro
-05. Adagio
-06. Menuetto
-07. Rondo: Allegretto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 680222   (643790) от 16.07.2013
-
-Рестлинг / WWE Monday Night RAW 15.07.2013 (2013) HDTVRip [H.264] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643790.jpg" />
-</div>
-
-
-###  Подробнее
-
-1,051-й выпуск Monday Night RAWЖанр: СпортПеревод: ОтсутствуетПродолжительность: 2:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B718161F2DB7C74F674DA268EC9F7F015794CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032307   (643804) от 08.07.2016
-
-Роберт Льюис Стивенсон | Принц Отто (2015) [MP3]
+Александр Тамоников | Прерванный полет «Боинга-737» (2015) [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643804.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Принц Отто» – роман одного из величайших английских писателей Роберта Льюиса Стивенсона. По признанию самого Стивенсона это была сложнейшая из его работ. Стоит лишь упомянуть, что одна из глав романа переписывалась самим автором восемь раз и еще один раз его женой. Роман в основном был закончен в 1883 году. В «Принце Отто», опубликованном в 1885г., Стивенсон в полной (   Читать дальше...   )Жанр: классика приключенческого исторического романаПродолжительность: 11:42:28
+Боевиками движения «Талибан» захвачен пакистанский «Боинг‑737» с сотней пассажиров на борту. Террористы связываются с российскими властями и предлагают обменять авиалайнер на десять боевиков-талибов, которые отбывают срок на территории РФ. Несмотря на то, что среди пассажиров авиалайнера нет ни одного гражданина России, власти принимают предложение террористов. (   Читать дальше...   )Жанр: БоевикФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB29B1E5E76F7E3F0BFD498FB39228F182617D4F
+magnet:?xt=urn:btih:BA30CDF3C3438D8C1F3B920094C119DE25DAAEBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,340 +24,182 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032805   (643809) от 08.07.2016
+###  Публикация: 907042   (641515) от 10.06.2015
 
-VA - A State Of Trance Radio Top 20 July (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren Ft. Eric Vloeimans - Embrace (Arty Remix) (3:30)
-02. Aly & Fila & Luke Bond & Audrey Gallagher - A Million Voices (3:48)
-03. Maor Levi & Ilan Bluestone - Dynamic (3:53)
-04. Gareth Emery Ft. Janet Devlin - Lost (Ferry Corsten Remix) (5:31)(   Читать дальше...   )Производство: Armada Music B.V.Жанр: Trance, Vocal TranceПродолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA136951B594101E994B4D6A24D3872156E2385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032573   (643810) от 08.07.2016
-
-Ivy Sole - Eden (2016) LP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Without You (2:35)
-02. All Mine (3:46)
-03. The Vow (2:58)
-04. You Don't Know My Name (4:09)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599F3B7122C3E79ED843417507753CBF599F52B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032676   (643813) от 08.07.2016
-
-SiteSucker 2.8.4 [Multi]
+Papers 3.2.10 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643813.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SiteSucker. Альтернативный менеджер загрузки сайтов
-SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+Papers — персональный каталогизатор научных статей
+Каталогизация журнальных статей и публикаций — весьма нелегкая задача. Особенно это знают люди, ведущие журналистскую деятельность и научную работу. Немудрено, что для упрощения этой задачи очень хочется использовать компьютер.
+Отчасти тут хватит встроенных в OS X средств: поиск с помощью Spotlight, просмотр в стандартном (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 мая 2015Разработчик: MekentosjПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9017359B6F23D302413ED4938B15285911C3328F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906306   (641517) от 10.06.2015
+
+100 Locked Doors 2 1.0.2 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641517.jpg" />
+</div>
+
+
+###  Подробнее
+
+100 Locked Doors 2 - продолжение известной головоломки «100 Doors». Как и в других играх этого жанра вам необходимо найти способ открыть все двери, которые станут у вас на пути. Изначально все двери заперты, для того, чтобы их открыть вам понадобится проявить себя и постараться решить ребус. Отгадать загадку или решить головоломку. Каждая следующая дверь будет открываться (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 4 июня 2015 г.Разработчик: Protey AppsПоддерживаемая ОС: Android 2.3 +Жанр: PuzzleЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BAFB74CC6232C5655CE6661CE506A2B1A0A98E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907032   (641519) от 10.06.2015
+
+NVIDIA GeForce Experience 2.4.5.44 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641519.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Experience - это новое приложение от NVIDIA, которое оптимизирует ваш ПК двумя основными способами. Во-первых, GeForce Experience автоматически уведомляет вас о новых выпусках драйверов от NVIDIA и скачивает их для вас. NVIDIA постоянно работает над улучшением драйверов. Новые драйверы улучшают производительность игр, добавляют новые возможности и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5FD3475388A47542877629A750526CCF655A2D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518394   (641523) от 04.07.2012
+
+Mad M!nd - Bass 2 Face v2.0 (2012) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matrix & Futurebound ft Luke Bingham - All I Know (Matrix & Futurebound Smash and Grab Mix)
+02. Albin Myers - Hells Bells (Drumstep Mix)
+03. 2DB - Amiga Man (Original Mix)
+04. Triage - Brawl (Triage Drumstep Remix)
+05. Modestep - Show Me A Sign (Camo & Krooked remix)
+06. Dose - Caffeine Dream (Original Mix)
+07. DJ Fresh - Hot Right Now (Ferv Pitch Remix)
+08. Kairo Kingdom - One Two (Original Mix)
+09. Triage - Radium (SPL Remix)
+10. Rihanna - Birthday Cake (Proper Villains Remix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F225B77DD898D24A88668CB891984BBA4845C0FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518401   (641524) от 04.07.2012
+
+VA - Hospitality Drum & Bass 2011 (30.01.2011) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Elektricity - Just One Second (Apex VIP)
+02. Blokhe4d - The Way Life Used To Be
+03. Sigma Featuring Logistics - Dreams To Reality
+04. Fred V - Simple Beginnings
+05. Danny Byrd Featuring Netsky - Tonight
+06. Camo+Krooked - Reincarnation
+07. Receptor - Ass
+08. Danny Byrd Featuring I-Kay - Ill Behaviour
+09. Die + Interface Featuring William Cartwright - Bright Lights (Netsky Remix)
+10. Joe Syntax - Fire Engine(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1D4F6A14739D823F2F29FFEDA1D995F5593473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518586   (641525) от 04.07.2012
+
+VA - Ferry Corsten Presents Corsten's Countdown June (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641525.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Ferry Corsten Presents Corsten's Countdown June (2012)
 
-SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июля 2016Разработчик: Richard CraniskyПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08A4D6C27A37218E78C09BA20A316CDF9FF0DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906486   (643816) от 09.06.2015
-
-Noturnall - Back to F*ck You Up! (2015) [MP3|320 кб/с]<Progressive Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enquanto a Tregua Nao Vem... 00:40
-02. Back to Fuck You Up! 03:28
-03. Zombies (The Holy Trinity) 06:03
-04. Fight the System 04:31(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F95762EDD88523465CE454C0992F847C2909796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906756   (643817) от 09.06.2015
-
-Специальный репортаж. Приговор долгу (2015.06.08) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643817.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 июля в Литве будет оглашён заочный приговор бывшим командирам вильнюсского ОМОНа, которые в начале 1991 года отказались подчиниться новым республиканским властям. Тогда во время политического двоевластия погибли 14 человек.Телекомпания: ТВЦЖанр: ДокументальныйПродолжительность: ~ 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF298FA09592714ACB28D38C7943981299FA99C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 346766   (643859) от 06.06.2011
-
-NHL 10/11, SC: Финал, матч №2: Boston Bruins vs Vancouver Canucks (04.06.2011) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. NHL. Кубок Стэнли, финал, 2-й матч, Boston Bruins против Vancouver Canucks.Жанр: Спорт, хоккейТелекомпания: Формат: MPEG-4Продолжительность: 01:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739666AFD4FBEFA611F51A2F6CC4BE2621C2146D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518503   (643869) от 03.07.2012
-
-Black Messiah - The Final Journey (2012) [MP3|320 кб/с]<Symphonic Black/Power/Folk/Viking Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643869.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Windloni
-2. Der Ring Mit Dem Kreuz
-3. To Become A Man
-4. Into The Unfathomed Tower (A Tribute To Candlemass)
-5. Feld Der Ehre
-6. Lindisfarne
-7. The Naglfar Saga: Prologue - The Final Journey
-8. The Naglfar Saga: Mother Hel
-9. The Naglfar Saga: On Board
-10. The Naglfar Saga: Sailing Into EternityЖанр: Symphonic Black/Power/Folk/Viking MetalПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E584D7F1DC6740DCC5E53A8410E75AF7C16B5D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518279   (643870) от 03.07.2012
-
-VA - Dance Club Party Vol.5 (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643870.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Young Rebels & Francesco Diaz - Timbuktu (Original Mix) (6:15)
-2. Victoria Aitken - Weekend Lover (Sean Finn Radio Edit) (3:58)
-3. Voxxmore feat. Starla Edney - Zero21 (Never Let You Go) (Radio Mix) (4:35)
-4. Darius & Finlay feat. Carlprit & Nicco - Do It All Night 2k12 (CK Stone Mix Edit) (2:59)
-5. Scooter & Lavelle & Sue Cho - Beats Inside My Head (Minero Remix) (5:48)
-6. Pryda - You (Original Mix) (6:58)
-7. Mike - D Feat. Nensi - All I Want (Infected Culture Radio Edit) (3:26)
-8. Andrea Verona Feat. Jama - La Pasion (Ratatouille Radio Edit) (3:22)
-9. Picco & Pleasurekraft - Mi Cafe (Stanislav Shik & Denis Rook Mashup) (5:39)
-10. Medina - Forever (DJ Tonka True House Mix) (4:32)Жанр: Dance, ClubПродолжительность: 08:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AB753E0C46FA7DEA43B12DEC2341280B4E2EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518174   (643871) от 03.07.2012
-
-Oliver/Dawson Saxon - Motorbiker (2012) [MP3|320 кб/с]<Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chemical Romance
-02. Motorbiker
-03. Whippin' Boy
-04. No Way Out
-05. Just Another Suicide
-06. Sinternet
-07. Ghost
-08. Nevada Beach
-09. Screaming Eagles
-10. World's Gone Crazy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8007F7AA9EBD62909B6AD08C046911C796AD87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516545   (643876) от 03.07.2012
-
-Josh Turner - Punching Bag. Deluxe Edition (2012) [MP3|320 кб/с]<Country>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643876.jpg" />
-</div>
-
-
-###  Подробнее
-
-(0:36) 01. Introduction
-(3:39) 02. Punching Bag
-(3:21) 03. Time Is Love
-(3:17) 04. Deeper Than My Love
-(3:08) 05. Good Problem
-(3:59) 06. Cold Shoulder
-(3:38) 07. Find Me Baby
-(3:24) 08. Whatcha Reckon
-(4:34) 09. Pallbearer
-(4:07) 10. For the Love of God(   Читать дальше...   )Жанр: CountryПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C085D6FF14215D45D7D913BDC5627459EC0775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518457   (643877) от 03.07.2012
-
-Kuffdam - Network (2009) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kuffdam - Network (2009)
-
-Год: 2009
+Год: 2012
 Жанр: Trance
-Продолжительность: 01:18:56Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Kuffdam & Plant - Summer Dream (Sunset On The Beach Mix) (7:00)(   Читать дальше...   )
+Продолжительность: 01:04:51Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТреклист:
+01. Festen - Wassup Vegas (5:37)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17F0682F7B6B0A96FC45C5C7190299A5FF67704A
+magnet:?xt=urn:btih:5BC749834B73ADC3022BB616F2709CECD1A0A8AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,25 +207,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518278   (643878) от 03.07.2012
+###  Публикация: 518742   (641527) от 04.07.2012
 
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №86 (2012.07.02) (2012) SATRip
+Картинки - Indian Dolls (Индейские куколки) [JPEG]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643878.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:12:28
+Моё собрание куколок и это ведь красиво и занимательно. (Может кому пригодится.)Разрешение файлов: разные от 450х659 до 1247Х499Формат: jpeg
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:334506273998A9FF9F18A7306C10D711CEA0634E
+magnet:?xt=urn:btih:921C8F0BD47681024E747732853A9B548C3DFC27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,187 +233,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518129   (643879) от 03.07.2012
+###  Публикация: 518720   (641530) от 04.07.2012
 
-R3hab - I Need R3hab 001 (01.07.2012) [MP3|~205 кб/с]<Electro House, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	R3hab & Swanky Tunes feat. Max C - Sending My Love	(05:14)
-02.	R3hab vs. Calvin Harris - Chainsaw The Night vs. Flashback (R3hab vs. Panic City & Miles Medina Bootleg)	(04:00)
-03.	Wynter Gordon - Til Death (R3hab Remix)	(04:30)
-04.	R3hab & Calvin Harris vs. Axwell & Dirty South - Bounce vs. Open Your Heart (R3hab Bootleg)	(03:30)
-05.	Calvin Harris feat. Example - We'll Be Coming Back (R3hab EDC Vegas Remix)	(05:22)
-06.	David Guetta feat. Chris Brown & Lil Wayne - I Can Only Imagine (R3hab Remix)	(04:08)
-07.	Afrojack feat. Shermanology - Can't Stop Me (R3hab & Dyro Remix)	(04:52)
-08.	Afrojack & R3hab - Prutataaa (Dada Life Remix)	(03:45)
-09.	Kaskade feat. Mindy Gledhill - Eyes (R3hab Remix)	(02:45)
-10.	David Guetta feat. Usher - Without You (R3hab's XS Remix)	(04:13)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7ED559D58A2EA8AEC2F2D7AFE22C7FD88682228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517050   (643880) от 03.07.2012
-
-VA - Subculture Selection 2012-04 (2012) [MP3|320 кб/с]<Trance>
+Little Feat - Rooster Rag (2012) [FLAC|Lossless]<Southern-Rock / Blues-Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643880.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mark Leanings vs Space Rockerz & Tania Zygar - Whatever Happened To Puzzle Piece (John O'Callaghan mashup) (07:33)
-02. Protoculture - Cobalt (07:25)
-03. Akira Kayosa & Hugh Tolland - Disconnected (08:05)
-04. Sean Tyas - Take My Hand (feat David Berkeley - John O'Callaghan remix) (08:34)
-05. Giuseppe Ottaviani & Betsie Larkin - Toys (club mix) (07:25)
-06. Emma Hewitt - Miss You Paradise (Shogun remix) (07:37)
-07. Andy Moor & Ashley Wallbridge - World To Turn (feat Gabriela - club mix) (06:50)
-08. W&W - Shotgun (06:05)
-09. Matt Skyer - Bad Trip (07:25)
-10. Tritonal - Everafter (feat Cristina Soto - Tritonal club mix) (06:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E151E61AF9E3140A8E3CB0D69743F8532568DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517049   (643881) от 03.07.2012
-
-VA - Subculture Selection 2012-03 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Ocallaghan - Stresstest (John Askew Remix (08:27)
-02. Gareth Emery - Concrete Angel (feat Christina Novelli - John O'Callaghan remix edit) (04:51)
-03. John Ocallaghan & Heatbeat - Las Lilas (09:04)
-04. Omnia & IRA - The Fusion (06:08)
-05. John Ocallaghan - Smokescreen (Sneijder Remix) (07:39)
-06. Heatbeat - Rocker Monster (06:43)
-07. Ost & Meyer - Safari (07:13)
-08. Dark Matters - The Real You (feat Jess Morgan - Jorn Van Deynhoven remix) (08:25)
-09. Sebastian Brandt - Mana (08:03)
-10. Khomha - Mind Gamer (06:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F813D8BD54D64712362163D0875E33A56E7B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517048   (643882) от 03.07.2012
-
-VA - Subculture Selection 2012-01 (07.01.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Tilt feat. Deirdre McLaughlin - Surrender (Sneijder vs. John O'Callaghan Remix) (7:36)
-02. John O'Callaghan feat. Cathy Burton - Perfection (Shogun Remix) (9:13)
-03. Luke Bond feat. Emel - Amaze (Original Mix) (7:32)
-04. John O'Callaghan - The Bailout (Original Mix) (7:35)
-05. Fady & Mina - Overdrive (Original Mix) (7:46)
-06. Re.Locate vs. Robert Nickson - Prevening (Original Mix) (8:24)
-07. Susana - Home (Daniel Kandi Retrofit Remix) (7:17)
-08. Orjan Nilsen - Viking (Original Mix) (7:34)
-09. Ashley Wallbridge - Vision (Original Mix) (6:28)
-10. Gareth Emery - Tokyo (Edit) (3:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF80202EF9C0FCE1E07153CF41D78B5C2349A5B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216968   (643887) от 08.07.2010
-
-Такси, прицеп и коррида / Taxi, Roulotte et Corrida (1958) DVDRip [H.264] [PR]
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таксист Морис Берже никак не может дождаться окончания работы, что и понятно, ведь уже через час он вместе со своей семьей, а также с семьей свояка Леона, отправится в автопробег Франция-Испания. И вот желанное время старта настало! Прицепив к своему вместительному автомобилю прицеп свояка, забавная компания отправляется в путь. Хитрец и пройдоха Морис обещает всем (   Читать дальше...   )Производство: Франция / Champs-Élysées Productions, Lambor Films, P.A.C.Жанр: КомедияРежиссер: Андре ЮнебелльАктеры: Луи де Фюнес, Раймон Бюссьер, Анетт Пувр, Жак Динам, Полетт Дюбо, Ги Бертиль, Жак Бертран, Луи Бужетт, Вера Вальмон, Жак ДюфилоПеревод: Оригинальный, Профессиональный многоголосыйПродолжительность: 01:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C37B8945D18A2462E0CDD49EA8CF7FD965D792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216708   (643894) от 08.07.2010
-
-Почти герои / Almost Heroes (1998) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1804 год, Соединенные Штаты. По поручению президента на Дикий Запад отправляется группа исследователей, которую потом назовут экспедицией Льюиса и Кларка. Однако официальная история умалчивает тот факт, что ранее покорять те же места выдвинулась бравая компания жадного до славы Лесли Эдвардса. Проводником и помощником авантюриста был Бартоломью Хант, пьяница и дебошир, (   Читать дальше...   )Жанр: Приключения, Комедия, ВестернРежиссер: Кристофер Гест / Christopher GuestАктеры: Крис Фарли /Chris Farley/, Мэттью Перри /Matthew Perry, Юджин Ливай /Eugene Levy/Перевод: Многоголосый закадровыйПродолжительность: 01:30:13
+01. Candy Man Blues - 3:05
+02. Rooster Rag - 4:36
+03. Church Falling Down - 5:22
+04. Salome - 6:32
+05. One Breath at a Time - 5:17
+06. Just a Fever - 4:24
+07. Rag Top Down - 5:26
+08. Way Down Under - 4:06
+09. Jamaica Will Break Your Heart - 4:25
+10. Tattooed Girl - 4:54(   Читать дальше...   )Жанр: Southern-Rock / Blues-RockПродолжительность: 00:58:05
 
 ## Скачать торент
 ```bash
@@ -729,28 +268,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032816   (643903) от 08.07.2016
+###  Публикация: 518764   (641533) от 04.07.2012
 
-Футбол. Чемпионат Европы 2016. 1/2 финала. Германия - Франция (07.07.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+Evil Masquerade - Pentagram (2012) [FLAC|Lossless]<Melodic Heavy Metal>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643903.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-07 июля 2016, четверг. 22:00 МСК
-1/2 финала
-
-Стадион: Велодром (Марсель, Франция) , 64 078 зрителей (95 % при вместимости 67 394)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Сергей Дерябкин (превью), Юрий Розанов, Денис Казанский)Продолжительность: 02:38:47
+01. Pentagram (04:13)
+02. A Silhouette (03:54)
+03. Perfect Disgrace (03:28)
+04. The Spirits Of The Dead (04:15)
+05. Moonlight Fantasy (03:04)
+06. Unholy Water (03:54)
+07. Pray For Mercy On Our Souls (03:33)
+08. Soul Taker (04:38)
+09. On A Bed Of Thorns (04:21)
+10. Strangers Might Fool Ya' (02:11)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:42:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB3632C03D9BF966A5C5A0B406DED4368B7AF7C3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -758,25 +303,426 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032579   (643912) от 08.07.2016
+###  Публикация: 518772   (641535) от 04.07.2012
 
-Mozilla Firefox 48.0 beta 6 (x86/x64) [Ru]
+[Wallpapers 16+] Wallpapers Sexy Girls Pack (04.07.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643912.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3565x2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6F0032D5EC45BEB7F5AC12C51C9E961055E774C
+magnet:?xt=urn:btih:A8892B608559202985905B6B649151B9EEF16E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518028   (641536) от 04.07.2012
+
+Textures - 4 альбома (2003-2011) [MP3|320 kbps] <Progressive Death Metal / Groove Metal / Math Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Года выпуска: 2003-2011Жанр: Progressive Death Metal / Groove Metal / Math MetalПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48D8F898AF0297524FF9CDEB11EE4A86FBBBCE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518519   (641538) от 04.07.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №87 (2012.07.03) (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641538.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0288963E7F732771F4D34D18624CD4770D2EAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518386   (641540) от 04.07.2012
+
+Arty - Together We Are 002 (2012) [MP3|320 кб/с]<House / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arty, BT feat. Nadia Ali – Must Be the Love (Original Mix)
+02. Kris Menace – Eglecy (Original mix)
+03. Dark Matters feat. Denise Rivera – Take Me Home (Sir Adrian Jibberdee Remix)
+04. Celauro – Soundwaves (Original Mix)
+05. Lana Del Ray – Blue Jeans (Kris Menace Remix)
+06. Shinedown – Unity (Matisse & Sadko Remix)
+07. Adrian Lux feat. Dante – Burning (Extended Mix)
+08. Chris Lake & John Dahlback – I Saw This Before (Original Mix)
+09. The M Machine – Faces (Original Mix)
+10. Deadmau5 feat. Chris James – The Veldt (8 Minute Edit)(   Читать дальше...   )Жанр: House / ProgressiveПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CA57AE403BA3DEED3039EDBD79A0A642302F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518762   (641541) от 04.07.2012
+
+[Wallpapers 16+] Sexy Girls Pack Wallpapers (03.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4719x3543
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEBDCFB35C227A9D804516E771EB440E28BBBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518763   (641542) от 04.07.2012
+
+[Wallpapers 16+] Wallpapers Sexy Girls Pack (03.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3022
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B9C19AA8E67624114F055678C509ECC2492A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033121   (641564) от 09.07.2016
+
+КВН-2016. Премьер лига. Игра 1 (2016.07.09) HDTVRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB41A49E9753F4F24C17DE652499F945E4D5DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032991   (641566) от 09.07.2016
+
+DU Meter 7.15 Build 4757 RePack by D!akov [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641566.jpg" />
+</div>
+
+
+###  Подробнее
+
+DU Meter - программа для подсчета реального входящего и исходящего сетевого трафика. Возможности: полностью настраиваемые объем трафика и предупреждения о времени модемного соединения; настраиваемая ежедневная, еженедельная и ежемесячная статистика (как по трафику, так и по времени соединения) с возможностью экспортировать данные в форматы Excel, Word, HTML, Text (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FCF90B489730FC86E281EA14EFB17149AA7AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032839   (641583) от 09.07.2016
+
+Paint.NET 4.0.10 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paint.NET - Простой, но мощный и удобный редактор графики. Позиционируется как отличная замена стандартному MS Paint из поставки Windows. Поддерживаемые форматы: BMP, IPEG, PNG, TIF, GIF, TGA и собственный формат PDN. Основные возможности: работы со слоями, применение эффектов, работа со сканером и камерой, коррекция красных глаз, масштабирование от 1% до 3200%. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9BB86E4E17FE45657C3E58B4A6D268704594E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032984   (641591) от 09.07.2016
+
+StartIsBack++ 1.3.1 RePack by CRD [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641591.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartIsBack++ возвращает в Windows 10 полнофункциональную кнопку запуска меню Пуск, такую же как и в Windows 7. Восстанавливает оригинальное стартовое меню Windows 7 со всеми его возможностями: поиск, перетащить, вставить, недавно использованные приложения. Можно изменить внешний вид меню Пуск, в том числе выбрать другую иконку кнопки "Пуск", изменить цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78EB1BDE77DE854D4A411B9A57D54BB57CA27F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032846   (641592) от 09.07.2016
+
+Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  (2016.07.08) WEB-DL [H.264/720p-LQ] (выпуск 15)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641592.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом году участниками битвы станут все самые известные юмористы, когда-либо принимавшие участие в «Comedy Баттл», а также те, кто благодаря участию в шоу стали резидентами Comedy Club. Биться за главный приз с опытными юнитами будут молодые и талантливые новички. Победитель сезона получит 7 миллионов рублей, а такие огромные деньги не помешают никому: ни резиденту (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2421AD061D7511A473F8D0662F84033AB39D0DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033119   (641593) от 09.07.2016
+
+UltraSearch 2.1.1.375 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641593.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltraSearch - инструмент, который позволяет находить файлы и папки на локальных дисках NTFS вашего компьютера, представляя результаты поиска за считанные секундыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D151C93ECA550650B6E150982799C5360F00FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590943   (641595) от 17.07.2013
+
+Хранилище 13 / Warehouse 13 (2012) WEB-DL (1080p) (сезон 4, серии 20 из 20) [LostFilm]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярного сериала Хранилище 13. Мы с вами станем свидетелями невероятной и захватывающей работы двух агентов Секретной службы США Майки Беринг и Пита Латтимера, в чьи обязанности входит отслеживать и исследовать любые предметы, обладающие сверхъестественными и паранормальными свойствами, и доставлять их на секретный правительственный склад - Хранилище (   Читать дальше...   )Жанр: Фантастика, Детектив, ПриключенияРежиссер: Константин Макрис, Крис ФишерАктеры: Эдди МакКлинток, Джоэнн Келли, Сол Рубинек, Дженелл Уильямс, Эллисон Скальотти, Си Си Эйч Паундер, Саймон Рейнольдс, Аарон Эшмор, Джейми Мюррэй, Саша РойзПеревод: Многоголосый закадровый, профессиональный (LostFilm)Язык субтитров: АнглийскиеПродолжительность: 20 х ~00:43:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906948   (641610) от 10.06.2015
+
+CDBurnerXP 4.5.5.5666 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641610.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDBurnerXP - бесплатная программа для записи CD, DVD, Blu-Ray и HD-DVD дисков, с помощью которой можно создавать загрузочные, мультисессионные диски и аудио-CD, а также записывать и создавать ISO-образы. Приложение работает со всеми видами носителей и большинством IDE, USB, Firewire и SCSI приводов.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F46051D72BF64668CB3783467860FD2A89C61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906997   (641616) от 10.06.2015
+
+DVDFab 9.2.0.2 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641616.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab - программа, которая совмещает в себе возможности копирования DVD, преобразования видео в разные форматы и записи на диски. DVDFab успешно выполняет как создание копий дисков, так и подготовку видео в форматы, поддерживаемые мобильными устройствами, такими как iPod и PSP (MPEG-4/H.264 MP4). При копировании DVD можно выбрать один из нескольких режимов: полное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B2E4218E16B426721DCC4E7F97BFCB8F575146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518489   (641618) от 04.07.2012
+
+Makattopsy - Purified Zombie Cadaver (2012) [MP3|256 кб/с]<Brutal Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anatomy Of A Maid 03:21
+ 02. Diseased Embryos 02:43
+ 03. Purified Zombie Cadaver 03:20Жанр: Brutal DeathПродолжительность: 00:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D51B485F4B809AB4EBAC5F35F973A323E2A1E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

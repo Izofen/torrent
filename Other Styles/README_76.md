@@ -1,3 +1,32 @@
+###  Публикация: 939134   (477917) от 20.09.2015
+
+Ben Caplan - Birds With Broken Wings (2015) [MP3|320 кб/с]<Country, Funky Blues, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birds With Broken Wings (03:41)
+02. I Got Me A Woman (03:06)
+03. Belly Of The Worm (03:47)
+04. Ride On (03:30)(   Читать дальше...   )Жанр: Country, Funky Blues, FolkПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F29B68A9518F6EBF0309DE2472980B812404A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244934   (477967) от 03.09.2018
 
 Manish Vyas - Sattva (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
@@ -732,41 +761,6 @@ Omar Akram - Destiny (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5234CB3A44AB2B138BE6BBF8B3BB165F10E4776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544993   (482760) от 11.09.2012
-
-Владимир Мулявин - Голос души. (Часть 1. Нерастиражированное) (2006) [MP3|320 кб/с]<Folk / Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Христос Воскрес!
-02. Разлад
-03. Монолог собаки
-04. Появились молодые...
-05. Перед атакой
-06. Бабулька
-07. Ой, кума
-08. Чырвона ружа
-09. Я лишь поэт
-10. Тем, кто помнит(   Читать дальше...   )Жанр: Folk / RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7E2BB294CD00C9FED63BF08CE4AB451954C898
 ```
 
 https://mybot314.ru/tekegram_catalog/

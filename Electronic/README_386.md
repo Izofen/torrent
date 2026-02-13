@@ -1,3 +1,32 @@
+###  Публикация: 1393214   (768293) от 29.06.2020
+
+The Flying Mars - Cosmochemistry (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Vibrational Repatterning 04:40
+02.Lapislazzuli 13:16
+03.Omumborombonga 13:40
+04.The Dance of the Secret Monkey 14:51(   Читать дальше...   )Жанр: Psychill, Psydub, Psybass, DowntempoПродолжительность: 02:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C589E21B60F2755C39301FD733EC8EC7F2D97C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393219   (768354) от 29.06.2020
 
 VA - Voyager: Third Plateau (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
@@ -709,35 +738,6 @@ VA - Gate To Ibiza (The Opening Party 2016) (2016) [MP3|320 кб/с] <Dance, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3250DF9FF3FA5BC46F9D007935A3D885E013A0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016181   (770537) от 14.05.2016
-
-VA - Ultimate Ibiza House 2016 Progressive Edition (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT - Flaming June (Ashley Wallbridge Radio Edit) 3:01
-02. BRKLYN - Steal Your Heart (Bougenvilla Radio Mix ft Lenachka) 2:53
-03. Matierro - Alive (Radio Edit) ft Max Landry) 3:13
-04. Ryos - Eclipse (Reez Remix ft Allisa Rose) 4:09(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC83024ED5F8FDB1C1587BBE4AA25D42F5B86775
 ```
 
 https://mybot314.ru/tekegram_catalog/

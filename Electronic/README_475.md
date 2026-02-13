@@ -1,3 +1,32 @@
+###  Публикация: 1365941   (927358) от 09.03.2020
+
+VA - Science. Art. Wonder. (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927358.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sesto Sento - Sesto Pesto (6:53)
+2. Sesto Sento; Freaky Frequency - Spirit of India (6:44)
+3. Sesto Sento - Pushing Me Higher (6:26)
+4. Sesto Sento - No Music No Life (6:36)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB2D6F0F4153F33D57C7DE43CFF1A2DA44DD205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365934   (927398) от 09.03.2020
 
 Sesto Sento - The Inner Light (2002) - (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -716,35 +745,6 @@ Sven Laux - Alliteration (2017) Archipel [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9929D99EF1F71F2BB3FAAC6CBF25CE61E309A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365477   (930893) от 07.03.2020
-
-VA - Multiplexing Variations (2019) Fantasy Enhancing [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bålsam - Inside The Aboriginal Womb Of Our Mother Tree (08:45)
- 02. Min-Y-Llan - Chant (Mick Chillage Remix) (12:54)
- 03. Ancient Astronaut - Cosmic Dance (05:42)
- 04. Ambidextrous - Jules Verne Still Gleaming (08:05)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 02:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58B42B4E48689AA2EB3E3F3934DEB7E1EF270EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

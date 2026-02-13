@@ -1,3 +1,177 @@
+###  Публикация: 1275839   (789441) от 13.01.2019
+
+VA - Disco Planet (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anita Ward - Ring My Bell (4:24)
+02. Betty Wright - Listen To The Music (Dance) (6:03)
+03. Joe Tex - Loose Caboose (6:45)
+04. Bobby Caldwell - What You Won't Do For Love (4:39)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743DA94D90EA1A73759B821BED9C8CF061D4A00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202708   (789457) от 30.01.2018
+
+VA - Памяти Анны Герман - "Мы долгое эхо друг-друга..." (2005) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лада Дэнс - Когда Цвели Сады
+02. Андрей Приклонский - Не Спеши
+03. Анастасия Максимова - Танцующие Эвридики
+04. Лариса Долина - Ночной Разговор(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A043C7D6AB5503DF8803C727FFF2676F684277F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275789   (789484) от 13.01.2019
+
+VA - Dance Club 2019.01 [Explicit] (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonas Blue & Liam Payne feat. Lennon Stella - Polaroid 3:13
+02. Lost Frequencies feat. The NGHBRS - Like I Love You 3:10
+03. Marshmello & Bastille - Happier 3:34
+04. Jax Jones feat. Years & Years - Play 3:06(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE335BA35142923F5A802C0CF5FB9C67F6D408F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275784   (789489) от 13.01.2019
+
+VA - Party Dance Vibes (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocky Dog - Gimme Sunshine
+02. Tokafun and DJ Erik de l'Impact - Deep Club (Extended Mix)
+03. S.E.X.Appeal feat. Lyane Leigh - Sexy Boy (Edit 2017)
+04. Nick Cold feat. Pit Bailay - Story of My Life (3H Lyane Leigh Dance Mix)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA5CCD7F4864F74D3961EF99032A37A53DBD56A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438549   (789628) от 12.01.2019
+
+Supermax - Greatest Hits (2012) [FLAC|Lossless] <Rock, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bango Bongo (5:44)
+02. Lovemachine (7:42)
+03. Be What You Are (2:54)
+04. It Ain't Easy (4:18)(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 02:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED97532341B85CAF867273D369617AAF1694CB6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511051   (789638) от 19.11.2021
+
+James Blunt - The Stars Beneath My Feet (2004-2021) (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Soft Rock, Indie Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Under Pressure (2:45)
+ 02. 1973 (4:40)
+ 03. Wisemen (3:43)
+ 04. Same Mistake (4:58)(   Читать дальше...   )Жанр: Pop-Rock, Soft Rock, Indie Rock, BalladПродолжительность: 01:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D50E0479F6464CCA1A55B5C9C6BEB09EB16E5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511015   (789653) от 19.11.2021
 
 VA - NOW That's What I Call Music! 110 (2021) 2 CD, UK Series [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
@@ -571,180 +745,6 @@ VA - DMC Dance Mixes 255 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16BDCA92D1ABB76BFC1238DBEC5763967D7C8899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387509   (791307) от 02.06.2020
-
-VA - DMC Dance Extra Mixes 150 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24kGoldn - City Of Angels (Futose Remix Extended)
-02. 2Drunk2Funk - Everything
-03. Ava Max - Kings & Queens (Until Dawn Club)
-04. Delena - SOS (Full Intention Extended Remix)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 01:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEEC1C005507550BB0FE1C5984EBAD3275495D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387516   (791330) от 02.06.2020
-
-VA - DMC Dance Mixes 254 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Sweeney - Cover It Up (Extended Mix)
-02. Danny Foster & Rogue Fe. Kele Le Roc - Magic (Funkt3ch Lockdown Vocal Mix)
-03. Demi Lovato - I Love Me (Zac Samuel Remix Clean)
-04. Dua Lipa - Physical (Alok Remix)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662710BFCB82D5F3BFA62C1A08D8002DFE1557FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387487   (791332) от 02.06.2020
-
-Jebadiah - Rock 'N' Soul (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disco каверы на темы песен The Rolling Stones от известного продюсера и аранжировщика - Michael Zager.01. All Together (6:27)
-02. Under My Thumb (6:37)
-03. Ruby Tuesday (4:40)
-04. Honky Tonk Women (5:44)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBFB4843BA43510BE41D183FF084C2F773DA84FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387646   (791335) от 02.06.2020
-
-Star City - I'm A Man (1978) Reissue CD, 1998, Unidisc [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm A Man (12'' Mix) (8:45)
-02. La La Means I Love You (4:08)
-03. I Can't Get Over You (5:46)
-04. Melodia (Melody Of Love) (4:05)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654C3C8FA250031E828808901BDFED640AA61703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510450   (791455) от 16.11.2021
-
-Shakira - Laundry Service꞉ Washed and Dried (2021) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Objection (Tango) (3:44)
-02. Underneath Your Clothes (3:45)
-03. Whenever, Wherever (3:16)
-04. Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C60ED09AAB0BB71A435569370711384F9E227C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510418   (791528) от 16.11.2021
-
-Watson Beasley - Watson Beasley (1980) Reissue CD, 2003, Unidisc [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's On My Mind (12 Inch) (5:49)
-02. Breakaway (Extended) (5:07)
-03. Darlin' I (5:06)
-04. Body Free (4:58)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F5314A2A5BBA8207BEAFC262435D20CE0D5758
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,178 @@
+###  Публикация: 1469969   (1016155) от 14.05.2021
+
+VA - Rewind & Remixed Hits (2010) [MP3|~245 Kbps (V0)] <Dance, Electro Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soft Cell - Tainted Love (DJ RAD Remix) (4:17)
+02. Frenchie Davis - Sweet Dreams (3:35)
+03. Shannon - Let The Music Play (2009 Club Crasher Remix) (6:40)
+04. J.J. Fad - Supersonic (Electrolicious Remix) (5:07)(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 03:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE28B8D8B60A396FC7AA9AC2735F0C6BC445957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469980   (1016160) от 14.05.2021
+
+VA - Ultimate NRG Party (2004) [MP3|320 Kbps] <Dance, Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna M. - Diva (English Mix) (3:54)
+02. Boys In The Dark - Santa Maria (3:28)
+03. Inside<>Out - Believe (NRG Radio Mix) (4:01)
+04. Hanky Panky - Truly Madly Deeply (NRG Radio Mix) (3:16)(   Читать дальше...   )Жанр: Dance, Disco, Hi-NRGПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582546BECEA2320F4E0ACB80B74AEA6413B27EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469544   (1016286) от 13.05.2021
+
+Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016286.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Break My Heart Myself (feat. Travis Barker) (02:31)
+2. Sabotage (02:56)
+3. Trust Fall (02:30)
+4. Better Mistakes (02:15)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCEF7A8137EEE29F345D1D844290DEFA53AFE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469436   (1016383) от 12.05.2021
+
+Digital Emotion - Greatest Hits and Remixes (2021) 2CD [FLAC|Lossless|image + .cue] <Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Don't Stop (7" Version)
+02. Go Go Yellow Screen (7" Version)
+03. Time (Back In Time) (7" Version)(   Читать дальше...   )Жанр: Italo Disco |Продолжительность: 01:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0E650DBFF5F2D29BB9BF4B2EB83DB9B72E1039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469147   (1016577) от 11.05.2021
+
+Вячеслав Малежик - Марина (2020) [FLAC|Lossless|image + .cue] <Pop, Chanson, Ballad>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Марина
+02. Ноябрь
+03. Нереальный полёт
+04. В омуте любви(   Читать дальше...   )Жанр: Pop, Chanson, BalladПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F108D9B05A94078FB731A3D7822DED987DF6172B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468783   (1016716) от 10.05.2021
+
+Paul Mauriat & His Orchestra - Paul Mauriat plays the Beatles & Mamy Blue (2014) Compilation, Remastered [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paul Julien André Mauriat (4.03.1925 – 3.11.2006) был руководителем и дирижером французского эстрадного оркестра Le Grand Orchestre de Paul Mauriat, который исполнял легкие эстрадные мелодии. Каталог звукозаписи Paul Mauriat насчитывает более 1000 названий, а его альбомы разошлись по всему миру в количестве более 40 млн копий.
+Английский лейбл Vocalion представляет (   Читать дальше...   )01. Eleanor Rigby (2:15)
+02. My Sweet Lord (3:01)
+03. Yesterday (2:34)
+04. Hey Jude (3:10)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF164839EB341E118B1717F6473C38438FF2087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468818   (1016738) от 10.05.2021
 
 Paul Mauriat & His Orchestra, Duke Ellington & His Orchestra - Songs That Define a City; Paris, Volume 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Soul, Easy Listening>
@@ -570,180 +745,6 @@ Modern Boots - Tell Me the Reason (2021) [MP3|320 Kbps] <Italo-Disco, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39CFAB2EA04C090FAD3EF3DB1199B4897A0D5ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466998   (1018038) от 02.05.2021
-
-Adriano Celentano - Uh... Uh... (1982) Reissue, 1995, CLAN [FLAC|Lossless|image + .cue] <Disco, Pop, Soundtrack>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giornata nein (04:56)
-02. Niente di nuovo (05:01)
-03. Conto su di te (04:20)
-04. Solo (04:41)(   Читать дальше...   )Жанр: Disco, Pop, SoundtrackПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F453DA0799ADC212C63AC210DF16C17884F9E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467042   (1018097) от 02.05.2021
-
-Strange Affair - Strange Affair (1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Connection (6:20)
-02. No, No, No (5:54)
-03. Love Is A Strange Affair (5:50)
-04. Medley - I'm Ready & Disco Star (6:53)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C164CAEC4C76762B4FEE8FAD8245B7F4F3B166F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466652   (1018261) от 01.05.2021
-
-Dalida - Dans la ville endormie (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dans la ville endormie (3:08)
-02. Eux (2:21)
-03. Et la vie continuera (3:28)
-04. L'amour qui venait du froid (3:55)(   Читать дальше...   )Жанр: Pop, Chanson françaiseПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F43BABE99AD07E916DD76BD4C703E094A76F9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466934   (1018272) от 01.05.2021
-
-Larry Page Orchestra - Erotic Soul (1977) LP [MP3|320 Kbps] <Electronic, Disco, Soul, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rampage (4:18)
-02. Chasin' (4:16)
-03. Do It In Slow Motion (3:18)
-04. Just A Little Bit (4:15)(   Читать дальше...   )Жанр: Electronic, Disco, Soul, InstrumentalПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80931FDDC070DA69D95D1E7E432E2F343806F8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466581   (1018395) от 30.04.2021
-
-Cliff Turner - Moonlight Affair (1986) 2020, United Music Group [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Affair 03:21
-02. Your Love 03:25
-03. A New Way's Born 03:23
-04. Moonlight Affair (Extended Version) 06:12(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 00:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEA5EDC1B515E6629FA001C97ED951FDD0D7C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466537   (1018421) от 30.04.2021
-
-Nayio Bitz - Selections, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Disco, Italodisco, Synthwave>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be 4:10
-02. Another You 5:24
-03. Oh My 3:46
-04. Sensational Love 3:46(   Читать дальше...   )Жанр: Electronic, Nu Disco, Italodisco, SynthwaveПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83660E038B316DCA0CD60762C1BCA7CDC73180F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

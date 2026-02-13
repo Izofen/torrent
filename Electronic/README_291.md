@@ -1,3 +1,30 @@
+###  Публикация: 1303717   (567449) от 24.05.2019
+
+MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SKURM - Baa (Long Away) (MRUKS Remix)
+02. SKURM - VIT16 (MRUKS Remix)Жанр: Funky, RetrowaveПродолжительность: 00:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CA597B385026B2585231EF1E6B1995B8ADDE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044252   (567466) от 19.08.2016
 
 VA - Boom Dance (2016) [MP3|320 Kbps] <House, Progressive, Club>
@@ -712,35 +739,6 @@ VA - Tomorrowland 2017: Amicorum Spectaculum (2017) [MP3|320 Kbps] <House, Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:040EFFC4D3AE3532A1ED64B42712C079FE2392CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151612   (570530) от 20.07.2017
-
-VA - Erotic Chillout Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Go - Well & Ness 03:47
-02. Schwarz & Funk - Velvet Dreams 05:30
-03. King Hookiss - Dare 2 Dream (Ibiza Night Mix) 05:58
-04. Susy Seven - Come With Me 06:59(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 08:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB96E6FD164450972830EDD00CA0CCBEC55C17BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1121859   (799623) от 03.04.2017
+
+VA - Italo Disco Hits Vol.12 (2017) [MP3|320 Kbps] <Disco, Italo-Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cliff Wedge - Touch Me (Radio Edit)  3:23
+02.  Boris Zhivago - Deep In My Heart (Radio Vintage Mix)  4:57
+03.  TQ - Let The Night Remain Forever (Extended Version)  7:56
+04.  Amaya - Sensation (Extended Version)  4:40(   Читать дальше...   )Жанр: Disco, Italo-Disco, DanceПродолжительность: 05:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C986B19F3483C70503177D70F669E6010DCFCEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121855   (799645) от 03.04.2017
+
+Ольга Пирагс - Лучшие песни (2008) [MP3|224-320 Kbps] <Pop, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Спасибо, музыка, тебе
+02. Дождевые кольца
+03. Два стрижа
+04. Старый рояль (feat. Игорь Скляр)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 04:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A2AAE49A1ABC73C7B18407F7F31C6569728D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121727   (799649) от 03.04.2017
 
 VA - Beatport Top 100 Trance March (2017) [MP3|192-320 Kbps] <Trance, Progressive Trance, Uplifting Trance,Vocal Trance>
@@ -687,64 +745,6 @@ VA - 100 Greatest Male Voices (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20FE85F591762B636F187307EB0ED313D3AF8C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199809   (800213) от 17.01.2018
-
-VA - Romantic Mood Smooth Compilation (2017) [MP3|320 Kbps] <Smooth Jazz, Easy Listening>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800213.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gabrielle Chiararo - So Nice
-002. Matteo Brancaleoni - Winter Wonderlan
-003. Smooth Jazz Sax Instrumentals - Smooth Piano
-004. Terrace Martin - Velvet Portraits(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 06:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C81E719921C2B6970227440149AC6DBE60517E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199311   (800223) от 17.01.2018
-
-VA - Chillout Time (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florent Campana  -  Golden Hour  2:54
-02.  Arrojas  -  Over The Past Year  5:24
-03.  Rosarossa  -  Get Free (Soul Beats Mix)  3:33
-04.  Guggenz  -  Break Even (Original Mix)  3:47(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA9E85F117CCB66962B254879A1BD9974806273
 ```
 
 https://mybot314.ru/tekegram_catalog/

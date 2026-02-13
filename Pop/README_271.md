@@ -1,3 +1,177 @@
+###  Публикация: 1214293   (764964) от 21.03.2018
+
+Don Bernini - Telepatia (1979) [MP3|320 Kbps] <Electronic, Space Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snake-Dance (4:20)
+02. Ikebana (5:20)
+03. Huntsman Of Thought's (4:38)
+04. Richiamo (3:36)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E92835A5EF5AB473C77D13DEE512C77F83380A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214429   (764970) от 21.03.2018
+
+Bosson - One In A Million (2001) [MP3|320 Kbps] <Pop, Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One In A Million (3:34)
+02. I Believe (3:51)
+03. We Live (3:46)
+04. Where Are You? (4:06)(   Читать дальше...   )Жанр: Pop, Europop, Synth-popПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1F0F64EA1E21F78AA3EFB4A114BC724F9F0C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126598   (765184) от 18.04.2017
+
+ESTRADARADA - Дискотека Века (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дауншифт (5:12)
+02. Love Is (Асфальт) (3:30)
+03. Лайф из лайф (#Lifeislife) (2:59)
+04.Жанр: Pop, DanceПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EA0C8E4B7378D4AE6D88E3F1190BBC02DADF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279590   (765253) от 30.01.2019
+
+Ottawan - The Very Best Of Ottawan (1992) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.I.S.C.O. 04:56
+02. You're Ok 05:09
+03. Hands Up 04:48
+04. Help, Get Me Some Help 04:25(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A5C39966FBE8FE988529319624F7141AD9FB7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279522   (765334) от 30.01.2019
+
+TOPAZ - High Society (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Dream Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entratura (01:43)
+02. I Don't Mind (04:04)
+03. Eyes Back On Your Face (04:21)
+04. Sacred Throne (04:43)(   Читать дальше...   )Жанр: Dream Pop, AlternativeПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B08A7492E3C89510EFCFDE7B3EA2AAB4C15CC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394051   (765348) от 03.07.2020
+
+Григорий Лепс - Честь имею! Городской романс (Высоцкий) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Авторская песня>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765348.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Подумаешь, с женой не очень ладно
+2. В пику, а не в черву
+3. Попутчик
+4. Про соседа-завистника(   Читать дальше...   )Жанр: Pop, Авторская песняПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752A70E74AB80AB236CA1FBDD92CC72C30188BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126548   (765410) от 18.04.2017
 
 Tam Harrow - Incredible Idiot (2015) LP, The Italo Disco Album [MP3|320 Kbps] <Electronic, Italo-Disco, Eurobeat, Parody, Pop>
@@ -566,180 +740,6 @@ Enterprise - Enterprise (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B80D1FEFC9120F8179E8A0ED891FA2A7D9BF42D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125779   (766965) от 16.04.2017
-
-A La Carte - Nonstop 56 Hits (1989) 2CD Box Set, Reissue 2006 [FLAC|Lossless|image + .cue] <Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Sun Summertime (0:12)
-02. Put Your Hand On Your Heart (1:59)
-03. Take Me To Your Heart (1:42)
-04. Hooray! Hooray! It's A Holi-Holiday! (1:27)(   Читать дальше...   )Жанр: Synth-pop, DiscoФормат: 2хCD, Compilation, MixedПродолжительность: 01:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF5FF7AD6C4F5F81D3C4504F385C126E4AD8D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125744   (767090) от 16.04.2017
-
-A La Carte - Sun Sun Summertime (1989) Vinil-Rip [MP3|320 Kbps] <Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1
-Sun Sun Summertime
-Put Your Hand On Your Heart
-Take Me To Your Heart(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD26DD0069647CE7054D3700E6CDC4228C868725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213880   (767339) от 18.03.2018
-
-Kim Wilde - Here Comes The Aliens (2018) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1969 (4:03)
-02. Pop Don't Stop (3:51)
-03. Kandy Krush (3:16)
-04. Stereo Shot (3:39)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F2BC1F7B7605AB9221ACBEADF4AA7FC2C9BCC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213862   (767344) от 18.03.2018
-
-VA - 90S Baby - Ministry Of Sound (2018) Ministry Of Sound [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc: 1
-1. Bug a Boo (H-Town Screwed Mix) - Destiny's Child
-2. Always on Time - Ja Rule feat. Ashanti
-3. If You Had My Love - Jennifer Lopez(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD47DE74E78CC129BA347D823138879F0077FA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278968   (767666) от 27.01.2019
-
-Matthieu Chedid - Lettre infinie (2019) [FLAC 2.0|96/24|tracks|WEB-DL]<Pop-Rock, French>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lettre Infinie (03:09)
-02. Superchérie (03:43)
-03. Massaï (03:46)
-04. Logique Est Ton Echo (03:01)(   Читать дальше...   )Жанр: Pop-Rock, FrenchПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA21816B9A5147244C0CBBDA73CE95C77C466B05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278727   (767679) от 27.01.2019
-
-Backstreet Boys - DNA (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Go Breaking My Heart (03:37)
-02. Nobody Else (03:39)
-03. Breathe (03:06)
-04. New Love (03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCE4DF0BADAFB6E5827D2953BE8F494F9A3CD2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

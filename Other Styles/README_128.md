@@ -1,3 +1,32 @@
+###  Публикация: 1017084   (762832) от 16.05.2016
+
+Соня Тимофеева - Цыганские народные песни (1970) LP [MP3|256 кб/с] <Цыганская песня >
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кай ёнэ
+02. Настенька
+03. Нанэ мандэ родо
+04. Гэя Куля(   Читать дальше...   )Жанр: Цыганская песняПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED21EC2460E31BD1FFFC13FF20CE40046720497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214833   (763074) от 23.03.2018
 
 Oscar Javelot - Inner Presence (2018) [MP3|320 Kbps] <Instrumental, New Age>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFBFB4F002BA492E97A7ED94D7EBFC501B776156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278437   (768403) от 26.01.2019
-
-Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical Crossover>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Promenade (5:51)
-02. To the Unknown Man (5:14)
-03. Irina Valentinova – Mythodea - Movement 9 (3:48)
-04. Moonlight Reflections (3:10)(   Читать дальше...   )Жанр: New Age, Classical CrossoverПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966263B0B4AA15E184745362DC147EA3F1414169
 ```
 
 https://mybot314.ru/tekegram_catalog/

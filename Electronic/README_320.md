@@ -1,3 +1,32 @@
+###  Публикация: 1144011   (631479) от 20.06.2017
+
+Com Truise - Iteration (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...Of Your Fake Dimension
+02. Ephemeron
+03. Dryswch
+04. Isostasy(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1354CA6C5894FA9B3E7814FC86D97D995B5A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143989   (631493) от 20.06.2017
 
 VA - A State Of Trance Festival - Warm Up Sets (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -714,35 +743,6 @@ Tabor Radosti (Tábor Radosti) - Discography 6 Releases (2001-2016) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:121CAFF862EEE85965D1D5A324F4284C875FDFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143751   (633271) от 19.06.2017
-
-Oscillian - Ad Astra (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633271.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ad Astra (4:00)
-2. Battle Angel (4:32)
-3. Slipstreaming (5:00)
-4. Stratosphere (3:46)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7610E2664098F7223F22DE2539A360B46450C68E
 ```
 
 https://mybot314.ru/tekegram_catalog/

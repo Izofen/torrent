@@ -1,3 +1,32 @@
+###  Публикация: 1307657   (554925) от 10.06.2019
+
+VA - Spiritual Chillout (2004) Compilation [FLAC|Lossless|tracks + .cue] <Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lesiëm - Humitas (04:06)
+02. Mysteria - In my Soul (04:56)
+03. Govinda - Love Gitch (05:23)
+04. Makyo - Chandan (07:13)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3308FA61AD4C0F2B71AF7CCCD5657D35703170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307412   (555020) от 09.06.2019
 
 ScAnDroid Experiment's - Musica Adumbrari (2019) авторская раздача [MP3|320 Kbps] <Experimental, Electronic, Ethnic>
@@ -713,35 +742,6 @@ VA - Schneeweiss 9 (Presented by Oliver Koletzki) (2018) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C141765342168FFC54442E6D95186591CE20CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236188   (556289) от 15.07.2018
-
-Gang Gang Dance - Kazuashita (2018) 4AD [FLAC|Lossless|tracks+.cue] <Experimental, Downtempo, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ( infirma terrae ) (01:24)
- 02. J-TREE (05:51)
- 03. Lotus (04:54)
- 04. ( birth canal ) (01:43)(   Читать дальше...   )Жанр: Experimental, Downtempo, AbstractПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9FC89B649F58698E7F10FC9DCB07EA43A0F5BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

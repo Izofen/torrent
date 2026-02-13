@@ -1,3 +1,201 @@
+###  Публикация: 1318044   (497750) от 04.08.2019
+
+Евгения Власова - 2 Альбома (2003-2008) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На краю небес
+02. На двоих сердце одно
+03. Лавина любви
+04. Нет, я не боюсь!(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6833167D7F56F80B9C4BC64B915428B9201FC004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235675   (497828) от 12.09.2010
+
+Лев Барашков - Золотая коллекция ретро (2005) [MP3|320 kbps]<Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Нейлоновое сердце
+02 - Ребята 70-й широты
+03 - Не потеряй
+04 - Счастливый день
+05 - Берёзовый сок
+06 - Главное, ребята
+07 - Трус не играет в хоккей
+08 - Раздумье
+09 - Мгновения
+10 - Острова разлуки(   Читать дальше...)Жанр: Ретро
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381565   (498065) от 29.08.2011
+
+F.R. David - Reference 80 (2011) [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Words (Original Unreleased Full Mix)
+02. Sahara Night
+03. Pick Up The Phone (Original)
+04. Don't Go
+05. I Need You (Original 7")
+06. Music
+07. Dream Away
+08. This Time I Have To Win
+09. Take Me Back
+10. Sahara Night (Club)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381505   (498069) от 29.08.2011
+
+Joy - Enjoy (2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch By Touch
+02. Love Is All Around
+03. Valerie
+04. Far Away
+05. Sunshine Boogie
+06. 10.000 Angels
+07. Obsession
+08. Shine
+09. Back To The 80's
+10. Heaven Must Be Missing An Angel Tonight(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540999   (498151) от 03.09.2012
+
+Bandolero - Reference 80 (2011) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498151.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paris Latino (Version 45T) (4:01)
+2. Cocoloco (Version 45T) (3:45)
+3. Bagatelle (Version 45T) (3:56)
+4. Reves noirs (Version 45T) (4:05)
+5. Conquistador (Version 45T) (4:44)
+6. El Bandido Caballero (4:12)
+7. Senorita Vargas (3:17)
+8. The Matador (English Cocoloco 45T)
+9. Paris Latino (Hot US-Mix)
+10. The Matador (English Cocoloco Maxi)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:75:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903E89B327ED6754470593BA12B283C90763CF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935727   (498192) от 09.09.2015
+
+Adele - Greatest Hits (2012) [FLAC|image + .cue]<Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyfall  [4:45]
+ 02. Rolling In The Deep  [3:49]
+ 03. Ill Be Waiting  [4:02]
+ 04. Chasing Pavements  [3:31](   Читать дальше...   )Жанр: Soul, PopПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE45EF1EC71AF22C9D91BC68D6B46B6104D420A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317969   (498501) от 03.08.2019
 
 Adriano Celentano - World Name (2003) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -639,184 +837,6 @@ Martina - Disco 'Round The World (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD54451F9566D0F006848ED3CD575F1BD9D902A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934352   (502056) от 05.09.2015
-
-A-Ha - Cast In Steel (2015) 2CD [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of The Affair
-02. Mother Nature Goes To Heaven
-03. Nothing Is Keeping You Here
-04. Shadowside (Demo Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEA118B4006F4F6F0127D95C1196DD6F1F305BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541194   (502192) от 30.08.2012
-
-V.A. - Королева красоты (Золотой Фонд) (2000) [FLAC|Lossless]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В.Макаров - Последняя электричка
-02. Вок. Квартет "Советская песня" - Синий лен
-03. Ирма Сохадзе - Оранжевая песня
-04. Мария Пахоменко - Качает, качает
-05. Эдита Пьеха - Наш сосед
-06. Тамара Миансарова - Черный кот
-07. Муслим Магомаев - Королева красоты
-08. Вок. Квартет "Аккорд" - Назло
-09. Ирма Сохадзе - Топ-топ
-10. Аида Ведищева - Песенка о медведях(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934472   (502316) от 05.09.2015
-
-VA - The Greatest Hits / Singer-Songwriter (2015) 2CD[FLAC|image + .cue]<Pop, Rock, Singer-Songwriter>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dotan - Hungry [3:29]
-02. Gavin James - The Book Of Love [3:09]
-03. James Bay - Hold Back The River [3:59]
-04. Ben Howard - The Fear [4:18](   Читать дальше...   )Жанр: Pop, Rock, Singer-SongwriterПродолжительность: 02:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4406A3538D05EA2963E87DB91C6E9E98764DA51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564017   (502599) от 16.07.2022
-
-Fun Fun - The 12'' Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Happy Station (Scratch Extended Version)
-02 Color My Love (Extended Mix)
-03 Give Me Your Love (Extended Version)
-04 Living In Japan (David Phillips Remix)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29717F25B51E9F55039A39EECF0626F06A867FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379291   (503111) от 24.08.2011
-
-Jessie J - Who You Are (2011) Deluxe Edition [MP3|320 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FC0EC728BF2F654620961BC3EF12B656EEEF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934176   (503272) от 04.09.2015
-
-a-ha - Cast In Steel (Deluxe Edition) (2015) 2CD [FLAC|Lossless|WEB-DL]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503272.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 00:47:11
-CD2 - 00:26:47Треклист CD1:
-01. Cast In Steel
-02. Under The Makeup
-03. The Wake(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC93295853AE16815FAD714C4C44BF5031C5A6A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

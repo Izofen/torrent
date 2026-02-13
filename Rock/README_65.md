@@ -1,3 +1,63 @@
+###  Публикация: 907381   (638198) от 12.06.2015
+
+Fleece - Scavenger (2015) [MP3|320 кб/с]<Psychedelic Rock, Progressive Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638198.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Aliens 04:14
+2.Wake and Bake 03:10
+3.Demanding 05:10
+4.DLXVII (Interlude) 01:32(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, AlternativeПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27DE6008A39E6FEB70E0A76A752D3009A7966D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142234   (638585) от 16.06.2017
+
+Океан Эльзы (Океан Ельзи) - 10 albums, 3 compilations, 3 projects (1998-2016) [MP3|320 Kbps] <Folk Rock, Indie Rock>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638585.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Океан Ельзи» — украинская рок-группа. Создана 12 октября 1994 года во Львове. Лидером и вокалистом группы является Святослав Вакарчук.
+Океан Ельзи многократно признаны публикой и критиками как лучшая рок-группа и лучшая live-группа СНГ и Восточной Европы.
+Океан Ельзи – это экспрессивный, самоотверженный концертный драйв, уникальное сочетание мелодичности с мощной (   Читать дальше...   )1998 - Там де нас нема
+2000 - Янанебiбув
+2001 - Модель
+2003 - Суперсиметрiя(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 14:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CAC986B01460BC1D536FE5F4A98CAE99C52C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519120   (638866) от 05.07.2012
 
 Jethro Tull - Greatest Hits (2011) 2CD [MP3|320 kbps] <Progressive rock - Folk rock - Blues rock>
@@ -705,64 +765,6 @@ Das Bluesgericht - Was Besseres (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:466B0AC03E9C225FF7B914707D511E6F91CB8B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906301   (645880) от 08.06.2015
-
-Ambrotype - The Revelations (2015) [MP3|320 кб/с]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wretch
-02. Crown of Thorns
-03. Cry Me a Black Tear (Elegy for My Brother)
-04. I Am the Beast(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213E3DF020CB12C1C64F0227C1AC06F94822BFE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906300   (645881) от 08.06.2015
-
-Terramater - Protheus (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chief (4:29)
-02. Destiny (3:49)
-03. Queen (3:11)
-04. War (6:34)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDB89BD12F04B0A4B29689FF7CADD92A5B30640
 ```
 
 https://mybot314.ru/tekegram_catalog/

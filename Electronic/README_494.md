@@ -1,3 +1,32 @@
+###  Публикация: 1352571   (1001056) от 14.01.2020
+
+Love Theme - Love Theme (2017) Alter [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Drone>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Exile (9:03)
+02. Late Crossing (3:44)
+03. Docklands / Yaumatei / Plum Garden (8:53)
+04. She's Here (5:19)(   Читать дальше...   )Производство: Alter - ALT34Жанр: Dark Ambient, Dark Jazz, Drone, ElectronicПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46550176F12B5EA636B95348866039741CEC8EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352350   (1001086) от 14.01.2020
 
 Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tech House, Minimal>
@@ -709,35 +738,6 @@ TheFatRat - Discography (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, Glit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F0449CC8FE41596C1FD6F7510861FD82EE45468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488270   (1002284) от 10.08.2021
-
-Faithless - All Blessed (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poetry (feat. Suli Breaks) (3:39)
- 02. Gains (feat. Suli Breaks) (3:27)
- 03. I Need Someone (feat. Nathan Ball & Caleb Femi) (4:54)
- 04. Remember (feat. Suli Breaks & LSK) (7:05)(   Читать дальше...   )Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 02:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063A91A4AA33D29F381916FC9BAF7B969ABF04CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

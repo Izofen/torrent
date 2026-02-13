@@ -1,3 +1,177 @@
+###  Публикация: 1369144   (905640) от 22.03.2020
+
+Турбомода - Затурбись! (2001) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Позови (4;15)
+02. Турболюбовь (ла-ла-ла) (4:32)
+03. Ты забудешь меня (4:16)
+04. Чонкин (3:37)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58AE2352B3D0D2F245258B10657ABCF0BCCC363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369048   (905642) от 22.03.2020
+
+Илья Снегов - Судьба (1996) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вспомни
+02. Поговорим о любви
+03. Судьба
+04. Устало сердце(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3A93A1B9850D7584A0A9F7DEBC11009979ED04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369162   (905645) от 22.03.2020
+
+Турбомода - Улицы Центральные (2004) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Улицы центральные (4:24)
+02. Не целуй её (4:05)
+03. Дождь (4:11)
+04. Не плачь (3:59)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F22C5E29D8A823E30DAEB93B3E25CFBD09F137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369164   (905650) от 22.03.2020
+
+!Бум! - Опять Идет Дождь (2004) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Море (4:04)
+02. Роза (4:08)
+03. Опять идёт дождь (3:49)
+04. Жди (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A8A0B5D0494A6A848186FC50BDF34F1DD6B24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369155   (905652) от 22.03.2020
+
+Турбомода - Виноват Не Я (2002) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виновата школа (3:52)
+02. Армейская (4:24)
+03. Белое платье (3:43)
+04. На память о тебе (3:46)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536606E70749E1E375A07ED3CF90BF798E8861D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369167   (905654) от 22.03.2020
+
+!Бум! - Kanikuly (2007) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kanikuly 2007 (Каникулы 2007) (3:42)
+02. Starsheklassnitca (Старшеклассница) (3:58)
+03. Poezd (Поезд) (3:53)
+04. Ne uletai (Не улетай) (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49F0D532EC7CC4200AB4F277F6E4726561D286E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369168   (905699) от 22.03.2020
 
 VA - Die Neue Schlagerparade 2020 [MP3|320 Kbps] <Pop>
@@ -574,174 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9C979F584C6AF8A5D2A64CB01931F83388AD46E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368687   (909060) от 20.03.2020
-
-VA - Party Megamix Vol. 2 (1994) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Pop, Cover, MedleyПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8911E85A523940A23913F31C2FC4A01EA4E409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368483   (909084) от 20.03.2020
-
-I Santo California - Greatest Hits (2006) [MP3|320 Kbps] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maledetto Cuore (3:28)
-02. Domani (3:49)
-03. Monica (4:21)
-04. Tornero (3:44)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0B2DFF02CD1CD8B9CA9C2004F97D92FEBB35DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368631   (909186) от 20.03.2020
-
-Anarchic System - 3 Albums (1974, 1975) [MP3|320 Kbps] <Electronic, Pop Rock, Pop, Space Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский студийный проект под руководством Оливье Туссена и Поля де Сенневиля. Состав группы: Christian Lerouge, Gilles Devos, Jacques Deville, John Turton, Michel Dhuy, Patrick Verette  был собран в 1972г. из друзей и участников других групп с рок-сцены Северной Франции для записи некоторых синглов, в.ч."Pop Corn", принесших огромную популярность и спрос (   Читать дальше...   )Список альбомов:
-1974 - Cherie Sha La La (R-CD 2009)
-1974 - Pussy Cat C'est La Vie
-1975 - Generation (R-CD 2009)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Pop, Space RockПродолжительность: 02:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE706BEAEECB71A26EC2FC3D8B18B9687C0FD199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368674   (909199) от 20.03.2020
-
-VA - FETENFETZER Oldies Party (2002) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - I Get Around (2:14)
-02. Barry Blue - Dancing on a Saturday Night (3:13)
-03. The Byrds - Mr. Tambourine Man (2:22)
-04. The Rubettes - Juke Box Jive (3:05)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A6F6C35E34B85599B7C196314960F197DD06EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368695   (909211) от 20.03.2020
-
-Adam Lambert - VELVET (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909211.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Velvet
-2. Superpower
-3. Stranger You Are
-4. Loverboy(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B58D4E3CD3B65D2F1962488A13F2EB93F3A43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625187   (909881) от 29.01.2017
-
-ВИА Верасы - Советская эстрада. Избранное (2CD) (2009) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: поп, ретроПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5786207C0B6C2359E21CB2D771674E06592DB3FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 560544   (406708) от 15.10.2012
+
+VA - Best 10 Radio Tracks 2012 vol. 1-3 (3CD) (2012) [MP3|196-320 кб/с]<Dance, House, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Best 10 Radio Tracks 2012 vol. 1Жанр: Dance, House, ClubПродолжительность: 00:58:46
+01. Monochrome - Pearl (Gabriel & Dresden Remix)
+02. G & G Vs. D-Jastic - In My Mind (Original Mix)
+03. Missy Elliott feat. Timbaland - 9th Inning
+04. David Guetta feat. Sia - She Wolf (Falling To Pieces) (Extended Mix)
+05. Bootik & Silvertongue - When The Music Stops (Inphinity & Kalendr Remix)
+06. Crookers - Trillex (Original Mix)
+07. Daniele Sorrenti - Shake That Body (Original Mix)
+08. Dario Trapani - Soul (Tanzamomo Remix)
+09. G&G, Baby Brown, Gary Wright - My My My (Coming Apart) 2K12 feat. Gary Wright, Baby Brown (Club Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF41753F609485D3DBA734FDD1697C31A2E2D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413904   (406726) от 06.10.2020
+
+VA - Rock And Roll: British Classic Style (2020) [MP3|320 Kbps] <Rock & Roll, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406726.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Josie & The Outlaw - This Town Ain't Big Enough
+002. Little Richard - Great Gosh A'mighty
+003. Freddie & The Dreamers - I'm A Hog For You
+004. Bloodshot Bill - Baby Oh Baby(   Читать дальше...   )Жанр: Rock & Roll, Classic RockПродолжительность: 08:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCAB60D9454755885B83AF467B9E0641DD86DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414038   (406730) от 06.10.2020
 
 VA - Клубный хит (2020) [MP3|320 Kbps] <Dance, Club, House>
@@ -731,76 +795,6 @@ Theory Of A Deadman - Compilation (2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F02D66919CCE832D0970DD2A42C3C596C2FE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560324   (407464) от 14.10.2012
-
-VA - CrazyDance Потанцуем?! (2012) [MP3|320 кб/с]<Dance , Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407464.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - Евро - Я тебя люблю (Dimasound Remix)
-002 - Вирус - Мелодия ночи (Dimasound Remix)
-003 - Haddaway - What Is Love (W'Deejays & Dimasound Remix)
-004 - Dada Life - Rolling Stones T-Shirt (Dimasound remix)
-005 - Deepside Deejays - Never Be Alone (Dimasound remix)
-006 - ARTIK pres. ASTI - Облака (Dimasound Remix)
-007 - Stian K - Be Alive! (Dimasound Remix)
-008 - Flo Rida-Whistle (Dimasound remix)
-009 - Pitbull, Casely & Flo-Rida – Move Shake Drop (ElHouse & Dimasound Remix)
-010 - Basic Element – I'll Never Let You Know (Dimasound remix)(   Читать дальше...   )Жанр: Dance , ClubПродолжительность: 03:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F0CEEBBF91B4A824B68C0963109E01361E3E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559343   (407474) от 14.10.2012
-
-VA - Dubstepium vol. 4 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3dNow - I will kill you
-02. Enigma Dubz - Badness
-03. Eboxyde - Fuck The Code
-04. Rekoil - Odd Maneuvers
-05. Current Value - Indivisible Force
-06. Kannamix - Consensual Rape
-07. Tom Hangs ft. Shermanology - Blessed
-08. Mantis - Hoodshit
-09. Oskilator - Kong
-10. Pyramid Juke - Maybe(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6274EE89B051271CEA1C5CD628BE59FE7DABB8DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

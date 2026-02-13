@@ -1,3 +1,32 @@
+###  Публикация: 1503127   (822913) от 17.10.2021
+
+Koan - Ohm (Side A.B) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Breakbeat, Drum n Bass, Hip-Hop>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pigmalion (Breaks Version) (8:21)
+02. Agartha (Koan Remix) (8:18)
+03. Seven Muses (Ohm Version) (6:26)
+04. Arkanar (Breaks Version) (5:56)(   Читать дальше...   )Жанр: Electronic, Ambient, Breakbeat, Drum n Bass, Hip-Hop |Продолжительность: 01:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE59696ED53CF2E418E7518EE72386AE9985A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116581   (823002) от 20.03.2017
 
 VA - Pool House 2017 (Cool Deep House For The Poolside) (2017) [MP3|320 Kbps] <House, Deep House>
@@ -721,35 +750,6 @@ VA - Abstract Deep Space Pt.2 (2017) [MP3|320 Kbps] <Progressive House,House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CBD8412560FA69385AB99E06A503E5DAE1D228A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115963   (824978) от 19.03.2017
-
-VA - Sirup Dance Anthems Miami (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Croatia Squad – Street Dance (Short Edit) 02:52
-02. Lika Morgan – Sweet Dreams (Andrey Keyton & Sharapov Radio Mix) 03:45
-03. Evelyn – Summer Dream (Jerome Radio Edit) 03:14
-04. Royal Djs – California Dreamin’ (2Elements Radio Mix) 03:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939BCC938A4325C3E19FAD5199E6FC9029D90698
 ```
 
 https://mybot314.ru/tekegram_catalog/

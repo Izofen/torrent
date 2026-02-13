@@ -1,3 +1,32 @@
+###  Публикация: 1370336   (896907) от 27.03.2020
+
+VA - Awareness of Progressive, Vol. 1-4 (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896907.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Symphonix - Crystal Black (5:48)
+2. GHOST RIDER - Majesty (7:02)
+3. Ranji; Jilax - Away (7:21)
+4. Metronome - Journey Inside Yourself (Symphonix Remix) (6:07)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 04:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6199DD14B4A77A5CAAE4FD451AB87A3168B43BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370255   (896913) от 27.03.2020
 
 Johnny Jewel - Themes for Television (2018) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Electronic>
@@ -713,35 +742,6 @@ Londonbeat - Best! The Singles (1995) [FLAC|Lossless|tracks + .cue] <Soul, Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F175C20EF71395238ADCEC266E98DEE2624F219E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992851   (899081) от 03.03.2016
-
-VA - Intense - Logical Progression Level 3 (1998) [FLAC|Lossless|tracks + .cue] <Drum n Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blu Mar Ten - She Moves Through (07:39)
- 02. Blame - Alpha:7 (08:17)
- 03. Tayla - Resolution (07:58)
- 04. Big Bud - Freedom (08:56)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Drum n Bass |Продолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7762DB5E5C6B9A7673C95E570808C9104A74E49
 ```
 
 https://mybot314.ru/tekegram_catalog/

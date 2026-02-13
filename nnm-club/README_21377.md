@@ -1,25 +1,25 @@
-###  Публикация: 1008184   (817942) от 17.04.2016
+###  Публикация: 1504176   (814133) от 22.10.2021
 
-Framer Studio 61 [En]
+Dream Theater - A View From the Top of the World (2021) [AAC|~352 Kbps] <Progressive Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817942.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Framer Studio - инновационные прототипирование.
-Framer Studio построена на Framer.js, является основой для быстрого прототипирования с открытым исходным кодом.
-Framer позволяет определить анимацию и взаимосвязь.
-JavaScript framework для быстрого прототипирования. С фильтрами, Spring Physics и 3D эффектами.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 апреля 2016Разработчик: PODIUM BVПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+01. The Alien (9:32)
+02. Answering the Call (7:35)
+03. Invisible Monster (6:31)
+04. Sleeping Giant (10:05)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8530354E7434DC17812CDDE045F0AEBFDC27A69
+magnet:?xt=urn:btih:D687E8F0C497A7F17007B6983192709D9FF67F77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,365 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008249   (817943) от 17.04.2016
+###  Публикация: 1504288   (814134) от 22.10.2021
 
-Curio 10.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Curio – визуальный редактор для OS X с большими возможностями
-Мощных приложений для создания слайдов, презентаций и просто визуального оформления какой-то информации на OS X, на самом деле, не так много. Стандартный Keynote от Apple уступает по функциональности более продвинутому PowerPoint, но не все хотят пользоваться приложением Microsoft (хотя после недавнего (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 апреля 2016Разработчик: Zengobi, Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A890277E629C3B0028DB8B1F23F4740EA7D40954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008100   (817944) от 17.04.2016
-
-Чудо техники (2016.04.17) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817944.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C77F33FBA674126DAEC14850FDE66D3F2145DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008205   (817945) от 17.04.2016
-
-Treat - Ghost Of Graceland (2016) [MP3|320 кб/с] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Of Graceland(5:21)
-02. I Don't Miss The Misery (3:47)
-03. Better The Devil You Know (4:42)
-04. Do Your Own Stunts (5:08)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016B355FE251CD863E887A99839D8CBD94E59570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008022   (817946) от 17.04.2016
-
-Dropzone 3.5.5 (893) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone: Автоматизация рутинных действий
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что Mac OS X заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные операции, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 апреля 2016Разработчик: Aptonic LimitedПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8752FF15E483BDDD749B460F5C16E6864C793D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008150   (817947) от 17.04.2016
-
-VA - Shogun - 100, Pt. 2 (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phace - Mumbo Jumbo
-02. Joe Ford - Time Is Limited
-03. SpectraSoul - Glimpse (Ivy Lab Remix)
-04. Proxima - Sens8Жанр: Drum & BassПродолжительность: 00:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7949ED6222A9DA9AF6B5C6919A735C38C40888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008035   (817948) от 17.04.2016
-
-Montmartre - Hope (2016) [MP3|320 кб/с] <Synthpop, Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope (04:08)
-02. White Fields (03:22)
-03. Out Of Violence (03:28)
-04. Our Time Is Now (04:26)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADA70594AD19A44301C85E88762DDA4A185DDD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008137   (817949) от 17.04.2016
-
-Stamatis Spanoudakis - Bathed in the Sun (2016) [FLAC|Lossless|tracks] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Fleeing    03:56
-02. Blue Sound    04:45
-03. Angels’ Tear    05:25
-04. Bathed in the Sun    04:17(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B645955B96A6FC6D355D43354C3180028B196E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008123   (817950) от 17.04.2016
-
-Ihsahn - Arktis. (2016) Deluxe Editition [FLAC|Lossless|tracks + .cue] <Extreme Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disassembled (5:03)
-02. Mass Darkness (3:52)
-03. My Heart Is Of The North (4:44)
-04. South Winds (5:35)(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3D9B5715742DDE147B92DC331868D5F2E480A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008146   (817951) от 17.04.2016
-
-VA - Free As A Bird: Southern Fried Rock, Blues & Boogie (2012) [MP3|320 кб/с] <Rock & Roll, Electric Blues, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lynyrd Skynyrd - Last Of A Dyin' Breed (03:52)
-02. Shooter Jennings - Southern Family Anthem (03:23)
-03. Gary Clark Jr. - Don't Owe You A Thang (03:38)
-04. The Sheepdogs - The Way It Is (02:34)(   Читать дальше...   )Жанр: Rock & Roll, Electric Blues, Southern Rock, Country RockПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6DE2F2E0FC7F6915E2E5125564ECB95C30EE00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655964   (817957) от 14.05.2013
-
-Masters Of The Country Blues: / Son House & Bukka White - 1960 (2000) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Son House:
-01. Taj Mahal Introduction
-02. Death Letter Blues
-03. John the Revelator(   Читать дальше...   )Жанр: Дельта-блюзПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656136   (817961) от 14.05.2013
-
-Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [i686] (3xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя пару недель после предыдущего релиза вышел баг-фикс релиз - Manjaro Linux 0.8.5.2 с разными рабочими окружениями, дистрибутива основанного на Arch Linux. Продолжена поддержка игровой платформы Steam; реализована система автоматических уведомлений о наличии системных обновлений. В дистрибутив включено окружения рабочего стола openbox. В дистрибутив включены: MATE 1.6, Cinnamon 1.7 и KDE 4.10.2.  Это community edition дистрибутива
-
-Включены некоторые новые пакеты, ядро версии 3.8.5-1; systemd 198; X.Org Server 1.14.0; включена поддержка пропреитарных драйверов для AMD и NVIDIA. Также внесены многочисленные изменения в другие пакеты.Опытные пользователи оценят такие новые для Manjaro возможности, как Unified Extensible Firmware Interface (EFI), B-Tree File System (btrfs), поддержку RAID.
-
-Присутствует графический инсталлятор, что отличает дистрибутив от предыдущей версии 0.8.4
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656234   (817967) от 14.05.2013
-
-Журнал | Vogue [Россия] №5 (май 2013) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женский стильный журнал Vogue полностью посвящен моде, служит источником вдохновения и советчиком по стилю. Подиум, новости моды и красоты, последние тенденции, интервью с дизайнерами и моделями, фоторепортажи с лучших светских вечеринок и многое другое можно найти на страницах этого журнала.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E33E937BB4F5546A544C2BBD9B052F8B5FE35F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655924   (817971) от 14.05.2013
-
-Татьяна Бокова | Мои игрушки [2009] [PDF]
+Джен Калонита | Сказочная исправительная школа. Испытание славой. Книга 2 (2019) [FB2, EPUB, MOBI]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817971.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книгу вошли замечательные стихи. Веселые и поучительные, озорные и воспитательные - читайте их детям.
-Книга для чтения родителями детям. Интересные стихи с красочными иллюстрациями.Формат: PDF
+Вторая книга в серии «Сказочная исправительная школа».
+Джен Калонита – автор бестселлеров New York Times. И она знает о сказках, старых и новых, всё!
+После того как Альва, главная злодейка Чароландии, была изгнана, жизнь воришки Джилли изменилась до неузнаваемости. Из мелкой преступницы она вдруг превратилась в главного героя королевства! Ведь именно она и её друзья (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А.Б. ВасильеваФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AA0CC5B6584ED013954C9B52AE94C469D0D5B4B
+magnet:?xt=urn:btih:9D2901A91414DABEF2633AF5926646548338D5CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,26 +55,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503854   (817972) от 20.10.2021
+###  Публикация: 1504308   (814135) от 22.10.2021
 
-Bartender 4 v4.1.7 [En]
+VNC Connect Enterprise for Mac 6.8.0 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817972.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+VNC Connect - это последняя версия нашего кроссплатформенного программного обеспечения удаленного доступа для личного и коммерческого использования. Он использует технологию VNC для подключения вас к удаленному компьютеру в любой точке мира, просмотра его экрана в режиме реального времени и получения контроля. Наши основатели являются первыми изобретателями VNC, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2021Разработчик: © RealVNC® LimitedПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88EE4F502D0F98AE013AC56472DB0CAA3318E4B7
+magnet:?xt=urn:btih:2EFD5A528FFEDEFF74AB2B21C1E2BB504B422DEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,55 +81,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503748   (817973) от 20.10.2021
+###  Публикация: 1504085   (814136) от 22.10.2021
 
-Cisdem AppCrypt 6.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минималистский и простой в использовании инструмент безопасности Mac OS X, который позволяет защитить любое приложение с помощью мастер-пароля, который потребуется при каждом запуске.
-Cisdem AppCrypt  - несложная  утилита, которая дает Вам возможность блокировать доступ к определенным приложениям, установленных на вашем компьютере. Cisdem AppCrypt может оказаться полезным (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19.10.2021Разработчик: Cisdem Inc.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91198CE674E17F9C08490FE8ABB8FCFA5D3E3FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503713   (817974) от 20.10.2021
-
-Scarlet Aura - Stormbreaker (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Female Vocal>
+Hate - Rugia (2021) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817974.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The World Is Not Enough 01:56
-02. Metal Hell 06:03
-03. Battle Cry 04:35
-04. Stormbreaker 04:27(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 00:54:37
+01. Rugia
+02. The Wolf Queen
+03. Exiles Of Pantheon
+04. Saturnus(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:35:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1156329B16C509938F2D9E79689AA76D62933D7
+magnet:?xt=urn:btih:AA12328BA030DB94CB92C95B23FD6F4739F6F25E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,25 +110,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503861   (817975) от 20.10.2021
+###  Публикация: 1504067   (814137) от 22.10.2021
 
-aText 2.39.2 [Multi/Ru]
+Koan - Argonautica (White Orb Edition) (2021) [AAC|~345 Kbps] <Ambient, Chillout, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orpheus and Eurydice (8:44)
+02. Lost Lyre (8:06)
+03. Gella Sea (Phrixus and Helle Mix) (9:47)
+04. Daphne (Apollo Mix) (8:54)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 01:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BC5EEB2BD4ED6663BCF153E935AA5552016645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504337   (814138) от 22.10.2021
+
+ON1 Effects 2022 v16.0.1.11291 [Multi/Rus]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817975.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AText ускоряет вашу запись, заменяя сокращения на часто используемые фразы, которые вы определяете: например, сделайте аббревиатуру «myname», чтобы вставить свое имя «First Middle Last» в любом приложении.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: Tran Ky NamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+Окончательная коллекция фотоэффектов, фильтров, LUT и пресетов. ON1 Effects включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Есть бесконечные творческие возможности с эффектами ON1. Наши самые популярные включают HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5B404BD540A648E45E12077840F4A51B1553566
+magnet:?xt=urn:btih:D8DB5FFCA89086ED7FE736D552179895E1AF5048
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,26 +165,196 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503712   (817976) от 20.10.2021
+###  Публикация: 1504070   (814139) от 22.10.2021
 
-Downcast 2.11.0 [En]
+VA - In Love with Lounge, Vol. 2 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velvet Dreamer, Tim Gelo - Time Together (Original Mix) (5:06)
+02. Chillson, Marc Hartman - Fantasia (Original Mix) (4:21)
+03. Dreamhunter - Getaway Pilot (Original Mix) (4:04)
+04. Lemongrass, Jane Maximova - Deep River (Mirage of Deep Remix) (8:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4107F1FD6C045FA6113624C8E83AC196FCF626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504306   (814140) от 22.10.2021
+
+Kammerflimmer Kollektief - Wildling (2010) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Doom Jazz, Nu Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move Right In (3:20)
+02. Silver Chords (3:09)
+03. Aum A Go-Go (2:34)
+04. In Transition (Version) (13:31)(   Читать дальше...   )Производство: Staubgold – staubgold 97Жанр: Dark Jazz, Doom Jazz, Nu Jazz, ExperimentalПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8225E2888C3A17263DFB2F3CC75A5AF0A2533E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 777103   (814144) от 14.04.2014
+
+Газета | Авторевю [Россия] №7 (539) (апрель 2014) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета рассказывает о новинках автомобильного рынка, а также в нем можно найти самые свежие авто новости, самые новые автомобили, и многое другое. "Авторевю" по праву считается одним из ведущих российских автомобильных изданий. "Авторевю" ведет ряд уникальных проектов: сравнительные тесты автомобилей на базе полигона НИЦИАМТ и собственные краш-тесты (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A199032B72EE34F49732A2391D443B58D0B58E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 775601   (814148) от 14.04.2014
+
+Eric Clapton and The Yardbirds - At Their Best (2000) 2CD [FLAC|Lossless]<Rock, Blues, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814148.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:01. Good Morning Little Schoolgirl  (2:46)
+02. New York City Blues  (4:19)
+03. My Girl Sloopy  (5:37)
+04. 23 Hours Too Long  (5:11)(   Читать дальше...   )Жанр: Rock, Blues, Blues-RockПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C1DF5582463D31859A92266BED6E118219FF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504126   (814161) от 22.10.2021
+
+Stratavarious - Stratavarious (2021) [AAC|~350 Kbps] <Funk / Soul, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes It Is (4:10)
+02. Let Me Be Your Lady Tonight (9:34)
+03. I Got Your Love (8:11)
+04. Nightfall (8:29)(   Читать дальше...   )Жанр: Funk / Soul, DiscoПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40018A3963C3EA1CD5DD0DD0282D466AD75072DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504169   (814162) от 22.10.2021
+
+VA - Urban Orange Music 7: Downtempo Experience (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Surfing on a Karma Wave (Original Mix) (3:41)
+02. Digby Jones - 73 Break (5:37)
+03. Marga Sol - Palm Tree Chill (Original Mix) (5:23)
+04. Marie Therese - Take This Treasure (Original Mix) (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCBFBAF5A090F0CE3A70AEFD1522B4CEE6C6B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504348   (814163) от 22.10.2021
+
+ON1 NoNoise AI 2022 v16.0.1.11291 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817976.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downcast - популярное приложение подкаста iOS теперь доступно для OS X. Загрузка, проигрывание и синхронизация. Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
-Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2021Разработчик: Enterprises LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+Это лучшее программное обеспечение шумоподавления для фотографии. Быстро удаляйте шумы и получайте самые четкие детали на фотографиях с ON1 NoNoise AI. Приложение разумно удаляет все шумы изображения, разумно восстанавливая и улучшая детали. Оно интегрируется в ваш рабочий процесс, поддерживая распространенные фоторедакторы и форматы файлов, в том числе сохраняя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C082B6541544664C1F65F8F824B4EFFBE5756DE8
+magnet:?xt=urn:btih:C2972E06E3E2E6A435DF804B8AC573972026B8D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,28 +362,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503867   (817977) от 20.10.2021
+###  Публикация: 1504275   (814164) от 22.10.2021
 
-Гарин и Гиперболоиды - Экстрада (2021) [AAC|~342 Kbps] <Rock>
+Клэр Харкап | Хэтти Браун и цветной дождь. Книга 3 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814164.jpg" />
+</div>
+
+
+###  Подробнее
+
+За последнее время Хэтти Браун узнала много нового. Например, что её мама такая странная, потому что выпила зелье забвения, что её отец жив, заточён в темнице и является законным правителем другого мира. Мира без дождей, покрытого вездесущей красной пылью. А ещё у Хэтти есть брат – мальчик, которым может гордиться всякая сестра. Поэтому девочка уверена, что именно (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: М.А. СклярФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8F275D0C0CDFB8A442B16FBFF9EF8A58D1F1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504166   (814166) от 22.10.2021
+
+VA - Urban Orange Music 5: Downtempo Experience (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817977.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Движение (4:30)
-02. Работа не волк (5:00)
-03. Песни восточных славян (3:32)
-04. Бездельник (3:11)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:01
+01. Patiotic, Lohbe - Mysterious Zone (2:35)
+02. G.Pantelidis - Dancing Dolphins (Chill Dive Mix) (5:49)
+03. Frank Neo - Omniverse (4:12)
+04. Simon Le Grec - Sunsetlovers (Original Mix) (5:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:58:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC55B619778A5EA610B8161182F6E8AB980E8327
+magnet:?xt=urn:btih:1B012B31F682BB76B82B281F5837941AFB9E0D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,28 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503871   (817978) от 20.10.2021
+###  Публикация: 1504164   (814168) от 22.10.2021
 
-VA - Chill House Vibes Vol 1: Ultimate Chill House Collection (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
+VA - Urban Orange Music 3: Downtempo Experience (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817978.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brass, Ohluna - Love Satisfaction (4:39)
-02. Magmatunes - Flying High (4:30)
-03. Jay Nemor - Music Suite Soul (Forteba Remix) (7:14)
-04. D'Joe - Passing By (Kanedo Rmx) (6:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:28:09
+01. Roberto Bronco - Manta Ray (Original Mix) (5:47)
+02. Jeff Bennett's Lounge Experience - Reaching (4:52)
+03. Eddie Silverton - Bemahara (4:55)
+04. Simply Chill, Arthur Clemens - My Love to You (Chillout Mix) (5:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36A626FF93230BDF957E9DB575D74BB5DDAFC615
+magnet:?xt=urn:btih:BD02DF48C9BCB60A765EB9919E4DC8AA39C3E2DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,26 +446,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503809   (817979) от 20.10.2021
+###  Публикация: 1504282   (814169) от 22.10.2021
 
-Bartender 4 v4.1.6 [En]
+Синди Лин | Секрет Двенадцати. Двенадцать. Книга 1 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Усаги родилась в год Кролика с необыкновенным даром прыгать выше облаков. Ей было семь, а её младшей сестре Уме – всего три, когда отец дал ей волшебный гребень и сказал, что в нём заключено волшебство Нефритовой горы. Но с тех пор многое изменилось, какое уж тут волшебство, когда жестокий Король-дракон захватил их родной город, а талантливые дети вынуждены скрываться (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: Т.Ю. СтамоваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B2635EB0E695E224E58B8075AFA461F297BA58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504165   (814171) от 22.10.2021
+
+VA - Urban Orange Music 4: Downtempo Experience (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris le Blanc, Nightzone - Left Without a Kiss (5:27)
+02. Beamy - Reflections (4:07)
+03. Leo de la Rosa, Maneela - Sugar in Your Kiss (5:12)
+04. Simply Chill - Jennifer Heartbeat (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B348E54C62066D555176315A484753C138C507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504168   (814174) от 22.10.2021
+
+VA - Urban Orange Music 6: Downtempo Experience (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - This Old Rollercoaster (Original Mix) (5:10)
+02. Patiotic - First Leaves (2:39)
+03. Beamy - Moonglow (3:32)
+04. Martin Hiska - Higher (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198FE6E62B889F8DD4F6AD99A29884B2D6C179AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504344   (814178) от 22.10.2021
+
+ON1 HDR 2022 v16.0.1.11291 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817979.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+ON1 HDR создает безупречные, естественные фотографии HDR, которые в мгновение ока сочетают детали светлых и темных участков из набора экспозиций. Вы можете управлять движением, таким как облака и вода, с помощью предварительного просмотра в реальном времени. Затем улучшайте свои HDR-фотографии с помощью мощных инструментов и пресетов, которые демонстрируют ваше творчество. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA4F0FE31BFA9EF554A405E4810FAB83979D9950
+magnet:?xt=urn:btih:1A4E6054726858A4A153D93AA80CD837B8A234B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,28 +556,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503828   (817980) от 20.10.2021
+###  Публикация: 1504323   (814183) от 22.10.2021
 
-VA - Inner Awen Vol. III (2020) [AAC|~320 Kbps] <House>
+Vainoras and the altar of the drill - Floating on air through grief and green grass (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Dark Ambient, Noir Jazz>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817980.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vita V - Pessimistic (OIBAF&WALLEN, Mia Mendi Remix) (7:44)
-02. Yad, Riggel - The Sad Mirror (6:32)
-03. OIBAF&WALLEN - My Blame (Jeancy Remix) (7:22)
-04. Ryan Hill - Acacia (8:23)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:38
+01. Floating on air through grief and... (3:49)
+02. Green grass (2:51)Жанр: Dark Jazz, Dark Ambient, Noir JazzПродолжительность: 00:06:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E2DC415C8CC8CEF63BD08D89224788D1B5B26AA
+magnet:?xt=urn:btih:081422A1D5BCCC3FD21CE5454BCAFD9E33B083E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,28 +583,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503832   (817981) от 20.10.2021
+###  Публикация: 1504259   (814184) от 22.10.2021
 
-VA - Inner Awen Vol. IV (2021) [AAC|~324 Kbps] <House>
+Downie 4 v4.3.7 [Multi/Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817981.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kobbaia - Lunar Phases (The Intro) (2:32)
-02. Jeancy - Energetic Stability (Vanita Remix) (7:43)
-03. WO-CORE - While Painting (6:43)
-04. Elena Kulstof, Pandora's Diary - Lust for You (6:49)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:02:18
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 22.10.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:433E6FBCA7163BB5295D6229DED993EBC86A88AC
+magnet:?xt=urn:btih:D61397E0C1043439690216DA18A6176253B6BF41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,28 +611,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503834   (817982) от 20.10.2021
+###  Публикация: 1504313   (814185) от 22.10.2021
 
-VA - Inner Awen Vol. V (2021) [AAC|~320 Kbps] <House>
+The Orchestra Of Mirrored Reflections - Nonlinear Order (2016) [FLAC|Lossless|Web-DL|tracks] <Ambient Jazz, Dark Jazz, Future Jazz>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817982.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jeancy - Survive (Paul Anthonee Remix) (7:26)
-02. Nohak - Ghost of the Note (Dizharmonia Remix) (6:16)
-03. Joseph Carlo - Prego (7:10)
-04. Shamans - Ares (7:21)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:42:21
+01. Calm On Seashore (5:05)
+02. ...This Too Shall Pass (3:01)
+03. Walking Inside Apocalypse part I (5:15)
+04. Doomsday Pipe (6:47)(   Читать дальше...   )Жанр: Ambient Jazz, Dark Jazz, Post Jazz, Doom Jazz, Future JazzПродолжительность: 00:48:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D4F0C8649BDD4EE544FD33136B18DFAFE694B31
+magnet:?xt=urn:btih:0EAA47D0B6873950E9797067D1CA3197B85CECA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,28 +640,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503816   (817983) от 20.10.2021
+###  Публикация: 1504027   (814187) от 22.10.2021
 
-VA - Inner Awen (2019) [AAC|~327 Kbps] <House>
+Kirill Karabits, Ernst‐Senff‐Chor, Staatskapelle Weimar - Prokofiev: Cantata for the 20th Anniversary of October Revolution, Op. 74 (2017) [AAC|~304 Kbps] <Classical>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817983.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jeancy - Early Beats (Rafael Cerato Remix) (8:28)
-02. Blade&Beard - Aphrodite (Remains of Silence Remix) (6:26)
-03. Mila Journée - Lux (8:10)
-04. Bertech - The Sun (Manuel Ro RemIx) (8:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:27:47
+01. I. Prelude. ''A spectre is haunting Europe, the spectre of Communism''. Moderato - Allegro (2:27)
+02. II The Philosophers. Andante Assai (2:19)
+03. III Interlaude. Allegro - Andante - Adagio (1:19)
+04. IV 'A Tight Little Band'. Allegretto (2:20)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9019D3BEAB14D94140CD13D9B1B7E6639BAB3C11
+magnet:?xt=urn:btih:FE634C4B8DEFE5F9CF60B4F8C37063023F4EF956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504321   (814189) от 22.10.2021
+
+Espresso 5.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Espresso - программа для веб-разработчиков и веб-дизайнеров, которая может составить серьезную конкуренцию известной программе Coda от компании Panic. Espresso соединяет в себе текстовый редактор с подсветкой синтаксиса большого количества языков разметки и программирования (html, xml, php, jаvascript и т.п.), поиск и замену (есть поддержка регулярных выражений), (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: MacRabbitПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DEB814F588E9EADA00C6F7020BB4C86D17FC2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504118   (814191) от 22.10.2021
+
+VA - Saint-Tropez Orange: Urban Chillout Music (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Holy Moly – That's a Groove (3:08)
+02. Patiotic - Welcome to the Infinite Sense (2:21)
+03. Simon Le Grec - Here Was an Angel (Original Mix) (5:55)
+04. Marga Sol - Sandwalk (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FFD09D2AA816427D67F3B9161558AB6FC2424B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 987382   (458637) от 24.08.2019
+
+Steve Roach - Discography 150 Releases (1982-2019) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Tribal, New Age, Drone, Dark Ambient, Berlin-School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Today (09:34)Тип издания: CD, WebЖанр: Ambient, Tribal, New Age, Drone, Dark Ambient, Berlin-School •Продолжительность: 00:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36354B096BB4A339D3822D2A26A12F5602F80AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162307   (459033) от 01.09.2017
 
 Physical Illusion - Cosmonaut Training Center (2017) EP [MP3|320 Kbps] <Drum & Bass>
@@ -719,35 +745,6 @@ VA - Dance with This! Vol.1 (2016) [MP3|320 Kbps] <House, Electro House, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE532658EB54731BBD2201140CB497108BC5A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941741   (459903) от 28.09.2015
-
-Paul van Dyk - Out There and Back (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vega (Original Mix) (6:05)
-02. Pikes (Original Mix) (6:59)
-03. Another Way (Original Mix) (5:24)
-04. Travelling (Original Mix) (7:10)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B589B7E7AE1D0DC0F9DD15F784BEC0FE263FDCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

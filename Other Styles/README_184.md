@@ -1,3 +1,32 @@
+###  Публикация: 973777   (978184) от 10.01.2016
+
+Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sally Jo (02:26)
+02. Muddy Water (04:55)
+03. Best I Can (03:20)
+04. Taylor Nichole (03:35)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DE2DC094180E9622407A6F0A2ACAEB29E45342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602801   (978291) от 07.02.2013
 
 Джанго освобожденный/Django Unchained (2012) [MP3|320 кб/с]<soundtrack>
@@ -765,35 +794,6 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356231   (980497) от 29.01.2020
-
-Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Original Motion Picture Score) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys for Life (02:47)
-02. It's Good Shit Lieutenant (03:19)
-03. Take Back What's Ours (02:09)
-04. We're Dangerous People (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400EFB816888870B2B2DCFDDF360D75D438CBDA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

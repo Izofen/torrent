@@ -1,3 +1,32 @@
+###  Публикация: 1455466   (1025649) от 19.03.2021
+
+VA - Visions of Silence: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup - Missing U (Instrumental Mix) (05:09)
+02. Jero Nougues - Sol Y Mar (04:30)
+03. Finland & Aaskoven - The Waterfalls (04:50)
+04. Marga Sol - Calma (05:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5329F9F11B32332979372EEF077FFF39901A9788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082562   (1025708) от 18.03.2021
 
 Jeff McIlwain (L'usine, Lusine, Lucine Icl, Lusine Icl., Lucine ISL) - Discography 34 Releases (1999-2021) Ghostly International [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient, Techno>
@@ -713,35 +742,6 @@ VA - Miami Cyber Nights, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4B102EA6106673A27076BA403016AFD495E5B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454470   (1026408) от 14.03.2021
-
-VA - Trans-Global Excess, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boytronic - You Can't Get Fooled by Love (Remix) (5:13)
-02. Italove - Soldiers of Love (2012 Demo) (3:19)
-03. Italoconnection - Now or Never (Naked Mix) (4:40)
-04. The Hooligan - If There Was No Gravity (4:24)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD09962DF6EE560E7C501D32ACE23A3ABFB49DD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

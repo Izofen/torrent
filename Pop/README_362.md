@@ -1,3 +1,177 @@
+###  Публикация: 1614342   (1038831) от 21.02.2023
+
+VA - Trending Top Hits Now! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Uzi Vert - Just Wanna Rock (2:03)
+02. Lizzo - Special (feat. SZA) (2:54)
+03. Ed Sheeran - Celestial (3:29)
+04. Bruno Mars - After Last Night (feat. Thundercat & Bootsy Collins) (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE6422C6E6ACC4219A33BB74166AA2CE491C68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440260   (1039151) от 16.01.2021
+
+Sha-na-na - Rama Lama Ding Dong (1993) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Prayer (2:47)
+02. Get A Job (2:48)
+03. Little Arrows (2:42)
+04. Alley Oop (2:43)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297235F10042A39EA5A4B8B76FFB2F4A43212260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440253   (1039160) от 16.01.2021
+
+The Archies - Sugar Sugar (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Sugar (2:49)
+02. Jingle Jangle (2:45)
+03. Bang-Shang-a-Lang (2:35)
+04. Sugar and Spice (2:06)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E50846AD8497AB7FC2A902961CF860AA7588B29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439776   (1039271) от 15.01.2021
+
+Systems In Blue - Blue Universe (The 4th Album) (2020) [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Systems in Blue - Lola, Better To Fall In Love (3:41)
+02. Systems in Blue - Don't walk into the light (3:30)
+03. D. O. Passion - How I'm gonna catch you? (3:54)
+04. MS Project & Michael Scholz - My Mystery (3:53)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A7867977AA0860C3390463E37AB882A8E189FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440033   (1039283) от 15.01.2021
+
+Systems In Blue - Blue Universe (The 4th Album) (2020) [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Systems in Blue - Lola, Better To Fall In Love (3:41)
+02. Systems in Blue - Don't walk into the light (3:30)
+03. D. O. Passion - How I'm gonna catch you? (3:54)
+04. MS Project & Michael Scholz - My Mystery (3:53)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABED886509E69C409057629F60BD6E4DFB1C1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613709   (1039288) от 19.02.2023
+
+VA - Vintage Café – The Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lounge>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Os Digitalistas - Grizzly Bear (Javier Penna Remix) (3:12)
+02. Nenei - Just the Two of Us (Luxury Remix) (4:01)
+03. Bellestar - Can't Get You out of My Head (Nu Disco Mix) (2:36)
+04. Natty Bong - No Rain (Ronan Remix) (2:45)(   Читать дальше...   )Жанр: Pop, Easy Listening, LoungeПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75D0EC3EDE00A3E3194364E0A3C7E0D92CADE03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613211   (1039312) от 19.02.2023
 
 VA - Romantic Collection. Golden 60s (2000) [OGG Vorbis|480 Kbps] <Jazz, Rock, Pop>
@@ -571,180 +745,6 @@ VA - The Best 80s Love Songs Album In The World...Ever! (2022) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B36E77BF18191F123638B1D22C909132301963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611810   (1040754) от 13.02.2023
-
-VA - The Best 80s Album In The World...Ever! (2022) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simple Minds - Don't You (Forget About Me) (Remastered 2001)
-02. Roxy Music - More Than This (Remastered_1999)
-03. Nik Kershaw - Wouldn't It Be Good
-04. Grace Jones - Slave To The Rhythm(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFCFB58C6AF88C23611A89EC0E393D775C6A4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611532   (1040755) от 13.02.2023
-
-VA - Romantic Collection. Aria (2000) [OGG Vorbis|480 Kbps] <Electronic, Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebecca Lucker "Aria"–	Arianna
-02. Sarah Brightman–	Anytime, Anywhere
-03. Karen Cummigs–	Ave Maria
-04. Yuri Ogawa–	L'Amour Est Un Oiseau Rebelle "Carmen"(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A616A034807CC3C8FD293224A578267F6FBE120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611724   (1040761) от 13.02.2023
-
-VA - ФРАНЦУЗСКИЙ ПОДАРОК The Best Of France Nostalgique Part 2 (2005) [OGG Vorbis|480 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hervé Roy–	Emmanuelle
-02. Francis Lai, Nicole Croisille–	Un Homme Et Une Femme
-03. Nicoletta–	Mamy Blue
-04. Mireille Mathieu–	Une Histoire D’amour(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75174D7F46102E44729E10D448E6E56D64602A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611665   (1040801) от 13.02.2023
-
-VA - I Singoli di Sanremo 2023 (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elodie - Due
-02. Ultimo - Alba
-03. Colapesce Di martino - Splash
-04. Lazza - Cenere(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E68FE84CFDCE992FADCE51A3950581038FB1C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611457   (1040865) от 13.02.2023
-
-Tennis - Pollen (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forbidden Doors (3:54)
-02. Glorietta (4:01)
-03. Let's Make a Mistake Tonight (4:14)
-04. One Night with the Valet (1:53)(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B063F424B76B088B8F826BE42D8BCC298BE1AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438624   (1040886) от 09.01.2021
-
-VA - Gym Motivation Mix (2021) Explicit [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Griff - Forgive Myself (Jayda G Remix) (04:32)
-02. Tones and I - Fly Away (02:58)
-03. THAT KIND - Dreams (03:48)
-04. Dua Lipa - Break My Heart (Moodymann Remix) (05:52)(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27EE4ABA705371DF61D6A1C2D4F7142A526F799
 ```
 
 https://mybot314.ru/tekegram_catalog/

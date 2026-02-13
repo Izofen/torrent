@@ -1,3 +1,38 @@
+###  Публикация: 303500   (857747) от 06.03.2011
+
+Miku Hatsune - Tribute to Виктор Цой (2010) [MP3|320 kbps]<Vocaloid Character Vocal>
+
+>>East Asian Music
+>>Doujin Music
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Intro
+02.Blood Type
+03.Ant Hill
+04.Watch Yourself
+05.War
+06.We Want Change
+07.Star Called Sun
+08.8-th Class Loli
+09.Sad Song
+10.In Our Eyes (Tsoi version)(   Читать дальше...)Жанр: Vocaloid Character VocalПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2B4EF1572E12BFE95CA981D1D6073FDE180BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875210   (857881) от 06.03.2015
 
 Fluid Stance - 2 альбомав (2008-2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
@@ -764,34 +799,6 @@ VA - Crystal Glory (2000) [MP3|320 кб/с]<New age, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC508232D5E1967F08286DD280E18682C66E41D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187379   (875139) от 29.03.2010
-
-Nami Tamaki - 4 альбома + 5 синглов (2004-2010) [FLAC|Lossless]<JPop, dance-pop, pop rock, disco, electronic>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Moshimo Negai ga... (もしも願いが…)
-02. Sukiya de ~Itoshii Hito e~ (好きやで~愛しい人へ~)
-03. Moshimo Negai ga... (Instrumental)Жанр: JPop, dance-pop, pop rock, disco, electronic
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

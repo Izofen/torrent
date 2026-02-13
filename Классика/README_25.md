@@ -1,3 +1,32 @@
+###  Публикация: 1561461   (513609) от 06.07.2022
+
+Jouni Somero - Palmgren: Complete Piano Works, Vol.4 (2022) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513609.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1] Vårbäckarnas brus, SP343 ('The Rushing of the Spring Brooklets')
+[2] Valse d'amour, SP325
+[3]-[5] Une nocturne en trois scenes, Op.72
+[6]-[8] Tre fantasier, Op.82(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78CDECEFCEA6DBB7B8A2538172C04FC0D559E785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315389   (513735) от 19.07.2019
 
 Ludovico Einaudi - Seven Days Walking (Day 5) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
@@ -732,35 +761,6 @@ Rondo Veneziano - Attimi di magia (1999) [FLAC|tracks+.cue]<Modern Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D731A0BBEE5F2B684B8991683F57994E2A85B8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959155   (540221) от 07.09.2016
-
-Rondo Veneziano - Concerto per Mozart (1990) [FLAC|tracks+.cue]<Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Così fan tutte (4:11)
-02. Don Giovanni (7:25)
-03. Sonata (K.545) (2:25)
-04. Serenata, Part 1 (3:59)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFD6AE0B0159BDEE2B00436A8113E90EE3C28BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

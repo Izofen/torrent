@@ -1,3 +1,177 @@
+###  Публикация: 1227839   (642917) от 28.05.2018
+
+VA - Заяц Рор Шоу-2 (1996) [FLAC|Lossless|image + .cue]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Привет от Индиры Ганди ( Л.И.Брежнев )
+02.Родина Мая,Биларусия / Канэшешна, Вдую ( DJ Хачик Special Mix )
+03. Fuck me,Колобок ( М.С.Гнил )
+04. Say You'll Never ( House Division )(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A770757F48F37B822DD8CB81CA94301EB7F865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142496   (642968) от 14.06.2017
+
+Martin Circus - Martin "Disco" Circus (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ite Missa Est (6:40)
+02. Pour M'en Aller Plus Loin (8:29)
+03. Pouett (0:25)
+04. Disco Circus (14:07)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A4DFB07D0D159A58022B32335FBD73BE773164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142245   (642977) от 14.06.2017
+
+Billy Ocean - Suddenly (Japanese Pressing) (1984) 1989,  JRCD 8213 [APE|Lossless|image + .cue] <Funk, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Caribbean Queen (No More Love On The Run) [0:07:55.55]
+2. Mystery Lady [0:05:02.70]
+3. Syncopation [0:05:22.25]
+4. The Long And Winding Road [0:04:43.62](   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 44:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45CDA6CE5B4C3FC395C0D9996A60F4BCDDBA056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292937   (643068) от 31.03.2019
+
+VA - 538 Hitzone 88 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Folk, World>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно давно на трекере не появлялись релизы этой популярной Нидерландской студии Радио 538. Продолжаем в этом году серию новым выпуском свеженьких новинок популярной музыки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.01. Mark Ronson - Nothing Breaks Like A Heart  (3:37)
+02. Nielson - IJskoud  (3:31)
+03. Rita Ora - Let You Love Me  (3:11)
+04. Panic! At The Disco - High Hopes  (3:12)(   Читать дальше...   )Релиз состоялся: 01 марта 2019 г.Жанр: Pop, Rock, Folk, WorldПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389FC4854CB0969A789B24324A88F820FAEA05B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142460   (643108) от 14.06.2017
+
+Toxic Friends - Cleaning up the Mess (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sellouts  (04:25) 
+02. 87 Night Warriorz  (04:58) 
+03. Hangin' with My Boys  (03:41) 
+04. The Candidate  (03:54) (   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567F88AF5EDA9B5814E55E7EEBAFD0BFF79C8413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292741   (643195) от 31.03.2019
+
+VA - Eurodance Evolution 2019.01 (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Pop-Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.G. The Prince Of Rap - Eurodance Megamix 2k19
+02. J.O.Y.C.E feat. A.k.-s.w.i.f.t. - Get 2Gether (Real Thing Remix)
+03. Free 2 Night - Music in Your Mind (Remastered)
+04. Alex feat. Marwa - Intuition(   Читать дальше...   )Жанр: Euro-Dance, Pop-DanceПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2629864888F45F9F586679CE8293B69D56A83AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292739   (643290) от 31.03.2019
 
 VA - Eurodance Evolution 2019.02 (2019) [MP3|320 Kbps] <Euro-dance, pop-dance>
@@ -571,174 +745,6 @@ VA - Top Of The Pops '1982 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26E1CD6E968AFA11A95684ABC25CB68F2DE83395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292608   (644994) от 30.03.2019
-
-Александр Маршал, Николай Расторгуев и Александр Иванов - Хорошо (2019) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644994.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ХорошоЖанр: PopПродолжительность: 00:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B031DC3DFE2E92FA94899C6BB006826E9A867F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541465   (645035) от 03.04.2022
-
-Mad Show Boys - Включите улыбальнички (2011) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не ходил на карате.mp3
-02. SMS’очки.mp3
-03. Лихтенштейн.mp3
-04. Дзинтарс.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4B1BDBC73C2FE6C29562D75B01581D64794CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342638   (645096) от 05.06.2011
-
-VA - Disco 80. Расширенные версии популярных хитов 1-2 (2011) [MP3|320 kbps]<Disco, Retro, Dance>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, Retro, DanceПродолжительность: 05:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A144A41F8F967C8FB540EC954630133B7772195A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292719   (645183) от 30.03.2019
-
-Vacuum - I Breathe (1997) [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Breathe (Radio Edit) (3:56)
-02. I Breathe (Antiloop Out Of Oxygen Radio Edit) (3:36)
-03. I Breathe (Antiloop Out Of Oxygen Edit) (4:43)
-04. I Breathe (Album Edit) (4:37)Жанр: SynthpopПродолжительность: 00: 16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306F9953EFB18415DF08D05532F122ACA2E42ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292630   (645186) от 30.03.2019
-
-VA - Bravo Hits Wiosna (2019) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645186.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Don Diablo - Survive
-02. Ariana Grande - 7 rings
-03. KAZKA - CRY(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72AE0BFFD5A3C2AA2E4461DEE72C82697F8C3A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292673   (645189) от 30.03.2019
-
-VA - NRJ Extravadance (2019) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645189.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Pedro Capó - Calma
-02. DJ Snake - Taki Taki
-03. Ariana Grande - 7 rings(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF0B60559BE69178FCEC5EE955F6DB04532AF2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

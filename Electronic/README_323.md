@@ -1,3 +1,32 @@
+###  Публикация: 1228348   (637528) от 31.05.2018
+
+Tuomo Väänänen (Tuomo Vaananen) - A Small Flood (2017) Ljudverket [FLAC|Lossless|WEB-DL|tracks] <Dub, Dub Techno, Ambient, Experimental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Halls (05:25)
+02. New To The System (07:35)
+03. Sloth (07:04)
+04. Risk Tones (05:46)(   Читать дальше...   )Жанр: Dub, Dub Techno, Ambient, ExperimentalПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7467BD083834A6E0972E9E368622B0808D296D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293284   (637658) от 03.04.2019
 
 VA - WMC 2019 (2019) Bonzai Progressive Label [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
@@ -716,35 +745,6 @@ VA - Chill & Relax 1 (2016) [MP3|320 Kbps] <Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B2DB6325EAAC5C8044563DA1616D41C5A25AC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142553   (640907) от 15.06.2017
-
-Missing Persons - Spring Session M (1982) Reissue, 1995, CEMA Special Markets [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noticeable One
-02. Windows
-03. It Ain't None Of Your Business
-04. Destination Unknown(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD51250C25C2E94EA989258804E673584C605367
 ```
 
 https://mybot314.ru/tekegram_catalog/

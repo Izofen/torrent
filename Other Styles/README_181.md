@@ -1,3 +1,32 @@
+###  Публикация: 1357327   (970644) от 06.02.2020
+
+Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Old Oak Wood
+02. Jade
+03. I Love The Rain
+04. Cherry Blossom Street(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744687   (970713) от 12.01.2014
 
 Niladri Kumar - IF. Magical Sounds of Sitar (2003) [MP3|320 кб/с]<New ega, Meditative, World Fusion>
@@ -791,41 +820,6 @@ Van Den Hul - Four of a kind - For the time being (1999) [FLAC|Lossless]<Audiofi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66DEF8FBE80BE34B2C43F778561B45E6242F5BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743409   (972988) от 10.01.2014
-
-CDT Audio - Demo CD - Part 1 (2006) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Track01
-02 Track02
-03 Track03
-04 Track04
-05 Track05
-06 Track06
-07 Track07
-08 Track08
-09 Track09
-10 Track10(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476ABA8FC2CB1FDA88EF2AB33E4D8A25F4A4CF48
 ```
 
 https://mybot314.ru/tekegram_catalog/

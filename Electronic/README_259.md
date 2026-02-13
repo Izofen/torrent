@@ -1,3 +1,32 @@
+###  Публикация: 1243880   (488279) от 29.08.2018
+
+VA - Cassiopeia A (2018) Nebulae Records [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Ambient, Acid>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holon - A Forgotten Dream (05:55)
+ 02. Cignol - Polywhore (04:15)
+ 03. CCO - Solar Nebula (06:29)
+ 04. Darren Nye - Simulated Skyline (04:26)(   Читать дальше...   )Жанр: Electro, IDM, Ambient, AcidПродолжительность: 00:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF8AC8B2498D806A15DB6EF0E015F39F0F96696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243920   (488281) от 29.08.2018
 
 D'Arcangelo - Somewhere In Time (2018) Suction Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, Techno, Experimental>
@@ -734,35 +763,6 @@ Sex Music, Slow Sex Music, Music For Sex - Relaxing Instrumental Music For Sex (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDC7F401D8355F53F5FD2ABDA667774356344E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908411   (490762) от 08.08.2019
-
-S.K.E.T. - Collection 4 Releases (2005-2017) Hands Productions [FLAC|Lossless]<Rhythmic Noise, Electro, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Dawn (05:34)
- 02. Prepare For The Inevitable Struggle (06:41)
- 03. Dash National States! (05:49)
- 04. Terrorized To Consume (05:07)(   Читать дальше...   )Жанр: Rhythmic Noise, Electro, Industrial •Продолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B4B65D656153E3351017531CC955CF845BC49F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

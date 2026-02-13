@@ -1,3 +1,177 @@
+###  Публикация: 1377598   (851502) от 22.04.2020
+
+ABBA - The Essential Collection (2012) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851502.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. People Need Love (2:48)
+02. He is Your Brother (3:21)
+03. Ring Ring (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F959C6C64A4DD7848118977BBC840A69488BFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377465   (851732) от 22.04.2020
+
+Дмитрий Маликов - The Best (2003) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты одна, ты такая (4:31)
+ 02. Шепотом (4:15)
+ 03. Черный дрозд и белый аист (ремэйк 2003) (4:32)
+ 04. Ты не прячь улыбку (4:44)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924588260C26177A3AD2B0DE3D7DB6EFFBB793FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377698   (851828) от 22.04.2020
+
+Shona Laing - South (серия "Другие восьмидесятые") (1987) [MP3|320 Kbps] <Synthpop, New Wave, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soviet Snow
+02. (Glad I'm Not) a Kennedy
+03. Caught
+04. The Bishop(   Читать дальше...   )Жанр: Synthpop, New Wave, Pop RockПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858B9684D76ABF3AC0B5598920962F1CCC8D6C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377725   (851880) от 22.04.2020
+
+Max-B - Sex Revolution (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Afrobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sex Revolution (7:54)
+02. Super Bwana (9:35)
+03. Jungle (4:14)
+04. Bembe (4:05)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, AfrobeatПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE3192206F6447845C2E59CC84B6615758235B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377502   (851883) от 22.04.2020
+
+Cristina - Doll In The Box (1980) Reissue CD, 2004, ZE Records [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jungle Love (5:21)
+02. Don't Be Greedy (6:18)
+03. Mamma Mia (4:04)
+04. Interlude (0:24)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD33B5EB288FC2583DE2CF4698B5B1E84D36BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110629   (851954) от 03.03.2017
+
+VA - High Life - 20 Original Top Hits (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco, New Wave, Europop, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suzi Quatro - Rock Hard (3:21)
+02. Stacy Lattisaw - Jump To The Beat (3:30)
+03. The Gap Band - Oops Up Side Your Head (3:29)
+04. Roxy Music - Oh Yeah (There's A Band Playing On The Radio) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Disco, New Wave, Europop, FunkПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C7BF8A6362CD385E78748900A79AF50F3D6DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110775   (851965) от 03.03.2017
 
 Giusy Ferreri - Girotondo (2017) [MP3|320 Kbps] <Pop>
@@ -568,181 +742,6 @@ VA - NRJ Hit Music Only (2015) 2CD [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC08F80F80E0FE03822C9209281DB14F1508B3CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875609   (855842) от 07.03.2015
-
-VA - NRJ 200% Hits 2015 (2015) [MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них представляется (   Читать дальше...   )CD1:
-01. Mark Ronson feat. Bruno Mars - Uptown Funk  (4:31)
-02. Sia - Elactic Heart  (4:17)
-03. Hozier - Take Me To Church  (4:01)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7ED97EC01C48CF9863ABE24A2AE8D91F6B56C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875736   (855957) от 07.03.2015
-
-VA - NRJ 200% Hits 2015 (2015) [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них представляется (   Читать дальше...   )CD1:
-01. Mark Ronson feat. Bruno Mars - Uptown Funk  (4:31)
-02. Sia - Elactic Heart  (4:17)
-03. Hozier - Take Me To Church  (4:01)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFEA8455B83DBCC1681201200F7C7949E8F49F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875712   (855959) от 07.03.2015
-
-Madonna - Rebel Heart [Super Deluxe Edition] (2015) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855959.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (01:14:25)
-CD2 (00:28:17)Треклист CD1:
-01. Living for Love
-02. Devil Pray
-03. Ghosttown(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5BCAAAC6588999643E9856A9B20A116D364B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875839   (855963) от 07.03.2015
-
-VA - NRJ Hit Music Only (2015) 2CD[MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот и второй диск из описанных мною ранее NRJ Hit. Вы сами можете убедиться - насколько они не похожи, а вместе составляют, пожалуй, 90% того, что сегодня крутиться на радиостанциях и показывается в клипах.CD1:
-01. David Guetta Feat. Emeli Sandu - What I Did For Love  (3:25)
-02. Christine And The Queens - Christine  (3:54)
-03. Soprano - Clown  (4:29)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221F9514A7A68C13E37D2E34DABDFA5C84E35264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498585   (856045) от 27.09.2021
-
-James Last / Джеймс Ласт - Non Stop Dancing / Танцуем Без Перерыва (1976) LP [MP3|320 Kbps] <Pop, Easy Listening, Big Band, Jazz, Pop Rock, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm On Fire (1:43)
-02. Morning Sky (1:41)
-03. A.I.E. (Mwana) (1:33)
-04. Do It Anyway You Wanna (1:44)(   Читать дальше...   )Жанр: Pop, Easy Listening, Big Band, Jazz, Pop Rock, SchlagerПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20D0A2972B5E933729B24D56DE4C0A55C501206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498493   (856047) от 27.09.2021
-
-Papaya -  Pink (1999) [FLAC|Lossless|tracks + .cue] <Bubblegum>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Operator 3:42
-02. Hero 3:34
-03. Pink Dinosaur 3:10
-04. Supergirl (Original Single Version) 3:38(   Читать дальше...   )Жанр: BubblegumПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE72DC4C6A4FE797986DAA34196DDA07E94EEC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1580517   (330617) от 01.10.2022
+
+Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Daddy Cool (00:03:28)
+02 - Sunny (00:03:58)
+03 - Rivers Of Babylon (00:04:17)
+04 - El Lute (00:04:00)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59767BF69946B10772363BB2EA449F366BAAD9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580525   (330714) от 01.10.2022
+
+Leo Rojas - Colours of Nature (2022) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лео Рохаса называют "поп-звездой панфлейты". Colors of Nature - уже шестой альбом Рохаса. Он был выпущен 6 мая 2022 года. Juan Leonardo Santilla Rojas родился 18 октября 1984 года в небольшом городке Otavalo, Ecuador. Он эмигрировал в Испанию в 2000 году, а сейчас живет в Берлине вместе со своей женой-полькой. Leo Rojas стал одним из самых узнаваемых лиц (   Читать дальше...   )01. Blinding Lights (3:29)
+02. Bad Habits (3:52)
+03. Wellerman (2:03)
+04. Cold Heart (3:24)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555A3144DF2EEB55F97FCC41BACFA763C10B65C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580458   (330726) от 01.10.2022
+
+Richard Marx - Songwriter (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Same Heartbreak Different Day
+02. Only A Memory
+03. Anything
+04. Moscow Calling(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E25C2EFF2C713CFF5AFA5F9EDEFE0AB7230AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580378   (330801) от 01.10.2022
+
+VA - Keep It Disco Vol. 04 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garas - Whatcha Gonna Do (Original Mix)
+02. Noil Rago - Disco Think (Original Mix)
+03. Alexny - Dear Miss (Original Mix)
+04. Corrado Alunni - This Is Disco (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:27:24 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A9EBF5816BFF0C2822CB3A42F124AA431FF092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580372   (330803) от 01.10.2022
 
 VA - Keep It Disco Vol. 01 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
@@ -314,6 +430,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 260017   (331637) от 19.11.2010
+
+Bosson - The Best (2005) [FLAC|Lossless]<Pop, Eurodanse>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_331637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One In A Million
+02. I Believe
+03. You Opened My Eyes
+04. Where Are You
+05. Efharisto
+06. Never Never Never
+07. Right Time
+08. Over The Mountains
+09. I Need Love
+10. Something To Believe In(   Читать дальше...   )Жанр: Pop, EurodanseПродолжительность: 00:57:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580173   (331833) от 30.09.2022
 
 Рок-Острова - Звёздные Мосты (2021) 2CD [MP3|320 Kbps] <Pop, Pop Rock>
@@ -597,151 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF7C62664F97BF1463CC1C4B38FFB8569CFE50C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420392   (332601) от 01.11.2020
-
-VA - Holiday Christmas 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin - Let It Snow, Let It Snow, Let It Snow (Capitol Version / Remastered 1998) (02:01)
-02. Bing Crosby - White Christmas (1947 Version) (03:05)
-03. Ella Fitzgerald - Sleigh Ride (02:55)
-04. Jackson 5 - Santa Claus Is Coming To Town (02:24)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065CD4D63DA354B29E735FD7C490CFAFC4592C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259025   (332815) от 01.11.2018
-
-VA - 50 Chart Hits of 2018: The Winter Workout Soundtrack [MP3|320 Kbps] <Euro Dance, Future House, Club>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real System - There Is No More Love (Randy Norton edit)
-02. B.G. The Prince Of Rap - Once You Have Me (feat Timi Kullai & Nathan Reynolds III - Dolls House remix)
-03. Greg Bannis vs DJane Monique - You Sexy Thing 2018 (Dolls remix)
-04. Rinaldo Montezz - Jump (feat Gabriel Scar - radio mix)(   Читать дальше...   )Жанр: Euro Dance, Future House, ClubПродолжительность: 03:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FB24DD8A108E34401E068E6FE28DD0F38E2471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259014   (332931) от 01.11.2018
-
-Army of Lovers - Massive Luxury Overdose (1992) U.S. Edition [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dynasty of Planet Chromada (3:57)
-02. Crucified (3:34)
-03. Candyman Messiah (Single Remix) (3:10)
-04. Obsession (3:43)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A6209D4C0CF0BA42D3E60402A6C698447ED130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667491   (332978) от 14.10.2019
-
-VA - The Best Pop Music Of The 20th Century: The Millenium Collection (1998) 20CD [FLAC|Lossless]<Pop, Rock, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю Вашему вниманию интереснейший проект, выполненный голландской фирмой Disky Communications Europe в конце прошлого тысячелетия. Взяв по 40 композиций от каждого пятилетия (наши пятилетки не дают никому покоя), издатель постарался по-возможности полностью охватить весь спектр популярной музыки (не pop, а именно популярной из разных жанров). За исключением (   Читать дальше...   )Список альбомов:
-01. Millennium - 1950-1954 (2CD)
-02. Millennium - 1960-1964 (2CD)
-03. Millennium - 1965-1969 (2CD)(   Читать дальше...   )Жанр: Pop, Rock, JazzПродолжительность: 25:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D509BD32446FF3719BA6B0C6C2B2B35BC4236DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258896   (333029) от 01.11.2018
-
-Johnny Hates Jazz - Magnetized (2013) InterAction Music [FLAC|Lossless|tracks + .cue] <Electronic, Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnetized (3:56)
- 02. Man With No Name (4:00)
- 03. The Road Not Taken (4:59)
- 04. You Belong To You (4:27)(   Читать дальше...   )Жанр: Electronic, Pop, New WaveПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597C7A1005188AB29BC10B4D76B4324CB9954161
 ```
 
 https://mybot314.ru/tekegram_catalog/

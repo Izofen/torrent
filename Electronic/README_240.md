@@ -1,3 +1,33 @@
+###  Публикация: 944861   (437902) от 08.10.2015
+
+VA - Buddha-Bar XVII (By Ravin) (2015) 2CD [FLAC (tracks+.cue)|Lossless]<Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437902.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Guembri - 01:17:19
+CD2 - Bendir - 01:18:45Треклист CD1:
+01. Mihai Toma Feat. Irene - Ena
+02. Soapkills - Marra Fi Ghnina
+03. Fuad Almuqtadir & Armeen Musa - Bhromor Koio Giya(   Читать дальше...   )Жанр: Lounge, Chillout |Продолжительность: 02:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF38A32AB57604BFF9E8C803EC32398A016DF94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249064   (438013) от 22.09.2018
 
 VA - Voice Hits Vol. 2 (2018) [MP3|320 Kbps] <Trance>
@@ -725,35 +755,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7109F81F242C54F2E7070B9F9282B0BEFC190FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248926   (440186) от 21.09.2018
-
-Cherie Lily - The Dripping Wet EP (2013) [FLAC|Lossless|tracks + .cue] <Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss My Lips (3:33)
- 02. Dripping Wet (3:25)
- 03. Do Your Thing Girl (3:18)
- 04. Body (3:32)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74E0DF6A2A762A6A6A304AF35EA59689412534B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 754145   (933450) от 07.02.2014
+
+The Notwist - Close To The Glass (2014) [FLAC|Lossless]<Alternative, Indie Electronic, Indie Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Signals (03:41)
+ 02. Close To The Glass (02:57)
+ 03. Kong (04:31)
+ 04. Into Another Tune (03:56)
+ 05. Casino (03:14)
+ 06. From One Wrong Place To The Next (02:44)
+ 07. 7-Hour-Drive (03:57)
+ 08. The Fifth Quarter Of The Globe (00:49)
+ 09. Run Run Run (05:04)
+ 10. Steppin' In (02:00)(   Читать дальше...   )Жанр: Alternative, Indie Electronic, Indie RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B141E9EDAFCEC53691B3054071A1CBACE0369003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093178   (933478) от 15.01.2017
 
 VA - Hans Zimmer: The Classics (2017) [MP3|320 Kbps] <Soundtrack, Score>
@@ -785,35 +820,6 @@ Blowing Free - Sax Moods (1995) 2004 Правительство звука [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D28CE7586DD41D82E3259EE661B618EB0050CE4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984495   (935463) от 11.02.2016
-
-NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc Records, Inc. [FLAC|Lossless|tracks + .cue] <Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dream (5:18)
-02. On Wings of Angels (4:05)
-03. Breathe with Me (4:27)
-04. I Feel You in My Soul (4:36)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69599966D0E2F08171DB846368DD167BA33D84AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

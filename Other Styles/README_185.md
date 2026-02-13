@@ -1,3 +1,32 @@
+###  Публикация: 1356231   (980497) от 29.01.2020
+
+Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Original Motion Picture Score) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys for Life (02:47)
+02. It's Good Shit Lieutenant (03:19)
+03. Take Back What's Ours (02:09)
+04. We're Dangerous People (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400EFB816888870B2B2DCFDDF360D75D438CBDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356270   (980506) от 29.01.2020
 
 Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -780,35 +809,6 @@ David West Band - Pickin' On Creedence Clearwater Revival. A Tribute (1999) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B98A518FC5DEB4FEB03D86F623BD10C2E520B55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355420   (983440) от 26.01.2020
-
-Jim Brickman - Interstellar (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellar
-02. Starship
-03. Starbright (Interstellar Mix)
-04. Time Continuum(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D6947401DC6314606BDA7371A23DBD642FE422
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1846891   (1051768) от 10.01.2026
+
+Валерий Рубанцев | Программирование для всех. Python. Компьютерные игры на движке Arcade (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучше и полезнее учиться программировать на занимательных примерах. К самым занимательным примерам, тут нет сомнения, относятся компьютерные игры. Их любят все или почти все. Одни – любят в них играть, а другие - писать. В этой книге мы совместим и то, и другое, то есть приятное с полезным. Мы напишем дюжину игр, в которые интересно играть. Но ещё интереснее их писать!Жанр: Программирование, ПособиеИздательство: МоскваФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3246C6EEAD6C7946FEC754ACD8B3E3DA9904325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847053   (1052000) от 10.01.2026
 
 Валерий Рубанцев | Черепашья графика на занимательных примерах (2023) [PDF]
@@ -654,32 +680,6 @@ Elevate your AI system performance capabilities with this definitive guide to ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D55DB6E4890C9A3D3886EB400CF6BDC22861A7BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849178   (1053241) от 21.01.2026
-
-Papercut Limited | Mac & MacOS Complete Manual. 14th Edition (2022) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Whether you’re new to the Mac or have been using one for a while, Mac ‒ The Complete Guide is for you. We show you how to set up your Mac out of the box, how to get to grips with its basic features, and how to use your Apple computer for productivity, email and the Internet, photography, communication, entertainment, and more.Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088206451851381230309B94A7B0C683B7A712A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

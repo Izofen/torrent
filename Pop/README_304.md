@@ -1,3 +1,177 @@
+###  Публикация: 1501112   (837995) от 08.10.2021
+
+Ольга Бузова - Вот она я (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837995.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вот она я
+2. Выключим рассвет
+3. Феромоны
+4. Без дел(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC64A8E2756C5F759303DEAC5446990B4102E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004150   (838067) от 06.04.2016
+
+Alexandra Stan - Alesta (2016) Japanese Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dancepop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Step It Up (2:57)
+02. Get What You Give (3:03)
+03. We Wanna (Alexandra Stan & INNA feat. Daddy Yankee) (3:53)
+04. Alone (3:57)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Electropop, Euro House, EuropopПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC7731342CD7FFF621AE717EC5E43D3239991B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113231   (838303) от 11.03.2017
+
+VA - Sport Explosion Spring 2017  [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ-Chart - You Broke My Heart [00:03:14]
+02. 24k Magic - 24k Magic [00:03:46]
+03. Clemens Rumpf & Marcell Russell - Ain't Dancing Without You (extended radio edit) [00:03:48]
+04. DJ-Chart - Latin Party On Sunset [00:03:05](   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 03:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A74A523E8F5AD7764F403904C771F4DB19A9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113533   (838549) от 11.03.2017
+
+VA - JP Music Project Prasentiert Die Besten Discofox Hits (2017) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jp Music Project - Vielleicht (Dance Remix 2017) 03:25
+02. Jenny Fankhauser - Die Zeit Steht Still 03:14
+03. Nic - Ich Geb Nicht Auf 03:39
+04. Peter Reichinger - Engel Der Nacht (Rmx 2K16) 03:16(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 03:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBE436131DFE0DF185B92C5D05C8C28C8CD4ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113554   (838627) от 11.03.2017
+
+Yvonne Catterfeld - Guten Morgen Freiheit (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guten Morgen Freiheit (3:24)
+02. Irgendwas (feat. Bengio) (3:34)
+03. Was bleibt (2:43)
+04. Besser werden (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2BB00FD8924798A40CC9159EB2DCCDF04C1D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879073   (838832) от 17.03.2015
+
+Arabesque - Complete Box (2015) 10CD /Japan/ [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1978 - Friday Night (Arabesque)
+1979 - Peppermint Jack (Arabesque II / City Cats)
+1980 - Marigot Bay (Arabesque III)(   Читать дальше...   )Жанр: Disco |Продолжительность: 06:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2157732E29BD25FB285FEF1694B3588CA8405CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995107   (839619) от 05.04.2016
 
 VA - DJ Collection 7 (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, Pop>
@@ -571,186 +745,6 @@ Maggie Reilly - Echoes (1992) [FLAC|Lossless]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32B899730509DA6615CCBCDAFBF567386F290ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309479   (842386) от 15.03.2011
-
-Adriano Celentano - Grand Collection (2001) [MP3|320 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842386.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Susanna
-2.Soli
-3.Stai Lontana Da Me
-4.I Want To Know (part 1)
-5.I Want To Know (part 2)
-6.Il Problema Piu Importante
-7.Ja Tebia Liubliu
-8.L'ascensore
-9.Michelle
-10.Mistero(   Читать дальше...)Жанр: PopПродолжительность: 01:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2452B14B5335C82780D9DE696E225BC924EEAA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500137   (842609) от 05.10.2021
-
-VA - 50 Chart Hits Of 2021.3: The Autumn Workout Album (2021) [MP3|320 Kbps] <House, Electronic, Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eurotronic - Baby Baby  (Ctk Freaks Remix)
-02. Maxxima - No Regrets  (Am 1979 Mix)
-03. Soundstream - Cambodia  (Craig Riser Remix)
-04. Tall & Small - With You  (Radio Mix)(   Читать дальше...   )Жанр: House, Electronic, Dance, PopПродолжительность: 03:17:30 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B778F1BB4EEA1976BFC8D4B0A0601D3A6532AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500148   (842707) от 05.10.2021
-
-VA - TechnoBase.FM – Best Of (2021) [MP3|320 Kbps] <Electronic, Dance, Techo>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocco & Bass T - Our Generation (Jens O Vs Ti-Mo Remix Edit)
-02. The Hitmen - How I Wish (Club Mix)
-03. DHT feat Edmee - Listen To Your Heart (Rob Mayth Remix Radio Edit)
-04. Basslovers United & G4bby - Found You (Hands up Freaks Remix Edit)(   Читать дальше...   )Жанр: Electronic, Dance, TechoПродолжительность: 00:50:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53061BFE6B935C141248B0ECBD450B0E860B6977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379057   (842806) от 27.04.2020
-
-Дима Билан - Перезагрузка (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842806.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Океан
-2. Там за рекою лес
-3. Весна
-4. Химия(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7845F1F798B1A79CD3BE76760FA51E529C5A939C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378820   (842910) от 27.04.2020
-
-a-ha - Hunting High And Low (1985) 2015, Rhino, 4CD, 30th Anniversary Edition, Dlx. Ltd. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (Video Version) (3:44)
-02. Train Of Thought (Early Mix) (4:12)
-03. Hunting High And Low (Early Mix) (3:43)
-04. The Blue Sky (Alternate Long Mix) (3:41)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34544B5682280829620E4E31F416A3599A6C02D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379060   (842911) от 27.04.2020
-
-Демо - Rarities (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842911.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я не знаю (Version 2)
-2. На краю света (Arrival project Remix)
-3. Всё просто (VideoClip Mix)
-4. Я не знаю (Arrival project Remix 1)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7161C5F91CBDDBE0552C03C2D4E97C2159068150
 ```
 
 https://mybot314.ru/tekegram_catalog/

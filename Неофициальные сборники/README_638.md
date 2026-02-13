@@ -1,3 +1,59 @@
+###  Публикация: 974032   (978110) от 10.01.2016
+
+VA - Дальнобойщики. 100 шофёрских хитов (2015) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Катерина Голицына - Птицами любви
+002. Группа Север - Напиши
+003. Парни с перцем - Банька
+004. Игорь Слуцкий - Прости и прощай(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5589BFB2F78A239D57985551B09FA9425B05467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974021   (978115) от 10.01.2016
+
+VA - Dubstep 100 Top Hits Bass Massive DJ Mix (2016) [MP3|320 кб/с] <Dirty Dubstep, Trap, Grime, Chillstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978115.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dubster Spook - Dubstep 100 Top Hits 2016 (2hr Continuous Bass Massive DJ Mix) [120:14]
+002. K Theory - The Tower (Bass Massive Trap Remix DJ Edit)Жанр: Dirty Dubstep, Trap, Grime, ChillstepПродолжительность: 10:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162093C4A5027E4DB63D7166ADE46869BCD3BE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973425   (978126) от 10.01.2016
 
 dj Sasha Tyson - 90-X REBOOT 2 rus (ПЕРЕЗАГРУЗКА) (2016) [MP3|320 кб/с] <House, Nu Disco>
@@ -699,64 +755,6 @@ VA - A mystery to people (2020) 2CD [MP3|320 Kbps] <Enigmatic, New age, Ethnic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0282D0E25337A1900953A53F1202AE70DFB471A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355779   (980512) от 29.01.2020
-
-VA - Rap & Hip Hop: New Music Releases (2020) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980512.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2fre - Noyade
-002. K. Sparks Feat. Leslie Carron - April In Paris
-003. Dibi - Jd (Feat Shaka)
-004. Tory Lanez - Connection(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 10:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7949679DF7E2A261A0E1A1FE9FD42D46D83FF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355851   (980521) от 29.01.2020
-
-VA - Watercolor And Jazz (2020) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980521.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sad Jazz Man - Can We Be Cats
-002. The Funky Knuckles - Blue
-003. Ryan Porter - World On Wheels
-004. Antoine Berjeaut - Shadows(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 10:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8662A55CF354693A1BB0E76D303B631D961E56
 ```
 
 https://mybot314.ru/tekegram_catalog/

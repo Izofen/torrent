@@ -1,3 +1,32 @@
+###  Публикация: 1488270   (1002284) от 10.08.2021
+
+Faithless - All Blessed (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poetry (feat. Suli Breaks) (3:39)
+ 02. Gains (feat. Suli Breaks) (3:27)
+ 03. I Need Someone (feat. Nathan Ball & Caleb Femi) (4:54)
+ 04. Remember (feat. Suli Breaks & LSK) (7:05)(   Читать дальше...   )Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 02:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063A91A4AA33D29F381916FC9BAF7B969ABF04CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351167   (1002479) от 09.01.2020
 
 The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
@@ -709,33 +738,6 @@ Nuron | Fugue - Discography 8 Releases (1993-2021) Likemind, De:tuned [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61E065774E1A952828C8ED9051160CBE77D0C38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246751   (1003548) от 05.08.2021
-
-Si Matthews (Confluent Phase, Cryostasis) - Discography (2015-2019) Carpe Sonum, ...txt, Fantasy Enhancing [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Experimental, Techno Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempest (06:06)
- 02. Bewegungsapparat (06:08)Тип издания: CD, WebЖанр: Ambient, Downtempo, Experimental, Techno Ambient •Продолжительность: 13:09:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F56EF314A0B29BAA83A96DE2F7812F4F56DDFEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

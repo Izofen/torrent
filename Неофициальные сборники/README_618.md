@@ -1,3 +1,61 @@
+###  Публикация: 984488   (939010) от 09.02.2016
+
+VA - In The Language Of Trance (2016) [MP3|320 кб/с] <Uplifting, Progressive, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939010.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cor Fijneman feat. Jan Johnston - Venus (Meant to Be Your Lover) (Tiesto remix)
+002. Marc Simz feat. Emma Lock - Untimate Love (Original Mix)
+003. Ruben De Ronde LTN feat. Kimberly Hale - Moment Of Truth (Ruben De Ronde Mix)
+004. Christian Peter Stier - Last Summer (Original Mix)(   Читать дальше...   )Жанр: Uplifting, Progressive, Vocal TranceПродолжительность: 10:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A87599AA065326CE95A91C3B4942B9B87F6CC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984433   (939015) от 09.02.2016
+
+VA - Plimoot Longe: Dream Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939015.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Leo Dj - Doctor Jones - Original Mix
+002. The Cee Lounge - Sexy Soft - Original Mix
+003. Armando Gomez - Victoria Space - Original Mix
+004. Westend Playerz - Real Garage - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A642F958A7B6BC6F1C5479066ABE8FC333886A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984466   (939016) от 09.02.2016
 
 VA - Chill House Diamonds Vol.1 (2016) [MP3|320 кб/с] <Deep House, Chill House>
@@ -687,64 +745,6 @@ VA - Sun Goes Down: Chillout Party (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D3DF2F6707906CC58BA86FCBFBC86CA672112F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984091   (940307) от 08.02.2016
-
-VA - Klubnaya Volna Vol.1 (2015) [MP3|320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da'silva Gunn - Put You On (Original Mix)
-02. Zvika Brand & Mc Chubik Vs.Vi & Di & Jurbas - Potahat Tik Comes Down (Dj Vladimir Cooper Mash Up)
-03. Cassey, Crystal Rock - Borders (Crystal Rock Remix)
-04. Tune Brothers Feat. Ray Wilson - Here Comes The Rain Again (Dj Favorite Official Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67CC6225883427D3C7E5AD789F51904291A91339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984042   (940311) от 08.02.2016
-
-VA - Зимний кураж шансона 6 (2016) [MP3|256 kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940311.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Валерий Козьмин - В Свиданке Отказано
-002. Олег Макаров - Пацанам 80-Х
-003. Валерий Палаускас - Озорная
-004. Сергей Куренков - Жаль(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F32CD2A45FBB177D3402E2953C8E7A8BE02A58
 ```
 
 https://mybot314.ru/tekegram_catalog/

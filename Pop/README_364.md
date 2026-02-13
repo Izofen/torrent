@@ -1,3 +1,177 @@
+###  Публикация: 1610450   (1042329) от 07.02.2023
+
+Валерий Ободзинский - Звёзды советской эстрады. Хиты Хиты 60-70х (2009) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мелодия
+02. Восточная песня
+03. Белые крылья
+04. Вечная весна(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EA1E37A9119753909C0FED9304B769993145D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610463   (1042355) от 07.02.2023
+
+Араик Бабаджанян - Звёзды советской эстрады. Хиты 60-70х (2010) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Как живёте-можете
+02. Люди, чаще улыбайтесь
+03. Дорога любви(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E267F0DC23771B2DB5A649A30403AA9EB1FC27C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610086   (1042400) от 07.02.2023
+
+The J. Geils Band - Freeze Frame (серия "Другие восьмидесятые") (1981) [MP3|320 Kbps] <Rock, New Wave, Dance Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freeze-Frame
+02. Rage In The Cage
+03. Centerfold
+04. Do You Remember When(   Читать дальше...   )Жанр: Rock, New Wave, Dance RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A967A2142F4AF3133800D316D612DE8441E162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437213   (1042503) от 03.01.2021
+
+Группа «Экспресс» - Застольные песни, часть 2 (2020) [MP3|320 Kbps] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042503.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выйду на улицу
+2. Марусенька
+3. Верила, верила, верю
+4. Милый мой дедочек(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907F4B5E1AF427A4F6446186AEEADC5E6347B224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437106   (1042535) от 03.01.2021
+
+VA - From Sweden With Love - The Next Generation (2006) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Knife / Silent Shout 04:53
+02. Peter Bjorn and John / Young Folks 04:39
+03. Vapnet / Färjemansleden 03:35
+04. Timo Räisänen / Let's Kill Ourselves a Son 03:15(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62E4DC44BAACFF6CBCE60A359D3901C3841F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437002   (1042555) от 03.01.2021
+
+Karizma Duo - Late Night Karizma (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sail On (4:03)
+02. Dream a Little Dream of Me (3:14)
+03. Feel (3:15)
+04. Mandy (2:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9C20263B498DDA335B04A93872C9D5C8FDFB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609969   (1042856) от 05.02.2023
 
 Chilly - Devils Dance (1983) 2023 Reissue, Remastered, Unofficial [FLAC|Lossless|image + .cue] <Disco>
@@ -573,180 +747,6 @@ VA - А у нас во дворе... (2005) [MP3|320 Kbps] <Рор>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F2936C987A709B355913160228BFEE3F0999B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607972   (1043794) от 28.01.2023
-
-Аида Ведищева - Звёзды советской эстрады. Хиты 60-70-х (2011) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Помоги мне
-02. Дорожная песня
-03. Песенка о медведях
-04. Песенка вполголоса(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B331CC9B50275D699C22B9B3E4C832831AF667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607900   (1043849) от 28.01.2023
-
-VA - Best Of Nu Disco 2022, Vol. 1-2 (2022-2023) Disco Balls Records [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefan Torres, Alex Djette - Can't Help Me No More (Harvey Ross Remix) (05:22)
-02. Franco Sciampli - It's Falling (Frank Virgilio Rethink) (06:40)
-03. Rawkey - Like You Love Me (05:37)
-04. Umby - Call This Number (05:31)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 03:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8996F95E23E6BE52327323C0C41F8727C0B7176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607683   (1043897) от 27.01.2023
-
-VA - Старые песни о главном 2 (1996) [MP3|320 Kbps] <Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В. Сюткин - Как провожают пароходы
-02. Л. Долина - Стоят девчонки
-03. И. Аллегрова - Белый свет
-04. В. Меладзе - Ямайка(   Читать дальше...   )Жанр: РорПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B35BACC95B401A52AFA821CC462A16FDAC2BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606840   (1043920) от 27.01.2023
-
-Patricia Kaas - Rien Ne S'Arrete (Best Of 1987 - 2001) (2001) [OGG Vorbis|500 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rien Ne S’arrete
-02. D’allemagne
-03. Mon mec a moi
-04. Quand Jimmy Dit(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656C46090BF2EC0C768636C328C1DC7DD1C2F451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607675   (1043933) от 27.01.2023
-
-The Cars - Candy-O (1979) Reissue, Remastered, 2012, Elektra [OGG Vorbis|480 Kbps] <Rock, Pop Rock, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let's Go
-02 - Since I Held You
-03 - It's All I Can Do
-04 - Double Life(   Читать дальше...   )Жанр: Rock, Pop Rock, New WaveПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7F23EFDC6D2AA0C15802899D74E190439E60C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607590   (1043943) от 27.01.2023
-
-Steps - Platinum Collection (2022) 2xCD [FLAC|Lossless|image + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Steps была сформирована в мае 1997 в Лондоне, Великобритания. Она была одним из самых популярных британских музыкальных поп коллективов. Это был коммерческий проект, в который после долгих кастингов и проб вошли Lee Latchford-Evans, Claire Richards, Lisa Scott-Lee, Faye Tozer и Ian Watkins. Именно в таком составе группа просуществовала до её окончательного (   Читать дальше...   )CD - 1:
-01. Scared Of The Dark (3:47)
-02. Deeper Shade Of Blue (3:41)
-03. One For Sorrow (4:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3B864AE328165524CBCABA028FADBC5129C506
 ```
 
 https://mybot314.ru/tekegram_catalog/

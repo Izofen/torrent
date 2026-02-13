@@ -1,3 +1,177 @@
+###  Публикация: 1139865   (659205) от 03.06.2017
+
+Montana - A Dance Fantasy Inspired By Close Encounters Of The Third Kind (1978) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dance Fantasy Inspired By Close Encounters Of The Third Kind (16:00)
+02. V.M. IV (3:47)
+03. Warp Factor II (5:34)
+04. Love Star (2:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD695A71762E419DABB7C38BDA2F1B24F8069D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139903   (659286) от 03.06.2017
+
+P.L. - Space Dreams (1982) LP [MP3|320 Kbps] <Electronic, Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Know What It Is (9:03)
+02. Transeuropa-Express (10:12)
+03. Come On And Do It (Long) (15:28)
+04. Come On And Do It (Short Version) (3:09)Жанр: Electronic, Electro, DiscoПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493028912025A3205E0E433D30BACCE28483EB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139300   (659302) от 03.06.2017
+
+Intonation - Passing The Planets (1982) Reissue LP , Electrecord, 1987 [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro & Mercury (5:44)
+02. Mars (4:33)
+03. Venus (4:25)
+04. Uranus (4:38)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, AmbientПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C046D56F766710E4F1326EC14D7001BA950F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225595   (659659) от 16.05.2018
+
+Восток - Все небо (1996) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Миражи 3:30
+02. Все небо 3:03
+03. Только дождь 3:42
+04. Огонек в ночи 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4DBCDE83470E11FC94881624E376CD70205060E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139582   (660198) от 02.06.2017
+
+VA - Body Shaper Vol. 2 (2017) [MP3|320 Kbps] <Pop, Trance, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Hills - Break (Radio Mix) 3:24
+02. Tommy Henriksen - Give'm Hell (Leeroy Radio Mix) 3:30
+03. Brothers - Sacrifice (Best DJ Version Radio) 3:32
+04. Chris Galmon - Spend My Time (Radio Edit) 3:35(   Читать дальше...   )Жанр: Pop, Trance, DanceПродолжительность: 02:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7152EF2AAC333BC765DD98EA9DB143B89066D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902875   (660219) от 29.05.2015
+
+French Horn Rebellion - Next Jack Swing pt.I (2014) [MP3|320 кб/с]<Alternative Dance, Nu Disco, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Smash (feat. Workout & Bebe Panthere) (03:20)
+02. Caaalifornia (feat. Ghost Beach) (03:50)
+03. Love Is Dangerous (feat. The Knocks & Fat Tony) (03:51)
+04. French Horn Rebellion & Database - Poster Girl (03:41)(   Читать дальше...   )Жанр: Alternative Dance, Nu Disco, ElectropopПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9460960E12EB88D7CE99262F46094CF7D3363087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902899   (660224) от 29.05.2015
 
 HOLYCHILD - The Shape of Brat Pop To Come (2015) [OGG|522-579 кб/с]<Alternative Pop, Brat Pop, Electronic, Indietronica>
@@ -577,180 +751,6 @@ Laura Branigan - The Platinum Collection (2006) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3DB1D51F87CEBEB8067B1B7228FFE1B18341337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224631   (664862) от 11.05.2018
-
-The New Seekers - The Best Of The New Seekers (2000) [FLAC|Lossless|image + .cue] <Pop, Ballad, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664862.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I get a little sentimental over you
-  2. You won't find another foll like me
-  3. Fire and rain
-  4. All Right My Love(   Читать дальше...   )Жанр: Pop, Ballad, Easy ListeningПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADDD03B60C8C36A747369B3BC7A2B47BC02B8C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224539   (664863) от 11.05.2018
-
-VA - Beautiful Mornings - Mesmerizing Soulful Pop Vocals (2018) [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Godfrey - Life Is An Open Door
-02. Angela Predhomme - Extra Day
-03. Tony Sway - She's Right Here
-04. Chris Warne - The Wall(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 03:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946C0006724AF14AAC766AA221CF5D982519F376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224676   (664868) от 11.05.2018
-
-John Travolta - John Travolta (1998) 2001 Compilation, Reissue [FLAC|Lossless|image + .cue] <Ballad, Rock & Roll, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.		All Strung Out On You
-2.		Big Trouble
-3.		Greased Lightnin'
-4.		Let Her In(   Читать дальше...   )Жанр: Ballad, Rock & Roll, Pop RockПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF11DD7CCA0A81B840E2251F78A48CBEF310412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137744   (665561) от 28.05.2017
-
-Alex Maxwell - Signs + Lie To Me (2016-2017) 2EP [MP3|320 Kbps] <Alternative Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665561.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Signs (EP):
-01. Signs
-02. People Are Strange
-03. Letting You Know(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C264184A7FB7237A651AECB334DDDCADD277175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137728   (665565) от 28.05.2017
-
-The Wonder Band - Stairway To Love (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stairway To Love Medley (16:30)
-- Intro: Stairway To Heaven
-- Stairway To Heaven
-- Stairway To Love(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2ED7A2EC269D21A95B987907B5640D4144E93C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224463   (666059) от 10.05.2018
-
-The Pointer Sisters - In Concert (2007) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Happiness
-2	Automatic
-3	Fairytale
-4	Slow Hand(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23354BEC31696FA2FD4CB482A13E08D47E678B61
 ```
 
 https://mybot314.ru/tekegram_catalog/

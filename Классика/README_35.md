@@ -1,3 +1,32 @@
+###  Публикация: 62389   (751069) от 08.02.2019
+
+Дитрих Букстехуде (Dieterich Buxtehude) - Шедевры органной музыки 7CD
+
+>>Классика
+>>Камерная
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ди́трих Букстеху́де (нем. Dieterich Buxtehude, датск. Diderik Buxtehude) (ок. 1637 — 9 мая 1707) — немецко-датский органист и один из наиболее известных композиторов эпохи барокко. Его произведения для органа составляют существенную часть стандартного органного репертуара и часто исполняются на концертах и церковных службах. Его творчество оказало огромное (   Читать дальше...   )Vol. 1
+ 1	4:15	Praeludium in C, BuxWV 138
+ 2	4:17	Komm, heiliger Geist, Herre Gott, BuxWV 199
+ 3	3:48	Nun lob, mein Seel, den Herren, BuxWV 212(   Читать дальше...   )Жанр: Классика - органПродолжительность: 7:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4ED7B18620997BB2B64D19274C120DC395B7A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018608   (753639) от 21.05.2016
 
 Haydn - Symphonies 68, 93-104 (Harnoncourt - Royal Concertgebouw Orchestra) (2008) [FLAC|Lossless|tracks] <Classical, Symphony>
@@ -710,35 +739,6 @@ Sonata for Piano and Violin in F, K.377
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A72EF12A7507236CDF95FAF476B90F4437FE30DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012785   (778257) от 02.05.2016
-
-Wolfgang Amadeus Mozart - Sonatas For Piano & Violin (2012) [MP3|320 кб/с] <Classical, Piano>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonata for Piano and Violin in F, K.377
-01. 1. Allegro (3:52)
-02. 2. Tema (Andante) con variazioni (10:08)
-03. 3. Tempo di menuetto (5:57)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1A42F347D05C04F68865216ADF33C9D976CE60
 ```
 
 https://mybot314.ru/tekegram_catalog/

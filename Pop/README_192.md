@@ -1,3 +1,177 @@
+###  Публикация: 1312048   (534084) от 03.07.2019
+
+VA - 100 Greatest Dance Tracks (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534084.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lilly Wood And The Prick,Lilly Wood & The Prick,Robin Schulz - Prayer in C (Robin Schulz Remix)
+002. Daft Punk - One More Time
+003. Corona - The Rhythm of the Night
+004. Robin S - Show Me Love(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54C83EF1FFE67791D91C42D7D75E8C5F64CB0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312327   (534182) от 03.07.2019
+
+Светлана Разина - Звезда из прошлого (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534182.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Звезда из прошлого
+2. Бессоница
+3. Радио Нах (Нажми на плей)
+4. Шанс (feat. Никита Осин)(   Читать дальше...   )Жанр: PopПродолжительность: 01:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291A007317CDD4687B35D1C74729E8F3E9C180D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312405   (534191) от 03.07.2019
+
+Ирина Аллегрова - Моно… (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Моно
+2. Дай Бог, не в последний раз
+3. Посвящение родителям
+4. Медаль за мужество(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719E4E194F85468992309FEFF9206219311AF890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312171   (534384) от 03.07.2019
+
+VA - 110 Hits Eté 2019 (2019) 5CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534384.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Angèle - Balance ton quoi
+02. Clara Luciani - Nue
+03. Maître Gims - Miami Vice(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D43BD58B199BBE6BDB889FDFE079D918286719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312306   (534494) от 03.07.2019
+
+Sure Sure - What's It Like? (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friends from the Past                                                  [0:13]
+02. Good Thing                                                             [3:05]
+03. What's It Like?                                                        [3:15]
+04. Lie Lie Lie                                                            [2:32](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58503627532D4EFCC684115F39ED4B42DB204EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239827   (535092) от 07.08.2018
+
+VA - 110 Hits Ete 2018 (2018) 5CD [MP3|320 Kbps] <Dance, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535092.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Naestro, Maître Gims, Vitaa, Dadju, Slimane - Bella ciao (feat. Maître Gims, Vitaa, Dadju & Slimane)
+02. Maître Gims, Vianney, Maître Gims en duo avec Vianney - La même
+03. Dosseh, Heezy Lee, Josh - Habitué(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 06:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58317C4DDEE49014278AAA30D41E955AD9CB2ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558015   (535549) от 18.06.2022
 
 Дмитрий Маликов - Мы ещё встретимся (Синглы 2016-2022) (2022) [MP3|320 Kbps] <Pop>
@@ -568,183 +742,6 @@ Blue System - Seeds Of Heaven/21st Century (2000) [FLAC|image+.cue]<EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A159144CB4DDCEE2AF99C4908C7DFBAF7ADA2A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926010   (537201) от 08.08.2015
-
-Hanne Sorvaag - Cover Me (2010) [FLAC|image + .cue]<Pop / Soft Rock / Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring Me Down [02:59]
-02. Brief And Beautiful [03:43]
-03. My Heart Is Yours [02:29]
-04. November, December [04:22](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5EBCADDBA0F81C673D3C42E6FD1FF26B8C6C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226992   (537482) от 15.08.2010
-
-Божья Коровка - Все новое... Это хорошо переработанное старое (2008) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Мир раскололся
-02 Друзья-товарищи
-03 В каком неведомом краю
-04 Ледяное сердце
-05 Деревья
-06 Гранитный камушек 2007
-07 А у нас, в Америке
-08 Самая любимая моя
-09 Теплоход (релакс)
-10 Застольная(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 696785   (537990) от 04.09.2013
-
-Петр Лещенко - Лучшее / Избранное (2 СD) (1996) [FLAC|Lossless]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, RetroПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215819A2956DD736CEE5CB4125E63ECF9A96ED4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050174   (538265) от 08.09.2016
-
-Эд Шульжевский - И только о любви (2011) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Она и он [3:46]
-02. По имени Настя [3:44]
-03. День рождения [3:45]
-04. Куда уходишь ты [3:31](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D744E132E49FE94A553C584C752367DD1C052278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050525   (538279) от 08.09.2016
-
-Carrie Underwood - Greatest Hits - Decade #1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Something in the Water (3:58)
- 02.Little Toy Guns (3:31)
- 03.Inside Your Heaven (4:03)
- 04.Jesus, Take the Wheel (3:46)(   Читать дальше...   )Жанр: Pop, Country PopПродолжительность: 01:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C23192B5D0F4735169E42B7E5916E113E27813F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239491   (538446) от 05.08.2018
-
-KAZKA - КАРМА (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. КАРМА (04:05)
-02. СВЯТА (03:09)
-03. САМА (03:57)
-04. ЗАПАЛА (03:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BAB4D900FC2D208AE709C2CE666985B63D08B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

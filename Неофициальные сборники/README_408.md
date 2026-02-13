@@ -1,3 +1,61 @@
+###  Публикация: 1538640   (662198) от 21.03.2022
+
+Ernesto Cortazar - Compilation part 2 (2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I See the Sky
+02. Eternamente (Eternally)
+03. Y Volvere - El Triste - La Nave Del Olvido - Orfeo Negro
+04. One Voice Concerto(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 06:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AF151D6C85AB777C70B14A7A1B20C8C5881F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138780   (662216) от 31.05.2017
+
+VA - EDM European Collection (2017) [MP3|232-320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662216.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Block & Crown - You Started The Fire (Original Mix)
+002. Bruno Mars - 24k Magic
+003. Burak Yeter - Tuesday
+004. Soprano - Mon Everest (Feat Marina Kaye)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6F8D2191E255736A6F601F6BA7810F1F8D2DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138912   (662326) от 31.05.2017
 
 VA - Pacific Progressive Trance Vol. 3 (2017) [MP3|320 Kbps] <Progressive Trance>
@@ -684,64 +742,6 @@ VA - Strandgefuehle Vol. 1 (Leichte Sommer Relax Sounds) (2017) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B94F0F1D47D0D641E1CAAB8C9B517374B2FD38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224422   (664722) от 11.05.2018
-
-VA - Золотое кольцо русской музыки (2018) [MP3|256 Kbps] <Поп, Фолк>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Бурановские бабушки - Party for Everybody (Doberman Radio Edit)
-002. Надежда Бабкина - Калинка
-003. Надежда Кадышева - Течёт ручей
-004. Калевала - Улетай на крыльях ветра(   Читать дальше...   )Жанр: Поп, ФолкПродолжительность: 06:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D57B458BE10127E94474FE8CE84DE6383621DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224647   (664786) от 11.05.2018
-
-Procol Harum - Beyond The Pale (2CD) Compilation (2018) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Boxed
-02. Something Magic
-03. Skip Softly (My Moonbeams)
-04. As Strong As Samson(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C07C737749A4E331804A3880D5DF1AB602B319
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1243425   (489978) от 28.08.2018
+
+VA - Golden Hour (2018) [MP3|320 Kbps] <Swing, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Pony - Ali Baba
+02. Guido Spumant - Pimp My Gramophone
+03. Fat Magic - Hola Rey (Remix)
+04. The Electric Swing Circus - Golden Hour(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 04:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BDAC551978ABE1958DC81EF85E6C74FAD4EA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243641   (490100) от 28.08.2018
+
+VA - The Music Band: Oasis Jazz (2018) [MP3|206-320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490100.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paris Combo - Bonne Nouvelle
+002. Iiro Rantala - Candide
+003. Trillo De Angelis Quartet - Lysergic Wedding
+004. Gloria Turrini & Meco Guidi - Don't Go(   Читать дальше...   )Жанр: JazzПродолжительность: 09:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFD120A0E43C3722DFA30A75DAD9EB7E3FF2751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243640   (490102) от 28.08.2018
 
 VA - Pop Summer Candy (2018) [MP3|320 Kbps] <Pop>
@@ -725,64 +783,6 @@ VA - Жаркая вечеринка NOSSA, NOSSA!!! (2012) [MP3|256 кб/с]<Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88110FEEA8F229956359A5EB25C7B8DDEBE51500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936939   (491902) от 13.09.2015
-
-VA - Абсолютные осенние хиты от Европы Плюс (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491902.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. John Newman - Lights Down
-002. Виктория Ланевская - Обнимай
-003. Inna Feat. Marian Hill - Diggy Down
-004. Митя Фомин - Завтра Будет Все По-Другому(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0945EE3E5BC72207D9185D25C03837E71BF96E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158653   (492003) от 16.08.2017
-
-VA - Chill Ambient: 150 Advanced Relax Mix (2017) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492003.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drew Cox - Lake in Autumn
-002. Double Go - Well & Ness
-003. al l bo - On The Dance Floor (Spill Remix)
-004. Alexander Tarasov - The Light of My Soul(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 11:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C4B34291113A31633AB8C53B762900FD71C584
 ```
 
 https://mybot314.ru/tekegram_catalog/

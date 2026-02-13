@@ -1,3 +1,61 @@
+###  Публикация: 1199809   (800213) от 17.01.2018
+
+VA - Romantic Mood Smooth Compilation (2017) [MP3|320 Kbps] <Smooth Jazz, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800213.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gabrielle Chiararo - So Nice
+002. Matteo Brancaleoni - Winter Wonderlan
+003. Smooth Jazz Sax Instrumentals - Smooth Piano
+004. Terrace Martin - Velvet Portraits(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 06:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C81E719921C2B6970227440149AC6DBE60517E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199311   (800223) от 17.01.2018
+
+VA - Chillout Time (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florent Campana  -  Golden Hour  2:54
+02.  Arrojas  -  Over The Past Year  5:24
+03.  Rosarossa  -  Get Free (Soul Beats Mix)  3:33
+04.  Guggenz  -  Break Even (Original Mix)  3:47(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA9E85F117CCB66962B254879A1BD9974806273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121343   (800239) от 02.04.2017
 
 VA - Русское Радио - Лучшие Хиты Март (2017) [MP3|320 Kbps] <Поп>
@@ -687,64 +745,6 @@ VA - Лучшая дискотека на Europa Plus. Выпуск № 5 (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61DCB313235FADCA32EA74F871DFE7F8887E9DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120972   (800602) от 02.04.2017
-
-VA - Любимые хиты весны. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cash'u - Хочу 3:29
-002. Дискотека Авария & Филипп Киркоров - Яркий Я 3:28
-003. Aksioma Project - Мечтай 4:30
-004. Виталий Козловский - Мое Желание 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FA96A6A2F11006F977680DD9EDCEE57DBD8D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120994   (800605) от 02.04.2017
-
-VA - Танцевальная вечеринка Хит FM. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800605.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Шевченко - Чтобы Были Вместе Мы 3:20
-002. Гена Селезнев - Ливни 3:13
-003. Арина Войт - Мама Я В Раю 3:12
-004. Анастасия Спиридонова & Dj Fenix - Родина Моя 3:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3079CFA6F1991F16BD98C0AEAA6DBC5A62D032F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

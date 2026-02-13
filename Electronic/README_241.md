@@ -1,3 +1,32 @@
+###  Публикация: 1248926   (440186) от 21.09.2018
+
+Cherie Lily - The Dripping Wet EP (2013) [FLAC|Lossless|tracks + .cue] <Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss My Lips (3:33)
+ 02. Dripping Wet (3:25)
+ 03. Do Your Thing Girl (3:18)
+ 04. Body (3:32)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74E0DF6A2A762A6A6A304AF35EA59689412534B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944525   (440518) от 07.10.2015
 
 VA - Feel What You Chill Best Lounge Music (2015) [MP3|320 кб/с] <Downtempo, Lounge, ChillOut, Easy Listening>
@@ -713,35 +742,6 @@ VA - Black Hole Trance Music 09-20 (2020) [FLAC|Lossless|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:034775716C4B0A42C352D26CB51225670046002A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409799   (443028) от 18.09.2020
-
-Le Couleur - Concorde (2020) [MP3|320 Kbps] <Synthpop, Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Désert [00:06:46]
-02. Silenzio [00:03:19]
-03. Silhouette [00:03:10]
-04. Concorde [00:04:01](   Читать дальше...   )Жанр: Synthpop, DiscoПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B16C579CB550EF961A30758E91CA9EB8286D4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

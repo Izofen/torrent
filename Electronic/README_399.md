@@ -1,3 +1,32 @@
+###  Публикация: 1205910   (783251) от 11.02.2018
+
+VA - Carnaval House (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  RezaKarami  -  My Bass Friend (Original Mix)  4:58
+02.  High One  -  Low Kiss (MKVG Remix)  4:30
+03.  MikeSelf  -  Candy War (Extended Mix)  8:22
+04.  Mack Jack  -  Aruba (Instrumental Mix)  4:56(   Читать дальше...   )Жанр: HouseПродолжительность: 03:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5872F5DB2BFD571E1E864A0352F93D4FDB0D4F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205736   (783253) от 11.02.2018
 
 Tell - August EP (2014) House Running [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -716,35 +745,6 @@ VA - Mat Zo Presents: 20 Years Of Anjunabeats (2020) 3CD, DJ Mix [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B33D4CD76BBD4A6B714C948D5739B4E1E1B0AF75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389949   (783672) от 13.06.2020
-
-VA - Goa, Vol.72 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783672.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Morrisound - Sound of Peace (6:21)
-2. Flowjob - Beatpolar (7:32)
-3. Microlin - What I Really Need (8:29)
-4. Inner State - Zero Point (Trycerapt Remix) (7:44)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D57F844D2E44C24A3DADC1C420044D263540056
 ```
 
 https://mybot314.ru/tekegram_catalog/

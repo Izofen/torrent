@@ -1,3 +1,32 @@
+###  Публикация: 937890   (486046) от 16.09.2015
+
+VA - Relax Zone Vol 1 (2015) [FLAC|tracks]<Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baffle - Inside Out... (03:22)
+02. Breex - Somewhere in My Dreams (04:57)
+03. Dave Harrigan - Sunset Avenue (04:22)
+04. CJ Ferrum - Free Flight (03:49)(   Читать дальше...   )Производство: Easy Summer LimitedЖанр: Downtempo, Lounge, Chill OutПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A968D29EF641911841342FF3354BF230689C7797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937778   (486050) от 16.09.2015
 
 2ndMOUSE - The Secret Chords (2015) [FLAC|Lossless|WEB-DL]<IDM, Experimental, Downtempo>
@@ -722,35 +751,6 @@ VA - Point Of Origin Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA5CFF86D9A4E891D564B5CDF3E7955D52E8BE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243880   (488279) от 29.08.2018
-
-VA - Cassiopeia A (2018) Nebulae Records [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Ambient, Acid>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holon - A Forgotten Dream (05:55)
- 02. Cignol - Polywhore (04:15)
- 03. CCO - Solar Nebula (06:29)
- 04. Darren Nye - Simulated Skyline (04:26)(   Читать дальше...   )Жанр: Electro, IDM, Ambient, AcidПродолжительность: 00:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF8AC8B2498D806A15DB6EF0E015F39F0F96696
 ```
 
 https://mybot314.ru/tekegram_catalog/

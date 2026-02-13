@@ -1,3 +1,32 @@
+###  Публикация: 997380   (875736) от 16.03.2016
+
+VA - Soft House Miami 2016 (15.03.2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shivana Faction - Somebody [06:03]
+02. Counting Clouds - Like the Wind [04:04]
+03. Mykel Mars - White Beach (Crystal Blue Sea Mix) [06:01]
+04. Ron Ractive - Science Fiction (Chillhouse Mix) [07:50](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C7EB7DF099BB3700E4B7F3C807A93C3863914D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997387   (875737) от 16.03.2016
 
 VA - Relaxing at Work (Work With Chilled Music) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Lounge Music Sweet Valentine (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF672DAADA0705ABD6AE09CC575FA149267CDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996757   (878962) от 14.03.2016
-
-Eric Prydz - Opus (2016) [FLAC|Lossless|tracks+.cue] <Progressive House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liam (5:44)
-02. Black Dyce (6:17)
-03. Collider (5:23)
-04. Som Sas (6:37)(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7E57498534E2AC97490C38DB097097D340C00D
 ```
 
 https://mybot314.ru/tekegram_catalog/

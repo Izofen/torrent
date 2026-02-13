@@ -1,3 +1,32 @@
+###  Публикация: 999883   (859067) от 25.03.2016
+
+VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norwegian Mountains (O. Sevag) [03:37]
+02. Gala (Gala Gala) [04:52]
+03. Le Reve (M. Lepisto) [04:08]
+04. The Waves Of Life (Wimme) [04:09](   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7244863EBC84EB25F3BD28771BD9430DC24235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000081   (859324) от 25.03.2016
 
 Ken Yang - Meet the Sky (2001) [FLAC|Lossless|tracks] <International, New Age, Easy Listening>
@@ -777,35 +806,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18B25D6035F632A9D5EF18FFB205E4053A2D5E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108332   (864270) от 24.02.2017
-
-Mairead Nesbitt - Hibernia (2016) [MP3|320 Kbps] <Instrumental,  Celtic,  Folk>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallowed Fire
-02. The First Sheaf
-03. Becoming
-04. Seán Ó Duibhir A' Ghleanna(   Читать дальше...   )Жанр: Instrumental,  Celtic,  FolkПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0606489F9193C0AE69FC5FB0BA792E12061F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

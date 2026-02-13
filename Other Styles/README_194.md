@@ -1,3 +1,32 @@
+###  Публикация: 1450117   (1029343) от 24.02.2021
+
+Devesh Sodha - Past & Present (2018) + Singles (2013-2020) [FLAC|Lossless|WEB-DL] <Soundtrack, Instrumental, Epic>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destiny Of The Urban Warrior
+02. Carol of the Bells (Epic Version)
+03. Promises
+04. Falling FasterЖанр: Soundtrack, Instrumental, EpicПродолжительность: 00:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28186DE1AD7B25F70FE6EA3D4FC758A85F02410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449973   (1029347) от 24.02.2021
 
 Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
@@ -713,35 +742,6 @@ Stefan Nicolai - 2 альбома (1993, 2006) [FLAC|Lossless|tracks] <Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90BA9D34BBA453B00722C11533ED7C55E227CCED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327760   (1030366) от 19.02.2021
-
-The Royal Philharmonic Orchestra - Hits Of Elton John - The Ballads (1991) [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikita 			(05:55)
-02. Your Song 			(04:15)
-03. Goodbye Yellow Brick Road 	(03:19)
-04. Easier To Walk Away 	(04:28)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BAA109E874022C82A51964305086C05A1FDB20
 ```
 
 https://mybot314.ru/tekegram_catalog/

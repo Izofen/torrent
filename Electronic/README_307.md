@@ -1,3 +1,32 @@
+###  Публикация: 1232187   (602772) от 22.06.2018
+
+VA - Soma Coma 7 (2018) Soma Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deepbass - Circa (Ambient Version) (06:50)
+ 02. DeepChord - Roca 9 (04:38)
+ 03. Slv - A Different Space (03:59)
+ 04. Edit Select - Intra-Grain (04:10)(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C01EFF75AC22891A2312F7B161E1870EC2C9417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232191   (602781) от 22.06.2018
 
 VA - aliēnus (2015) Grounded in Humanity | alienus [FLAC|Lossless|tracks+.cue] <Dub Techno, Techno, Ambient>
@@ -716,35 +745,6 @@ Master Margherita - My Funktion (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance,Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA5E2F0E02C85701AA7078B133433F629F554E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148314   (603913) от 06.07.2017
-
-VA - World Chill-Lounge Charts Vol 5 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exopilot - Nibiru
-02. Lunaland - Happy End (feat Marga Sol)
-03. Artenovum - Der Moment - Wellness Deluxe Version
-04. Aaron The Baron - Sweet Longing(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BAC72ECC1ABA84C94683D2EB57F12A78D78035C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1035723   (624655) от 18.07.2016
+
+Goldfrapp - Seventh Tree (2008) CD+DVD, Deluxe Edition [FLAC|Lossless|image + .cue] <Electronic, Rock, Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clowns  4:08
+02.  Little Bird  4:25
+03.  Happiness  4:17
+04.  Road to Somewhere  3:52(   Читать дальше...   )Жанр: Electronic, Rock, PopЯзык субтитров: Francais, Deutsch, Italiano, Espanol
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70518A8AA1E73AD6AD300E7DB5E996A2B7AAE144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 349458   (625271) от 15.06.2011
 
 DJ Silence - Hours Of Silence (2009) [FLAC|Lossless]<Ambient, Psy Chill>
@@ -713,35 +742,6 @@ NeoSpace - Flying to the Stars (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFDF2CD49FA124A4FA7E272A578DC791CC79C30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144272   (627371) от 22.06.2017
-
-2raumwohnung - Nacht und Tag (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1993 (Nacht) (4:33)
- 02. Lucky Lobster (Nacht) (feat. Umami) (4:14)
- 03. Somebody Lonely and Me (Nacht) (3:20)
- 04. Energie Multimillionär (Nacht) (3:45)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF42D919AF638DC2AF31665A0781923A557A5768
 ```
 
 https://mybot314.ru/tekegram_catalog/

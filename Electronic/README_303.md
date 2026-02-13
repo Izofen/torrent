@@ -1,3 +1,32 @@
+###  Публикация: 1232773   (596353) от 26.06.2018
+
+Jamie Dupuis - Harp Guitar Relaxation (2018) [MP3|320 Kbps] <Easy Listening, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Back for You
+02. Ciel du nord
+03. Lakeshore 1
+04. Relaxation(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0003711DCF6C178F229E1A39ECE0619582380041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914594   (596371) от 03.07.2015
 
 VA - Ibiza Deep House (2015) [MP3|320 кб/с]<Deep House, Chill House>
@@ -719,35 +748,6 @@ VA - This Is My Church Vol 7 (The House Edition) (2017) [MP3|320 Kbps] <Funky, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C222DE6D90486078638A69592CE97F4EFDE14241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039017   (598996) от 30.07.2016
-
-VA - Anjunadeep In Ibiza (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yotto - The Owls (07:55)
-02. Cubicolor - Mirror Play (feat Tim Digby-Bell) (05:56)
-03. Way Out West - Tuesday Maybe (I:Cube's Sunrise remix) (07:10)
-04. Lane 8 - Fingerprint (06:44)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695DDBB18FCD9D4A67B5F89363F03A09AB8C15EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,132 @@
+###  Публикация: 986344   (931079) от 14.02.2016
+
+Mitochondrion - Parasignosis (2011) [APE|Lossless|image + .cue] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plague Evockation (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part I),
+02. Lex Ego Exitium (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part II)
+03. Tetravirulence (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part III)
+04. Trials(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5545D9670EF6519FDC8226A8257834CC5903C1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861833   (931618) от 22.01.2015
+
+Accept - Classics, Rocks 'n' Ballads (2000) Compilation [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Mistreated (Single version) 04:45
+2. Drifting Away 03:04 instrumental
+3. All or Nothing (Single version) 03:26
+5. Just By My Own 03:31
+6. Generation Clash 06:26
+7. It's Hard to Find a Way 04:19
+8. Walking in the Shadow 04:28
+9. Guardian of the Night 04:26
+10. Winter Dreams 04:46
+11. Run Through the Night 03:22(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F9D5797C37A761FF3C821FE3F0A0283C61B93D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754482   (931668) от 08.02.2014
+
+Ring Of Fire - Battle Of Leningrad (2014) [FLAC|Lossless]<Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Mother Russia   (5:12)
+02.  They're Calling Your Name   (4:06)
+03.  Empire   (5:42)
+04.  Land Of Frozen Tears   (4:39)
+05.  Firewind   (7:43)
+06.  Where Angels Play   (4:55)
+07.  Battle Of Leningrad   (6:15)
+08.  No Way Out   (5:13)
+09.  Our World   (4:14)
+10.  Rain   (4:27)Жанр: Progressive, Power MetalПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BB9BBCEC844A4F3E4CAFEAACDA13A1C16FD09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861890   (931759) от 22.01.2015
+
+Eisbrecher - Schock (2015) [FLAC|Lossless]<NDH / Gothic Metal / Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Volle Kraft Voraus
+02. 1000 Narben
+03. Schock
+04. Zwischen Uns
+05. Rot Wie Die Liebe(   Читать дальше...   )Жанр: NDH / Gothic Metal / Industrial MetalПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1CBE6EF2055FDCB37AD3202561F5B8C90A873A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861879   (931771) от 22.01.2015
 
 W.A.S.P. - First Blood... Last Cuts (1993) Japan [FLAC|Lossless]<Hard'n'Heavy>
@@ -692,127 +821,6 @@ Armored Saint - Nod To The Old School (2001) [FLAC|Lossless]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E4E3ACB87ADDEC28594D574DAF06C5DEC29BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753837   (935301) от 06.02.2014
-
-Devilish Distance - Deathtruction (2010) [FLAC|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Marching Forward   (1:31)
-02.  Apocalypse   (3:07)
-03.  In Hate We Trust   (3:26)
-04.  Legion Christless   (4:28)
-05.  Stand   (3:04)
-06.  The Nameless One   (4:53)
-07.  Legacy Of Pestilence   (3:24)
-08.  Scorn   (3:57)
-09.  Perverted Existence   (3:17)
-10.  Panzerfaust   (3:09)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86165ACE4049A3284DA6F7DBC00FD1205990C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284998   (935357) от 21.01.2011
-
-Ozzy Osbourne - Singles Collection 18CD's ((1988-2003)) [WavPack|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Changes (4:10)
-02. Changes (Felix Da Housecat's Dance Mix) (6:13)
-03. Dig Me Out (Live) (3:57)Жанр: Heavy MetalПродолжительность: :05:22:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093434   (935439) от 14.01.2017
-
-Aeon Of Horus - Existence (2014) [FLAC|Lossless|image + .cue] <Progressive, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935439.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Refraction 04:29
-2. Radiate 04:06
-3. Symbiosis 05:56
-4. Exude 01:19(   Читать дальше...   )Жанр: Progressive/Technical Death MetalПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EAC5CC93F236B795E6631C1A24ED0C4BF97C6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985404   (935533) от 11.02.2016
-
-Rotting Christ - Rituals (2016) [FLAC|tracks|WEB-DL]<Dark Metal, Black Metal, Ethnic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935533.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:57] 01. In Nomine Dei Nostri (feat. George)
-[04:43] 02. זה נגמר (Ze Nigmar)
-[04:49] 03. Ἐλθὲ Κύριε (Elthe Kyrie) (feat. Danai)
-[03:55] 04. Les Litanies De Satan (Les Fleurs Du Mal) (feat. Vorph)(   Читать дальше...   )Жанр: Dark Metal, Black Metal, EthnicПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E923F0B2E716C9BBB36F9EEB601618F5B8DDEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

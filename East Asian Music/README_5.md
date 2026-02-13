@@ -111,6 +111,36 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182268   (309905) от 03.12.2012
+
+Wu Judy Chin-tai - 3 albums (1999-2001) [MP3|320 kbps]<New age, Nature sounds>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_309905.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:27) 01. Night Falling
+(5:38) 02. Country Wind
+(6:40) 03. Silver River
+(5:21) 04. Gentle Slope
+(7:29) 05. Dreams of Night SpiritsЖанр: New age, Nature soundsПродолжительность: 00:29:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960084   (310096) от 27.11.2015
 
 P∴Rhythmatiq - 24 альбома (2008-2014) Vocaloid /Doujin/ [FLAC|tracks] <Electronic, J-Pop, J-Rock>
@@ -725,41 +755,6 @@ AlbumsЖанр: J-PopПродолжительность: 00:20:55
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D944AC779E689ED01D6C554546B24462002702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580708   (337919) от 27.11.2012
-
-VA - Lovely String (1999) [MP3|320 кб/с]<Instrumental, Ethnic>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337919.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:07) 01. Yu Die
-(4:25) 02. Ren Xiao Yao
-(4:57) 03. Tie Chuang
-(4:30) 04. Peng You
-(4:36) 05. My Heart Will Go On
-(3:39) 06. Nu Ren Hua
-(4:29) 07. Wo Bu Xiang Shuo
-(4:07) 08. Mei Hua San Nong
-(5:08) 09. Ming Ming Zhi Dao Xiang Si Ku
-(4:25) 10. Shang Xin Tai Ping YangЖанр: Instrumental, EthnicПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59E5D1F77E1A753C1C3D93B7B8040DFDB1D2419
 ```
 
 https://mybot314.ru/tekegram_catalog/

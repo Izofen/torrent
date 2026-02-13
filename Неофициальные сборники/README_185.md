@@ -1,3 +1,32 @@
+###  Публикация: 1076506   (312043) от 26.11.2016
+
+VA - German Top 50 Official Dance Charts 25.11. (2016) [MP3|256 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You 3:18
+02.Calvin Harris - My Way 3:39
+03.Bob Sinclar & Daddy's Groove - Burning 2:51
+04.Galantis & Hook N Sling - Love On Me 3:26(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1A91A609D41B43866E782DA90EFD9D351552A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076508   (312044) от 26.11.2016
 
 VA - Радио Рекорд - Record Club за 24.11.2016 [MP3|320 Kbps] <Electronic, House, Trance>
@@ -756,35 +785,6 @@ Afrojack - DJ Mag Top 100 (2012) [MP3|320 кб/с]<house / electro house / progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B75004E882445CF1BB74228C0F95DD652D29A6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182736   (313973) от 11.11.2017
-
-Юлия Чичерина - Избранное 1997-2017 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off-On
-02. Радиоволна
-03. Жара
-04. 40000 км(   Читать дальше...   )Жанр: RockПродолжительность: 02:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C317B1DABA970325F09C8F35653CB20DD8E4A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

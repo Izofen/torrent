@@ -1,3 +1,267 @@
+###  Публикация: 600688   (998569) от 09.01.2013
+
+Рисованная графика - Artworks by Massimo Carnevale part 1
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисунки голливудского художника-иллюстратора Massimo CarnevaleРазрешение файлов: 600х885Формат: .jpg
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600802   (998577) от 09.01.2013
+
+Рисованная графика - Artworks by papawaff waffle
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора papawaff waffle.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B33E1D301BF3B149443594CA58070C938FA110D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600762   (998611) от 09.01.2013
+
+Рисованная графика - Artworks by Hollie Hibbert
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Hollie Hibbert.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9B368F310D5689628C72B5C6F9AF0D6E3EFCD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600597   (998614) от 09.01.2013
+
+74 HQ Wallpapers (06.01.13) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D528BB783F834E282E92853D194D5CF4BC007F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600795   (998618) от 09.01.2013
+
+[Wallpapers] Creative wallpapers (09.01.13)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998618.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Creative wallpapers (09.01.13)
+Название: Creative wallpapers (09.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEDA27BBE196F8DA9DA100F0179FC85B4806B98B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600591   (998666) от 09.01.2013
+
+Nature Wallpapers (06.01.13) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098CA631399BDA429BF9BE678E1100752B95AD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600611   (998668) от 09.01.2013
+
+Nature Wallpapers (08.01.13) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F608C5A2199510DB247408718B53E4F6BD5A9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599755   (999075) от 07.01.2013
+
+Иконки - Grunge Ico by Verrone
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник иконокРазрешение файлов: 256/256
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6023D5EAD6AC67FA429E1F88CD1B9557A6588F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599711   (999121) от 07.01.2013
+
+Рисованная графика - Artworks by Kyoung Hwan Kim
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Kyoung Hwan Kim.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ED814F9AC0087AB62FC239DA2F976A9C6F7254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599686   (999124) от 07.01.2013
+
+Рисованная графика - Artworks by Sushi XAV
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Sushi XAV.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30846662B5ED83DE31D625B9F7BA8B9158DF49F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599628   (999315) от 06.01.2013
 
 Фотография - Photos from Joaquin
@@ -415,298 +679,6 @@ Best HD Wallpapers Pack (05.01.13) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D22B0D368C528A8E501545E50C9200288FC9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599110   (999739) от 05.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 10
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999739.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 10
-Название: New 2013 Wallpaper Pack 10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755150310B1EAD04F510209A4E2CDE5356283227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599138   (999740) от 05.01.2013
-
-[Wallpapers] World Architecture (05.01.13)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999740.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] World Architecture (05.01.13)
-Название: World Architecture (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E79A3DC276DE3D3D9BE5053D588C04CFCF31825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599204   (999745) от 05.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 14
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999745.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 14
-Название: New 2013 Wallpaper Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5041BE04BDA40E744A2879565A017B80407E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599127   (999747) от 05.01.2013
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 1
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999747.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 1
-Название: New 2013 Nature Wallpaper Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BC07DE64F3EFCF6BF6F1DB995CCDC505A36F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598739   (999767) от 05.01.2013
-
-55 HQ Wallpapers (03.01.13) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F43B7FD8A212AE325F225B38E5F3EEAAAEC1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599107   (999778) от 05.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 7
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999778.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 7
-Название: New 2013 Wallpaper Pack 7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80400221235E775B989C9436472B904630B7852D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599097   (999789) от 05.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 6
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999789.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 6
-Название: New 2013 Wallpaper Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A1455477F3E2CF46015BED6998A0BD439B2D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599109   (999790) от 05.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 9
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999790.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 9
-Название: New 2013 Wallpaper Pack 9
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050/1600х1200- 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E590AF7B16FD571E349DF3336750A8EF0A258B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599108   (999793) от 05.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 8
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999793.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 8
-Название: New 2013 Wallpaper Pack 8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15354A908C2ACDB12D8074DB870AFF712E4735B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597885   (1000147) от 03.01.2013
-
-Иконки - Collection of icons by Verrone
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник иконокРазрешение файлов: 256/256
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDA1E95EE77953064DE95D1A3A88AA3AAA801C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

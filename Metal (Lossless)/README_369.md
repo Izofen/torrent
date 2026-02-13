@@ -1,3 +1,124 @@
+###  Публикация: 753837   (935301) от 06.02.2014
+
+Devilish Distance - Deathtruction (2010) [FLAC|Lossless]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Marching Forward   (1:31)
+02.  Apocalypse   (3:07)
+03.  In Hate We Trust   (3:26)
+04.  Legion Christless   (4:28)
+05.  Stand   (3:04)
+06.  The Nameless One   (4:53)
+07.  Legacy Of Pestilence   (3:24)
+08.  Scorn   (3:57)
+09.  Perverted Existence   (3:17)
+10.  Panzerfaust   (3:09)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86165ACE4049A3284DA6F7DBC00FD1205990C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284998   (935357) от 21.01.2011
+
+Ozzy Osbourne - Singles Collection 18CD's ((1988-2003)) [WavPack|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Changes (4:10)
+02. Changes (Felix Da Housecat's Dance Mix) (6:13)
+03. Dig Me Out (Live) (3:57)Жанр: Heavy MetalПродолжительность: :05:22:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093434   (935439) от 14.01.2017
+
+Aeon Of Horus - Existence (2014) [FLAC|Lossless|image + .cue] <Progressive, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935439.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Refraction 04:29
+2. Radiate 04:06
+3. Symbiosis 05:56
+4. Exude 01:19(   Читать дальше...   )Жанр: Progressive/Technical Death MetalПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EAC5CC93F236B795E6631C1A24ED0C4BF97C6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985404   (935533) от 11.02.2016
+
+Rotting Christ - Rituals (2016) [FLAC|tracks|WEB-DL]<Dark Metal, Black Metal, Ethnic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935533.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:57] 01. In Nomine Dei Nostri (feat. George)
+[04:43] 02. זה נגמר (Ze Nigmar)
+[04:49] 03. Ἐλθὲ Κύριε (Elthe Kyrie) (feat. Danai)
+[03:55] 04. Les Litanies De Satan (Les Fleurs Du Mal) (feat. Vorph)(   Читать дальше...   )Жанр: Dark Metal, Black Metal, EthnicПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E923F0B2E716C9BBB36F9EEB601618F5B8DDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985093   (935564) от 11.02.2016
 
 Frangar - Trincerocrazia (2015) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -664,136 +785,6 @@ Manic Depression - Impending Collapse (2010) [APE|Lossless]<Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8811AC71311327BAFE168FBC8000C45B0C49A2B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752637   (940148) от 03.02.2014
-
-Dirty Woman - Demon Lover (2009) [FLAC|Lossless]<Heavy / Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Crowned By Nothingness [04:30]
-02.  Don't Shoot [03:43]
-03.  Inner Circle Of Pain [04:41]
-04.  To Invade The Sky [05:26]
-05.  Master Of Draconians [05:07]
-06.  Yes, I Sold My Soul [02:36]
-07.  Riding Free [04:22]
-08.  Demon Lover [04:30]
-09.  My Sadness [04:36]
-10.  Delivered To Evil [04:31]Жанр: Heavy / Stoner MetalПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDCC8B663CA7A4A11644905948EACA2F021CDAAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752647   (940150) от 03.02.2014
-
-Pan Ram - Rats (1996) (1997 Japan) [FLAC|Lossless]<Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro [00:54]
-02.  Rats [06:38]
-03.  Slip My Skin [04:34]
-04.  Rule Of The Fool [04:15]
-05.  Crucified [06:15]
-06.  Break One [03:30]
-07.  Love Line [04:47]
-08.  Hit Bottom [04:22]
-09.  Blue Sky [06:38]
-10.  Pack Bites The Last [05:04](   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E88C4591B5F9F18419153E04D86B21009C68C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752644   (940260) от 03.02.2014
-
-Jack's Family - One Big Disguise (2009) [FLAC|Lossless]<Progressive Power / Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Falling [03:41]
-02.  Pretty [03:13]
-03.  Please Be Still [04:40]
-04.  Round And Round [05:57]
-05.  Ideal Me [04:03]
-06.  Cruelty On A Pedestal [08:53]Жанр: Progressive Power / Gothic MetalПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215F820F31FC41015CB0480211B4B6DC20F478F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363664   (940924) от 29.02.2020
-
-Ozzy Osbourne - Ozzmosis (1995) X-Cellent only for sale in CIS [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perry Mason [5:53]
-02. I Just Want You [4:56]
-03. Ghost Behind My Eyes [5:10]
-04. Thunder Underground [6:28](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB21E64FF95AB49FCE381D073312CCF02E4197D
 ```
 
 https://mybot314.ru/tekegram_catalog/

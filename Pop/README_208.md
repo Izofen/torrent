@@ -1,3 +1,201 @@
+###  Публикация: 810881   (581401) от 07.08.2014
+
+VA - Italo Maxi Hits (1985) 2CD /2010/[FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch - Delirio Mind 5:24
+02. Paul J.Qualley - Please Please 4:31
+03. Rewind - Rosalie (Pop & Go !) 6:04
+04. Orlando Johnson - With Just A Kiss 6:08
+05. Twilight - My Mind 7:48
+06. Stage - Voodoo Dance 7:06
+07. A.I.M. - So Evil (Close To The Edge) 7:50Жанр: Italo-DiscoПродолжительность: 01:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951AC4FB2FA792B295E71DCF7DBFDC6ACA361E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041904   (581430) от 10.08.2016
+
+Dolly Dots - 8 Albums (1979-1986) [MP3|320 Kbps] <Electronic, Disco,  Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dolly Dots - голландская диско-поп группа. Образована в 1978 году и состояла из двух солисток и четырех танцовщиц, хотя все участвовали в исполнении различных песен. Были очень популярны на своей родине, а так-же в Бельгии, Японии и Турции. Коллектив получил платину в Японии за хит 'Radio', а 'Leila (The Queen Of Sheba)' стал шлягером в Турции и Египте. Их мега-хит (   Читать дальше...   )Список альбомов:
+1979 - Dolly Dots
+1980 - American Dream
+1981 - P.S. We Love You(   Читать дальше...   )Жанр: Electronic, Disco,  EuropopПродолжительность: 05:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78EC6A95E0AA73467D1006EB2F009C7BB62BE935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810893   (581444) от 07.08.2014
+
+VA - Italo Maxi Hits (2010) 2CD [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch - Delirio Mind 5:24
+02. Paul J.Qualley - Please Please 4:31
+03. Rewind - Rosalie (Pop & Go !) 6:04
+04. Orlando Johnson - With Just A Kiss 6:08
+05. Twilight - My Mind 7:48
+06. Stage - Voodoo Dance 7:06
+07. A.I.M. - So Evil (Close To The Edge) 7:50Жанр: Italo-DiscoПродолжительность: 01:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCB8B2CD67EC1067A543209E97C0D15C17D3688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811015   (581447) от 07.08.2014
+
+Silent Circle - The Maxi-Singles Collection (2006) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (Crash Version) 5:33
+02. Time For Love (Super-Action-Mix) 5:20
+03. Danger, Danger (Raicing Mix) 6:00
+04. Forget The Stranger (Simple Mix) 5:00
+05. Give Me Time 3:42
+06. Hide Away - Man Is Comin' ! (Special Mix) 5:10
+07. I Am Your Believer (Club Mix) 5:45
+08. Is It Love 4:26
+09. Love Is Just A Word (Reggae Version) 5:45
+10. Stop The Rain (Extended Version) 5:40(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DA3E0CBD625F29CE69888E0F094F34605B789B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811048   (581450) от 07.08.2014
+
+Gilla - Help ! Help ! (2010) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help ! Help ! 3:09
+02. Gentlemen Callers Not Allowed 4:00
+03. Say Yes 3:36
+04. A Baby Of Love 3:37
+05. Hold On 3:52
+06. First Love 3:26
+07. Johnny 3:47
+08. Why Don't You Do It ? 3:32
+09. The Girl From Ipanema 3:45
+10. Bend Me, Shape Me (Bonus Track) 3:46(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8613E13A6E3BDCD07A467D2734F28804608B3D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811052   (581456) от 07.08.2014
+
+Gilla - I Like Some Cool Rock 'N' Roll (2010) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Down Mainstreet 4:07
+02. Discothek 3:48
+03. The Heat Is On 3:44
+04. We Gotta Get Out Of This Place 4:41
+05. Queen Of The Night 3:21
+06. Cool Rock 'N' Roll 3:41
+07. Take Your Time 3:41
+08. Heartbreaker 3:41
+09. Tom Cat 3:58
+10. The Summerwind 3:51(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7160F6CABBAB3E36BDAA0BB1EB2BA374A2070E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810990   (581481) от 07.08.2014
 
 Baby's Gang - Challenger (2008) [APE|Lossless]<Italo-Disco>
@@ -621,191 +819,6 @@ VA - RTL Hits Sommer 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BD9FE9A80C914AE8690B1C8B3F75F769427ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301870   (583327) от 13.05.2019
-
-Lightning - Lightning (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Symphony (10:11)
-02. In And Out Of Love (6:48)
-03. Baby Without Your Love (7:15)
-04. I Love The Way You Love Me (5:25)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2EB5CEB5FC890AE303506F5C76E08BF319210C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810346   (583436) от 05.08.2014
-
-Tony Esposito - Tony Esposito (Best Of) (1997) [FLAC|Lossless]<Disco-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papa Chico [0:03:59.93]
-02. Kalimba de Luna [0:05:01.40]
-03. Sinue [0:03:52.76]
-04. Hands [0:04:22.84]
-05. Dateme [0:04:25.93]
-06. Simba de Ammon [0:04:59.16]
-07. As tu as [0:04:43.73]
-08. Crazy conga [0:05:04.10]
-09. Ella Xana [0:03:58.76]
-10. Giochi non Giochi? [0:04:03.37](   Читать дальше...   )Жанр: Disco-PopПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C3D6287E6CA84B876E5406392A4EC8F5F52227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919083   (583683) от 18.07.2015
-
-Ёлка - Ненастоящая Любовь!!! (2014) [MP3|320 кб/с]<Pop, RnB>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ненастоящая любовь
-02. Музыка-Мечта
-03. Светит Звезда
-04. Доброе утро(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B12BFEBE1477F427DDDB7E565CEC8FF875527A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041058   (584258) от 07.08.2016
-
-Fun Factory - Back to the Factory (2016) [FLAC|Lossless|WEB-DL|tracks] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Megamix (8:00)
-02. Turn It Up (2:52)
-03. Summerday (3:02)
-04. I Want Your Love (3:01)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD79699777129E2B91091A2EF45C6A9FFC62BE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810239   (584400) от 04.08.2014
-
-Baltimora - Survivor In Love (2006) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key Key Karimba 5:59
-02. Global Love 4:39
-03. Jimmy's Guitar 3:56
-04. Come On Strike 4:48
-05. Set Me Free 4:44
-06. Survivor In Love 5:00
-07. Call Me In The Heart Of The Night 4:54
-08. Eye To Eye 4:14
-09. Global Love (Mix Version) 4:38Жанр: Italo-DiscoПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4B0EAC722483D1B9058647C6785F1E3E136C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810210   (584447) от 04.08.2014
-
-Gabrielle Aplin - English Rain (2013) [FLAC|Lossless]<Indie Pop, Folk, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panic Cord [03:25]
-02. Keep On Walking [02:52]
-03. Please Don't Say You Love Me [03:01]
-04. How Do You Feel Today? [03:46](   Читать дальше...   )Жанр: Indie Pop, Folk, CountryПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF0FCE50189521AC91824EAC2F34E9D12850FB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

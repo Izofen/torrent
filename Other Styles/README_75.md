@@ -1,3 +1,32 @@
+###  Публикация: 1406846   (470506) от 05.09.2020
+
+Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470506.jpg" />
+</div>
+
+
+###  Подробнее
+
+[08:01] 01. Ludwig Goransson - RAINY NIGHT IN TALLINN
+[05:16] 02. Ludwig Goransson - WINDMILLS
+[02:16] 03. Ludwig Goransson - MEETING NEIL
+[03:24] 04. Ludwig Goransson - PRIYA(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D562F6C42A86FEF3603C273D5DD3469A800E9A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406845   (470521) от 05.09.2020
 
 Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
@@ -714,35 +743,6 @@ Blue Rodeo - In Our Nature (2013) [MP3|320 Kbps] <Folk Rock, World, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF80153FE44CCF6FAD38E552BF05DE713EC3C2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939134   (477917) от 20.09.2015
-
-Ben Caplan - Birds With Broken Wings (2015) [MP3|320 кб/с]<Country, Funky Blues, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds With Broken Wings (03:41)
-02. I Got Me A Woman (03:06)
-03. Belly Of The Worm (03:47)
-04. Ride On (03:30)(   Читать дальше...   )Жанр: Country, Funky Blues, FolkПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F29B68A9518F6EBF0309DE2472980B812404A3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

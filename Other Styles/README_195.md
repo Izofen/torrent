@@ -1,3 +1,32 @@
+###  Публикация: 327760   (1030366) от 19.02.2021
+
+The Royal Philharmonic Orchestra - Hits Of Elton John - The Ballads (1991) [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikita 			(05:55)
+02. Your Song 			(04:15)
+03. Goodbye Yellow Brick Road 	(03:19)
+04. Easier To Walk Away 	(04:28)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BAA109E874022C82A51964305086C05A1FDB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 301914   (1030368) от 19.02.2021
 
 VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|image + .cue] <Ballroom Dance, Easy Listening>
@@ -714,35 +743,6 @@ Amure (Alexey Khatsko) - Дискография (2010-2020) [FLAC|Lossless|WEB|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80FB8D57218B437DC372F2FB3DA0225FA8E10A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441781   (1033248) от 07.02.2021
-
-Wardruna - Kvitravn (2021) [FLAC 2.0|24/48|tracks + .cue|WEB-DL] <Nordic, Ambient, Neofolk>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synkverv [00:04:50]
-02. Kvitravn [00:06:17]
-03. Skugge [00:06:38]
-04. Grá [00:03:32](   Читать дальше...   )Жанр: Nordic, Ambient, NeofolkПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356F4653DFC6E6CB6CC77757BFF69952971679F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

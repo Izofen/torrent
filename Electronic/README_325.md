@@ -1,3 +1,32 @@
+###  Публикация: 1541825   (642842) от 04.04.2022
+
+Dynalectric Orchestra - Signal Upon Arrival (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Contact (00:03:55)
+02 - Love Scene in a Neon City (00:03:33)
+03 - Falling (00:03:03)
+04 - It's a Matter of Time (00:04:35)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E824E0F5D888EF37921681E1977543039139CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291940   (643070) от 31.03.2019
 
 Argus - Pure Love | Pure Down​-​tempo Vol​.​1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Chillgressive, Downtempo>
@@ -711,35 +740,6 @@ Arbre Noir - Collection 5 Releases (2000-2006) Polymorph Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DC640FCFC0CB7D94374A9B4F16DFA3C8C52C43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227608   (644878) от 27.05.2018
-
-Atsushi Izumi - Snow (2018) Subtrakt [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, IDM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dysprosium (07:29)
- 02. Ruthenium (03:57)
- 03. Skaul (03:59)
- 04. Snow (03:55)(   Читать дальше...   )Жанр: Dark Ambient, IDM, IndustrialПродолжительность: 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123462EB9F2BFE2CAD51C92DB86573FF26BF8590
 ```
 
 https://mybot314.ru/tekegram_catalog/

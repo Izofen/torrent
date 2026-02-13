@@ -1,3 +1,32 @@
+###  Публикация: 956706   (329409) от 15.11.2015
+
+VA - Audio Treasures (Healing & Soothing Chillout Vol 1) (2015) [FLAC|tracks]<Lounge, Chillоut, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaki Hasan - Raghupati (Original Mix) (04:13)
+02. Kondencuotas Pienas & Ahbee - Evolution (Original Mix) (03:08)
+03. Schwarz & Funk - Sea of Fate (Original Mix) (05:24)
+04. Eskadet - Immersion (Original Mix) (07:45)(   Читать дальше...   )Производство: Casa Del SilencioЖанр: Lounge, Chillоut, Easy ListeningПродолжительность: 01:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62AC76F73159FA14C2AC7B439FDF1E540D170D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580566   (329923) от 02.10.2022
 
 Extize - MonStars (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, EBM, Electro-Industrial>
@@ -722,35 +751,6 @@ VA - One Point Two: More Digital Listening Music From Rednetic (2007) Rednetic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:958C4C551DBF4D03FEC8155AA40CDA2140483A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331346   (332972) от 14.10.2019
-
-VA - Sublime Trance Vol. 05 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Nilsson - Rock The Dancefloor (Extended Mix)
-02. Adam Morris and Rezwan Khan - Aftermath (Original Mix)
-03. Key4050 - Paydirt (Original Mix)
-04. Kajis feat. Ylona - Bodyswing (Venetica Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269E70296E9EA2297E51F3F5F413FD450B464A2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

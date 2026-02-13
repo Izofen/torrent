@@ -1,3 +1,32 @@
+###  Публикация: 235773   (908437) от 20.03.2020
+
+VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omar Akram - Surrender     (06:43)
+02. Isaac Shepard - Before Dawn   (03:58)
+03. Robin Spielberg - Circle of Life   (04:10)
+04. Love Theme From Romeo & Juliet   (02:52)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD5CA38D0D7987E6C8C52DE1B6C1E1E60D59CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 227951   (908465) от 20.03.2020
 
 Алекс Сильванни - Электроорган (1975) Vinyl Rip, Remastered, 2007, Raritet Music [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
@@ -715,35 +744,6 @@ VA - The Man from U.N.C.L.E. (Deluxe Version) (2015) [MP3|320 Kbps] <Soundtrack,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23143FB811E23018290E3FD2740026C54F2598B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367943   (914065) от 17.03.2020
-
-Alexander Ryabtsev (Александр Рябцев) - Europe: Fantasy Vol. 13 (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Иванович Рябцев родился 12 марта 1963 г. в семье военнослужащего. Окончил радиотехнический факультет Новороссийского высшего инженерного морского училища. Начинал работать на судах загранплавания Новороссийского морского пароходства начальником радиостанции. В 1998 г. заочно окончил судоводительский факультет Новороссийской государственной морской академии (   Читать дальше...   )01. To Elena (4:42)
-02. To Mother (4:25)
-03. Parting (4:36)
-04. XVII Century (3:27)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0356C33D89873FE4A28FB82A62AC2715082F058F
 ```
 
 https://mybot314.ru/tekegram_catalog/

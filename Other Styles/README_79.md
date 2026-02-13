@@ -1,3 +1,38 @@
+###  Публикация: 543054   (496086) от 05.09.2012
+
+WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<Parody, Country, Bluegrass, Western-and-Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Twist Again (3:04)
+02. Peppermint Twist (3:20)
+03. Blackbird (2:18)
+04. Jailhouse Rock (2:32)
+05. For You (3:17)
+06. Hello, Mary Lou (3:29)
+07. Heart of the Country (2:39)
+08. Bad Case of Lovin' You (Doctor, Doctor) (3:12)
+09. Baby Boy (3:12)
+10. AC/DC (3:25)(   Читать дальше...   )Жанр: Parody, Country, Bluegrass, Western-and-CountryПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543094   (496339) от 05.09.2012
 
 Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
@@ -752,41 +787,6 @@ VA - Modern Sound Orchestras - Ave Maria (1992) [FLAC|Lossless|image + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53A308FED9265DCFDCDA4E44B34F1E245DD69BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538340   (503601) от 29.08.2012
-
-Jack Convery - Beatles On The Banjo (2009) [MP3|256 кб/с]<Folk-Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - If I Fell                                                          [02:27]
- 02. - Winding Road                                               [03:45]
- 03. - When I'm 64                                                 [02:38]
- 04. - Yesterday                                                      [02:02]
- 05. - And I Love Her                                              [02:36]
- 06. - Ob-La-Di, Ob-La-Da                                       [03:13]
- 07. - Here, There And Everywhere                         [02:33]
- 08. - The Fool On The Hill                                       [02:53]
- 09. - Michelle                                                          [03:04]
- 10. - Blackbird                                                        [02:22](   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470BF2385BF6972C8C53B994BD9306650742AD11
 ```
 
 https://mybot314.ru/tekegram_catalog/

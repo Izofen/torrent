@@ -1,3 +1,32 @@
+###  Публикация: 1469518   (1016395) от 12.05.2021
+
+Kundalini Yoga Music - Autogenic Training Channel (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kundalini Yoga Music (4:01)
+02. Spa Relaxation - Rain Sounds (3:13)
+03. Spirituality (4:17)
+04. Nocturnal Relaxation (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D753A13A1294DA8F3F750A9B500533B5564FF812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465873   (1018772) от 28.04.2021
 
 Tierra Negra - Discography (1997-2020) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar, Flamenco Nuevo>
@@ -718,35 +747,6 @@ Oscar Lopez - Guitar Masters (2002) Compilation [MP3|320 Kbps] <Flamenco, Guitar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F9CBC2FEDE047D6126D6C2C2D2152812F9EB8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457715   (1023464) от 31.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023464.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:20] 01. Pensacola, Florida (Godzilla Theme)
-[07:26] 02. Skull Island (Kong Theme)
-[02:02] 03. Apex Cybernetics
-[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB15A744B58F72E42D5115BFDB70BABFBD932CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,174 @@
+###  Публикация: 1218407   (723115) от 09.04.2018
+
+VA - NRJ Hit Music Only 2018 (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723115.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Maître Gims - Mi Gna (00:03:36)
+02. David Guetta - Like I Do (00:03:23)
+03. Vald - Désaccordé (00:03:35)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7E7D45AE2DA567B2CCD9361400BF1A443A12BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218446   (723297) от 09.04.2018
+
+Наталия Могилевская - Самое... Самое (2003) |Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Плачь
+02. Снегопад
+03. Зима
+04. Лимоновый фонарь(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9659F248402CBF504E72DB4F591EFA738A7B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218427   (723299) от 09.04.2018
+
+Revanche - Music Man (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Get High In N.Y.C. (8:39)
+02. Revenge (8:53)
+03. Music Man (8:17)
+04. 1979 (It's Dancing Time) (8:44)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B540858DA0A1164F7D4F1E7F62E84AE6ED7E5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218484   (723302) от 09.04.2018
+
+The Eastern Gang - The Flasher (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunny Faces (4:20)
+02. The Flasher (4:36)
+03. Hamburger Man (5:04)
+04. Charlotte (4:20)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CD0963C13072213499F70DDCE2F15CAFB002F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 668448   (723662) от 15.06.2013
+
+Александр Серов - Я без ума тебя люблю... (2006) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_723662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023411   (723838) от 05.06.2016
+
+Александр Малинин - Звездная серия (1997) [FLAC|Lossless|image + .cue] <Pop, Romance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поручик Голицын
+02. Черная гвоздика
+03. Коррида
+04. Белый конь(   Читать дальше...   )Жанр: Pop, RomanceПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F74EC1652078A95AD5640252074D2911967B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104482   (723978) от 14.02.2022
 
 Cerrone - 32 Albums (1976-2021) Collection [MP3|320 Kbps] <Electronic, Funk-Soul, House, Disco>
@@ -570,182 +741,6 @@ Modern Talking - The Final Album (The Ultimate Best Of) (2003) [FLAC|Lossless]<E
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023074   (725849) от 04.06.2016
-
-Градусы - Градус 100 (2016) EP [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. #Валигуляй
-2. Градус 100
-3. Хочется
-4. Я не был дома(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CD6688C3E3D153F13888BCBFDB0E55951862D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023290   (726205) от 04.06.2016
-
-Белый Орел - Как упоительны в России вечера (2009) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Как упоительны в России вечера [03:56]
-02. Потому что нельзя быть красивой такой [04:45]
-03. С высоких гор [03:44]
-04. Без тебя [04:35](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6E27B3218F3278BC6D198E1D2BE4E11194DA59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284936   (726246) от 23.02.2019
-
-Voggue - 2 Albums (1981, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love To Dance (5:02)
-02. Loverboy (5:25)
-03. Heart On The Line (2:42)
-04. Presto Changeo (4:14)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C4947C85C2F0F0189270D060A2E911113B7538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128912   (726250) от 26.04.2017
-
-Филипп Киркоров - Лучшие песни (2003) [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Роза чайная 4:19
-02. Дай огня, детка 4:37
-03. Ты со мной 4:10
-04. Я за тебя умру 3:28(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6F4A5B58D7D07EB51EB93C449AFAA1F0DBB67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128729   (726254) от 26.04.2017
-
-Gipsy Kings - The Real... Gipsy Kings (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Bamboleo
-2. Hotel California
-3. Soy(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 03:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BEB32427C2E53382A61BA6CD79B5DD9E3AE27A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667716   (726343) от 14.06.2013
-
-The Crosslines - Singles Collection (2013) [MP3|320 кб/с]<ItaloDisco, EuroDisco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ItaloDisco, EuroDiscoПродолжительность: 00:23:23
-01 - Tomorrow Is Another Day (Radio Mix) 03:40
-02 - Tomorrow Is Another Day (Maxi Version) 06:21
-03 - Tomorrow Is Another Day (Dub Mix) 04:15
-04 - Tomorrow Is Another Day (Single Version) 04:33
-05 - Tomorrow Is Another Day (Instrumental Version) 04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7BC629F93031BE2FE8379DDF45A05A226A743E
 ```
 
 https://mybot314.ru/tekegram_catalog/

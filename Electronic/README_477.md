@@ -1,3 +1,32 @@
+###  Публикация: 1365078   (933810) от 05.03.2020
+
+VA - Urban Sports Music, Vol. 1 (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rayman Rave - My Freedom (Radio Edit) [03:15]
+02. Trillogee and Taw feat. Gemeni - Tnt (Happy Gangsters Remix Edit) [03:36]
+03. L4ndy - Party Animals (Radio Edit) [02:51]
+04. Edher Torres - If You Sexy (Radio Edit) [02:43](   Читать дальше...   )Жанр: HouseПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187BFCBF9D5F455979C89363367BA06DA0E60B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365082   (933811) от 05.03.2020
 
 VA - Urban Sports Music, Vol. 3 (2019) [MP3|320 Kbps] <House, Progressive House>
@@ -707,35 +736,6 @@ Atiq & EnK - Embracing The Unknown (2014) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ex
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA45804DC78B1E00F9E34D7D2F97D18ED53C3F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985133   (937254) от 10.02.2016
-
-VA - Happy Valentine's Day (2016) [MP3|320 кб/с] <Lounge, ChillOut, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hints of Soul - Mixed Flowers
-02. The Magical Corner - Laguna
-03. Arrojas - Over the Past Year
-04. The Sura Quintet & Pato - Alegria(   Читать дальше...   )Жанр: Lounge, ChillOut, Easy ListeningПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68893957EEA601E0BAD4D6EBE69F949FEB03706
 ```
 
 https://mybot314.ru/tekegram_catalog/

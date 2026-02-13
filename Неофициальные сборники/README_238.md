@@ -1,3 +1,61 @@
+###  Публикация: 1169019   (401474) от 29.09.2017
+
+VA - Under The Carpet (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401474.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eugene Kushner - That I (Original Mix)
+002. Vitaly Beskrovny - If I? (Feat Simon Latham - Original Mix)
+003. Max Denoise - Bring To Me Life (Feat Claire Willis - Original Mix)
+004. Latham & Quano - Fallen Angel (Original Mix)(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 08:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EF9BEF40DC1458DB56236E2B066C48BCEFC889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 713880   (401529) от 21.10.2013
+
+Laid Back - 25 Best Songs (2012) [MP3|204 - 257 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Horse (U.S. Edit) 1983
+02. Bakerman 1990
+03. Sunshine Reggae 1983
+04. Universe Lovesong 2005(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D552F2A26494AA0E51045942B0C50074FF61F11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 713446   (401567) от 21.10.2013
 
 Camouflage - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
@@ -768,64 +826,6 @@ VA - Music For Racing (2017) [MP3|320 Kbps] <Hands Up, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:564EA5ADEBF156D9D54432025BAF4E53D8E6ED28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169486   (403142) от 27.09.2017
-
-VA - Deep House Collection Vol.137 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1Kilo - Deixe Me Ir (Bruno Be, Monkeys, Eternal Soul Remix) 5:20
-02. Alexander Orue & Sharapov - Never Give Up (Original Mix) 5:23
-03. Alex Kenji - 'Cause It's Cool (Original Club Mix) 5:29
-04. Alex Niggemann - Luminance (Daniel Bortz Remix) 7:02(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FB3F9DD173FCAA438F81DA5A04DA7BCF990EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169477   (403150) от 27.09.2017
-
-VA - Empire Records: Classic Disco (2017) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeroplane, Tawatha Agee — Love On Hold (Extended Mix)
-02. Shawn Christopher — You Can Make It (Ron Carrolls Mix)
-03. Miguel Campbell feat. Benjamin Diamond — Gold Rush
-04. Angela Puxi — Housing to Jazz (Sinan Mercenk's Radio Edit)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994794FC3874B27AAEA37430DB2EA4E937C4B81E
 ```
 
 https://mybot314.ru/tekegram_catalog/

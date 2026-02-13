@@ -1,3 +1,32 @@
+###  Публикация: 1214763   (763172) от 23.03.2018
+
+VA - Coffee Bar Lounge Vol.4 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twentyeight feat. Tesz Millan  -  In My Arms (Original Mix)  4:30
+02.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42
+03.  Chambre 19  -  La Pluie D'ete (Original Mix)  5:59
+04.  Weathertunes  -  Hymn Of Peace (Original Mix)  4:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91789E54CDEACF1797F3B866010BC94DF40F473F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214853   (763178) от 23.03.2018
 
 VA - Music And Wine Vol.1 (25 SoulSetters) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -714,35 +743,6 @@ VA - Infrasonic Winter Selection (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE2C2D3D63F48D8586BDA1A70A296AE3895F9EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214522   (764145) от 22.03.2018
-
-VA - Touch 25 (2008) [FLAC|Lossless|tracks+.cue] <Abstract, Field Recording, Experimental, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BJ Nilsen - Gotland (01:47)
- 02. Unknown Artist - Minutiae (00:21)
- 03. Oren Ambarchi - Moving Violation (08:19)
- 04. Fennesz - Tree (03:22)(   Читать дальше...   )Тип издания: CD, Compilation, ReissueЖанр: Abstract, Field Recording, Experimental, AmbientПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824D1C2DB3D7BD431FA6FF72C3D5870809FB93BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

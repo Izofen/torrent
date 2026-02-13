@@ -1,3 +1,173 @@
+###  Публикация: 1356671   (977737) от 31.01.2020
+
+Savage - 2 Сингла (2019, 2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синглы:
+Magic Carillon - 2019
+I Love You - 2020Жанр: Italo-Disco |Продолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7E2B0F9777673545EAAFBC560C83B781B53CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356507   (977848) от 31.01.2020
+
+VA - From Disco to Disco 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whomadewho - The Divorce (4:36)
+02. No Gods - Purpose (6:08)
+03. Enzo Elia - Volpinata (7:31)
+04. Roter & Lewis - Better Days (5:52)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B634B29233CBC31889D061EA04ED7E1E4343A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356637   (977948) от 31.01.2020
+
+Гречка - Из доброго в злое (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977948.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Героев
+2. В моей квартире
+3. Русская тоска
+4. Гранжстайл, Ч. 2(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535DF46A56EE40DBB50DD3C09BC0F912789528B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437412   (977956) от 17.01.2012
+
+Mirko Hirsch - Obsession (2011) [MP3|320 kbps]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DiscoПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB8411123B228ECB43C94446952B2AD00CC706E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973764   (978186) от 10.01.2016
+
+VA - 3am Collection: Grooves, Hits, Party (2004) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kool & The Gang – Celebration
+02 The Buggles – Video Killed The Radio Star
+03 The Jackson 5 – ABC
+04 Diana Ross – I'm Coming Out(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D3627DC0F95458DD18716293E7611D643C23B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138619   (978445) от 30.01.2020
+
+VA - Школьные годы (2002-2003) [MP3|2 CD] <Детские, школьные песни>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Светлана Крючкова - Черное и белое [2:23]
+02. Эдуард Хиль - Чему учат в школе [1:50]
+03. Пламя - Детства последний звонок [3:58]
+04. Детская хоровая студия "Дружба" - Звени, звонок [3:40](   Читать дальше...   )Жанр: Детские, школьные песниПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70E6C3A5CD6E1D2A6FBAE0DD60B61492EAAC3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356406   (978891) от 30.01.2020
 
 Savage - I Love You (2020) Maxi-Single [MP3|320 Kbps] <Italo-Disco, House>
@@ -613,180 +783,6 @@ Bobby Summer - 2 Albums (1999,2002) /Avex Inc. Japan/ [FLAC|Lossless]<Euro House
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972278   (981798) от 06.01.2016
-
-Ottawan - Grand Collection (2006) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco (English Maxi Version) (05:00)
- 02. You`re OK (05:12)
- 03. Hands Up (Give Me Your Heart) (04:51)
- 04. Crazy Music (05:28)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F74BAB3CD62D30F40B945FE1200285F122EC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741835   (981899) от 04.01.2014
-
-Татьяна Снежина - Я возвращаюсь скоро (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Листопад
-02. Мне не станет больнее
-03. Я тебя покидаю, прощай
-04. Давай о нас не говорить(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF6C3BBEBE3B783FC3881D5F7273FFBC3E31654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972689   (981932) от 06.01.2016
-
-WeAreCastor - Invade & Disco (2014) [MP3|320 кб/с] <Alternative Pop, Nu Disco, Funky>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (original mix) (01:07)
-02. Invade & Disco (original mix) (06:15)
-03. Ulrik’s Bicycle (original mix) (03:57)
-04. Projects (original mix) (03:50)(   Читать дальше...   )Жанр: Alternative Pop, Nu Disco, Funky,Продолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE894D59BF1FD1641CF148A6079DA0573C7ADC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355744   (982098) от 27.01.2020
-
-Bad Boys Blue - Heart & Soul (Recharged) (2018) [MP3|320 Kbps] <Disco, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982098.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Still in love (Recharged)
-2. In his heart (Recharged)
-3. Matador (Recharged)
-4. Queen of my dreams (Recharged)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C88D1340E522EAD51E18890686D5FC0B0FE3340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355703   (982205) от 27.01.2020
-
-Bad Boys Blue - Heart & Soul (Recharged) (2018) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Still in love-Recharged Master [3:11]
- 02 - In his heart-Recharged Master [3:28]
- 03 - Matador-Recharged Maste [3:03]
- 04 - Queen of my dreams-Recharged Master [3:26](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F196DA538A87F15E453926BF762FB63C93FC502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355577   (982279) от 27.01.2020
-
-Partyfloor Featuring MC Polt - Immer Bum Bum (1996) [FLAC|Lossless|image + .cue] <Euro House, Happy Hardcore>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982279.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Immer Bum Bum (Radio Mix)
-2. Immer Bum Bum (Club Mix)
-3. Immer Bum Bum (Bubi Mix)
-4. Flohwalzer (Original Mix)Жанр: Euro House, Happy HardcoreПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DCFDC8D8430754416149696EA25DB64810F946
 ```
 
 https://mybot314.ru/tekegram_catalog/

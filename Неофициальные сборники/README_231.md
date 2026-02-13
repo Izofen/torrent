@@ -1,3 +1,61 @@
+###  Публикация: 1414335   (385516) от 08.10.2020
+
+VA - Hyperspace: Synth Space Electronic (2020) [MP3|320 Kbps] <Synthspace, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385516.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2qimic - Ghost Ship
+002. Tommy Vega - Blind Justice
+003. Double Reaktion - Ignition
+004. Jopon - Forester(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 11:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC8713A74A89CFA7548A6C9210E6095CE8E5FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414331   (385517) от 08.10.2020
+
+VA - Punk Rock Rolling Style (2020) [MP3|320 Kbps] <Punk, Punk Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385517.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Sharp Shadows - Walkrightpastmedon
+002. This Means War! - I Found The One
+003. Hillview - E.S.A.D.
+004. F.U.A. - Psychotic(   Читать дальше...   )Жанр: Punk, Punk Rock, AlternativeПродолжительность: 07:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3CD7CD26AB216F0F751D2234B7B1DFEEC54BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253290   (385538) от 08.10.2018
 
 VA - New Music Releases Week 40 of 2018 (2018) [MP3|320 Kbps] <Dance>
@@ -744,64 +802,6 @@ VA - Future Garage Vol.41 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EA015C8DFE8B9B1ACBCC571DFA44AB07D752E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174354   (387368) от 14.10.2017
-
-VA - Indie/Rock Playlist: October (2017) [MP3|~217-277 Kbps] <Indie>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Strangejuice – (IRP) Intro
-02.  Wolf Alice – Beautifully Unconventional
-03.  Daughter – Burn it Down
-04.  CHVRCHES – Call It Off(   Читать дальше...   )Жанр: IndieПродолжительность: 04:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9EE58C1828C30904B053A0F7DB7AFB483C5703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252933   (387473) от 07.10.2018
-
-VA - Зайцев.нет: Музыкальные новинки Октябрь 2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Effective Radio - ZYN 3:18
-02. Bryce & Steve Modana - Magic Trix 3:45
-03. Liranov - Эндорфин 2:59
-04. T1One - Портной 3:23(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CAC555C2C9A3FEF779EF847EACF90F02DCFC024
 ```
 
 https://mybot314.ru/tekegram_catalog/

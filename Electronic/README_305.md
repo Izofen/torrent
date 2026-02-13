@@ -1,3 +1,32 @@
+###  Публикация: 914150   (600435) от 01.07.2015
+
+VA - Sargamassa Ambient Ibiza (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rafal Kulik - Line from Snake Constellation [06:57]
+02. Pacator - Trдnen - Ambient Mix [06:27]
+03. Ambiworx - Swamp Ash Shuffle [07:42]
+04. Minor - Cafe Transparence [04:43](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892A56ABA25F9D5955040FE964E5503378E295F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861147   (600736) от 30.04.2019
 
 Terminal Sound System | Tether | Siilt - Discography 16 Releases (1999-2018) Denovali Records [FLAC|Lossless|tracks+.cue, tracks]<Experimental, IDM, Glitch, Post Rock, Industrial, Ambient>
@@ -711,35 +740,6 @@ Sparks - Balls (2000) Deluxe Edition, Remastered, 2022, BMG [FLAC 2.0|44.1/24|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EE00FD90D7C675ABB406EBF2E3B5A0BECB5485F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547841   (602025) от 30.04.2022
-
-VA - Spring Aromas: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Marie Therese - What Can I Say (4:13)
-02. The Soul Crusaders - In My Dreams (7:31)
-03. Beamy - Hope (5:09)
-04. Peter Pearson - Fire Me Up (5:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9719EE3E67D4CA084DEA7D52D5E48C877055C47
 ```
 
 https://mybot314.ru/tekegram_catalog/

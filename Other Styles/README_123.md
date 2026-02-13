@@ -1,3 +1,32 @@
+###  Публикация: 1022982   (726688) от 04.06.2016
+
+Danny Wright - Unconditional Love (2016) [MP3|320 кб/с] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy's Silver Lining [00:04:12]
+02. Time to Say Goodbye [00:04:29]
+03. Unconditional Love [00:03:57]
+04. Christy Kay's Theme [00:04:12](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B232C1C16FAEB5FBEB85B581182EE2B70C393715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128428   (727189) от 25.04.2017
 
 Stive Morgan - Eclipse Of The Moon (2017) [MP3|320 Kbps] <Ambient, Chillout, New Age>
@@ -721,35 +750,6 @@ VA - India Experience (Vol. 1) (2015) [MP3|320 Kbps] <Downtempo, Lounge, New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC4BC0CF84AA8FCF50A03AE073C3C4AC4772B875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283973   (730045) от 20.02.2019
-
-DeVotchKa ‎ - This Night Falls Forever (2018) [FLAC|Lossless|tracks + .cue] <Folk-rock, Gypsy Punk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight Shot (05:22)
-02. Let Me Sleep (04:39)
-03. Lose You In the Crowd (04:41)
-04. Love Letters (04:25)(   Читать дальше...   )Жанр: Folk-rock, Gypsy PunkПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F96A47E36880F951A7002E0116062B0941EE433
 ```
 
 https://mybot314.ru/tekegram_catalog/

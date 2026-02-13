@@ -1,3 +1,61 @@
+###  Публикация: 1218399   (723215) от 09.04.2018
+
+VA - History Of Female Vocal (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above & Beyond feat. Zoe Johnston - My Own Hymn (Original Mix)
+002. Susana - The Promise (Original Mix)
+003. Gabriel & Dresden feat. Jan Burton - Waiting For Winter (Extended Mix)
+004. C-Systems - Heat (Trance Arts Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 11:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BD778AC78A8DE69D29485D3B6BAFB697E50778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218459   (723217) от 09.04.2018
+
+VA - Deep House Collection Vol.165 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723217.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2deepsoul - Its a Sign (Original Mix)
+002. 4 Da People - 4 Me (2018 Mix)
+003. Aaron Lewis - Higher Dimension (Original Mix)
+004. Adam Joseph Ft. Lady Red Couture - The Rent (Seb Skalski Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2E7AE40334EA9B76DFE6FC7C467E932011B5B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218498   (723222) от 09.04.2018
 
 VA - Cocktail new music №31 (2018) [MP3|320 Kbps] <Pop, Dance, Club>
@@ -687,64 +745,6 @@ Bob Margolin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Chicago Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01AE35ECD85CEBD28E0474CBFB1EE856E1C2218E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128981   (724366) от 27.04.2017
-
-VA - 100-ка популярных весенних хитов на Europa Plus выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724366.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Евгений Лекс - Кроме Нас 3:29
-002. Vikki - Помолчим 3:16
-003. Гена Селезнев - Ливни 3:13
-004. Татьяна Буланова & Михаил Боярский - Единственный Дом 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B6BCA8A50C7C511147E0314C8B104029CDC190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128904   (724368) от 27.04.2017
-
-VA - Козырная песня. Версия № 10 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724368.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Леонид Телешев - Не Моя Ты 3:38
-002. Сергей Матвеев - Зеркала 3:41
-003. Алексей Плотников - Я Вернулся Москва 3:37
-004. Александр Вестов - Миллион Облаков 3:42(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A2BADDB1718E1018AE7B42C8E174FE65DA8DC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 837756   (736334) от 29.01.2022
+
+Fausto Papetti - Magic Sax (2012) 2CD [MP3|320 кб/с]<Instrumental, Saxophone, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736334.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+1. London Fever (4:10)
+2. Medley - Samba Pa Ti (3:59)
+3. Brivido Felino (3:56)(   Читать дальше...   )Жанр: Instrumental, Saxophone, Easy ListeningПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B774D1B7CD624CC283946AFFEE9583CAF968897C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397920   (737086) от 23.07.2020
 
 Carl Davis & Royal Liverpool Philharmonic Orchestra - ABBA for Orchestra (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Classical>
@@ -708,35 +737,6 @@ Erik Wøllo - Visions - Visions (2016) [MP3|320 кб/с] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F31F26829CB240041039A97F709ECC2F0436AEF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217433   (743359) от 04.04.2018
-
-Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ease (5:20)
-02. Atme (8:32)
-03. Thank You (6:19)
-04. Sigh (4:50)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA960B7B5D879631E90A0758843115B75C1F1F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1524562   (743634) от 16.01.2022
+
+The J.B.'s - Groove Machine (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Groove Machine (9:04)
+02. Georgia Peach Disco (10:19)
+03. Just Wanna Make You Dance (8:08)
+04. Rock Disco #1 (7:26)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E45C42181132DBE772B7C058EE7FF31C604A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783507   (743688) от 05.05.2014
+
+VA - Pure... Acoustic (2014) Box Set, 4 CD [FLAC|Lossless]<Acoustic, Pop, Rock,  Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sony Music в последнем выпуске из серии  Pure... собрала акустические версии 67 радио-хитов (главным образом), отобранных за несколько десятилетий и разнообразных по стилю. Здесь вы услышите необычные (в привычном смысле) по звучанию версии софт-роковых композиций  "Longer"CD1:
+01. Tom Odell - Long Way Down  (2:31)
+02. Walk Of The Earth - Somebody That I Used To Know  (4:10)
+03. The Shins - Simple Song (Acoustic)  (4:00)(   Читать дальше...   )Жанр: Acoustic, Pop, Rock,  FolkПродолжительность: 04:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A30A1AC3DBC6F001DE92854D0142CE3AE1B72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020952   (743698) от 27.05.2016
+
+Tantra - The Collection (2013) 2CD [MP3|320 кб/с] <Electronic, Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянская группа Tantra - проект композитора, аранжировщика и продюсера Celso Valli,  являющимся одним из пионеров итальянской диско-сцены и известным по работе с Macho, Azoto и Passengers. Композиция Hills Of Katmandu была ремикширована Patrick Cowley и является классикой space-disco.01. Hills Of Katmandu   (16:22)
+02. Wishbone   (15:43)
+03. Su-Ke-Leu   (2:33)
+04. Mother Africa   (4:39)(   Читать дальше...   )Жанр: Electronic, Disco, Euro-DiscoПродолжительность: 02:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70ADB6D75278AE3704092C79F701AA629BE35FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020928   (743708) от 27.05.2016
+
+Kristian Leontiou - Some Day Soon (2004) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743708.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Story Of My Life 3:48
+2 Shining 4:00
+3 The Years Move On 3:54
+4 Love Is All I Need 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9279F6EBAD8777847DC8AD1B913249BD4C632510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282763   (743737) от 13.02.2019
+
+VA - Sanremo 2019: 69° Festival Della Canzone Italiana [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+1. Loredana Bertè – Cosa Ti Aspetti Da Me (04:44)
+2. Ultimo – I Tuoi Particolari
+3. Patty Pravo & Briga – Un Pò Come Nella Vita (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7519C599B532E53EB0F4A616F566079B5F26A187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524463   (743763) от 16.01.2022
+
+Amy Holland - 2 Albums (1980, 1983) Reissue CD [MP3|320 Kbps] <Soft Rock, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эми Холланд (Amy Celeste Boersma, US) была удостоена номинации на премию "ГРЭММИ" за лучшую новую исполнительницу после своего дебютного одноименного альбома. Сингл ''How Do I Survive'' взлетел в топ-20 чартов Billboard и вывел Эми на первое место.01. How Do I Survive (4:03)
+02. Strengthen My Love (4:01)
+03. Here In The Light (4:01)
+04. Stars (4:28)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, DiscoПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D6A235B9792F02E47AF7C06ADAF1641619C25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 665484   (744215) от 06.06.2013
 
 Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
@@ -568,180 +742,6 @@ Madleen Kane - 5 Albums (1978-1994) [MP3|320 кб/с] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02A407802357E1D3EC06C93F621C8395638A94D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020028   (746722) от 25.05.2016
-
-Ken Wilbard - You're Burning (1977) [MP3|320 кб/с] <Диско>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Is Going To Be Allright - 02:41
-02. Ma Cherie, Mon Amour - 02:50
-03. Don't Cry, My Baby - 02:41
-04. Do It - 03:09(   Читать дальше...   )Жанр: ДискоПродолжительность: 00:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A70556AC6E27922155DE875A062120D3085B9FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020106   (746733) от 25.05.2016
-
-Disco Dream And The Androids - The Androids (1979) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Machine   (8:32)
-02. Is This A Dream (Or Is It Real)   (8:08)
-03. Love Dance   (3:55)
-04. Connection Disconnection   (4:17)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7969CA4C85BCB224431FB543F9A64AF08172A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216753   (747708) от 01.04.2018
-
-Сергей Лазарев (Sergey Lazarev) - The One (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Put Out The Fire
-02. Eat You Up
-03. Going Under
-04. Deep Blue(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB20EE5B4964EE74944C03CB0D70CA820960350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216721   (747722) от 01.04.2018
-
-VA - 80s Back To School (2018) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Wham - Young Guns (Go For It) 03:40
-02 Cyndi Lauper - Girls Just Want To Have Fun 03:56
-03 Kc And The Sunshine Band - Give It Up 04:06
-04 Men At Work - Down Under 03:43(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 03:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2C60D2025EF21F2455C2F1F9904575036851A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216659   (747847) от 01.04.2018
-
-US Global DJ's - Back In The USSR (2008) Compilation [MP3|320 Kbps] <Pop, Electro-Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:20)
-02. Не забывай (US Global Deejays Electro House Mix) (5:38)
-03. Здравствуй и прощай (US Global Deejays Electro House Mix) (4:38)
-04. Я выбираю тебя (Remix) (6:35)(   Читать дальше...   )Жанр: Pop, Electro-PopПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CDE78FEE44D28B3D7BD597DC3036BCB3A1F742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523943   (748092) от 13.01.2022
-
-VA - ZYX Italo Disco New Generation Vol. 19 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Den Harrow - Always (Flemming Dalum Remix) (4:28)
-02. Fred Ventura & DJ TinTin - Come On (Flemming Dalum Remix) (7:02)
-03. Tom Hooker & Tam Harrow - Love Me Tonight (Extended Version) (5:03)
-04. Flexx - Break You Down (Vocal Version) (5:23)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC8869528969B152E16D92736D12034555CF991
 ```
 
 https://mybot314.ru/tekegram_catalog/

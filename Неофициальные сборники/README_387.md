@@ -1,3 +1,67 @@
+###  Публикация: 1143322   (637479) от 17.06.2017
+
+VA - Empire Records - Trance Disco (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Solarstone & Meredith Call - I Found You (Giuseppe Ottaviani Remix)  6:51
+02.  Denis Kenzo & Hanna Finsen - Dancing In The Dark (Extended Mix)  6:00
+03.  Andy Tau & Sean Mathews - Shadows And Light (Andy Tau Extended Remix)  6:49
+04.  J.A.Y.H. - Morning Star  6:44(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12D43F4E52B8147770265ADD8CC718592CE55A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519190   (637499) от 06.07.2012
+
+VA - Молодежный летний муз-прорыв (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ирина Дубцова - Ешь, Молись, Люби (4:07)
+2. Wow - Fi - Summer Of Love (Dance & Kiss) (Wow Radio Version) (4:19)
+3. Татьяна Котова - Вампирица (3:12)
+4. Шима - Океан (3:15)
+5. Мика Ньютон и Алексей Чадов - Свобода (3:39)
+6. Женя Вилль - 6 Часов (4:17)
+7. Ранетки - Слезы (2:59)
+8. Дима Билан - Слепая Любовь (Remix) (3:40)
+9. Размер Project - Love And Live (3:06)
+10. Soda feat. DJ Niki - Я Это Ты (Cover Radio Remix) (3:39)Жанр: PopПродолжительность: 05:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143FA6D9FAB1D2A2DCF8C2D4F06EED8D9E8D1D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519353   (637501) от 06.07.2012
 
 VA - Sexy Trance #41 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
@@ -700,64 +764,6 @@ VA - Super Хиты Зарубежного Рока (2018) [MP3|256-320 Kbps] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FFA132541355ECF6716CFA0619C1EE9CB6E41FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143006   (638916) от 16.06.2017
-
-VA - Глянцевые Звёзды: Русский Попсовый Сборник (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638916.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Quest Pistols Show - Любимка  3:15
-002.  Юлия Савичева - Малыш  3:10
-003.  Анастасия Ковалева - Белый Песок  3:25
-004.  Юлия Паршута - Навсегда (Astero Remix)  2:43(   Читать дальше...   )Жанр: PopПродолжительность: 08:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81E3FBADB2818A56B7D377B57916DBC89BDC63E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293084   (638919) от 02.04.2019
-
-VA - Самые Скачиваемые Треки ВКонтакте Весна (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638919.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #2Маши - Мама, я танцую (4:12)
-002. Aaron Smith feat. Luvli - Dancin (Krono Extended Remix) (3:36)
-003. Alan Walker, Sabrina Carpenter, Farruko - On My Way (3:13)
-004. ALEKSEEV - НЕ МЕД (3:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A9B4E932A9BE7DA2D833F852479B530D51C1FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

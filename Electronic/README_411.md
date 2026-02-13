@@ -1,3 +1,32 @@
+###  Публикация: 1275495   (790475) от 11.01.2019
+
+Marnie - Strange Words and Weird Wars (2017) [MP3|320 Kbps] <Electronic, Synthpop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alphabet Block (4:23)
+02. Bloom (2:58)
+03. G.I.R.L.S (3:58)
+04. Electric Youth (3:25)(   Читать дальше...   )Жанр: Electronic, Synthpop, ElectroПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B94A2C7EBAF7ADC19EF62B389B5F080DADA676F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275375   (790478) от 11.01.2019
 
 VA - Sunset Meditation - Relaxing Chill Out Music, Vol. 7 (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax, Lounge>
@@ -715,35 +744,6 @@ VA - Hed Kandi:Back To Love (1999) [FLAC|Lossless|tracks] <House, Garage House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9B73CDB5FB9223CDB2C0BA98A908685C1ECEDED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201975   (791054) от 27.01.2018
-
-VA - Ferry Corsten presents Corsten's Countdown January (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ferry Corsten  -  Lonely Inside (Extended Ferry Fix)  5:56
-02.  Alpha 9  -  You And I (Extended Mix)  5:38
-03.  BT & Jes  -  Every Other Way (PureNRG Extended Remix)  7:32
-04.  Gabriel & Dresden  -  Sequoia (Original Mix)  7:24(   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD86425616CF7F24FC72DEAFE38D442562692392
 ```
 
 https://mybot314.ru/tekegram_catalog/

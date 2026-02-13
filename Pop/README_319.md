@@ -1,3 +1,177 @@
+###  Публикация: 1491529   (898842) от 01.09.2021
+
+MFSB - Philadelphia Freedom & Summertime   (2010)  2CD [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Picnic In The Park (04:16)
+02. Summertime (04:54)
+03. Plenty Good Lovin' (04:35)
+04. Sunnin' And Funnin' (04:17)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A7F2A87D5E024066ED8930D8B236BE35178EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992715   (898844) от 03.03.2016
+
+Валерий Меладзе - Мой Брат VII (Синглы 2010-2015) (2015) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Обернитесь (feat. Григорий Лепс)
+02. Небеса
+03. Побудь со мной
+04. Потерян и не найден(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECAFFC9F3C32AA39D03F8B3FD6777C4A4305813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992701   (898862) от 03.03.2016
+
+Ottawan - All Gold Of The World (2004) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.I.S.C.O. (English Maxi Version) (5:01)
+02. You're O.K. (5:15)
+03. Hands Up (Give Me Your Heart) (4:52)
+04. Crazy Music (5:31)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461CB344D8E5B82F955C544A119DE01F85D6BC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992718   (899056) от 03.03.2016
+
+Валерий Меладзе - Мой Брат VII (Синглы 2010-2015) (2015) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Обернитесь (feat. Григорий Лепс)
+02. Небеса
+03. Побудь со мной
+04. Потерян и не найден(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B91C861430142686A4F1ADD29B4ABADA73A250B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100353   (899349) от 04.02.2017
+
+Icehouse - The Best Of (2013) Compilation [FLAC|Lossless|tracks + .cue] <Synth-pop, 80's>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Help Myself (Single Version) (3:12)
+ 02. We Can Get Together (3:48)
+ 03. Hey Little Girl (Single Mix) (3:40)
+ 04. Love In Motion (Original Single Mix) (3:42)(   Читать дальше...   )Жанр: Synth-pop, 80'sПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745454D5F6BA8ECE711758F5096BEEA0B8CBF273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100729   (899370) от 04.02.2017
+
+VA - Let's Go Into Space (2012-2015) 4LP [MP3|320 Kbps] <Electronic, Cosmic Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный комплект официального издания сборников космического диско 70-80х годов от германской студии Private Records, выпущенных недавно на виниле.Список альбомов:
+2012 - Let's Go Into Space I
+2013 - Let's Go Into Space II
+2014 - Let's Go Into Space III(   Читать дальше...   )Жанр: Electronic, Cosmic DiscoПродолжительность: 02:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BB6DE268894B36BAF96A0B2FA30EC21EDAB6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100575   (899537) от 04.02.2017
 
 VA - Hardstyle Top 200 The Giga - Hardstyle Megamix Collection Vol. 10 (2017) 4CD [FLAC|Lossless|tracks] <Pop>
@@ -568,180 +742,6 @@ Mylene Farmer - Plus grandir: Best Of 1986-1996 (2021) 2CD [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B23CED892C4ED9D54622C2104FF8A0B94F4B6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369144   (905640) от 22.03.2020
-
-Турбомода - Затурбись! (2001) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Позови (4;15)
-02. Турболюбовь (ла-ла-ла) (4:32)
-03. Ты забудешь меня (4:16)
-04. Чонкин (3:37)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58AE2352B3D0D2F245258B10657ABCF0BCCC363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369048   (905642) от 22.03.2020
-
-Илья Снегов - Судьба (1996) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вспомни
-02. Поговорим о любви
-03. Судьба
-04. Устало сердце(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3A93A1B9850D7584A0A9F7DEBC11009979ED04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369162   (905645) от 22.03.2020
-
-Турбомода - Улицы Центральные (2004) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Улицы центральные (4:24)
-02. Не целуй её (4:05)
-03. Дождь (4:11)
-04. Не плачь (3:59)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F22C5E29D8A823E30DAEB93B3E25CFBD09F137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369164   (905650) от 22.03.2020
-
-!Бум! - Опять Идет Дождь (2004) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Море (4:04)
-02. Роза (4:08)
-03. Опять идёт дождь (3:49)
-04. Жди (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A8A0B5D0494A6A848186FC50BDF34F1DD6B24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369155   (905652) от 22.03.2020
-
-Турбомода - Виноват Не Я (2002) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Виновата школа (3:52)
-02. Армейская (4:24)
-03. Белое платье (3:43)
-04. На память о тебе (3:46)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536606E70749E1E375A07ED3CF90BF798E8861D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369167   (905654) от 22.03.2020
-
-!Бум! - Kanikuly (2007) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kanikuly 2007 (Каникулы 2007) (3:42)
-02. Starsheklassnitca (Старшеклассница) (3:58)
-03. Poezd (Поезд) (3:53)
-04. Ne uletai (Не улетай) (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49F0D532EC7CC4200AB4F277F6E4726561D286E
 ```
 
 https://mybot314.ru/tekegram_catalog/

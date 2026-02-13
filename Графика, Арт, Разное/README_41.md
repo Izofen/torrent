@@ -1,3 +1,29 @@
+###  Публикация: 585320   (305351) от 05.12.2012
+
+Демотиваторы '220V' (04.12.12)
+
+>>Графика, Арт, Разное
+>>Интернет-творчество
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демотиваторы '220V'
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3043B264FA223397008BD3B907746826FDCB798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261336   (305452) от 10.11.2018
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (185) [JPG]
@@ -121,6 +147,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9962918120AFD8D5A369A4FAF3854294F346762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584553   (305483) от 05.12.2012
+
+Компьютерная графика - Artworks by Digital Artists (02.12.12)
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_305483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компьютерная графика - Artworks by Digital Artists (02.12.12)
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48DC1B8AE069C5AB17E2B28B3562862F95902435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261103   (307459) от 09.11.2018
-
-Обои - Desktop Wallpapers Full HD. Part (324) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887BC70811261E761F8ABCC79A13BCBFEB6525A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260852   (307592) от 09.11.2018
-
-Обои - Desktop Wallpapers Full HD. Part (309) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5151EE940160986EBF0B8141860A4B20B2B620
 ```
 
 https://mybot314.ru/tekegram_catalog/

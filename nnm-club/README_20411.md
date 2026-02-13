@@ -1,22 +1,25 @@
-###  Публикация: 1389149   (784759) от 09.06.2020
+###  Публикация: 1206321   (782552) от 13.02.2018
 
-Картинки - Artist Joseph Christian Leyendecker [JPG]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Женщины. Могул. Финал (11.02.2018) IPTV [H.264/1080p-LQ]
 
->>Графика, Арт, Разное
->>Картинки
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784759.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джозеф Кристиан Лейендекер (Дж. К. или Джо) родился в Германии, (23 марта 1874 года - 25 июля 1951 года) был немецко-американским иллюстратором. Он считается одним из выдающихся американских иллюстраторов начала 20-го века. Он наиболее известен своими плакатами, книжными и рекламными иллюстрациями, рекламными персонажами,  такими как «The Arrow Collar Man», и своими (   Читать дальше...   )Формат: JPGРазрешение файлов: 1190x2938-8030x12080
+11 февраля 2018 года, воскресенье. 15:00 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Фристайл. Женщины.
+Могул. Финал(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE89EFC53E7357CF8FD2FB3670DF359AE57506FB
+magnet:?xt=urn:btih:E483CB1C5D5659A00B77353ABBEE5072D0124717
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389145   (784760) от 09.06.2020
+###  Публикация: 1206160   (782553) от 13.02.2018
 
-Norah Jones - Pick Me Up Off Floor (2020) [MP3|320 Kbps] <Jazz>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Мужчины. Скиатлон 30 км (11.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Jazz, Blues, Soul
->>Jazz
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784760.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. How I Weep (04:42)
- 02. Flame Twin (03:21)
- 03. Hurts To Be Alone (03:26)
- 04. Heartbroken, Day After (04:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:29
+11 февраля 2018 года, воскресенье. 09:15 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Лыжные гонки.
+Мужчины. Скиатлон 30 км (15 км. Классический стиль + 15 км. Свободный стиль)(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:30:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA2D3F8F12D684258311497CB68F2F7B795ED221
+magnet:?xt=urn:btih:50C2829E6ABF40F830A45AD9E4F1A04B8A0EA118
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,240 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389083   (784761) от 09.06.2020
+###  Публикация: 1206207   (782554) от 13.02.2018
 
-Роберт Виппер | Римская цивилизация. [Часть 1] (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784761.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Едва ли найдётся человек, настолько легкомысленный и равнодушный к окружающей жизни, который бы не заинтересовался вопросом о том, какими средствами, какими приёмами политики римляне в промежуток менее 53 лет победили почти все страны населённого мира и подчинили их своей единой власти, – факт в истории беспримерный», – отмечал древнегреческий историк Полибий и (   Читать дальше...   )Жанр: ИсторияПродолжительность: 11:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B048D70793ACCB47C4A9D3F3F78F913E6CC19B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389101   (784762) от 09.06.2020
-
-VA - The Other Side Of Pink - A Tribute To Pink Floyd (1999) [MP3|320 Kbps] <Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychic TV - Set Controls For The Heart Of The Sun
-02. Controlled Bleeding - Another Brick In The Wall Part 2
-03. Spahn Ranch - One Of These Days
-04. Sky Cries Mary - Wots… Uh The Deal(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389112   (784763) от 09.06.2020
-
-Chimeras 10: The Price of Greed / Химеры 10: Расплата за алчность (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в особняке богатой семьи Кэррингтонов бесследно исчезает дворецкий, полиция лишь разводит руками. Но после того, как вслед за ним пропадает сам глава семьи, Эдгар Кэррингтон, его сын Гордон обращается за помощью к опытному детективу. Прибыв в особняк, наша героиня понимает, что единственный наследник состояния Эдгара беспокоится не напрасно, ведь здесь действительно (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91267D38088E0FE90DC201E677E6A2FE6EB1A3BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388973   (784764) от 09.06.2020
-
-Джорнимен / Journeyman (2017) HDRip [H.264] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боксер Мэтти Бёртон получает серьезную травму во время решающего боя. Сражение приносит ему славу и титул лучшего бойца, но травма сильно влияет на его семейную жизнь. Теперь его брак и семейное благополучие висят на волоске, и Мэтту необходимо преодолеть себя, чтобы справиться с этим положением.
-(Джорнимен — опытный профессионал, всегда готовый принять вызов более (   Читать дальше...   )Производство: Великобритания / Film4, inflammable FIlmsЖанр: Драма, СпортРежиссер: Пэдди КонсидайнАктеры: Пэдди Консидайн, Джоди Уиттакер, Пол Попплуэлл, Brendan Ingle, Тони Питтс, Matt Insley, Lexie Duffy, Lainie Duffy, Энтони Уэльс, Francis WarrenПеревод: Одноголосый любительский - Антон КудрявцевСубтитры: Русские, АнглийскиеПродолжительность: 01:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD1981D1EF12DB067D588DDF168C60E57767178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389209   (784765) от 09.06.2020
-
-Маленькая помощь / A Little Help (2010) HDRip [H.264] [AVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784765.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Маленькая помощь» — история нескольких месяцев из жизни гигиениста-стоматолога Лоры. Пытаясь совладать с резкими переменами в своей жизни и жизни своего сына, она невольно становится на путь обмана.Производство: США | Secret Handshake EntertainmentЖанр: драма, комедияРежиссер: Майкл Дж. ВейторнАктеры: Дэниэл Ельский, Дженна Фишер, Джей Клэйц, Брук Смит, Крис О’Доннелл, Роберт Бенедикт, Зэк Пейдж, Рон Лайбмен, Лесли Энн Уоррен, Сара Кэпнер, Джеймс Ребхорн, Мишель Хёрст, Мэтт Оберг, Брэндон Перлер, Майлз УильямсПеревод: Авторский (Михаил Чадов по переводу doc_ravik)Субтитры: Русские (doc_ravik), английскиеПродолжительность: 01:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58CE94BBBC3990AF647960A01D57FAB1602440C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389057   (784766) от 09.06.2020
-
-Робин ван ден Аккер | Метамодернизм. Историчность, Аффект и Глубина после постмодернизма (2020) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге, ставшей одним из самых заметных явлений в философии XXI века, дается радикальное описание ключевых явлений в сфере культуры и искусства. Они связаны со всеобщим ощущением "поворота Истории", определяющим современную культурную продукцию и политический дискурс. Данная книга объединяет голоса влиятельных философов современности в дебатах о гранях (   Читать дальше...   )Жанр: ФилософияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE67496141DE560C3040D305B1A468307332A0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389191   (784767) от 09.06.2020
-
-Неужто я больше не главная героиня? / Hiroin shikkaku / Heroine Disqualified (2015) BDRemux [H.264/1080p] [DVO]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация манги Коды Момоко Heroine Shikkaku. На её месте могла оказаться любая! Представьте, что вы стали главной героиней любовной истории... Хатори верила, что однажды выйдет замуж за своего друга детства Риту. К сожалению, мир устроен совсем не так. Перед вами умопомрачительная история, которая расскажет о непростой любви молодой девушки.... (STEPonee)Производство: ЯпонияЖанр: Мелодрама, комедияРежиссер: Цутому ХанабусаАктеры: Мирэи Киритани, Кэнто Ямадзаки, Кэнтаро Сакагути, Това Араки, Аяно Фукуда, Мари Хамада, Акира Накао, Сэйдзи Роккаку, Маридзюн Такахаси, Рики ТакэутиПеревод: Двухголосый любительскийСубтитры: Русские (ФСГ Cardinals), английские (FURRITSUBS), японские, китайскиеПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389215   (784768) от 09.06.2020
-
-Леонардо да Винчи. Неизведанные миры / Io, Leonardo (2019) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие в сознание Леонардо да Винчи, легенды мировой культуры, одного из самых удивительных гениев, каких знает история человечества, создателя «главной в мире картины» — «Моны Лизы». С помощью самых современных технологий в фильме воссоздаются великие произведения мастера.Производство: Италия / Progetto Immagine, Sky Arte HD, Comune di FirenzeЖанр: БиографияРежиссер: Хесус Гарсес ЛамбертАктеры: Лука Арджентеро, Анджела Фонтана, Массимо Де Лоренцо, Matt DeLuise, Франческо ПаннофиноПеревод: Профессиональный (многоголосый закадровый) (iTunes)Субтитры: Русские форсированныеПродолжительность: 01:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF5F93013C7997776F62E987CB7C7F9191A45C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389044   (784769) от 09.06.2020
-
-VA - Vintage Reggae Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy-listening, Lounge, Reggae>
+VA - Private Chilling Carnival (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784769.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jamaican Reggae Cuts feat. Pinky Dread - Say My Name (2:41)
-02. The Reggister's - Friends (4:05)
-03. Conkarah feat. Rosie Delmah - Hello (3:58)
-04. Trippynova - Come (3:16)(   Читать дальше...   )Жанр: Easy-listening, Lounge, ReggaeПродолжительность: 03:01:06
+01.  Pique Dame  -  Kips Bay (Original Mix)  5:47
+02.  Ripley & Jenson  -  A Few Minutes Now (Original Mix)  3:33
+03.  Performative Mode  -  In Secret (Original Mix)  5:49
+04.  Milaskan  -  Use To Be (Original Mix)  2:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0F88AF7EB8311B01B6FC9C10D8C533906EED932
+magnet:?xt=urn:btih:A24E97D5D7B04A8A5C39EBC94DAE31628983A788
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,25 +85,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389157   (784770) от 09.06.2020
+###  Публикация: 1206453   (782555) от 13.02.2018
 
-Юлия Осина | Абсолютно женское чтиво. Стилизм (2019) [EPUB]
+Векторный клипарт - Vector Happy Valentines Day #18 [AI]
 
->>Разное (категория книг)
->>
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784770.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Статьи о моде и стиле из популярного журнала «Абсолютно женское чтиво» под одной обложкой. Это и лонгриды о теории вещей, и эссе о fashion, и короткие емкие ответы на самые разнообразные вопросы вокруг построения личного стиля.Жанр: Мода и стильФормат: EPUB
+Векторный клипарт для дизайна.
+С Днем Святого Валентина
+25 AI + jpg PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4661430F8B4982B3A5FC2567A754A9ABABE317A5
+magnet:?xt=urn:btih:339E72D9DD705587B6BC67D77643C3EF733E4230
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,26 +113,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389084   (784771) от 09.06.2020
+###  Публикация: 1206220   (782556) от 13.02.2018
 
-Анна Гурова | Мой друг бессмертный (2020) [MP3]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Женщины. Могул. 1-я Квалификация (09.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>
->>
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784771.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ее зовут Вероника. Она трудный подросток из неблагополучной семьи. Но однажды обрывок случайно услышанной мелодии открывает ей путь в ее настоящую судьбу, в мир Мертвого бога…
-Его зовут Лешка. Его сбила машина, И это был не несчастный случай, а жертвоприношение. А тот, кто его спас, не просто вернул Лешку к жизни, а выкупил у служителей неведомого божества. Выкупил (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 17:23:53
+09 февраля 2018 года, пятница. 04:00 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Фристайл. Женщины.
+Могул. 1-я Квалификация(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:55:47
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CBE4FA8E3C401E86853221643E18EEEE2594E21E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,138 +142,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388516   (784772) от 09.06.2020
+###  Публикация: 1206248   (782557) от 13.02.2018
 
-VA - Music News vol.16 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784772.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abee - Way Back (03:13)
- 002. Aexcit feat. Hilla - High (Aexcit vs. Mande Remix) (02:28)
- 003. Armin Van Buuren & Brennan Heart feat. Andreas Moe - All On Me (MOTi Remix) (03:06)
- 004. Arno Cost & Norman Doray - One Night (02:59)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F991A6C18B347130D6038C8EDD6FA9C94FECE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388768   (784773) от 09.06.2020
-
-VA - Pop Dance Hits (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Eyed Peas - I Gotta Feeling (Edit)
-02. Machine Gun Kelly, Camila Cabello - Bad Things
-03. Darius & Finlay - Clothes Off (Nanana)
-04. Kiesza - Hideaway(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 0 2:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FAC5B9BEC9F79A44CD84D588679CA5E36DE78E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389171   (784774) от 09.06.2020
-
-Дик Фрэнсис | Сид Холли. Игра без козырей (2020) [MP3, Валерий Стельмащук]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив тяжелую травму, жокей Сид Холли вынужден оставить скачки и взяться за работу частного детектива в агентстве Ханта Рэднора. Выполняя просьбу тестя, он начинает опасное расследование несчастных случаев и финансовых махинаций вокруг ипподрома Сибери.Жанр: ДетективПродолжительность: 10:05:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389142   (784775) от 09.06.2020
-
-Томас Харди | Взор синих глаз (2019) [EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Эльфрида может очаровать любого взором своих синих глаз. В ее жизни появляются двое – молодой архитектор и умудренный опытом литератор. Бывшие друзья становятся соперниками, а девушке предстоит сделать мучительный выбор.Жанр: Зарубежная классикаПеревод: Дарья ЧенскаяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF707CC4E31D219C3CDD1A36C07B44143C6C4A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389052   (784776) от 09.06.2020
-
-Daniel Deluxe - Exile (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
+VA - Melodic Beats Vol.1 (2018) [MP3|320 Kbps] <House, Progressive House. Deep House>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784776.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sojourn (3:26)
- 02. Through the Sewers (2:38)
- 03. The Return (3:34)
- 04. Respawn (2:47)(   Читать дальше...   )Жанр: Electronic, Synthwave, DarkwaveПродолжительность: 00:42:00
+01.  Stan Kolev  -  Unravel Me (Rick Pier O'Neil Remix)  7:11
+02.  Ramon Bedoya  -  El Poema (Original Mix)  7:15
+03.  Anis Hachemi  -  Taurus (Original Mix)  8:55
+04.  Dani Llamas & Chris Main  -  Maresman (Original Mix)  7:07(   Читать дальше...   )Жанр: House, Progressive House. Deep HouseПродолжительность: 03:02:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71D3950A53E4BA3C488BD480CC02B78C8129959A
+magnet:?xt=urn:btih:B62B5608DAD069604B8BFED4C7F5D7716B91895A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +171,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389197   (784777) от 09.06.2020
+###  Публикация: 1206232   (782558) от 13.02.2018
 
-VA - O.V.N.I. Breakfast, Vol.1-3 (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Конькобежный спорт. 2-й День соревнований (11.02.2018) WEB-DL [H.264/720p-LQ]
 
->>
->>
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784777.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Pulsar - Artificial Mass (Bio-Logikal Remix) (7:00)
-2. Solitary Shell - Black Hole Energy (8:19)
-3. Duke & Gonzo - Dat Groove (7:14)
-4. Lunarave; Psylence Mind - A New Cycle (6:30)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:29:05
+11 февраля 2018 года, воскресенье. 10:00 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Конькобежный спорт. 2-й День соревнований:
+Мужчины. 5000 м(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:10:02
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:61FCDA3B65325AFE172654BCEA9F15CFE5CF81DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,25 +200,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389086   (784778) от 09.06.2020
+###  Публикация: 1206353   (782559) от 13.02.2018
 
-Ник Кварри | Смерть - моя тень [сборник] (2020) [MP3, Тамара Швец]
+VA - Sunrise Mood Vol.11 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784778.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ник Кворри занимает одно из ведущих мест в плеяде американских авторов, пишущих в жанре "крутого детектива". В его книгах присутствуют все атрибуты жанра: смертельные схватки мафиозных кланов, благородный герой - частный сыщик, агенты ФБР и ЦРУ. Сюжеты предлагаемых читателю романов держат в напряжении от первой до последней строчки.Жанр: ДетективПродолжительность: 17:01:54
+01.  Twentyeight  -  Hope (Original Mix)  8:45
+02.  Marc Hartman  -  Become The Sky (Original Mix)  4:44
+03.  The Diventa Project  -  The Sun Goes Down (Original Mix)  3:34
+04.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDAF04A7FF88DF7C4DEB46284E73FFFAC74B867E
+magnet:?xt=urn:btih:B70C643EB5EBFD5966B124F58B7E5FC3410845BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,28 +229,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388925   (784779) от 09.06.2020
+###  Публикация: 1206252   (782560) от 13.02.2018
 
-Palaye Royale - The Bastards (2020) [MP3|320 Kbps] <Alt.Rock>
+VA - Trance In Space 3 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784779.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Little Bastards (03:38)
- 02. Massacre The New American Dream (03:06)
- 03. Anxiety (03:15)
- 04. Tonight Is The Night I Die (02:52)(   Читать дальше...   )Жанр: Alt.RockПродолжительность: 00:46:10
+01.  Sun Liquide  -  Celebrate The Light (Rene Ablaze Radio Edit)  3:57
+02.  TrancEye  -  Skylight (Radio Edit)  3:21
+03.  Opt-In  -  Zura (Radio Cut)  4:00
+04.  Maximal  -  Subject Lost (Radio Cut)  3:20(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:29:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34C80B897C21777D6CBE2407DFD3EEF2D56B490D
+magnet:?xt=urn:btih:55B5EC6C21885EB8F791A354F2C11A4A6D47050E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,28 +258,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389006   (784780) от 09.06.2020
+###  Публикация: 1206121   (782561) от 13.02.2018
 
-VA - NOW Rock Air Guitar Anthems (2020) [MP3|320 Kbps] <Rock>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Биатлон. Мужчины. Спринт (11.02.2018) HDTV [H.264/1080i-LQ]
 
->>
->>
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784780.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aerosmith - Walk This Way (Live Version Edit)
-02. Peter Frampton - Show Me The Way (Live)
-03. Derek & The Dominos - Layla (40th Anniversary Version / 2010 Remastered)
-04. Cream - Crossroads (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:29:10
+11 февраля 2018 года, воскресенье. 14:15 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Биатлон. Мужчины. Спринт 10 км
+Арена: Центр биатлона "Альпензия" (Пхёнчхан, Южная Корея)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:19:27
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:091C678C9E12DE62771E33BC0F163561333F2734
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,28 +287,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389196   (784781) от 09.06.2020
+###  Публикация: 1206225   (782562) от 13.02.2018
 
-Альбинас Циплияускас - Заводная обезьяна (2008) [MP3|320 Kbps]<Детские песни и минусовки>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Мужчины. Могул. 1-я Квалификация (09.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Аудио для детей и родителей
->>Музыка и песни для детей
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784781.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01+/-11. Карусель мелодий;
-02+/-12. Большой секрет;
-03+/-13. Солнечные зайчики;
-04+/-14. Бумажный самолетик;(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:57:47
+09 февраля 2018 года, пятница. 05:45 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Фристайл. Женщины.
+Могул. 1-я Квалификация(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:51:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F3F50A55C3FEC2984195BDECEB9F3091480303D
+magnet:?xt=urn:btih:14FBAA9748D0272C732FC47A5C8E233D51AECA23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,28 +316,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389080   (784782) от 09.06.2020
+###  Публикация: 1206312   (782563) от 13.02.2018
 
-Gene Krupa - Five Classic Albums Plus 1952 - 1957 (2012) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Женщины. Могул. Финал (11.02.2018) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782563.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 февраля 2018 года, воскресенье. 15:00 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Фристайл. Женщины.
+Могул. Финал(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8F6F85CB8459BC01ADC5ABDA50363AA997A7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206281   (782564) от 13.02.2018
+
+VA - Chillhouse Factory (Discover Deephouse Rhythms) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Natural Soul  -  Get Ready (Phisicall Lover Mix)  3:34
+02.  K Tonique  -  Give At To Me (Ibiza Night Mix)  3:33
+03.  Vibe Lovers  -  Reason For Leaving (Cool Rhythms Mix)  3:35
+04.  Deep Kings  -  Retroguard (The Fashion Mix)  3:30(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 01:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85391F5BD47DB0623EA3AB08C7348D1306E1331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206218   (782565) от 13.02.2018
+
+Kathy Kosins - Uncovered Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784782.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Payin' Them Dues Blues [3:19]
-02. Swedish Schnapps [3:11]
-03. I'm Coming Virginia [4:39](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:33:07
+01. Don't Get Me Started 04:28
+02. Voodoo 04:23
+03. Uncovered Soul 03:54
+04. Ms. Martha 04:41(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:54:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2E5559175940873DF9A92667485D7E037E6C9AE
+magnet:?xt=urn:btih:8A592A13E399F036CB7E71836E2CE3613C17F9FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +403,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389190   (784783) от 09.06.2020
+###  Публикация: 1206447   (782566) от 13.02.2018
 
-Альбинас Циплияускас - Первое свидание (2010) [MP3|320 Kbps]<Детские песни и минусовки>
+Rukirek - Voices Of Unknown (2018) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
 
->>Аудио для детей и родителей
->>Музыка и песни для детей
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784783.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01+/-10. Прятки;
-02+/-11. Бабочка;
-03+/-12. Весёлый крокодил;
-04+/-13. Проводы весны;(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:01:10
+01. Muscarita
+02. Symbolon
+03. Irresistible Call
+04. Walking On Glass(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:40:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75107F6BD66B2EF5DD6CA5BE3F2B65DCF54ED84B
+magnet:?xt=urn:btih:42E401ED1606E83D50D5E03D88546546B207E7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,24 +432,302 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389087   (784784) от 09.06.2020
+###  Публикация: 1206460   (782567) от 13.02.2018
 
-Ryo Fukui - Ryo Fukui In New York (1999) Sapporo Jazz Create [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+M-tronic - Undiscovered Mysteries (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784784.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hot House [6:11]
-02. All the Things You Are [6:01]
-03. Red Carpet [7:12]
-04. Bouncing with Bud [4:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:30
+01. Take Off 06:45
+02. Orbit Arrival 08:14
+03. Sanctuary In Space 06:49
+04. Enigmatic Journey 09:07(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A83ACCEF8CCD512531E4D86607BD30BBDFAB09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206328   (782568) от 13.02.2018
+
+VA - Chilling Sounds Vol. 3 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex DJ Zeya - Hear Your Heartbeat (Out Of Smile Mix) 2:36
+02. Amok404 - City of Stars 7:03
+03. Andrew Riqueza - Living the Dream 4:31
+04. ArcticA - Last Kindom 6:39(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA58E0626A68E7F1E0F26D2A3EFB3C7F97101CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206308   (782569) от 13.02.2018
+
+VA - Nothing But Lounge (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Brass  -  Lounge Night  5:24
+02.  Jon Bax  -  Ruby Lips  2:30
+03.  Stephan Sin Roza  -  Sweet Hop  2:47
+04.  Simon Di & Olivier Portal  -  Over The Tracks  3:47(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08192ED6CDECEAA502A88AC7AE5ABDAD8670D959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206325   (782570) от 13.02.2018
+
+VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.5 (2018) [MP3|320 Kbps] <Psy-Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Khardiac - Get Into The Mood
+02 Alignments And Liquid Viking - Starchild
+03 Berg And Capital Monkey - Future (wilder remix)
+04 Psymon And Sixsense - Relative Path(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 03:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3C93E537EE1EFE60857A3E7FD87C113C6B55D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206302   (782571) от 13.02.2018
+
+Manuel Valera Trio - The Seasons (2017) Mavo Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening [05:11]
+02. In the Eye of the Beholder [06:39]
+03. Tres Palabras [05:59]
+04. Hopeful [06:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5EE1DC42419FFEBB16BEE4E5760E231DE6E788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206400   (782572) от 13.02.2018
+
+VA - Clinique Mixed XV (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alfonso Muchacho  -  Wasteland (Original Mix)  7:56
+02.  Kai Van Crash  -  Cold Tea (Teil Remix)  8:32
+03.  Kade B  -  Shemyaza (Original Mix)  7:05
+04.  JohnnyV  -  Ray Gun (Original Mix)  7:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05034D52769A43BF995E0EAA825EC7B6AAA0195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390304   (782573) от 16.06.2020
+
+7 часов на соблазнение / 7 ore per farti innamorare (2020) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Искусство соблазнения — это наука, и, научившись ее приемам, можно добиться расположения любой красотки всего за 7 часов. В этом твердо убеждена Валерия, чей курс по соблазнению пользуется огромной популярностью у одиноких мужчин. Однажды к ней записывается Джулио, который хочет вернуть расположение своей бывшей невесты. Валерия помогает ему разработать план действий. (   Читать дальше...   )Производство: Италия / Italian International Film, Vision Distribution, Ministero dei Beni e delle Attività Culturali e del Turismo (MiBACT)Жанр: КомедияРежиссер: Джампаоло МореллиАктеры: Джампаоло Морелли, Серена Росси, Диана Дель Буфало, Массимилиано Галло, Фабио Бальсамо, Синция Мирабелла, Антония ТруппоПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23913BCF5EE2F55CF8BCAF2706F7948862267B30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571040   (782574) от 16.06.2020
+
+Enigma - 43 CD (36 Releases + 7 Albums Japan Edition) (1990-2009) [FLAC/APE|Lossless|image + .cue, tracks + .cue, tracks] <New age>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_782574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enigma — музыкальный проект, созданный Мишелем Крету в 1990 году. Мишель является композитором и продюсером, его бывшая жена, певица Сандра Крету, часто исполняла вокальные партии в композициях «Энигмы» Содержание музыки проекта отличается от альбома к альбому, от сексуальности в «Principles of Lust», любви в «Gravity of Love» и невинности в «Return to Innocence». (   Читать дальше...   )Список альбомов:
+Aeoliah
+1990 - Enigma - MCMXC a.D.
+1993 - Enigma - The Cross Of Changes(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199306   (782575) от 16.06.2020
+
+Homeplanet (2005) [Ru/En] (1.0) License [Gold]
+
+>>След.
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Homeplanet Gold – это уникальная авторская версия игры "Homeplanet" и оригинальное дополнение "Homeplanet. Игра с огнем". Вы увидите эпизоды, не вошедшие в предыдущее издание, плюс множество изменений в уже знакомых миссиях. "Золотое" издание также порадует Вас переработанными моделями космической техники, новейшей системой радиоэлектронной (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolt GamesЖанр: Космический симулятор, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2324BD3CC3E9EDE4E6E6BDBB2252DFC540FB41DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375485   (782576) от 16.06.2020
+
+#CидЯдома (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серия 1-8 из 8)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в России Screenlife-ситком про жизнь на удаленке! В то время как весь мир поет песни с балконов и устраивает вечеринки по видеосвязи, владелец небольшой фирмы сети хозяйственных магазинов в Подольске Геннадии Борисович пытается выжить в условиях самоизоляции и переводит сотрудников на удаленку. Но деловые встречи в онлайне неизбежно скатываются к обсуждению (   Читать дальше...   )Производство: Россия / PREMIER StudiosЖанр: комедияРежиссер: Ольга ФренкельАктеры: Борис Дергачёв, Анна Котова, Олеся Железняк, Анна Михалкова, Юлия Александрова, Александр Робак, Гоша Куценко, Михаил Кремер и др.Продолжительность: ~00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A4AF002C656BF5FC02FD5AB4EAAE377B379344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390287   (782577) от 16.06.2020
+
+Эксперимент «За стеклом» / Funhouse (2019) WEB-DL [H.264/720p-LQ]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_782577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восемь интернет-знаменитостей участвуют в онлайн-шоу, где зрители решают их судьбу. Скоро становится понятно, что это не обычная игра, а изощренный эксперимент. Таинственный организатор предлагает все более изобретательные и зрелищные, но все более рискованные и опасные для участников испытания. Когда ты «за стеклом», и на тебя смотрит весь мир, как далеко ты зайдешь, (   Читать дальше...   )Производство: Швеция, Канада / Ti Bonny Productions, Sandcastle PicturesЖанр: УжасыРежиссер: Джейсон Уилльям ЛиАктеры: Вальтер Скарсгард, Гиги Сол Герреро, Хамиса Уилшер, Кристофер Джерард, Каролина Бенефилд, Аманда Хауэллс, Матиас Ретамаль, Джером Велински, Дейли Нельсон, Джефф КуперПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:41:55
 
 ## Скачать торент
 ```bash

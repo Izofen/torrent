@@ -1,3 +1,38 @@
+###  Публикация: 607096   (991214) от 28.01.2013
+
+Narada Artists - Grand Piano: Narada Anniversary Collection [2CD] (1997) [MP3|320 kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Mexican Memories (08:07)
+02. Long Way From Home (03:52)
+03. Courage Of The Wind (07:36)
+04. Blue Ridge Part 2 (04:27)
+05. Soliloquy (04:18)
+06. The Last Roundup (02:50)
+07. Aspen Summer (08:32)
+08. Sacred Dance (04:51)
+09. Stray (06:04)
+10. Spirit (05:31)(   Читать дальше...   )Жанр: New Age |Продолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8119F0FDD2C21D7E3CA77966AC43D46E56089F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 431175   (991480) от 05.01.2012
 
 Зеленый фургон (1983) [MP3|160-320 kbps]<Soundtrack>
@@ -828,38 +863,6 @@ Wang Wei - 2 albums (2011) [MP3|320 кб/с]<New age, Instrumental, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B7544CBB09609ACCED9E4A42F2BE7B147E84D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602115   (997585) от 13.01.2013
-
-Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Arrow Chamber 11 [00:08:16]
-02. Ancient Arrow Chamber 12 [00:08:13]
-03. Ancient Arrow Chamber 13 [00:10:32]
-04. Ancient Arrow Chamber 14 [00:04:27]
-05. Ancient Arrow Chamber 15 [00:06:38]
-06. Ancient Arrow Chamber 16 [00:06:53]
-07. Ancient Arrow Chamber 17 [00:07:27]Жанр: Native American,New AgeПродолжительность: 01:01:21 + 00:34:47 + 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED5D74692E07549DFCC0E97AF8851FF5C212F1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

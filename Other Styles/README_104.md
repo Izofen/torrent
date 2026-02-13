@@ -1,3 +1,38 @@
+###  Публикация: 519464   (637218) от 06.07.2012
+
+Людмила Гурченко - Песни военных лет (1984) [MP3|320 кб/с]<Военная песня>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Где же вы теперь, друзья-однополчане (1:35)
+ 2. Казак уходил на войну (0:59)
+ 3. Прощайте, скалистые горы (0:39)
+ 4. Заветный камень (0:58)
+ 5. Ой, туманы мои, растуманы (1:07)
+ 6. Дороги (1:04)
+ 7. Моя любимая (2:12)
+ 8. Кто сказал, что надо бросить песню на войне (0:43)
+ 9. В лесу прифронтовом (1:15)
+ 10. Вечер на рейде (1:02)(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BCDB6576A7FF78B17E9812FC98BFFFDA172F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907183   (637313) от 12.06.2015
 
 Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HBO Series) Season 5 (2015) [MP3|320 кб/с]<Soundtrack>
@@ -761,35 +796,6 @@ VA-African Tribal Music And Dances - African Tribal Music And Dances (2008) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:699C458FBCCC404DE8A7F6EF1DAF6A65739AC468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906894   (641624) от 10.06.2015
-
-Michael Giacchino - Мир Юрского периода / Jurassic World (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bury the Hatchling (01:56)
-02. The Family That Strays Together (01:00)
-03. Welcome to Jurassic World (02:08)
-04. As the Jurassic World Turns (05:30)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B752D0EBDC7F62614A0818AA3BB54C0559FC45
 ```
 
 https://mybot314.ru/tekegram_catalog/

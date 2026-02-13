@@ -1,3 +1,61 @@
+###  Публикация: 1224391   (665936) от 10.05.2018
+
+VA - Music for Car 7 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eisfabrik - Soon Enough (3:31)
+02. Kylie Minogue - Dancing (2:59)
+03. Antoine Elie - L'amas d'chair (3:19)
+04. Poppy - My Style (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 04:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2FC052AA45B35C17D7F4DBF6F68E5189766EA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224515   (666000) от 10.05.2018
+
+VA - Guitar Collection (Spring) (2018) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acoustic Alchemy - The Ebor Sound System  (05:23) 
+02. John Sutton Band - Helping Hand (E-Jam)  (06:42) 
+03. Gregg Rolie - Orient Express  (05:35) 
+04. Fred Chapellier & The Gents, Dale Blade - 3'45 Am  (04:38) (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C98D10B785175F205BFD5170A2C3B245E7E4E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224400   (666063) от 10.05.2018
 
 VA - Elite Session Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance>
@@ -678,64 +736,6 @@ VA - Smooth Jazz: Variations On A Melancholy Theme (2CD) (2022) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE9D870E8EEA9F206A398850A2335737A49B07CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137371   (667753) от 26.05.2017
-
-VA - Русская дискотека (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667753.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Митя Фомин - Нравишься 2:53
-002. Dj Smash - Космос 3:07
-003. Bageerov - Без Ума 3:38
-004. Родион Газманов - Фары 3:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C82718B8194560F906CB1C1F915D1EDA49D22D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137378   (667754) от 26.05.2017
-
-VA - 100-ка блатных душевных песен. Часть № 5 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667754.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олеся Атланова - Телефон 3:10
-002. Павел Павлецов - Крылья 4:20
-003. Игорь Добролевский - Сделай Мне Больно 3:11
-004. Никола Питерский - Запретка 3:08(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D75E621AAED2008243D4BF24A89A3B7E6E1155
 ```
 
 https://mybot314.ru/tekegram_catalog/

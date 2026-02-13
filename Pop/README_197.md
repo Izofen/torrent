@@ -1,3 +1,177 @@
+###  Публикация: 1237703   (550626) от 25.07.2018
+
+Rudy - Just Take My Body (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Room (7:03)
+02. Just Take My Body (6:49)
+03. Higher (4:48)
+04. Thank You Baby (7:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D825AFEE797752D97F592E6C8F8BB3DF516D5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046902   (550815) от 28.08.2016
+
+Dschinghis Khan - Best Of Dschinghis Khan (2012) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dschinghis Khan (03:04)
+02. Himalaya (04:17)
+03. Pistolero (04:18)
+04. Wir sitzen alle im selben Boot (04:00)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F76BCFC333FFBFDC91525301E3EEF45FD204000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046935   (550818) от 28.08.2016
+
+VA - Hit Explosion - Latin Workout (2016) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj-Chart - La Bomba 03:59
+02. Ivan Herb - Larga Vida En Vivo 03:07
+03. Masterbeat - Take On Me (Live Version) 03:25
+04. Cuba Club - Cuba (Sunset Crew Radio Edit) 03:07(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3922E33F17A4BA8BE77AB62A3D67B88A66BB2678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309424   (551068) от 19.06.2019
+
+VA - Smooth FM - Feel Good Favourites (2019) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Michael - Freedom! '90 (6:30)
+02. Lionel Richie - Dancing On The Ceiling (4:21)
+03. The Emotions - Best Of My Love (3:41)
+04. Donna Lewis - I Love You Always Forever (3:58)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C4D915524AE2CAAF293CBD9137C468B3393E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 692751   (551190) от 24.08.2013
+
+Иосиф Кобзон - Я люблю тебя, Жизнь (2012) [FLAC|Lossless]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как молоды мы были (4:59)
+02. А у нас во дворе (2:16)
+03. Идет девчонка (2:18)
+04. Мелодия (4:42)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4836D236209E22A44DFEF4D5708853E5B7689DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237552   (551473) от 24.07.2018
+
+VA - Star 80 New Generation Vol. 1 (2015) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mode One - I Wanna Feel You (5:21)
+02. Ryan Paris - Light In The Dark (5:56)
+03. Talking Eyes - In the Sun (6:33)
+04. Magic System DJ - Angels (6:30)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAA893A62D30BFBA4EBFCED7CD12C455DFB6D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237557   (551476) от 24.07.2018
 
 VA - New Italo Disco: Reloaded Hits & New Songs (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -577,180 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B433BAE65F58A0917C622B92EE5D13DE0C00BBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308838   (553499) от 16.06.2019
-
-Камоn!!! - Каблы, Камоn!!!  (2010) [FLAC|Lossless|tracks + .cue]<Euro-Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каблы, Камоn!!!
-02. Брюнетка
-03. Метросексуал
-04. Кибрлав(   Читать дальше...   )Жанр: Euro-Disco, ElectronicПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5BB7FFF9D0807A120B1FC9043CFCA0C81C9AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308841   (553518) от 16.06.2019
-
-VA - Radio Italia Summer Hits 2019 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553518.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Charlie Charles - Calipso 3:11
-02. Takagi & Ketra - Jambo 2:37
-03. Ultimo - Rondini Al Guinzaglio 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043913C0760D83B942E24AF267433074A7193B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308756   (553533) от 16.06.2019
-
-VA - Fun Radio le Son Dancefloor Summer 2019 (2019) 3CD [MP3|320 Kbps] <Electropop, Future House, Basssline, Tropical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553533.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Calvin Harris - Giant
-02. Armin van Buuren - Turn It Up(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D48E09D4A22131472B528E0059941D129AD62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308704   (553535) от 16.06.2019
-
-Uncle Louie - Uncle Louie's Here (1979) LP [MP3|320 Kbps] <Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full-Tilt Boogie (3:51)
-02. I Like Funky Music (4:07)
-03. Badd Motor Folk (4:05)
-04. We Came To Play (5:14)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8661F0CCA6C709DBFF8BF4B755EEAEE2B3D7A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308759   (553537) от 16.06.2019
-
-VA - 30 Spaß Party Hits (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553537.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Andy Bar - Ballermann - Mein Herz Schlägt Für Den Ballermann
-02. Willi Herren - Was Kann Uns Keiner Nehmen(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351EE2819F32DD072576A804F41D0E3453E24B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308749   (553538) от 16.06.2019
-
-World Family - World Family (1992) [FLAC|Lossless|image + .cue] <Pop, Cover, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voices that care (4:47)
-02. Für diese Welt (3:42)
-03. If we get together (3:28)
-04. Thank you for the love (4:40)(   Читать дальше...   )Жанр: Pop, Cover, GospelПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9AACDE5CEAD99A581880CDCE5F3EC0B2B91E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

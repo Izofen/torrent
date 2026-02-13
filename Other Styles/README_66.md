@@ -1,3 +1,32 @@
+###  Публикация: 1252330   (409313) от 05.10.2018
+
+Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Current
+02 Memories
+03 The Revolutions
+04 Optimistic Waves(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1EA071513857301A07846CE4E47F0645E91B6CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066560   (409527) от 27.10.2016
 
 Mike Higham & Matthew Margeson - Miss Peregrine’s Home For Peculiar Children / Дом странных детей Мисс Перегрин (2016) [MP3|320 Kbps] <Soundtracks, Score>
@@ -721,35 +750,6 @@ Trevor Jones - Around the World in 80 Days (2004) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:486716AA2464556FC41A5AA670A1BB7658305F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167424   (415092) от 21.09.2017
-
-James Newton Howard - Waterworld (1995) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Main Titles
-02 - Escaping the Smokers
-03 - The Atoll
-04 - Prodigal Child(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A2D539B9E79481B8AD6096A509F207D916CB00
 ```
 
 https://mybot314.ru/tekegram_catalog/

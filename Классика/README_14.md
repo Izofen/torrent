@@ -1,3 +1,32 @@
+###  Публикация: 959997   (309272) от 27.11.2015
+
+Чайковский - Гении классической музыки (2011) [MP3|320 кб/с]<Classical>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лебединое озеро: Вальс
+02. Щелкунчик: Вальс цветов
+03. Грустная песенка
+04. Лебединое озеро: Тема лебедя(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CA892AE9E016C9E7AE8034BB6DA81C5A97368F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583941   (309405) от 03.12.2012
 
 Татьяна Шмыга - 50 лет в оперетте (2004) [MP3|320 кб/с]<Оперетта>
@@ -726,32 +755,6 @@ Vanessa-Mae - Virtuoso Album (2000) [FLAC|Lossless|image + .cue] <Classical, Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C29A4EC5BC5A9E68F8F9D5ECD1D8D31C81443050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 263267   (322575) от 28.11.2010
-
-Wolfgang Amadeus Mozart - The Great Piano Concertos (4CD) (1994) [FLAC|Lossless]<Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 05:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A3459F38555649F1F575C74461D78DABEF10E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

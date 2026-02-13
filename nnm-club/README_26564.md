@@ -1,25 +1,25 @@
-###  Публикация: 1602432   (1046051) от 06.01.2023
+###  Публикация: 1607493   (1043941) от 27.01.2023
 
-Karin Krog - Oslo Calling (2008) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Vocal>
+Steve Vai - Vai/Gash (2023) [MP3|320 Kbps] <Hard Rock>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046051.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Misteree (Storaas-Krog) - 3:46
-02. Senor Blues (Silver) - 6:18
-03. Who Knows (Krog) - 4:40
-04. I Wish I Knew (Gordon-Warren) - 4:36(   Читать дальше...   )Жанр: Contemporary Jazz, VocalПродолжительность: 00:51:39
+01. In the Wind (03:49)
+02. Busted (03:05)
+03. Let's Jam (04:19)
+04. Woman Fever (02:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09927BF519A1D3D49B92BF10DEFF71E9A8A8D883
+magnet:?xt=urn:btih:7FD815B3F824C2B9552249DBAC2111D5EBF6186A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602547   (1046052) от 06.01.2023
+###  Публикация: 1607645   (1043942) от 27.01.2023
 
-Karin Krog & Steve Kuhn - Break Of Day (2014) Meantime Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+Steve Vai - Vai/Gash (2023) [FLAC 2.0|96/24|tracks|WEB-DL] <Hard rock, Heavy metal, Progressive metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046052.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm Old Fashioned [3:45]
-02. Break of Day in Molde [5:16]
-03. The Folks Who Live on the Hill [5:32]
-04. Scandia Skies [3:26](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:56:04
+01. In The Wind (3:50)
+02. Busted (3:05)
+03. Let's Jam (4:19)
+04. Woman Fever (2:27)(   Читать дальше...   )Жанр: Hard rock, Heavy metal, Progressive metalПродолжительность: 00:29:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C26C2501435FAD5C39417C6986D4F896840DB13A
+magnet:?xt=urn:btih:2CE33900B900A13D2B474CD9435C018372163AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,333 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602694   (1046053) от 06.01.2023
+###  Публикация: 1607590   (1043943) от 27.01.2023
 
-Skull - Drag Me to Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic, Symphonic Death Metal>
+Steps - Platinum Collection (2022) 2xCD [FLAC|Lossless|image + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Steps была сформирована в мае 1997 в Лондоне, Великобритания. Она была одним из самых популярных британских музыкальных поп коллективов. Это был коммерческий проект, в который после долгих кастингов и проб вошли Lee Latchford-Evans, Claire Richards, Lisa Scott-Lee, Faye Tozer и Ian Watkins. Именно в таком составе группа просуществовала до её окончательного (   Читать дальше...   )CD - 1:
+01. Scared Of The Dark (3:47)
+02. Deeper Shade Of Blue (3:41)
+03. One For Sorrow (4:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3B864AE328165524CBCABA028FADBC5129C506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607659   (1043944) от 27.01.2023
+
+Twiztid - Glyph (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Rap, Horrorcore Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keepin 1 (3:32)
+02. Stab (3:05)
+03. Fallin In <3 With Some1 Who Hates You (2:49)
+04. 360 (feat. Blaze Ya Dead Homie & ABK) (4:15)(   Читать дальше...   )Жанр: Hardcore Rap, Horrorcore Rap, Hip-HopПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13C483EDE6BAA39FA6BD65EDE1E9E44614DEB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607492   (1043945) от 27.01.2023
+
+VA - Extended Trance Vol. 1 (2023) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Forces - Party Started (Extended Version) [3:50]
+02. Vady Varsen - Choice (Extended Mix) [7:33]
+03. LSound Fantasy - Resistance (Extended Mix) [7:35]
+04. Mohamed Neptune - Vanity (Extended Mix) [5:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BCB2EB041DA301122F919C3081F10C7FC85AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583338   (1043946) от 27.01.2023
+
+Malstrem - 3 Albums (2021-2023) [MP3|320 Kbps] <Symphonic, Black,  Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Эпоха Лицемерия
+2022 - Голоса Преисподней
+2023 - КонцлагерьЖанр: Symphonic Metal, Black Metal, Melodic Death MetalПродолжительность: 3 CD, 03:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5A8A9E516D24C4FC2C7EE7B3CCE94876A90E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607748   (1043947) от 27.01.2023
+
+Жан-Поль Бельмондо: сила и талант / Jean-Paul Belmondo, la force et le talent (2017) HDTVRip [H.264] [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Икона новой волны, актер тысячи трюков, авантюрист, полицейский или головорез в кино, обольститель и эпикуреец в жизни, мощный театральный актер. Харизматичный Жан-Поль Бельмондо озарял своей улыбкой французское кино на протяжении 50 лет.Производство: Франция, TV5MONDE Europe HDЖанр: документальный, история, биография, кинематографРежиссер: Николя ЭнриПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Hiventy), английские, французские, немецкие, испанскиеПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE03290F469365E9B4AF8DDE6093054C3433E5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607622   (1043948) от 27.01.2023
+
+Trident — Blue Field, Finale Concert (2016) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй и последний живой концерт группы Trident, сформированной из сэйю, озвучивавших героев сериала Aoki Hagane no Arpeggio: Ars Nova. Исполняются песни с альбома Blue Field, посвящённого выходу второго полнометражного фильма Aoki Hagane no Arpeggio: Ars Nova - Cadenza. 
+01. アルペジオ
+02. 変わらない場所
+03. Expose(   Читать дальше...   )Производство: Япония | FlyingDog, Inc.Жанр: J-Pop, J-RockЯзык озвучки: ЯпонскийПродолжительность: 02:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7EAB4AEB6804CBC6AFF687888458822D52EA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607654   (1043949) от 27.01.2023
+
+Сергей Бакшеев | Петля (Книга 5). Неуловимые тени (2022) [MP3, Макс Войс]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043949.jpg" />
+</div>
+
+
+###  Подробнее
+
+К расследованию серии убийств чиновников подключают Петелину. Группой руководит главный специалист по маньякам Кулик. Его метод – вжиться в образ убийцы и предугадать его действия. В какой-то момент Петелина начинает подозревать, что маньяком может быть кто-то из своих. Петелину отстраняют, но она близка к разгадке и продолжает расследование самостоятельно. Теперь (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 07:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BCB956C77F019C2A58B8CAA915D361EE2FB918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607664   (1043950) от 27.01.2023
+
+Сергей Бакшеев | Петля (Книга 7). В живых не оставлять (2022) [MP3, Макс Войс]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скоропостижная смерть после употребления алкоголя не заслуживает внимания опытного следователя. Никаких оснований подозревать злой умысел нет. Но почему так взволнована подруга скончавшегося? Больше всего девушку пугают сломанные астры. Она ищет защиты у нового покровителя, и тот также умирает от сердечного приступа. И снова в его доме обнаруживают сломанные астры. (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 07:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04719EE4F2AE79146F52C3CB3F0AAE9A5A713A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607715   (1043951) от 27.01.2023
+
+Дедушкины конфетки / Les dragees du grand-pere (1908) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот ещё одна из моих любимых историй - как раньше так и сейчас (вообще шоковая история!) Дедушка познокомился с бабушкой, но напору не хватает... Прочитал в газете и купил по рекламе таблеточки, которые силу поднимают... а внук-дурак( да не, не дурак) таблеточку выпил. Ну и началось...Производство: Франция, Pathé FrèresЖанр: комедия, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Нет сведенийПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBFB4D2EAFAA80BF63A1D1DC5BC2B93F3080C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607546   (1043952) от 27.01.2023
+
+Mylene Farmer - L'Autre... (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agnus Dei
+02. Desenchantee
+03. L'autre
+04. Je t'aime melancolie(   Читать дальше...   )Жанр: Electronic, Pop, ChansonПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1546CF45AAD106B6EAE7A755032BFDCE6A085704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607651   (1043953) от 27.01.2023
+
+Казимеж Блахий  | Ночное следствие (2023) [MP3, Петр Шимук]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Остросюжетный детектив о загадочных происшествиях в старинном замке на севере Польши, о поисках королевской грамоты и сложном хитросплетении событии, клубок которых успешно распутывает опытный следователь.
+"- Добрый вечер! Я Марек Бакула, хранитель замка. Очень рад, что вы так быстро приехали. Метель сегодня просто невероятная. А с утра было семнадцать градусов… (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 05:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2F19C2B42DB27201B2AC652E7C0F3088622D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607575   (1043954) от 27.01.2023
+
+Dark Sarah - Attack of Orym (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046053.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drag Me to Hell 04:01
-02. Her Undead Embrace 03:05
-03. Unhallowed 01:13
-04. Altar of Enslavement 04:25(   Читать дальше...   )Жанр: Melodic, Symphonic Death MetalПродолжительность: 00:38:11
+01. Intro- Choose your weapons [00:01:13]
+02. Attack of Orym (feat. Mark Jansen of Epica) [00:05:28]
+03. Invincible (feat. Kasperi Heikkinen of Beast in Black) [00:04:02]
+04. B.U.R.N [00:05:09](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B168B6C73DAB77F736CC210BEE50940F2F429289
+magnet:?xt=urn:btih:8EDDDFAC20F0C355984914A9E9CF9FAFC3D3ECDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,57 +390,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602543   (1046054) от 06.01.2023
+###  Публикация: 1607672   (1043955) от 27.01.2023
 
-Stan Getz - West Coast Jazz (1955) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East Of The Sun (And West Of The Moon) [6:20]
-02. Four [7:35]
-03. Suddenly It's Spring [6:59]
-04. Night In Tunisia [6:11](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEE4A53FE0EE0C0592A256E72D435C7801E01ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602634   (1046055) от 06.01.2023
-
-Spider Mother Earth - Insights of Prophecy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+Лич - Чувства Рэдо (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046055.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Guardians (04:21)
-02 - Never Say Never (03:59)
-03 - Insights of Prophecy (04:19)
-04 - Tears (03:58)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:39:18
+01. Чувства Рэдо [00:02:42]
+02. Ворон [00:03:21]
+03. Вампирская (Acoustic Version) [00:02:46]
+04. Улыбка [00:03:12](   Читать дальше...   )Жанр: RockПродолжительность: 00:27:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98547834947341647561BC52C0A45FDCF8B54170
+magnet:?xt=urn:btih:653A359466159158DF9A86E6A1989DF4288FC7E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +419,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602469   (1046056) от 06.01.2023
+###  Публикация: 1607705   (1043956) от 27.01.2023
 
-Ryth - Deceptor Creator (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+Дайвинг с крокодилами / Diving with Crocodiles (2010) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В водах Африки безраздельно властвует один хищник — нильский крокодил. Одна из самых больших и смертоносных рептилий на Земле, она пользуется устрашающей репутацией и наводит ужас на тех, кто разделяет ее владения. Бесчисленные нападения, в ходе которых жертв безжалостно забирают с берегов рек или нападают на них в их каноэ, не оставляют сомнений в том, что нильский (   Читать дальше...   )Производство: США, ARTE, Earth TouchЖанр: документальный, природа, флора, фаунаРежиссер: Грэм ДуэйнПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB110E0D04F5BAC0271440315EA6C9C8757FDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607710   (1043957) от 27.01.2023
+
+Михаил Пришвин | Кладовая солнца (2023) [MP3, ЧеИзС]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ранней весной, брат с сестрой, Настя и Митраша, отправляются в лес за клюквой. На развилке они ссорятся и расходятся по разным тропинкам в болоте. Замечательная история о природе, людях и взаимоотношениях.Жанр: Классика, ПрозаПродолжительность: 01:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C927F014E70AE2492D3BC018732E049A3B4161F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607491   (1043958) от 27.01.2023
+
+Liv Sin - KaliYuga (2023) [MP3|320 Kbps] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046056.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Firmament (00:35)
-02 - Auto-Autonomous (05:23)
-03 - Self Destruct (05:20)
-04 - White Portrait (06:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:19
+01 - The Process [00:04:15]
+02 - Antihero [00:04:20]
+03 - King of Fools [00:04:30]
+04 - Forget My Name [00:03:59](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:927B822B061D0AF421A289B1F03E26A9B52FA03A
+magnet:?xt=urn:btih:CA576358C62B3578C37934A6E834072313E6A382
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +500,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602490   (1046057) от 06.01.2023
+###  Публикация: 1607357   (1043959) от 27.01.2023
 
-Yattering - Genocide (2002) [APE|Lossless|image + .cue] <Death Metal>
+VA - Trance Party 2023 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artyom Kitsenko - Unspoken (Original Mix) [5:53]
+02. Coshee - Shine Through (Original Mix) [7:38]
+03. Daryl G - Magic Moment (Original Mix) [7:46]
+04. TGN - Andre Va A Nantes (Original Mix) [4:55](   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A248E836A2B8F41A932400436187350182D4412E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607631   (1043960) от 27.01.2023
+
+Davide Ronfetto - Enlightening Nights, Darkening Days (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046057.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Genocide
-02. Schism
-03. Message To M.A.R.I.O.
-04. Non Adapted Socially(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:46
+01 - Night City Lights [00:05:07]
+02 - Absent [00:06:17]
+03 - Under the Rain [00:05:49]
+04 - Four Notes of Shame [00:10:03](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:53:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E38DD909A04EEBD4104D26D1BAED41DBA7CAF9D1
+magnet:?xt=urn:btih:284F60FF1D7E0C4F17A4BE5DA05B6A60797D7856
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +558,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602496   (1046058) от 06.01.2023
+###  Публикация: 1607658   (1043961) от 27.01.2023
 
-Obliteration - Perpetual Decay (2007) [APE|Lossless|image + .cue] <Death Metal>
+Сергей Бакшеев | Петля (Книга 6). Чужими руками (2022) [MP3, Макс Войс]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043961.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своем автомобиле задушена актриса, отнюдь не звезда, она никому не мешала. И это только начало странных событий, связанных с киностудией. Следователю Петелиной в ходе нового дела придется столкнуться со множеством неоднозначных обстоятельств, с которыми она еще не сталкивалась. Ведь одно дело – играть роль и совсем другое – подлинная суть человека.Жанр: детектив, триллерПродолжительность: 08:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D54DDA6D23DA8C8AC39E311178E62FAED94CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607487   (1043962) от 27.01.2023
+
+Dark Sarah - Attack of Orym (2023) [MP3|320 Kbps] <Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046058.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sadistic Nekroaboration
-02. The Abominator
-03. Breeding the Sick
-04. Repent(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:02
+01. Intro- Choose your weapons [00:01:13]
+02. Attack of Orym (feat. Mark Jansen of Epica) [00:05:28]
+03. Invincible (feat. Kasperi Heikkinen of Beast in Black) [00:04:02]
+04. B.U.R.N [00:05:09](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05E5FAF0B4414E03444DEBC0EF0300B2F38C84E9
+magnet:?xt=urn:btih:1DBF9553A1F7F4B0CAAF2FC8FFD3DA0DA7A614E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +613,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602504   (1046059) от 06.01.2023
+###  Публикация: 1607340   (1043963) от 27.01.2023
 
-Theories - Regression (2016) [APE|Lossless|image + .cue] <Death Metal, Grindcore>
+Overhead - Telepathic Minds (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046059.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Burnt Concrete
-02. Cycle of Decay
-03. Shame
-04. Abortive Crescent(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:28:52
+01. Telepathic Minds [00:17:17]
+02. Tuesday That Never Came [00:04:03]
+03. Planet Of Disorder [00:07:18]
+04. Sheep Stay Silent [00:07:45](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 2 CD, 01:29:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9F9C60BDB77EB2736DC71AA7AC22C4DDBBCF01A
+magnet:?xt=urn:btih:60BE0445567322A4898BA5420332445BD7BFB4A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +642,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602468   (1046060) от 06.01.2023
+###  Публикация: 1607440   (1043964) от 27.01.2023
 
-Dead - A Dirty Mind Is A Joy Forever (2017) [APE|Lossless|image + .cue] <Death, Grindcore>
+Eric Clapton - Behind The Sun (1985) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|450 Kbps] <Rock, Rock & Roll>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046060.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Good to Be Back
-02. Snakey Brown
-03. Call of Beauty
-04. Ass Metal(   Читать дальше...   )Жанр: Death, GrindcoreПродолжительность: 00:36:31
+01.Shes Waiting 04:55
+02.See What Love Can Do 03:59
+03.Same Old Blues 08:15
+04.Knock On Wood 03:19(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:50:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17113D3212DBB9EC50261FAD101510A826F75C24
+magnet:?xt=urn:btih:6EE5350D0883E39197D7C257148BEB01D53713F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +671,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602500   (1046061) от 06.01.2023
+###  Публикация: 1607633   (1043965) от 27.01.2023
 
-Spectral - Autopsy Of Hope (2007) [APE|Lossless|image + .cue] <Progressive Death Metal>
+The One - Sunrise (2023) [MP3|320 Kbps] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046061.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blind
-02. The Unknown Nothing
-03. Autopsy Of Hope
-04. The Art Of Pain(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:27:33
+01. The Thoughts Of Light (3:32)
+02. Time Out (5:54)
+03. The Past Haunts Again (8:57)
+04. Remember (3:32)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C128C2A7A202A68457D198BEF643A3BD7B10AC7
+magnet:?xt=urn:btih:51080665F4546DE6F411211A697047FE89B7584D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,403 +700,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602502   (1046062) от 06.01.2023
+###  Публикация: 1607605   (1043966) от 27.01.2023
 
-Sincarnate - On The Procustean Bed (2008) [APE|Lossless|image + .cue] <Doom Metal, Death Metal, Black Metal>
+Tarthak - Contra Deus (2022) [MP3|320 Kbps] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046062.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Requiem
-02. Reverence (In Fron Of An Inevitable End)
-03. Desolate
-04. Sincerely YoursЖанр: Doom Metal, Death Metal, Black MetalПродолжительность: 00:20:12
+01 - IV [00:01:59]
+02 - Hell Name of Victory [00:04:49]
+03 - Devastation [00:04:10]
+04 - Cadavered City [00:04:58](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EB583C5D0A5B212E93DA7289DBC60D458E1ADB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602632   (1046063) от 06.01.2023
-
-Хоккей. НХЛ 2022-2023. Вашингтон Кэпиталз - Коламбус Блю Джекетс (05.01.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046063.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 января 2023, пятница. 03:00 МСК. Стадион: Нейшнвайд-Арена (Коламбус, США), 17 924 зрителя (94% при вместимости 19 115)
-Главный судья: Брэндон Бландина (Сентенниал, США); Главный судья: Тревор Хансон (Ричмонд, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38124CA725F3CFB5B91200FE28290D7FEBA381D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602603   (1046064) от 06.01.2023
-
-Since The Death - I Belong to Christ (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incorruptible
-02. Be Close to Me
-03. Compressed to Death
-04. Intoxication(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E503ABF0E746BF6E366FE461672B344ECC25FCAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602486   (1046065) от 06.01.2023
-
-Besta - Eterno Rancor (2019) [APE|Lossless|image + .cue] <Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamorte
-02. Falsa Arte
-03. Apóstolo do Terror
-04. Sincronismo do Mal(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A5151A9734C7DAC4B27F823C8440227383FE05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602498   (1046066) от 06.01.2023
-
-Rotten Sound - Abuse To Suffer (2016) [APE|Lossless|image + .cue] <Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Asses
-02. Intellect
-03. Fear of Shadows
-04. Trashmonger(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6411F231D9B29B1664502640BDED9570B47F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602640   (1046067) от 06.01.2023
-
-Хоккей. НХЛ 2022-2023. Питтсбург Пингвинз - Вегас Голден Найтс (05.01.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046067.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 января 2023, пятница. 06:00 МСК. Стадион: Ти-Мобайл Арена (Парадайс, США), 18 149 зрителей (97% при вместимости 18 702)
-Главный судья: Кайл Реман (Стеттлер, Канада); Главный судья: Марк Жоанетт (Вердун, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5390DA4B61064FA15974608D35B42AA953F5A590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169691   (1046068) от 05.01.2023
-
-The Guild 3 (2017) [Ru/Multi] (1.0.5_681365) License GOG
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры разворачивается в средневековом европейском городе. Перед игроком предстает полная свобода выбора: игрок может стать руководителем ремесленного предприятия, построить карьеру политика, возглавить банду воров, стать начальником городской охраны или стать повелителем мёртвых.Тип издания: LicenseРазработчик: Purple Lamp, GolemLabsЖанр: Simulation, Strategy, HistoricalЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52DC2CFE3DDD0F352D1BA447787989DA1684F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809961   (1046069) от 05.01.2023
-
-Cozy Magnifier & Microscope Plus v6.2.1 [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение превратит ваш телефон в лупу (увеличительное стекло). Вам больше не надо носить с собой лупу, ведь она теперь будет всегда у вас в кармане. Программа поможет вам прочесть надписи мелким шрифтом в договорах, меню, книгах и прочих других случаях жизни.Тип издания: Пиратка (Full)Релиз состоялся: 04.01.2023Разработчик: HANTORПоддерживаемая ОС: Android 5.0+Язык интерфейса: Руский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F1A268CE4192BB66517C4BEA583917A6B8D6D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602307   (1046070) от 05.01.2023
-
-Ёлки 9 (2022) WEBRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046070.jpg" />
-</div>
-
-
-###  Подробнее
-
-За считанные часы до праздника все с замиранием сердца надеются на чудо. Вся деревня Глухарево готовится с размахом встречать зарубежную кинозвезду. В Тюмени домохозяйке и будущей блогерше необходимо выиграть пари с мужем. В Екатеринбурге влюбленный ролевик разрывается между семейным счастьем и эпическими приключениями. В Санкт-Петербурге девушка вместе с долгожданным (   Читать дальше...   )Производство: Россия, Базелевс Продакшн, Kulik ProductionsЖанр: комедияРежиссер: Александра Лупашко, Сергей НаумовАктеры: Евгений Кулик, Фёдор Добронравов, Алексей Серебряков, Елена Валюшкина, Ян Цапник, Александр Баширов, Виктория Агалакова, Григорий Калинин, Елена Захарова, Ростислав БершауэрПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF8A1306ACE427AB6D960EBD3BA4B165578E9866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602147   (1046071) от 05.01.2023
-
-Зрители недовольны завышенными ценами на «Аватар: Путь воды»
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046071.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отзывах от посетителей различных кинотеатров в Москве, Санкт-Петербурге и других городов России зрители высказывают недовольство по поводу завышенных цен на новый фантастический фильм «Аватар: Путь воды» (Avatar: The Way of Water).Как пишет Cybersport, в Москве, например, цены на «Аватар: Путь воды» начинаются с отметки 1200 рублей, при этом ленту пока что показывают (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536675   (1046072) от 05.01.2023
-
-Workshop Simulator (2022) [Ru/Multi] (1.3.13977) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Может ли невинная бабушкина просьба стать началом ностальгического путешествия по тропинкам памяти, которое поможет вам узнать историю своей семьи? Workshop Simulator – это расслабляющий симулятор реставрационных работ: вы берете старинные предметы и дарите им вторую жизнь, ведь любая вещь в руках мастера может стать произведением искусства.Тип издания: LicenseРазработчик: INTERMARUMЖанр: Симулятор, SandboxЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE7E7D29C0279F101A8E590FC37997BD2D6395B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602411   (1046073) от 05.01.2023
-
-Дюна / Dune: Part One (2021) UHD BDRip [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия / Warner Bros., Legendary EntertainmentЖанр: Фантастика, Боевик, Драма, ПриключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: ДублированныйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0370A5E1769FC114012342B6559EAED05A75268F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601602   (1046074) от 05.01.2023
-
-Белый шум / White Noise (2022) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046074.jpg" />
-</div>
-
-
-###  Подробнее
-
-1984 год, небольшой американский городок. Профессор Джек Глэдни, преподаватель в местном колледже и лучший специалист в стране по Адольфу Гитлеру, живёт с любимой женой Бабеттой и четырьмя детьми. Жизнь идёт своим чередом, старшие ребята живо интересуются всем происходящим в мире, увлечённый Элвисом коллега просит совета, как сделать лекции такими же увлекательными, (   Читать дальше...   )Производство: США, Великобритания / BB Film Productions, Heyday Films, Netflix Studios, Passage Pictures (II)Жанр: драма, комедия, ужасыРежиссер: Ноа БаумбакАктеры: Адам Драйвер, Грета Гервиг, Рэффи Кэссиди, Дон Чидл, Сэм Нивола, Madison Gaughan, Douglas Brodax, Carly Brodax, Jill Brodax, Wickham BerminghamПеревод: Многоголосый профессиональный (HDRezka Studio), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русские, украинскиеПродолжительность: 02:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4F5F5F47DEC795879F05214EA90A0A883B275B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602190   (1046075) от 05.01.2023
-
-Заклятье: 13-й этаж / Pengabdi Setan 2: Communion / Satan's Slaves 2: Communion (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046075.jpg" />
-</div>
-
-
-###  Подробнее
-
-1984 год. Спасшись от последователей сатанинского культа, семейство Сувоно переехало из деревни в Джакарту и поселилось в социальном многоэтажном доме, одиноко стоящем на пустыре. Жизнь идёт своим чередом: Рини решает отдохнуть от заботы о младших братьях и поехать учиться, Тони пытается подружиться с местной красавицей, Бонди с друзьями находит недалеко от дома (   Читать дальше...   )Производство: Индонезия / Brown Entertainment, Come and See PicturesЖанр: ужасыРежиссер: Джоко АнварАктеры: Тара Басро, Энди Арфиан, Насар Аннус, Бронт Паларэ, Рату Фелиша, Джурди Праната, Эги Федли, Музакки Рамдан, Фатих Унру, Икбал СинчанПеревод: Многоголосый профессиональный (OKKO)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6E54203141C485B76D5C566BF2BDEE3DD94C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602326   (1046076) от 05.01.2023
-
-Пришелец из будущего / Le visiteur du futur (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046076.jpg" />
-</div>
-
-
-###  Подробнее
-
-2555 год. Экологическая катастрофа уничтожила нашу цивилизацию. Остатки землян доживают свои дни среди полчищ зомби и потоков кислотных дождей. Один из последних — «Гость» — решается на отчаянный шаг. С помощью своего непутевого робота он возвращается в 21 век, чтобы предотвратить апокалипсис и спасти мир.Производство: Франция, Бельгия / Pyramide Productions, France 2 Cinéma, Allons VoirЖанр: фантастика, комедияРежиссер: Франсуа ДекракАктеры: Флоран Дорен, Арно Дюкре, Эния Бару, Рафаэль Декрак, Слиман-Батист Берон, Одри Пиро, Матье Поджи, Венсен Тирель, Асса Силла, Лени ШериноПеревод: дублированный (Кинопоиск HD), профессиональный одноголосый (Кураж-Бамбей)Субтитры: отсутствуютПродолжительность: 01:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B2AF3C24E9D9A1BDE0AC725117F8823AB02FE7
+magnet:?xt=urn:btih:C1A0AF6228900224A6E7A035F1C4FAD69A4CC892
 ```
 
 https://mybot314.ru/tekegram_catalog/

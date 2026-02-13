@@ -1,3 +1,32 @@
+###  Публикация: 1040805   (585421) от 06.08.2016
+
+VA - Cafe Del Mar XXII (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.K. - Evening Shadows [03:41]
+02. Blooms - Fall [03:50]
+03. Double Yellow - Feed You (Ambient Jazz Ensemble Rework) [06:01]
+04. D-Pulse - Velocity of Love (Hot Toddy Mix) [07:23](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ACF2910209F1027007DC0747771BD0C0196E916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040778   (585524) от 06.08.2016
 
 VA - The Best of Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -722,35 +751,6 @@ Aural Haze - The Wanderer (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Sci-Fi>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C73F304C40824253059B35DFAB37050DFD239B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552201   (588554) от 19.05.2022
-
-Angelo Taylor - The Best of Angelo 2008 (2008) [MP3|320 Kbps] <Synthpop, Space, Ambient>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шамбала, Ч. 2 (5:25)
-02. Вояджер, Ч. 2 (2:55)
-03. Когда я один, я скучаю по тебе (Remix) (3:10)
-04. Одинокий ангел (4:26)(   Читать дальше...   )Жанр: Synthpop, Space, AmbientПродолжительность: 01:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72098179205D3242662F7E0769235E0D9FDF8882
 ```
 
 https://mybot314.ru/tekegram_catalog/

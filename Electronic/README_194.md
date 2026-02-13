@@ -1,3 +1,38 @@
+###  Публикация: 583203   (315821) от 01.12.2012
+
+Counting Clouds - Perfect Harmony (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Harmony
+02. Black & Blue
+03. Daylight
+04. Colors
+05. Sweet
+06. Sunday Morning
+07. Dream Lounge
+08. Imena
+09. Somewhere In Africa
+10. Aiyetoro(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Easy ListeningПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15BA81B685D7A5D405B3BDB9AB710D984BC49CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259945   (316134) от 05.11.2018
 
 Space - Magic Fly (1977) 1983, Compilation [FLAC|Lossless|image + .cue] <Electronic, Synth-Pop>
@@ -718,35 +753,6 @@ The Prodigy - No Tourists (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Brea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8831CD42CE8553800FDCEA737714709D15D6615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958890   (318523) от 23.11.2015
-
-Laserdance - Greatest Hits & Remixes (2015) [MP3|320 кб/с]<Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humanoid Invasion (7'' Version) (03:21)
-02. Shotgun (Into The Night) (Remix) (05:23)
-03. Goody's Return (Album Version) (04:20)
-04. Power Run (Swedish Remix 7'' Version) (04:00)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CA4D478F01D4FB83602E1422ADE38184CFBFF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

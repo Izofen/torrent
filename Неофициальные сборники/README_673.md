@@ -1,3 +1,61 @@
+###  Публикация: 1447721   (1031623) от 14.02.2021
+
+VA - Instrumental Jazz Palette (2021) [MP3|320 Kbps] <Jazz, Smooth, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вы в поисках приятного настроя, активного ритма и отменных звуков, то сборник «Instrumental Jazz Palette» представит всю палитру Ваших музыкальных желаний. Композиции лонгплея это великолепная смесь, обладающая воздушностью фанка, мелодичностью соула и экспрессией джаза.001. Jarmo Nikku - Just A Little Bit
+002. Nubya Garcia - Together Is A Beautiful Place To Be
+003. Wayne Escoffery - Quarter Moon
+004. Mark De Clive-Lowe - Esss(   Читать дальше...   )Жанр: Jazz, Smooth, InstrumentalПродолжительность: 08:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5C400AFCD58FF92C57B3EDB48513AD65B0D548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447633   (1031629) от 14.02.2021
+
+VA - The Official UK Top 40 Singles Chart 12.02.2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031629.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olivia Rodrigo - drivers license
+002. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
+003. The Kid Laroi - WITHOUT YOU
+004. Anne-Marie - Don't Play(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EB2CCAC1109C82685121A6A5C4CBF7F63E77D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447679   (1031631) от 14.02.2021
 
 VA - Music News vol.72 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -687,64 +745,6 @@ VA - Dancefloor Electro House: The Glamour Party (2021) [MP3|320 Kbps] <Electro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74AA94B0FE929DD18C2B86A8CE903775FA8AAF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446230   (1033041) от 08.02.2021
-
-VA - Future Melodic Techno: Urban Party (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гармония в каждом треке. Мелодии, нацеленные прямо в сердце и растворяющиеся в разуме. Мы живем в век техно музыки. Нам излишне слова, чтобы понять друг друга. Мы довольствуемся мелодией, которая выразит наши чувства! Мы знаем, что гармония существует! И знаем где она существует.001. Armand Tee - Take My Hand
-002. Dawn Razor - Fatherhood
-003. Stereo Kill - Chandu
-004. David Porto - The Rimmer(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 11:23:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519CC0601839FF72F7EF2B6571EDAE1280BBF480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445865   (1033259) от 07.02.2021
-
-VA - The True Rap (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кому-то покажется, что музыка в стиле хип-хоп и рэп - просто ритмичное чтение рифм под музыку. Причем эти рифмы в итоге складываются во что-то никак несвязное и вообще не понятно, что исполнитель хотел сказать своим текстом. Но в новом сборнике The True Rap собраны лучшие треки, тексты которых затрагивают не только уличную лирику, но и социальные проблемы.001. Street Dance Beats - Tight Spot
-002. Blocboy Jb - House Party
-003. Last Sons - Phoney Plaguestation
-004. Iann Dior - Never Is Enough(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF36C1D279102D625891861045A128B225037198
 ```
 
 https://mybot314.ru/tekegram_catalog/

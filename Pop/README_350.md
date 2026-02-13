@@ -1,3 +1,177 @@
+###  Публикация: 1463469   (1019967) от 21.04.2021
+
+Bonnie Tyler - Goodbye to the Island (1981) Reissue, 2010, 7T's Records [FLAC|Lossless|tracks + .cue] <Pop, Pop-Rock, Ballad, AOR>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019967.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I'm Just a Woman (5:08)
+2. We Danced on the Ceiling (4:56)
+3. Wild Love (4:36)
+4. The Closer You Get (3:49)(   Читать дальше...   )Жанр: Pop, Pop-Rock, Ballad, AORПродолжительность: 0:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC4A5436984637A0675F8818FF59377D46779E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464010   (1019980) от 21.04.2021
+
+Imelda May - 11 Past The Hour (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11 Past The Hour (3:59)
+02. Breathe (3:39)
+03. feat. Ronnie Wood, Gina Martin & Dr. SholaMos-Shogbamimu - Made To Love (3:25)
+04. Different Kinds Of Love (3:01)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1306ACEC58C7DE10E4E60526C0F1C6408F677BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464180   (1019988) от 21.04.2021
+
+Mantus - Midnight Energy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Dance It) Freestyle Rhythm (9:33)
+02. Midnight Energy (5:22)
+03. Rock It To The Top (9:25)
+04. I'm So In Love With You (5:32)Жанр: Electronic, Disco, Hi-NRGПродолжительность: 00:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F721335EC81495AF8801FD061E3DBABB702119AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464225   (1019998) от 21.04.2021
+
+Citizen Gang - Citizen Gang (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Womanly Way (6:49)
+02. Too Late... You Lied (5:52)
+03. Back To Liberty (3:36)
+04. Guys (4:29)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD82BC90B914EBF74C0B86974006BC6C60B0A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463933   (1020135) от 20.04.2021
+
+Digitalo - Gentleman (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentleman (3:35)
+02. In Australia (Remaster) (3:40)
+03. Star Girl (Mix 2021) (4:33)
+04. Taxi (Remaster) (4:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEBA575A8BE536CB3181A23E979B6DA6F6CD99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463485   (1020271) от 19.04.2021
+
+VA - Beat Unlimited (1994) [FLAC|Lossless|image + .cue] <Pop, Dance, Reggae-Pop, Euro-House, Euro-Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cappella - U & Me (4:12)
+02. D.J. Miko - What's Up (5:17)
+03. Wild Boyz Club - In The Navy (5:47)
+04. Beverly - The Power of Love (6:23)(   Читать дальше...   )Жанр: Reggae-Pop, Euro House, Synth-popПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583EE23B692C104F543EAD376FC2F548FE8E192A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463685   (1020294) от 19.04.2021
 
 Barbados Climax - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -571,180 +745,6 @@ VA - Billboard - Top 500 Songs of the 90s (2021) [MP3|320 Kbps] <Pop, Rock, R&B,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02A0F0FA1CC42421D4AD1FD3BC46C0F229FF4175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462164   (1021284) от 13.04.2021
-
-VA - Лучшие танцевальные хиты (2003) [FLAC|Lossless|tracks + .cue]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дискотека Авария - ХХХИРНР
-02. Eminem - Without Me
-03. Drunkenmunky - E ( As In Eveline )
-04. Плазма - You'll Never Meet An Angel(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB48188B81A64F3A2C823ABE888C6E65FA961D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462074   (1021297) от 13.04.2021
-
-SEVENROSE - 4 альбома (2020) [MP3|~245 Kbps (V0)] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Семь роз (4:03)
-02. Просто будь (3:55)
-03. Зима (4:08)
-04. Тополиный пух (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954A38292ABA5FBD0039E6256E30746D3FFFA412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462257   (1021310) от 13.04.2021
-
-VA - Profondo Nero (compiled by Cinema Royale) (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louise Freeman - Mirage (6:44)
-02. Mark - Dreamland (6:23)
-03. Loukas Thanos - Jazzburger (4:06)
-04. Galvanica - Nightlights In Japan (6:17)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE8BD89E3FA69DB22DCA5A4A148CF5B86D58CD57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462095   (1021311) от 13.04.2021
-
-SEVENROSE - Белые розы любви (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые розы любви (4:39)
-02. Схожу с ума от поцелуев (3:50)
-03. Играет музыка (3:58)
-04. Ты мой (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF39BB042234A4A5ED55EB8FCAB69834173A8AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462097   (1021318) от 13.04.2021
-
-SEVENROSE - Не уходи, любовь (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Причуды любви (3:54)
-02. От разлуки до встречи (4:14)
-03. Не уходи, любовь (4:07)
-04. Листопады (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516C5B562E9CD8940AEC983357EFBE14A358E8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462163   (1021324) от 13.04.2021
-
-гр. Тяни-толкай - 3000 шагов. Баллады (2005) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3000 шагов
-02. Океан тайги ( дуэт с Алексеем Хлестовым )
-03. Снег
-04. Даль-чужбинушка(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9064968B7069AC3FC1EA45E7A2BCEEDA80F89CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

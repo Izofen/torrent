@@ -1,3 +1,62 @@
+###  Публикация: 1105868   (875072) от 18.02.2017
+
+Inglorious - Inglorious (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until I Die (5:55)
+02. Breakaway (3:01)
+03. High Flying Gypsy (3:56)
+04. Holy Water (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD33035B31FEC1CB2010CB15CA4A17699FB10AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872038   (875404) от 24.02.2015
+
+Scorpions - Return To Forever (2015) Limited Deluxe Edition [WavPack|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Going Out With A Bang
+02. We Built The House
+03. Rock My Car
+04. House Of Cards
+05. All For One(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06587FC0EB27C8F927E39B37A50FBBEFA051A918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 643199   (875475) от 13.04.2013
 
 Suzi Quatro - Essential (2011) [FLAC|Lossless]<Glam Rock, Hard Rock>
@@ -718,76 +777,6 @@ Magnum - Princess Alice And The Broken Arrow (2007) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AAB7C3860666FB19A79CA99144DE1A300CCBA0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764018   (883832) от 07.03.2014
-
-Harem Scarem - Big Bang Theory (1998) Japan [APE|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  So Blind [03:38]
-02.  Climb The Gate [03:47]
-03.  Reload [04:12]
-04.  Tables Turning [04:16]
-05.  Turn Around [03:21]
-06.  Seas Of Dissension [04:40]
-07.  Sometimes I Wish [03:58]
-08.  Never Have It All [04:02]
-09.  Lying [03:39]
-10.  In My State Of Mind [03:38]Жанр: Hard RockПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4402442A369DF335A4985200387748B1CABA158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763914   (883943) от 07.03.2014
-
-Snakes In Paradise - Garden Of Eden (1998) Japan [APE|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Seventh Wonder [04:39]
-02.  Don't Let Your Love Turn To Hate [04:13]
-03.  Voice Inside [04:03]
-04.  Child Of Yesterday [04:10]
-05.  Gypsy In Your Blood [03:51]
-06.  Key To Your Heart [04:40]
-07.  Hard Day Long [04:42]
-08.  Vagabond [04:34]
-09.  Can't Let Go [03:35]
-10.  Without Love [03:17](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C07F16F5F7BD787ABB0737DE0E85248A972D9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

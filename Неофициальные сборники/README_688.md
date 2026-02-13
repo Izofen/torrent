@@ -1,3 +1,61 @@
+###  Публикация: 1845958   (1051073) от 04.01.2026
+
+VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Misha Miller & Alex Velea - Bam Bam (2:30)
+002. David Guetta & Sia - Beautiful People (3:07)
+003. Rudimental & Khalid - All I Know (2:56)
+004. Zerb & Ty Dolla Sign & Wiz Khalifa - Location (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6872A68585F3A7596FE1139C7113951DAFF94B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845945   (1051082) от 04.01.2026
+
+Nina Blaze - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love Left in the Rain
+02 - No Light in This Room
+03 - Where the Warmth Used to Live
+04 - When the Smoke Took Your Name(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9213935668D02B272217A5523ADABE3421C2BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845949   (1051083) от 04.01.2026
 
 Nina Blaze - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
@@ -687,64 +745,6 @@ Ruby Mae Holloway - Favorites Collection (2026) [MP3|320 Kbps] <Soul Blues, Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99505E167C5326EE49E9FBD417DB7F5F93635C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849001   (1053157) от 20.01.2026
-
-VA - Music News For Forum vol.157 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053157.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Firaya - Отпустила (02:28)
- 002. a.Ja & PANAMAN - Cold (03:14)
- 003. Agunda - Тишина (02:24)
- 004. Ahzee & Rosette - Eyes On Me (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4341CD5384C6FED9A42C2FCE06E17DB1F3C6E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848913   (1053202) от 19.01.2026
-
-VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053202.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:32] . 001-Би-2 - Я двигаюсь дальше
-[4:21] . 002-7б - Тост
-[3:00] . 003-Ночные снайперы - Дом стеной
-[3:13] . 004-Серьга - Батарейки сели(   Читать дальше...   )Жанр: rockПродолжительность: 9:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BF763C56CEA043F952F4ED880BA486857483E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

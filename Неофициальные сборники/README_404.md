@@ -1,3 +1,68 @@
+###  Публикация: 515652   (656054) от 26.06.2012
+
+VA - Lo-Fi light (2012) [MP3|320 kbps]<Lo-Fi|Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Justicious - Rooftops (Original Mix)
+02.Jasmon - Tinka (Original Mix)
+03.Lemongrass - Streets Of Yokohama (Original Mix)
+04.Michiko - Right There (Original Mix)
+05.DJ Karko - Snivam (Original Ambient Version)Жанр: Lo-Fi|DowntempoПродолжительность: 04:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0644B662B0B9379AC9976244A32170141DAD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515403   (656062) от 26.06.2012
+
+VA - US Hot Top 40 Singles Charts (2012) [MP3|~320 кб/с (V0)]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gotye - Somebody That I Used To Know [04:04]
+2. Carly Rae Jepsen - Call Me Maybe [03:14]
+3. Maroon 5 - Payphone (Ft. Wiz Khalifa) [03:49]
+4. Fun. Feat. Janelle Monae - We Are Young [04:11]
+5. Nicki Minaj - Starships [03:30]
+6. One Direction - What Makes You Beautiful [03:18]
+7. Flo Rida Feat. Sia - Wild Ones [03:53]
+8. Justin Bieber - Boyfriend [02:52]
+9. Rihanna - Where Have You Been [04:02]
+10. The Wanted - Glad You Came [03:18](   Читать дальше...   )Жанр: DanceПродолжительность: 02:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC01268BA760E71ECC7EA1E3C99699CF46A1759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513989   (656068) от 26.06.2012
 
 VA - Caribe - Grandes Êxitos (2011) [MP3|320 кб/с]<Dance>
@@ -708,70 +773,6 @@ VA - Empire Records - Club Hit 14 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19858681379B93B4999496A634EA46947627678A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140217   (656931) от 05.06.2017
-
-VA - The Best Of Trance 56 (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  NoMosk - Black Cloud (Extended Mix) 6:23
-02.  Solarstone & Meredith Call - I Found You (Giuseppe Ottaviani Remix) 6:51
-03.  PureNRG - Cala Blanca 7:53
-04.  Roman Messer - Lost (Extended Mix) 6:21(   Читать дальше...   )Жанр: TranceПродолжительность: 05:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAF25D9C15096CFC20772D6A392F57A15F78D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515007   (656951) от 25.06.2012
-
-VA - Летний спецвыпуск Золотого Граммофона (2012) [MP3|256 kbps]<Pop|Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656951.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-001 ВИА Гра - Алло, Мам
-002 Герр Антон (Herr Anton) - Алка Now!
-003 Размер Project - My Moscow Love
-004 IKA - Москва Слезам Не Верит
-005 Ю. Волкова - All Because Of You
-006 Steel Deluxe feat. Olya Milaxa - За Стенами
-007 Слава - Sex Не Любовь
-008 Тимур Темиров - Лето Жаркое
-009 Ани Лорак - Обними Меня Крепче(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 12:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B81933FC9610DF87FF9221A9C5FA18772E9ECA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1218654   (721268) от 10.04.2018
+
+Bruno Sanfilippo - Claroscuro (2014) [MP3|320 Kbps] <Neoclassical, Ambient>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ClarOscuro 5:58
+02. Absenta 5:18
+03. Aquarelle Sur Papier 5:12
+04. A Constant Passion 3:40(   Читать дальше...   )Жанр: Neoclassical, AmbientПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51E33936CE19367AC19419ED670F313C7889083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 668237   (723260) от 15.06.2013
 
 VA - Great Baroque Masterpieces (2012) Naxos 25th Anniversary. The Great Classics. 10 CD Box #8   [FLAC|Lossless]<Classical>
@@ -709,35 +738,6 @@ Ilyin - EP001. Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43A0B792EC106152C07F0ACE475D26C00BD4C6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 62389   (751069) от 08.02.2019
-
-Дитрих Букстехуде (Dieterich Buxtehude) - Шедевры органной музыки 7CD
-
->>Классика
->>Камерная
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ди́трих Букстеху́де (нем. Dieterich Buxtehude, датск. Diderik Buxtehude) (ок. 1637 — 9 мая 1707) — немецко-датский органист и один из наиболее известных композиторов эпохи барокко. Его произведения для органа составляют существенную часть стандартного органного репертуара и часто исполняются на концертах и церковных службах. Его творчество оказало огромное (   Читать дальше...   )Vol. 1
- 1	4:15	Praeludium in C, BuxWV 138
- 2	4:17	Komm, heiliger Geist, Herre Gott, BuxWV 199
- 3	3:48	Nun lob, mein Seel, den Herren, BuxWV 212(   Читать дальше...   )Жанр: Классика - органПродолжительность: 7:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4ED7B18620997BB2B64D19274C120DC395B7A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 996757   (878962) от 14.03.2016
+
+Eric Prydz - Opus (2016) [FLAC|Lossless|tracks+.cue] <Progressive House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liam (5:44)
+02. Black Dyce (6:17)
+03. Collider (5:23)
+04. Som Sas (6:37)(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7E57498534E2AC97490C38DB097097D340C00D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995081   (879277) от 14.03.2016
 
 VA - 50 Best Tracks For Your Car 5 (2016) [MP3|256-320 кб/с] <House>
@@ -712,35 +741,6 @@ VA - Love & Chill Out Covers (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A795B8161D174ED0785936EBA8FED287EE4F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104186   (881883) от 14.02.2017
-
-VA - This Is My Church Vol.5 (The Lounge Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Duane Alpert - Cool Experience (Laurent Paradise Mix)  2:57
-02.  Mark Mars - Ship's Lounge (Downtown Slow Mix)  3:23
-03.  Warm Incline - Orange Sky (Markus Wassenberg's Ice Mix)  2:54
-04.  Aaron Smith - Alife (Original Mix)  3:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018512DC293E41BE5AC6AFC9C168E98C3AD69123
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1096305   (920769) от 23.01.2017
+
+Colombo - iBreaks 12th Anniversary Series (2017) [FLAC|Lossless|WEB|tracks] <Breaks>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summit (Original Mix) (7:43)
+02. EveryBody (Original Mix) (7:18)
+03. Clap Yah Hands (Original Mix) (6:41)
+04. CousCous (Original Mix) (7:16)(   Читать дальше...   )Жанр: BreaksПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A759F42AD67C8151144706477736D10475916A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096428   (920932) от 23.01.2017
 
 VA - Motivation Training Music 2016 (2017) [MP3|320 Kbps] <Progressive House>
@@ -721,35 +750,6 @@ Portico - Living Fields (2015) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A27870513949B1202C6711044B0C4B0E428259D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988039   (922815) от 19.02.2016
-
-VA - Only Chillout Vol. 03 (Compiled & Mixed By Seven24) (2016) [MP3|320 кб/с] <Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Frolov - Voice from Inside (Chill-Out Version) (4:32)
-02. Seaman - In Old Forest (6:43)
-03. R.I.B. - Starlit (3:54)
-04. Seven24 - Forever (3:40)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 03:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79659B276238886DA71475B75470C18E9D36450E
 ```
 
 https://mybot314.ru/tekegram_catalog/

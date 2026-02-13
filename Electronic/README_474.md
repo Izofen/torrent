@@ -1,3 +1,32 @@
+###  Публикация: 987965   (924306) от 18.02.2016
+
+Blank & Jones - Pure Lounge: Chilling Club Sounds (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Nuits Blanches (4:08)
+02. Blank & Jones With Coralie Clément - J'en Reste Là (3:28)
+03. Blank & Jones - Coming Home (Afterlife Mix) (5:05)
+04. Blank & Jones With Cathie Battistessa - Happiness (Milchbar Terrace Mix) (4:12)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F77FF337A7D3CE357C3A0B665238CCB2089BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095378   (924373) от 21.01.2017
 
 Bill Bruce - Changing (1982) 12" [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
@@ -712,35 +741,6 @@ Sesto Sento - Remixer (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DDCB32794BBE2D6A8F1FABDF7F2EA061CB3E2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365941   (927358) от 09.03.2020
-
-VA - Science. Art. Wonder. (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sesto Sento - Sesto Pesto (6:53)
-2. Sesto Sento; Freaky Frequency - Spirit of India (6:44)
-3. Sesto Sento - Pushing Me Higher (6:26)
-4. Sesto Sento - No Music No Life (6:36)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB2D6F0F4153F33D57C7DE43CFF1A2DA44DD205
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1206944   (781319) от 16.02.2018
+
+VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dave202  -  Open Up Your Heart (Original Club Mix)  4:26
+02.  Dave202 & Gino G  -  Along With You (Extended Mix)  4:33
+03.  Dave202 & Gino G  -  Like An Animal (Club Mix)  4:15
+04.  Dave202  -  Kimura (Original Club Mix)  4:44(   Читать дальше...   )Жанр: House, Future House, Big Room, Electro HouseПродолжительность: 02:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206961   (781323) от 16.02.2018
 
 VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
@@ -711,35 +740,6 @@ VA - Club Masters Vol.15 (2018) [MP3|320 Kbps] <Future House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:127C4E26F6B74D4C60A54BFF8414F87E1FC1982C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206465   (782158) от 14.02.2018
-
-VA - Progressive Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer & Roxanne Emery  -  Lullaby (Original Mix)  3:56
-02.  WeareD  -  Through The Universe (Original Mix)  3:04
-03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
-04.  Huem  -  Ryzen (Original Mix)  3:34(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A7382E7CD40CF685449156091D32C1089E48C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

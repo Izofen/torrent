@@ -1,3 +1,61 @@
+###  Публикация: 1169486   (403142) от 27.09.2017
+
+VA - Deep House Collection Vol.137 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1Kilo - Deixe Me Ir (Bruno Be, Monkeys, Eternal Soul Remix) 5:20
+02. Alexander Orue & Sharapov - Never Give Up (Original Mix) 5:23
+03. Alex Kenji - 'Cause It's Cool (Original Club Mix) 5:29
+04. Alex Niggemann - Luminance (Daniel Bortz Remix) 7:02(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FB3F9DD173FCAA438F81DA5A04DA7BCF990EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169477   (403150) от 27.09.2017
+
+VA - Empire Records: Classic Disco (2017) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeroplane, Tawatha Agee — Love On Hold (Extended Mix)
+02. Shawn Christopher — You Can Make It (Ron Carrolls Mix)
+03. Miguel Campbell feat. Benjamin Diamond — Gold Rush
+04. Angela Puxi — Housing to Jazz (Sinan Mercenk's Radio Edit)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994794FC3874B27AAEA37430DB2EA4E937C4B81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712580   (403166) от 19.10.2013
 
 Michael Jackson - 25 Best Songs (2012) [MP3|235 - 272 кб/с]<Pop>
@@ -723,76 +781,6 @@ VA - Супер дискотека 90-х. Зарубежная версия (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E392806EAED377A4FC45D97C3C7FEF3D6E570E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560820   (404702) от 21.10.2012
-
-VA - This Merry Planet: Instrumental Disco Hits (2012) [MP3|320 кб/с]<Instrumental,Disco>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental,DiscoПродолжительность: 01:05:35
-
-01. The League Unlimited Orchestra - Hard Times
-02. The League Unlimited Orchestra - Love Action (I Believe In Love)
-03. The League Unlimited Orchestra - The Sound Of The Crowd
-04. The League Unlimited Orchestra - Do Or Die
-05. Love Unlimited Orchestra - Welcome Aboard
-06. The Love Unlimited Orchestra - Love's Theme
-07. Love Unlimited Orchestra - Night Life In The City
-08. Webster Lewis - Saturday Night Steppin' Out(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588A4C5041D2FB5A72A76A45713A7E5730E2F192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562392   (404760) от 21.10.2012
-
-VA - Лучшая клубная музыка AndrS vol.28 (2012) [MP3|320 кб/с]<Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PSY - Gangnam Style (AndrS vol.28)
-02. Babaeff Dark & DJ China feat. Leyla Kafari - Eurovision 2012 (Dj Kubinec rmx) (AndrS vol.28)
-03. Edhim & Roger Slato feat. Trarius - More (Lewis & Clark Remix) (AndrS vol.28)
-04. Flo Rida Good Feeling Maxim Famous Mashup (AndrS vol.28)
-05. Global Deejays - Hardcore Vibes (Dj Viduta Olive Schulz Remix) (AndrS vol.28)
-06. Kone Marc Palacios vs Shaggy - Mr.Bombastic (Dj Boris D1AMOND Mash-Up 2012) (AndrS vol.28)
-07. Ray Parker Jr. vs. Мамульки Bend - Нажbusters (DJ A-One Mash Up) (AndrS vol.28)
-08. Will Smith & Chardy Silversix - Welcome To Miami ( DJ Renard Mash-Up) (AndrS vol.28)
-09. Motafied Beatz - Rock The Show (Aldair Silva Milkshake Mix) (AndrS vol.28)
-10. House Rockerz - Party Is Basic (Original Mix Edit) (AndrS vol.28)(   Читать дальше...   )Жанр: Club, Dance, Electro, House, Electro-HouseПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9674D1795A7EAA03133F215D9C7F67CAD3C36135
 ```
 
 https://mybot314.ru/tekegram_catalog/

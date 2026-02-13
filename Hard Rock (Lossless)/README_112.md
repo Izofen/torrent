@@ -1,3 +1,61 @@
+###  Публикация: 1466954   (1018110) от 02.05.2021
+
+Siggi Schwarz - Тhе Firе Insidе (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spend The Night With Me
+02. Activated
+03. Badass
+04. Give It To Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEE366498DA09C21ACBA20FD26D09C7E3DB0502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466864   (1018118) от 02.05.2021
+
+Kreek - Kreek (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At The Bottom Of Hell
+02. Missiles
+03. Meet Your Maker
+04. Million Dollar Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E53B17C1074F8709A8A05F5D1ADC45378E7080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466752   (1018247) от 01.05.2021
 
 Farcry - Balance (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -687,64 +745,6 @@ Greta Van Fleet - Anthem Of The Peaceful Army (2018) Japanese Edition [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:257F7082AEF3CC1C452944AA16C325EC266B3932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462903   (1020860) от 16.04.2021
-
-Temple Balls - Untamed (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinity (04:32)
-02. Kill the Voice (03:30)
-03. Distorted Emotions (03:15)
-04. Pauline (03:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF04E98019C7C5542FF5AAB02D7BB7B3DC465DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462921   (1020867) от 16.04.2021
-
-Sister - Vengeance Ignited (2021) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring Out the Dead (03:45)
-02. Vengeance Ignited (03:54)
-03. Spitfire (03:21)
-04. Scream for Pleasure (03:52)(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216C1DE64C1A22B23E09287B6A61A5657DACBDC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

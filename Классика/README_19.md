@@ -1,3 +1,38 @@
+###  Публикация: 571361   (387616) от 07.11.2012
+
+Gerd Zacher - Mendelssohn, Brahms: Organ Works (2006) 2 SACD [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+
+MENDELSSOHN
+
+1. Organ Sonata 1 op. 65 - Allegro moderato e seriose - 5:40
+2. Organ Sonata 1 op. 65 - Adagio - 2:26
+3. Organ Sonata 1 op. 65 - Andante - 3:18
+4. Organ Sonata 1 op. 65 - Allegro assai vivace - 3:44
+5. Organ Sonata 2 op. 65 - Grave - 1:23
+6. Organ Sonata 2 op. 65 - Adagio - 2:26(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:32 + 00:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D257D8E227C0A246D10A5722C61B8D4DFE2955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570665   (387618) от 07.11.2012
 
 Bach Collegium Japan / Masaaki Suzuki - J.S. Bach - Cantatas Vol. 34 (2007) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
@@ -762,35 +797,6 @@ Octet for winds in E flat major, Op. 103
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6278B68E38988A4A6F6AEF2AA68AB2835B13574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948402   (410935) от 20.10.2015
-
-Sviatoslav Richter - The Essential Richter (1996) 5CD [MP3|320 кб/с]<Classical,Instruments>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mussorgsky: Pictures At An Exhibition (Original Version):
-01. Promenade
-02. Gnomus
-03. Promenade(   Читать дальше...   )Жанр: Classical,InstrumentsПродолжительность: 06:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AABE011CCABC22576A0E7494C9CCE317AA3044E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,172 @@
+###  Публикация: 1243340   (492045) от 27.08.2018
+
+VA - La Maquina Del Tiempo (1993) vol 1, 2 [MP3|320 Kbps] <Electronic, Techno, Euro House, Italodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quique Tejada - Mix De La Maquina Del Tiempo (4:07)
+02. C.C. Peter - If You Leave Me Now (6:50)
+03. East Side Beat - Alive & Kicking (6:54)
+04. Country Girl - Wuthering Heights (5:18)(   Читать дальше...   )Жанр: Electronic, Techno, Euro House, ItalodanceПродолжительность: 02:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D05F64B63FD9F13D41C01B35F50311EA0FE4F25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243463   (492104) от 27.08.2018
+
+Mylene Farmer - City Of Love (2016) SDS, Single, [APE|Lossless|image + .cue] <Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492104.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. City Of Love (Version Single)                                                       (4:25)
+2. City Of Love (Martin's Remix) - (Featuring – ShaggyLyrics By)        (3:34)Жанр: Reggae, PopПродолжительность: 00:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC34C18256AB2B23DFC003C1294DBDAEA4222452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565656   (492187) от 24.07.2022
+
+Студия-80 - Сказка (2022) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лабиринт
+02. Метель
+03. Дом лунного света
+04. Элегия(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78BAE8895F14A0FC06CA69678D702A58A5260F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565464   (492188) от 24.07.2022
+
+Bad Boys Blue - 25-The Long Mixes (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A WomanЖанр: Disco, Dance, HouseПродолжительность: 02:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E063E7C36D66DC160A7FCDF2D34DFD2E45DD1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936967   (492372) от 13.09.2015
+
+Superhumanoids - Do You Feel OK? (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anxious In Venice (04:08)
+02. Oh Me I (04:21)
+03. Norwegian Black Metal (04:01)
+04. Touch Me (03:55)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C07E99B94833A0C9D134DBDA4CCF2312666510F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936987   (492473) от 13.09.2015
+
+Autumn Hill - Anchor (2015) [MP3|320 кб/с]<Country Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anchor (03:32)
+02. Return Policy (03:01)
+03. It Don't Get Better Than This (03:10)
+04. Blame (03:43)(   Читать дальше...   )Жанр: Country PopПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4C97387E2272B80061AD959A0A348B1E54BE3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565552   (492601) от 24.07.2022
 
 Ren Woods - Out Of The Woods (1979) Remastered, 2013, Columbia [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -576,178 +745,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:664C4F3B80D420FEE1EB01FE4E141534812AD26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054189   (494209) от 19.09.2016
-
-Boris Midney - 11 Albums (1978-1999) Reissue CD (2012-2014) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boris Midney - Борис Мидный - американский диско-продюсер, композитор, маэстро, аранжировщик, дирижер и мульти-инструменталист родом из России. Является одним из главных архитекторов звука Eurodisco. Одним из первых стал использовать весь потенциал 48-дорожечной записи.
-Изначально классически обученный композитор, обратившись к диско, он обнаружил свое истинное призвание. (   Читать дальше...   )Список альбомов:
-1978 - Beautiful Bend - Make That Feeling Come Again!
-1978 - USA-European connection - Come Into My Heart
-1979 - Caress - Caress(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 07:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272283DBCD7C9D9FCDD57C9A01BF19801BDD1AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820822   (494431) от 11.09.2014
-
-VA - NOW That's What I Call Club Hits (2014) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда NOW собрала на этом трехдисковом сете все сливки клубной музыки последнего времени. Кому-то покажутся уже знакомыми некоторые мелодии, но даже завсегдатаи клубов обязательно найдут здесь для себя что-то новенькое.01.  Clean Bandit feat. Jess Glynne  - Rather Be   (3:48)
-02.  Cheryl Cole feat. Tinie Tempah  - Crazy Stupid Love   (3:46)
-03.  Mr. Probz  - Waves (Robin Schulz Radio Edit)   (3:28)
-04.  Kiesza  - Hideaway   (4:13)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 03:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566D675AE5EE3AE4B03E83C1B84AC6050158EBDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565355   (494564) от 23.07.2022
-
-Bad Boys Blue - 25-The Long Mixes (2022) [MP3|320 Kbps] <Disco, Dance, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A WomanЖанр: Disco, Dance, HouseПродолжительность: 02:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49108438C0B73AAA2A6D3C47862090D9218D7FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565360   (494665) от 23.07.2022
-
-Bananarama - Masquerade (2022) [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494665.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Favourite (3:07)
-2. Stay Wild (3:48)
-3. Velvet Lies (2:48)
-4. Masquerade (4:14)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8C751A4F15759B0AF8083A816910C28EA8B066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565368   (494672) от 23.07.2022
-
-Bananarama - Masquerade (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494672.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Favourite (3:07)
-2. Stay Wild (3:48)
-3. Velvet Lies (2:48)
-4. Masquerade (4:14)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3694A79E62AEF26E88DB22920EF332FD50D4636B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318491   (494703) от 06.08.2019
-
-Berlin - Transcendance (2019) [MP3|320 Kbps] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You [3:39]
- 02. Show Me Tonight [3:02]
- 03. Transcendance [3:37]
- 04. Lust [3:06](   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2535A88822287BD252AE7406D4329129D19C8E3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

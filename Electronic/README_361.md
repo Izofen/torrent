@@ -1,3 +1,32 @@
+###  Публикация: 1400494   (719026) от 05.08.2020
+
+Devotion Island - Critical Mass (2020) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arctic (04:55)
+ 02. Bord CH (05:28)
+ 03. Boue (04:21)
+ 04. D667 (05:43)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD537341353905C8B2BE9A80EA20A10ADDDFF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400423   (719031) от 05.08.2020
 
 Артек Электроника - Не смотри назад (2020) [MP3|320 Kbps] <New Wave>
@@ -713,35 +742,6 @@ Dinka - Sundry: The Chillout Collection (2016) [MP3|320 кб/с] <Chillout, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67F071BC4CF334E840DC32160205C2167060FB1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024102   (720460) от 07.06.2016
-
-VA - Ethereal Techno #002 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innellea - Galagant (Dahu Remix) (7:40)
-02. Nick Devon - Metis (7:22)
-03. Dahu & MPathy - Shattered (Jonas Saalbach Remix) (8:19)
-04. Tom Peters - Two of Us (6:19)(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279BEB1D95258337915AD01930838142C93FD562
 ```
 
 https://mybot314.ru/tekegram_catalog/

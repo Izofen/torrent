@@ -1,3 +1,32 @@
+###  Публикация: 1236188   (556289) от 15.07.2018
+
+Gang Gang Dance - Kazuashita (2018) 4AD [FLAC|Lossless|tracks+.cue] <Experimental, Downtempo, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ( infirma terrae ) (01:24)
+ 02. J-TREE (05:51)
+ 03. Lotus (04:54)
+ 04. ( birth canal ) (01:43)(   Читать дальше...   )Жанр: Experimental, Downtempo, AbstractПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9FC89B649F58698E7F10FC9DCB07EA43A0F5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236177   (556290) от 15.07.2018
 
 VA - Mellow Tunes - A Journey Between Atmosphere And Groove (1997) Legoan [FLAC|Lossless|tracks+.cue] <Trip Hop, IDM, Ambient, Experimental, Downtempo>
@@ -716,35 +745,6 @@ VA - Deep Passion Ibiza 2k17 (2017) [MP3|320 Kbps] <Electronic, Deep House, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35F4F0C7EEE94FF499C3B224FC65BD30271DDAEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235614   (557337) от 13.07.2018
-
-VA - Synthesize Me (2007) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antilles - You And Me (4:23)
-02. Makina Girgir - Frozen Gloss (4:18)
-03. Lasertanz - Robot Muscle Power (4:27)
-04. Keen K & Dorian E - Lost But Not Found (3:12)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB31FA4D185AFDC6218DFB4EE7894E0C76F459C
 ```
 
 https://mybot314.ru/tekegram_catalog/

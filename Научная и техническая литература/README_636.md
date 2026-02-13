@@ -1,3 +1,29 @@
+###  Публикация: 1850623   (1054617) от 
+
+Artur Zaporozhets | Smart Charging in Solar Microgrids. Intelligent Forecasting and Control for Sustainable Electric Mobility (Lecture Notes in Electrical Engineering. 1518) (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054617.jpg" />
+</div>
+
+
+###  Подробнее
+
+The integration of microgrids with solar generation enhances energy efficiency, stability, and sustainability. Yet, managing such systems requires advanced forecasting and optimisation models. Microgrids that unite distributed sources, storage, and intelligent control enable efficient energy use even under grid constraints. Powering electric vehicle charging stations (   Читать дальше...   )Жанр: Electrical EngineeringЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2D8BF86F7483FB525EC65A9236F3C559AE7718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850624   (1054618) от 
 
 Francis D. K. Ching, Steven R. Winkel | Building Codes Illustrated. A Guide to Understanding the 2024 International Building Code. 8th Edition (2025) [PDF] [EN]
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7CEDEC5A0900896E3C15B0A1385C10E46079CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850813   (1054873) от 
-
-José Luis Cisneros-Molina, Dũng Tráng Lê, José Seade | Handbook of Geometry and Topology of Singularities [8 книг] (2020 - 2026) [PDF] [En]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг Handbook of Geometry and Topology of Singularities от издательства Springer — это многотомное академическое издание, посвящённое теории сингулярностей (singularity theory) — важной и активно развивающейся области современной математики, где изучаются особенности «особых точек» в различных математических структурах и их связи с другими разделами наук.Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D85F49A3DF3CD34FB1D676406B149B43AAD7B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

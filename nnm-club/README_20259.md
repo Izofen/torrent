@@ -1,251 +1,25 @@
-###  Публикация: 1208050   (780100) от 21.02.2018
+###  Публикация: 1013123   (777990) от 03.05.2016
 
-Christie Lamb (Кристи Лэмб) - All She Wrote (2014) ABC Music [MP3|320 Kbps] <Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристи Лэмб - австралийская кантри-певица и автор песен. Пользуется большим успехом в Австралии. В 2016 году певица получила самую престижную награду в Австралийской кантри-музыке «CMAA New Talent of the Year 2016» - «Золотая гитара». Дебютный студийный альбом Кристи «All She Wrote» успешно достиг 2-й строчки в австралийском хит-параде «ARIA Country Chart» в 2014 (   Читать дальше...   )01. Broken Record 3:29
-02. All She Wrote 2:52
-03. Something In The Way 3:38
-04. Manhunt 3:07(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9E50C14539A76F00792E28BCA85141BBCC110D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207729   (780101) от 21.02.2018
-
-VA - Best Of Trance 2018 Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  PROFF  -  Innervate (Original Mix)  6:26
-02.  Andromedha  -  Rise (Original Mix)  6:00
-03.  Gregory Esayan feat. Dan & Sam  -  Innerspace (Dan & Sam Club Mix)  7:53
-04.  LTN  -  As Tears Go By (Original Mix)  7:07(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 02:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13040E548EEC5C6A029C9EA5D0A9F05372D47DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207970   (780102) от 21.02.2018
-
-П. Дроздов | Очерки по истории классовой борьбы в Западной Европе и в России в XVIII-XX веках (1928) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая книга написана по программе для военных школ на 1927/28 учебный год. Размер каждой главы соответствует количеству часов, отведенных в программе на проработку данной темы. Впрочем, отдельные главы («Революционное движение в России в 90-х и 900-х гг.» и «Революция 1905—1907 гг.») несколько расширены против программы. Чтобы сделать учебник более гибким, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E5BE7FCD71E011A3083348D88EB909EE00401E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208197   (780103) от 21.02.2018
-
-VA - Hits Cocktail Vol.16 (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KSHMR feat. Sidnie Tipton - House Of Card
-02. Alison Wonderland - Awake
-03. Gromee Ft. Lukas Meijer - Light Me Up (Original Mix)
-04. Kery Fay - Secrets (Scotty Rmx)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8E43F39E66F7B94E2F451DEBD7E99622F2E825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208142   (780104) от 21.02.2018
-
-Dizzy Reed - Rock 'N Roll Ain't Easy (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  This Don't Look Like Vegas (4:02)
-02.  Mother Theresa (4:45)
-03.  Cheers 2 R Oblivion (3:56)
-04.  Fragile Water (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5585A27B301A004433FA00C704FCFC29FE864FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208130   (780105) от 21.02.2018
-
-Club 8 - Golden Island (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swimming With The Tide 02:56
-02. Breathe 03:37
-03. Lost 02:35
-04. Pacific 03:20(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934695FB15525297626ED67764FCF3593DA2BBE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208280   (780106) от 21.02.2018
-
-Д.Э. Пучкин | Догмат о Непорочном Зачатии Пресвятой Девы Марии (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень часто антикатолические полемисты проявляют полное невежество о самом предмете спора, путаясь даже в терминологии. Итак, под «непорочным зачатием» подразумевается зачатие, при котором потомству не передается первородного греха, обычно передаваемого по наследству от Адама и Евы всякому человеку. Необязательно для непорочности, чтобы оно было бессеменным, т. е. (   Читать дальше...   )Жанр: АпологетикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513A6210A0D8657E2D556008755571000343906C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208145   (780107) от 21.02.2018
-
-VA - Winter Twilight: Eurodance Party (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Digital Base Project - Life Is A Speedway (Original Version)
-002. Abundance - Diamonds (Original Mix)
-003. Latisha Van Simon - Let's Make Love
-004. Adam Walker - Pump It (Instrumental Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0EBB71EA59DD9A00E1C3C0B0FBEC13C07D457B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208340   (780108) от 21.02.2018
-
-Noa Fort - No World Between Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
+Natalia M. King - Bluezzin T'il Dawn (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Blues>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780108.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Now Is Our Time
-02 – Traveling (In Time And Space)
-03 – Variations On Longing
-04 – Mirrors(   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:34:18
+01. Traces In The Sand
+02. Don't Explain
+03. Insatiable
+04. This Time Around(   Читать дальше...   )Жанр: Vocal Jazz, BluesПродолжительность: 00:41:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAC7AB5BA8AAAB023D368DB1EE322CF75B021EC2
+magnet:?xt=urn:btih:D15DD8D867A9F2693D15EFE1C224CEC616C5C9A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208055   (780109) от 21.02.2018
+###  Публикация: 1013093   (777991) от 03.05.2016
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Женщины. Гонка 10 км. Свободный стиль (15.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Футбол. Чемпионат Англии 2015-2016. 36 тур. Обзор матчей. (02.05.2016) HDTVRip [H.264/720p-LQ]
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780109.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 февраля 2018 года, четверг. 09:30 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Лыжные гонки. Женщины.
-Гонка 10 км. Свободный стиль(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:20:36
+Обзор матчей 36-го тура.Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Мария Макарова)Продолжительность: 00:51:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:029FE6F410A218E0349EF652F2C9E71CE72673E7
+magnet:?xt=urn:btih:EB8010A2AC9FA288A0EC82A40B0D8A54E27B7B44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +53,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208174   (780110) от 21.02.2018
+###  Публикация: 1012999   (777992) от 03.05.2016
 
-Елена Тростникова (сост.) | Мудрость отцов-пустынников [Православная библиотека] (2017) [PDF, DJVU]
+Brian Bromberg - Full Circle (2016) [FLAC|Lossless|image + .cue] <Bop, Post Bop>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780110.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кто мы? Какие силы в нас действуют? Чего мы можем достичь? В этой книге вы найдёте ответы и наставления старцев, прикоснётесь к опыту отцов-пустынников, который передавался лично от учителя к ученику.
+01. Jazz Me Blues
+02. Full Circle
+03. Sneaky Pete
+04. Saturday Night In The Village(   Читать дальше...   )Жанр: Bop, Post BopПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A44B1DA36FB91CFFF75FF02E401AA33FE972AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013143   (777993) от 03.05.2016
+
+Spillo 1.8 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spillo  - контроль над вашим закладкам на Pinboard
+Spillo - это мощный, красивый и удивительно быстрый Pinboard клиент. Spillo позволяет просматривать и упорядочивать закладки в потрясающем современным интерфейсом. Spillo также делает создание закладки из любого места на вашем Mac, максимально удобным.
 
-Книга рекомендована Издательским Советом Русской Православной Церкви.
-(   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+Spillo имеет красивый современный интерфейс, который чувствует (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 мая 2016Разработчик: Damien DeVilleПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F15FAACF983E8A60279D91C935BF783E8F426A0C
+magnet:?xt=urn:btih:F8F19B1A0C4EB08F7C3811B57A34E99267765061
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,28 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208152   (780111) от 21.02.2018
+###  Публикация: 1012874   (777994) от 03.05.2016
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Женщины. 2-й тур. Китай — Россия (ОАР) (15.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Элизабет Харан | Сияние огненного опала (2016) [FB2]
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780111.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 февраля 2018 года, четверг. 03:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг. Женщины. 2-й тур.
-Китай — Россия (ОАР)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:59:01
+За день до свадьбы Эрин получает странную посылку. Девушка подозревает своего жениха в измене, но, не желая верить в подлость возлюбленного, решает проверить, так ли это, ведь возможно, что это лишь чья-то злая шутка. Правда оказывается разрушительной… Оскорбленная и раздавленная Эрин сбегает в Австралию. Но она даже не подозревает, какие еще ее ждут приключения (   Читать дальше...   )Жанр: Современные любовные романыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F36FA4E88103768913905436FBD4B6D8E707920
+magnet:?xt=urn:btih:C4C683F9FEBB6846B40214A584CB92546629902A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,25 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208275   (780112) от 21.02.2018
+###  Публикация: 1013256   (777995) от 03.05.2016
 
-Джейн Эллис | Русская Православная Церковь. Согласие и инакомыслие (1990) [DJVU]
+День Военной тайны с Игорем Прокопенко (2016.05.03) SATRip (часть 3)
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780112.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обзор истории оппозиции в Русской Православной Церкви и представления неконформистской интеллигенции о внутрицерковной жизни, выраженные в самиздате.Жанр: Монография, историяФормат: DJVU
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:44:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39F6848B188E9F1CBD0B7E60400526E4B1E12658
+magnet:?xt=urn:btih:E6FD2F9A2941A8060C9B0AFBECAF6FC8D348E806
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206913   (780113) от 21.02.2018
+###  Публикация: 1012995   (777996) от 03.05.2016
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Мужчины. Могул. Финал (12.02.2018) WEB-DL [H.264/720p-LQ]
+Bruno Muller - Inner Back Home (2016) [FLAC|Lossless|image + .cue] <Fusion>
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780113.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 февраля 2018 года, понедельник. 15:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Фристайл. Мужчины.
-Могул. Финал(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:13
+01. Inner Back Home
+02. Joers Tune
+03. Someday Werll All Be Free
+04. Butterfly(   Читать дальше...   )Жанр: FusionПродолжительность: 01:08:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E17EA688A5D525FD003B208E3A7A499EF2CA6D7
+magnet:?xt=urn:btih:9EA9B39D8D293607CE81ED2A84DF3603397A945A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +192,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208170   (780114) от 21.02.2018
+###  Публикация: 1013245   (777997) от 03.05.2016
 
-Paulina Cassidy - Drawing Up A Storm (2018) Projekt Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Darkwave, Ethereal>
+PeakHour 3.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777997.jpg" />
+</div>
+
+
+###  Подробнее
+
+PeakHour 3 - монитор сетевой активности
+PeakHour красивый, визуализатор сетевого трафика, который живет в вашем меню Mac OS. Он обеспечивает мгновенный вид вашего интернета или WiFi деятельности в режиме реального времени.
+
+PeakHour идеально подходит для мониторинга ваших совместимые сетевые устройства *: Интернет, WiFi, NAS, серверы и многое другое. PeakHour дает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 мая 2016Разработчик: Digitician Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2172E1DAD17E1A35222F53011FC47B5760FCE165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013196   (777998) от 03.05.2016
+
+VA - Jazz Olympics (2009) AMG Records[FLAC|Lossless|image + .cue] <Post-Bop, Big Band, Smooth Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Toots Thielemans - Best of Yourself [05:22]
+02.David Linx & Brussels Jazz Orchestra - Fraternity [05:02]
+03.Philip Catherine - Friendship [04:04]
+04.Nathalie Loriers Trio - Confidence [05:24](   Читать дальше...   )Жанр: Post-Bop, Big Band, Smooth Jazz, Vocal JazzПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48741503701EAB4470CB85304BF430E5FEFFBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013346   (777999) от 03.05.2016
+
+Время. Первый канал 21-00 (03.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационно-аналитическая программа Первого канала Время - выходит в эфир в 21:00 по Московскому времени. Производится Дирекцией информационных программ ОАО «Первый канал». Практически в первые годы вещания программы сформировалась концепция очерёдности подачи новостей, которая сохранилась до наших дней: первые лица государства, вести с периферии, экономика, культура, (   Читать дальше...   )Телекомпания: Первый каналЖанр: Информационно-аналитическая программаПродолжительность: 00:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24CC63CD2097350BFA3F4FFEA4C08F5E9DCB341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012936   (778000) от 03.05.2016
+
+Scythe Beast - Breeding Devastation (2016) [MP3|320 кб/с] <MDM,Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bloodmoons Bane
+2. Where Death Is Virtue
+3. God Of Carnage
+4. Enter Oblivion(   Читать дальше...   )Жанр: MDM,Thrash MetalПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4209CC9EF33E0FC382B790BD67F6B98263E3472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013312   (778001) от 03.05.2016
+
+VA - Progressive Sampler: Best Of Vol. 02 (2016) [MP3|320 кб/с] <Trance,Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780114.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Waterdancer (06:08)
- 02. Ocean Nymph (03:45)
- 03. Seahorses (03:34)
- 04. Asleep In The Undercurrent (04:33)(   Читать дальше...   )Жанр: Ambient, Downtempo, Darkwave, EtherealПродолжительность: 00:54:07
+01. Hanski & EDU - False Dawn (06:47)
+02. Maywave - Harmony (07:00)
+03. Monoverse & Blugazer - First Wave (06:47)
+04. Silence Groove - Alice (08:00)(   Читать дальше...   )Жанр: Trance,ProgressiveПродолжительность: 02:26:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9240883905E63FBB277159D0258D9D864C99CF2
+magnet:?xt=urn:btih:460324F09FE0BAB9543DCC8492C15F40B9F5BE77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +334,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208141   (780115) от 21.02.2018
+###  Публикация: 1013052   (778002) от 03.05.2016
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Женщины. 2-й тур. Китай — Россия (ОАР) (15.02.2018) WEB-DL [H.264/1080p-LQ]
+VA - Infrasonic Full Throttle Vol.1 (2016) [MP3|320 кб/с] <Trance>
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780115.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 февраля 2018 года, четверг. 03:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг. Женщины. 2-й тур.
-Китай — Россия (ОАР)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:58:49
+01. Solis & Sean Truby -  Bottleneck (Original Mix)  7:09
+02. UCast -  Orbitude (Original Mix)  6:47
+03. Sou Kanai -  Search For The Truth (Original Mix)  7:39
+04. Paul Rigel -  Rejuvenative (Original Mix)  7:12(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FEF509CADA5F7B9E774B25474EDE1D3BA2EE531
+magnet:?xt=urn:btih:977022FAD43FE15214520C90322C56E8740787FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,28 +363,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208301   (780116) от 21.02.2018
+###  Публикация: 1013297   (778003) от 03.05.2016
 
-VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
+VA - Who's Afraid Of 138?! Top 15 2016-05 (2016) [MP3|320 кб/с] <Trance>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780116.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blake Baxter - Where Is The Love (05:42)
- 02. Santonio Echols - Sources (05:01)
- 03. Eddie 'Flashin' Fowlkes - T.M.F.61 (05:59)
- 04. Thomas Barnett - Operation-10 (05:05)(   Читать дальше...   )Тип издания: CD •Жанр: Techno, Detroit Techno •Продолжительность: 00:54:59
+01. Gareth Emery - Reckless (Standerwick Remix) (feat. Wayward Daughter) 04:03
+02. Allen Watts - Meteor 03:19
+03. Masters & Nickson - Out There (Robert Nickson 2016 Remix) (feat. Justine Suissa) 04:08
+04. The Alliance - Enso 04:17(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12557AE82B0B714A70BCA091AA511E8114685B11
+magnet:?xt=urn:btih:6F0F06071F9FAFB3B6B07C9A23FB5ABE50D75BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,57 +392,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208038   (780117) от 21.02.2018
+###  Публикация: 1013235   (778004) от 03.05.2016
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Женщины. Гонка 10 км. Свободный стиль (15.02.2018) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780117.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 февраля 2018 года, четверг. 09:30 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Лыжные гонки. Женщины.
-Гонка 10 км. Свободный стиль(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581AE629CA5D8E91C72BC962843C001AFA1FF7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208193   (780118) от 21.02.2018
-
-Tom Guarna - The Wishing Stones (2017) Destiny Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Post-Bop>
+Rein de Graaff Quintet - New York Jazz (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780118.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prelude [02:19]
-02. Song for Carabello [05:15]
-03. Surrender Song [07:05]
-04. Hope [07:17](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Post-BopПродолжительность: 01:14:05
+01.Fifty Six [03:57]
+ 02.A Monk's Dream [10:08]
+ 03.Wail [03:27]
+ 04.Solar [05:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:36:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CA57C893A95F2D24EE4BA06E215027D90E6E83E
+magnet:?xt=urn:btih:24575AD6D649FA87F42A65973235200802294518
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,28 +421,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208186   (780119) от 21.02.2018
+###  Публикация: 1013231   (778005) от 03.05.2016
 
-The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Lossless|tracks] <Techno, Ambient, IDM>
+Биатлон. Чемпионат России-2016. Ханты-Мансийск (Россия). Масс-старт 12.5 км Женщины (30.03.2016) HDTVRip [H.264/720p-LQ]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780119.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hope (11:02)
- 02. Disfigured Phantasy (05:53)
- 03. Levitation (08:16)
- 04. Psycho Kinesis (05:23)(   Читать дальше...   )Жанр: Techno, Ambient, IDMПродолжительность: 01:16:30
+30 марта 2016 г., среда
+Биатлонный стадион «Центр зимних видов спорта» – Ханты-Мансийск, Россия.
+
+Программа Чемпионата России-2016 Ханты-Мансийск (Россия):(   Читать дальше...   )Телекомпания: Матч! HDЖанр: СпортПродолжительность: 00:46:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2F75A81FC8F8707077B79FFFDA466F31B8822E2
+magnet:?xt=urn:btih:BA0C4D98288B28C676924D5E2635FFDCD2B178F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,25 +450,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208282   (780120) от 21.02.2018
+###  Публикация: 1013188   (778006) от 03.05.2016
 
-М.В. Лутцев и др. | Католицизм в конфессиональном пространстве Уральского региона (2015) [PDF, DJVU]
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Питтсбург - Вашингтон. 3-й матч (02.05.2016) HDTVRip [H.264/720p-LQ]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780120.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сборнике представлены материалы Межрегионального круглого стола «Католицизм в конфессиональном пространстве Уральского региона» посвящённого 170-летию издания указа о постройке католического собора в г. Оренбурге (28 ноября 2014 г., Оренбург). Книга объединяет научные статьи, освящающие историю и современное положение Римско-Католической Церкви в России и на Урале, (   Читать дальше...   )Жанр: Материалы Межрегионального круглого столаФормат: PDF, DJVU
+03 мая 2016, вторник. 03:00 МСК
+1/2 финала - Восток. 3-й матч
+
+Стадион: Консоль Энерджи-центр (Питтсбург, США) , 18 601 зритель (100 % при вместимости 18 656)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Сергей Борисов, Дмитрий Федоров)Продолжительность: 02:08:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00E03D71B5A10C9349D8B64309F4255ED84796FE
+magnet:?xt=urn:btih:A2F23C526C0B93931328AAC710A19B4112E8C5A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,28 +479,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208187   (780121) от 21.02.2018
+###  Публикация: 1013216   (778007) от 03.05.2016
 
-Mose Allison - I Don't Worry About A Thing & Mose Alive (1962, 1966) 1999, Collectables Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
+Биатлон. Чемпионат России-2016.Ханты-Мансийск (Россия). Масс-старт 15 км Мужчины (29.03.2016) HDTVRip [H.264/720p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780121.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Don't Worry About A Thing [02:19]
-02. It Didn't Turn Out That Way [02:44]
-03. Your Mind Is On Vacation [02:38]
-04. Let Me See [04:12](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 01:10:40
+29 марта 2016 г., вторник
+Биатлонный стадион «Центр зимних видов спорта» – Ханты-Мансийск, Россия.
+
+Программа Чемпионата России-2016 Ханты-Мансийск (Россия):(   Читать дальше...   )Телекомпания: Матч! HDЖанр: СпортПродолжительность: 00:52:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FACAB99484580D881D01BEE74F0CAD5D50AF3CF0
+magnet:?xt=urn:btih:55A1E66C0BE82D9A7D67E17D61B0BC021D246BD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,28 +508,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208198   (780122) от 21.02.2018
+###  Публикация: 1013222   (778008) от 03.05.2016
 
-Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence Suite (2017) Justin Time Records [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
+Биатлон.Чемпионат России-2016.Ханты-Мансийск (Россия). Эстафета 4x6 км Женщины (29.03.2016) HDTVRip [H.264/720p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780122.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Part I (For Kenny Wheeler): Ouverture [01:17]
-02. Part I (For Kenny Wheeler): Starbright [15:26]
-03. Part II (For Jan Jarczyk): To Jan [06:21]
-04. Part III (For John Coltrane): Drum Interlude [01:35](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 00:51:12
+29 марта 2016 г., вторник
+Биатлонный стадион «Центр зимних видов спорта» – Ханты-Мансийск, Россия.
+
+Программа Чемпионата России-2016 Ханты-Мансийск (Россия):(   Читать дальше...   )Телекомпания: Матч! HDЖанр: СпортПродолжительность: 01:25:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5860D7C5BB2A3C84E23718FBCABA571E50DD6514
+magnet:?xt=urn:btih:2FD8409E2D14444A08E8CE0D91F54DD3B5D199AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,28 +537,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207957   (780123) от 21.02.2018
+###  Публикация: 1013014   (778009) от 03.05.2016
 
-Chico Hamilton with Paul Horn (1954, 1956, 1957) 2010, P-Vine Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+Футбол. Чемпионат Германии 2015-2016. 32 тур. Обзор матчей. (02.05.2016) HDTVRip [H.264/720p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780123.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Porch Light [04:02]
-02. Autumn Landscape [03:44]
-03. Uyawda [04:43]
-04. Lolly Pop [02:19](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:32:12
+Обзор матчей 32-го тура.Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Керимов)Продолжительность: 00:51:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89AC385F6961D8D016C29EDE8FC31202DDDC48C0
+magnet:?xt=urn:btih:B557160850366338C378F6E20863817875B23285
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,28 +563,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208196   (780124) от 21.02.2018
+###  Публикация: 1013041   (778010) от 03.05.2016
 
-Bernard Primeau Jazz Ensemble - Virage (1997) Swing'in Time Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Футбол. Чемпионат Испании 2015-2016. 36 тур. Обзор матчей. (02.05.2016) HDTVRip [H.264/720p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780124.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Southend Stomp [06:36]
-02. Numbly [07:05]
-03. Con Alma [08:19]
-04. Traffic Jamm'n [09:15](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:09:48
+Обзор матчей 36-го тура.Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Семен Зигаев)Продолжительность: 00:43:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DDF3335887AB994274ABCC312E717F37283A7A7
+magnet:?xt=urn:btih:8CDD8980F988E6073F78528AB594481697F80DD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -711,28 +589,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208180   (780125) от 21.02.2018
+###  Публикация: 1013175   (778011) от 03.05.2016
 
-Earl Hines - Spontaneous Explorations (1964) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Питтсбург - Вашингтон. 3-й матч (02.05.2016) WEB-DL [H.264/720p-LQ] [EN]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780125.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Undecided [04:03]
-02. Fatha's Blues [05:12]
-03. A Sunday Kind Of Love [04:20]
-04. I've Found A New Baby [03:28](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:37:07
+03 мая 2016, вторник. 03:00 МСК
+1/2 финала - Восток. 3-й матч
+
+Стадион: Консоль Энерджи-центр (Питтсбург, США) , 18 601 зритель (100 % при вместимости 18 656)(   Читать дальше...   )Телекомпания: NBCSNЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:04:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7724CB1C92A408B972E62E9CCD9091C79A01177
+magnet:?xt=urn:btih:3D3FB9D9366314A69DB7786D1DFEFEBDFF6E7455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012971   (778012) от 03.05.2016
+
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Запад. Даллас - Сент Луис. 2-й матч (01.05.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 мая 2016, воскресенье. 22:20 МСК
+1/2 финала - Запад. 2-й матч
+
+Стадион: Американ Эйрлайнс-центр (Даллас, США) , 18 889 зрителей (100 % при вместимости 18 889)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Михаил Мельников)Продолжительность: 02:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DDD95867DAE2AD780905F393291C30512CBC87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013055   (778013) от 03.05.2016
+
+Футбол. Чемпионат России 2015-2016. 26 тур. Обзор матчей. (02.05.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 26-го тура.Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Нагучев)Продолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1284558E436C591C6959759939F032C544C4DC93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012974   (778014) от 03.05.2016
+
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Запад. Сан Хосе - Нэшвилл. 2-й матч (01.05.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778014.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 мая 2016, понедельник. 03:00 МСК
+1/2 финала - Запад. 2-й матч
+
+Стадион: САП-центр (Сан-Хосе, США) , 17 562 зрителя (100 % при вместимости 17 562)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Виталий Магранов)Продолжительность: 02:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0ED5CA98BAB03FA60D58E646D9015F53650C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012462   (778015) от 03.05.2016
+
+Футбол. Чемпионат Испании 2015-2016. 36 тур. Атлетико (Мадрид) - Райо Вальекано (30.04.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778015.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 апреля 2016, суббота. 19:15 МСК
+36-й тур
+
+Стадион: Висенте Кальдерон (Мадрид, Испания) , 49 263 зрителя (90 % при вместимости 54 960)(   Читать дальше...   )Телекомпания: Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Федор Погорелов)Продолжительность: 01:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66EBF3D67679E078F94E0DEC6EBAB4E229052C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

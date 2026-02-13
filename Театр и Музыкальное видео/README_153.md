@@ -1,3 +1,298 @@
+###  Публикация: 630325   (928393) от 15.03.2013
+
+Сборник видеоклипов-2 / Music Video-2 (2008-2013) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов зарубежных исполнителей 2008-2013 г.1.Above & Beyond feat. Zoe Johnston - Alchemy (Official Music Video)
+2.Aelyn - Believe In Us (Official Music Video)
+3.ATB feat. Cristina Soto - Twisted Love (Distant Earth Vocal Version)
+4.ATB with Rudee feat. Ramona Nerra - In And Out Of Love (Official Music Video)
+5.Baluy & 1zik featuring Shir - Mediocre Love (Official Music Video)
+6.Betsie Larkin & Lange - Obvious (Official Music Video)
+7.'Breaking Through' Stoneface & Terminal feat. Ellie Lawson (Official Music Video)
+8.Christian Burns, Paul Oakenfold & JES - As We Collide (Orjan Nilsen Remix) (Official Music Video)Жанр: Музыка,клипы,транс.Продолжительность: 02:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E79192F651B84E22C63B3322B38A73C451E1E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630352   (928467) от 15.03.2013
+
+Сборник видеоклипов-3 / Music Video-3 (2008-2013) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов зарубежных исполнителей 2008-2013 г.1.Above & Beyond - Thing Called Love (Faraway Skies Remix) (Official Music Video)
+2.Above & Beyond vs Audien - Alchemy Wayfarer (Myon & Shane 54 Mashup) (Official Music Video)
+3.Alex Kunnari feat. Ben Andreas - Taste The Sun (Official Music Video)
+4.Armin van Buuren feat. Fiora - Waiting For The Night (Official Music Video)
+5.Artento Divini - Biding My Time (Official Music Video)
+6.Beat Sekas (Vocal Radio Edit) - 'Like To Be' (Official Music Video)
+7.Cosmic Gate & Cary Brothers - Wake Your Mind (Official Music Video)
+8.Dart Rayne & Yura Moonlight feat. Cate Kanell - Shelter Me (Official Music Video)Жанр: Музыка,клипы,транс.Продолжительность: 02:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F23DA38F22C4413D2DE41B3CB054587BD307D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630323   (928715) от 15.03.2013
+
+Toronto Rocks (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+30 июля 2003 около полумиллиона человек собрались на фестиваль, прогремевший в аэропорту Даунсвью в Торонто.
+“Toronto Rocks” вошел в Книгу Рекордов Гиннеса за наибольшее количество зрителей, побывавших на концерте за один день.
+Хедлайнерами небывалого по размерам музыкального праздника выступали «The Rolling Stones», а в числе участников
+были замечены «полярные» музыканты как, например, AC/DC и Джастин Тимберлейк. Стоит упомянуть о совместных
+песнях, которые «The Rolling Stones» исполнили с Джастином Тимберлейком (   Читать дальше...   )01. The Flaming Lips - Race For The Prize
+02. The Flaming Lips - Do You Realize?
+03. Have Love Will Travel - Skybox Ballroom Pump
+04. Have Love Will Travel - Dig Myself A Hole
+05. Have Love Will Travel - Time Won't Let Me
+06. The Isley Brothers - Who's That Lady
+07. The Isley Brothers - Shout
+08. Justin Timberlake - Senorita
+09. The Guess Who - American Woman
+10. The Guess Who - No Time(   Читать дальше...   )Жанр: Концерт, Rock, Hard RockПродолжительность: 01:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE60C48C009A636E286B9C6B8408CF5417F9607E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286576   (928757) от 25.01.2011
+
+Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert der Wiener Philharmoniker (2011) [DVD5 from HDSat] <классика>
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра
+1 января в столице Австрии.
+
+Концерты, которые Венский филармонический оркестр дает ежегодно, по праву считаются одним из крупнейших мировых музыкальных событий года. К этому концерту знаменитый симфонический оркестр долго (   Читать дальше...   )Жанр: Классика,Продолжительность: 02:21:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286209   (928865) от 25.01.2011
+
+Земфира - Крокус-Стрелка / Zемфира - Strelka (2010) HDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Фильм-концерт смонтированный и срежиссированный Ренатой Литвиновой из выступлений Земфиры в Москве.01. Ариведерчи
+02. Румба
+03. Ощущенья
+04. Город
+05. Маечки
+06. Не пошлое
+07. Созрела
+08. Ромашки
+09. Скандал
+10. Рассветы(   Читать дальше...)Жанр: МузыкаРежиссер: Рената ЛитвиноваАктеры: Земфира Рамазанова — вокал, клавишные, гитары; Алексей Беляев — бас-гитара; Николай Козырев — драм-машина, ударные; Дмитрий Шуров — клавишныеПеревод: ОригинальныйПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286894   (929068) от 25.01.2011
+
+Deep Purple: Live at Montreux (2006) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Концерт Deep Purple на джазовом фестивале в Монтре в 2006 году.1. Pictures Of Home
+2. Things I Never Said
+3. Strange Kind Of Woman
+4. Rapture Of The Deep
+5. Wrong Man
+6. The Well-Dressed Guitar
+7. Kiss Tomorrow Goodbye
+8. When A Blind Man Cries
+9. Lazy
+10. Keyboard Solo(   Читать дальше...)Жанр: RockПродолжительность: 01:43:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286802   (929078) от 25.01.2011
+
+Ozzy Osbourne - Ozzfest 2010 (2010) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+02 Арена в Лондоне 18 сентября 2010, HD Трансляции Версия1. Let Me Hear You Scream
+2. Mr.Crowley
+3. I Don't Know
+4. Fairies Wear Boots
+5. Crazy Train
+6. ParanoidЖанр: Hard RockФормат: DVD videoПродолжительность: 00:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39DCB6B4B68B77CB13F601A80F8317F35A84041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629543   (929715) от 14.03.2013
+
+Сборник видеоклипов / Music Video (2008-2013) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов зарубежных исполнителей 2008-2013 г.1.Alex M.O.R.P.H. feat. Shannon Hurley - Monday Morning Madness (Official Music Video) New 2013!
+2.Allure featuring Jeza - You Say It'll Be Okay (Official Music Video)
+3.Andain - Much Too Much (Official Music Video)
+4.Andain - Promises (Official Music Video)
+5.Andain - Turn Up The Sound (Official Music Video)
+6.Avis Vox - Introspection Attemps (Moonbeam Mix) (Official Music Video)
+7.Betsie Larkin & John O'Callaghan - The Dream (Official Music Video)
+8.Betsie Larkin with Super8 & Tab - All We Have Is Now (Official Music Video)Жанр: Музыка,клипы,транс.Продолжительность: 02:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2F69DC49D27D40978B185782761DC158FAC2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286273   (930241) от 24.01.2011
+
+Arash - Videography (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Arash - Араш Лабаф (родился 23 апреля 1977, Тегеран, Иран) — ирано-шведский певец, танцор, артист и продюсер с азербайджанскими корнями.Сочиняет и продюсируeт музыку, в частности, писал саундтреки для индийских и шведских фильмов. В 2004 году сингл Boro Boro стал хитом № 2 в Швеции за 4 недели и далее занял первые места практически во всех мировых чартах и хит-парадах.
+В России Араш записал несколько синглов с популярными российскими исполнителями.Жанр: Pop, Hip-Hop, R’n’BПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE6DD97B90D318C8D4F31F9DD033B1D5047D465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 629714   (930317) от 14.03.2013
 
 Джаз-Рок / Masters Of Guitar (2CD) (2010) DVDRip
@@ -499,275 +794,6 @@ Mike Onesko играл практически со всеми блюз и рок
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7C1508CDBD6548E2EE332351030F24AEE86956C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283736   (933786) от 22.01.2011
-
-Billy Idol / The Very Best Of Billy Idol: Idolize Yourself (2008) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Видеоклипы: Отличная компиляция, которая должна соответствовать потребностям большинства случайных поклонников.Жанр: Pop/RockПродолжительность: 0:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1142F97B7E69736B7D29A98631AC3677C43F5E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285582   (933798) от 22.01.2011
-
-Ian Gillan: The Glory Years (2008) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Дата выпуска: 10 марта 2008 года. Этот концерт был снят в рамках ВВС “Rock Goes To College” серии в Оксфорде политехнический на 2 февраля 1981 после их "Glory Road" альбом (который вышел в № 3) и как раз перед выпуском “Future Shock” (которые пошел к № 2).
-   Бонусы включают четыре спектакля из ВВС Top Of The Pops с 1980 года и 81, один из немецких рок телевизора Pop в 1981 году и оригинальный промо-видео для "Sleeping On The Job".
-   Гиллан был очень успешным хард-рок в начале восьмидесятых, фронтменом которой является легендарный вокалист Deep Purple Иэн Гиллан. Их карьера проходила с 1979 по 1982 год, во время которого они выпустили 5 альбомов все из которых наметил Top 20 в Великобритании и был ряд успешных синглов.Жанр: Hard RockПродолжительность: 0:41:41 + 0:19:43(Bonus)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285086   (933861) от 22.01.2011
-
-Моцарт / Mozart - Opera Rock (1999) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МьюзиклРежиссер: Francois ChouquefАктеры: Mikelangelo Loconte - Вольфганг Амадей Моцарт, Melissa Mars - Элоиза, первая любовь Моцарта, Claire Perot- Констанция, жена Моцарта и младшая сестра Элоизы, Florent Mothe - Антонио Сальери, Solal - Леопольд, отец Моцарта, Maeva Meline - Наннерль, сестра МоцартаПеревод: ОригинальныйПродолжительность: 02:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8CEBE8EE1037AC0D5D81988962030AE82D8FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985309   (933973) от 12.02.2016
-
-Nine Inch Nails - Another Version Of The Truth, part 1: The Gift (2008) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933973.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Another Version of the Truth представлен материал, записанный во время концертов гастрольного тура Lights in the Sky в период с 5 декабря по 13 декабря 2008 года. Another Version of the Truth был выпущен на DVD, Blu-ray и в BitTorrent. Видеоальбом распространялся бесплатно.
-Первоначальным названием проекта было This One Is On Us (в пер. с англ. Это от нас), однако (   Читать дальше...   )01. 999,999
-02. 1,000,000
-03. Letting You
-04. Discipline(   Читать дальше...   )Жанр: Alternative, IndustrialПродолжительность: 02:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA17DF3F0A02184362B413FB4A6FF42CF0863A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629096   (934573) от 11.03.2013
-
-Aerosmith – Permanent Rock (2011) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Неофициальный релиз концерта в Хьюстоне 1988 г. Качество видео не очень, хоть и вышло в DVD.1 Toys In The Attic
-2 Same Old Song And Dance
-3 Big Ten Inch Record
-4 Dude (Looks Like A Lady)
-5 Lightning Strikes
-6 Rag Doll
-7 Hangman Jury
-8 Permanent Vacation
-9 Angel
-10 Back In The Saddle(   Читать дальше...   )Жанр: МузыкаПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C273B03C66BA182F47CCFA72BB1C411D291F68D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628645   (934618) от 11.03.2013
-
-СупердискотЭка / Супердискотека 90-х. Москва (09.03.2013) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дискотека Авария - X.X.X.И.Р.Н.Р
-02. Дискотека Авария - Яйца
-03. Тотал - Бьет по глазам
-04. Примьер министр - Два бриллианта(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 03:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC76973B08767994A7120F2F8C3271D938CACCB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628667   (934981) от 11.03.2013
-
-Slade - Live In Germany (DDR) 1977 (1999) VHSRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт Slade снят телевидением Г.Д.Р. в 1977г.01. Come On Feel The Noise.
-02. Mama We'r All Crazy Now.
-03. Cause I Love You.
-04.Good Bye T Jane.
-05 .Gypsy Road Hog.
-06. The Bangin Man.
-07. Far Far A Way.
-08. When The Lights Are Out.
-09.My Baby Left Me.Жанр: Концерт, Glam RockПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB590FC9E2AEA6A8506AE778540396135A199A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285150   (935006) от 21.01.2011
-
-ABBA - Voulez-Vous (2010) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Этот бонусный ДВД является частью издания Dluxe Edition, выпущенного в мае 2010 года, содержащего CD и DVD. На диске представлены многие видеозаписи группы, которые до этого было найти крайне сложно. Более того, некоторые из них впервые официально публикуются.Жанр: МузыкаПеревод: ОригинальныйПродолжительность: 01:22:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284670   (935144) от 21.01.2011
-
-Tiesto In Concert Arnhem Gelredome 2004 (2004) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto – Forever Today
-02. Tiesto – Olympic Flame
-03. Fred Baker vs Nyram – Confirmation
-04. Fred Baker – Total Blackout
-05. Tiesto – Breda 8PM (DJ Montana Edit)
-06. Thomas Datt – 2V2 (Robert Nickson Mix)
-07. DJ Ernesto – Stop 9.5 (Phynn salvation Mix)
-08. Primer – Everlast (Original Mix)
-09. Ridgewalkers – Find (Andy Moor Mix)
-10. Tiesto featuring DJ Mason – Euphoria(   Читать дальше...)Жанр: TranceПеревод: ОригинальныйПродолжительность: 03:03:46
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

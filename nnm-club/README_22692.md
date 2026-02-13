@@ -1,135 +1,25 @@
-###  Публикация: 1103437   (886021) от 12.02.2017
+###  Публикация: 1104353   (881977) от 14.02.2017
 
-Pikka - Color Picker 1.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pikka - простая в использовании пипетка выбора цвета для разработчиков и дизайнеров.
-Лучший способ организовать ваши цвета, просто выберите цвет на экране и он будет немедленно скопирован в нужный формат.  Pikka не только превосходно выглядит, но имеет отличный способ обработки наборов для проектов . Долгожданное дополнение к любому color-box.
-
-Шаринг цветов между (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 февраля 2017Разработчик: quotleappПоддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66729D35B693AF1CFD1544A155C11823A41161A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870436   (886022) от 18.02.2015
-
-Журнал | Vogue [Россия] №3 (март 2015) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Vogue поистине легенда в мире моды, ведь он издаётся уже более 120 лет. Журнал печатается в 19 странах мира, его аудитория огромна и он по праву занимает первое место. Меняются эпохи, а Vogue по-прежнему является для женщин путеводителем в мире моды. Лучшие модели, коллекции и тренды всё это можно найти на страницах Vogue.Жанр: женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA56C642EE9FC35C63A874ACCC642915CF0CCB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995066   (886023) от 10.03.2016
-
-Ronald Brautigam - Mozart: Piano Concertos No 19 & 23 (2013) [FLAC|96/24|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No. 19 in F Major, K. 459
-1. I. Allegro 00:11:12
-2. II. Allegretto 00:06:19
-3.  III. Allegro assai 00:07:16(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF76403719A7DF393FA052F24A84EF9D673EA720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494927   (886025) от 09.09.2021
-
-Mozilla Thunderbird 91.1.0 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1982E956870FC6BBF8F5365D5F2DB832DED3A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103415   (886026) от 12.02.2017
-
-VA - Lounge Tributes to Love (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Love & Chill Out Valentines Day (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886026.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Opal - Loving You
-02. Pimpi Arroyo - Voulez-vous coucher avec moi
-03. Purple Avenue - American Boy
-04. Wayra - Broken Wings(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:41
+01.  Angel Cielo - In Your Eyes  6:40
+02.  Rado - It Ain't Over Till It's Over  4:21
+03.  Spiral 3 - I Feel Good  4:12
+04.  Bavasso - A Night Like This  3:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1CA66EFB35E3CA9B189F3A033304C57F8E0C89A
+magnet:?xt=urn:btih:7976A84042101E3F379D4A5AFD79139EAD4FCF39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 849645   (886028) от 10.03.2016
+###  Публикация: 1104173   (881978) от 14.02.2017
 
-Discovery. Внутри космической станции / Inside the space station (2000) HDTV [H.264/1080i-LQ]
+VA - All The Way Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Документалистика и Телепередачи
->>Космос
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886028.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 400-ах километрах от Земли строится наше будущее. 16 стран посвятили свои высокие технологии и человеческие ресурсы строительству международной космической станции (МКС) - стартовой площадке для исследования новых миров.Жанр: Документальный, познавательный, космосПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:46:11
+01.  Don Gorda - Festa Do Sol  5:05
+02.  Enrico Donner - Everybody Knows  6:30
+03.  Cane Garden Quartet - I'll Be Loved  6:37
+04.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2234EC19448F83480E36A9D1D5A3AA44663200C1
+magnet:?xt=urn:btih:FB27E9BF5BE45CE352A3723148E54AF3CA84F6D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,26 +56,169 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494665   (886030) от 09.09.2021
+###  Публикация: 1103963   (881979) от 14.02.2017
 
-Книжная серия | «Испытайте писания», «Классическая гимназия» [3 книги] (2017) [PDF, DJVU]
+VA - Essential Guide: Progressive Trance Vol.11 (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lycii & Declan James - Saturn (Extended Mix)  6:15
+02.  Mr Andre & KeyWork - Vertigo (The Giant Remix)  6:50
+03.  Artra & Holland - Adventure (Extended Mix)  6:04
+04.  Ezekiel - Serrano (A.M.R Remix)  7:08(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2862124AD7C137DE7CAB78D8EA914B0893A0803E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103597   (881980) от 14.02.2017
+
+Хоккей. Еврохоккейтур 2016-2017. Шведские игры. 2-й тур. Швеция — Россия (11.02.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881980.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 февраля 2017, суббота. 17:30 МСК
+Еврохоккейтур 2016-2017. Шведские игры. 2-й тур
+
+Стадион: Скандинавиум (Гётеборг, Швеция), 10347 зрителей (86 % при вместимости 12044)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF5253AEE365A882A4E1D90F49033C879DF39E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103894   (881981) от 14.02.2017
+
+Кёрлинг. Зимняя Универсиада 2017. Алматы (Казахстан). Женщины. Финал. Россия - Канада (07.02.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881981.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 февраля 2017, вторник
+Зимняя Универсиада 2017. Алматы (Казахстан)
+Женщины. Финал
+(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD4BEE94F2807B220F388D43F92C056BC2281CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103929   (881982) от 14.02.2017
+
+Биатлон. Чемпионат Мира 2017. Хохфильцен (Австрия). Мужчины. Гонка преследования 12,5 км (12.02.2017) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881982.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 февраля 2017 года, воскресенье. 17:00 МСК
+Чемпионат Мира 2017. Хохфильцен (Австрия)
+Мужчины. Гонка преследования 12,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: 1. Русский,   2. ИнтершумПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9796832495BCB9F28C61332AE4504DE67CBD9E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372992   (881983) от 05.04.2020
+
+Наталья Михайловна Титова | Клиническая психология. Конспект лекций (2006) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящим изданием мы продолжаем серию "Конспект лекций. В помощь студенту", в которую входят лучшие конспекты лекций по дисциплинам, изучаемым в вузах.
+Материал приведен в соответствие с учебной программой курса "Клиническая психология".
+Используя данную книгу при подготовке к сдаче экзамена, студенты смогут в предельно сжатые сроки систематизировать (   Читать дальше...   )Жанр: УчебникиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC7BE1FA8EF1C56B71F3275E175CE33CDBA201A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372973   (881985) от 05.04.2020
+
+Эдриан Ньюи | Как построить машину. Автобиография величайшего конструктора «Формулы-1» (2019) [EPUB]
 
 >>Разное (категория книг)
->>Религиозная литература
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886030.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы серии «Испытайте писания» и «Классическая гимназия» написаны с единых мировоззренческих позиций. Автор считает, что школа богословской мысли становится более основательной, если умеет находить для себя памятники светской культуры, достойные изучения.
-Первая посвящена книгам Священного Писания, вторая — произведениям классической литературы.Жанр: ХристианствоФормат: PDF, DJVU
+Эдриан Ньюи – один из самых известных конструкторов в «Формуле-1». Многие именитые гонщики неоднократно добивались победы в Гран-при благодаря его болидам. Среди них – Ален Прост, Дэвид Култхард, Себастьян Феттель и другие легенды «королевских гонок».
+Как ему удавалось одинаково хорошо работать в «Уильямсе», «Макларене» и «Ред Булле» и успешно конкурировать с «Феррари»? (   Читать дальше...   )Жанр: Биографии и Мемуары, О бизнесе популярно, Спорт, ПублицистикаПеревод: Н.А. АфонинФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCC53E640DD733B5C92A744877C288D3604C3C11
+magnet:?xt=urn:btih:04FB2F564F61A67A5B5F7DDE81C372E43109F300
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,28 +226,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103395   (886031) от 12.02.2017
+###  Публикация: 1373074   (881986) от 05.04.2020
 
-VA - Trance Hits Top 20 (2017-02) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Janis Joplin - 100% Janis Joplin (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886031.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Somna - Awakening (Assaf Remix)  4:19
-02.  Talla 2XLC - Who You Are (Original Mix)  3:28
-03.  Eximinds - Clash (Original Mix)  3:25
-04.  Solarstone - Release (Sunny Lax Remix)  3:40(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:14:33
+01. Big Brother & The Holding Company; Janis Joplin - Turtle Blues (Take 9)
+02. Big Brother & The Holding Company; Janis Joplin - Catch Me Daddy (Take 1)
+03. Big Brother & The Holding Company; Janis Joplin - Flower In the Sun (Take 3)
+04. Big Brother & The Holding Company - Need A Man To Love(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:09:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FDA97DA33D43A4C11BB303B9678B5038EBBF110
+magnet:?xt=urn:btih:E274CB3127138A95F4B15630EFF685C9B77DAA98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,372 +255,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494889   (886032) от 09.09.2021
+###  Публикация: 1373099   (881987) от 05.04.2020
 
-The Zappa Band - Saratoga Springs (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Progressive Rock>
+In Other Waters 1.0.0 (2020) [En] [macOS Native game]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
+>>Игры для macOS
+>>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886032.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (Live) (01:15)
-02. Zomby Woof (Live) (04:23)
-03. Peaches En Regalia (Live) (03:12)
-04. I Ain't Got No Heart (Live) (02:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C0172F5B92E29E102BA4C418906E445FC01694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995347   (886033) от 10.03.2016
-
-VA - Romantic Collection: Tet-A-Tet (2000) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Варум Анжелика, Агутин Леонид - Все В Твоих Руках (4:58)
-02. Пугачева Алла, Моисеев Борис - Две свечи (3:56)
-03. Рыбин Виктор, Сенчукова Наталья - Ни Слова О Любви (4:58)
-04. Иванов Александр - Счастье На Двоих (5:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94BE4C70080920CE5C0A9A83E487AFDE1551AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 297886   (886034) от 19.02.2011
-
-VA - Car Audio Vol.8 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_886034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace Of Base - All 4 You 2011 (V-Project Remix) (4:13)
-02. Adele - Rolling In The Deep (Vand C3A9 & Gross Bootleg) (5:50)
-03. Afrojack feat. Eva Simons - Take Over Control (Adam F Remix) (3:37)
-04. Alex Guesta feat. Rose Maclean - Let U Go (Mark Simmons Vocal Mix) (8:01)
-05. Anya - Beautiful World (Funky Elements Remix) (4:39)
-06. Armin Van Buuren, Woody Bianchi - I Don't Want Giving Up On Love (Lorenzo D'Oria BootyMash) (6:48)
-07. Axwell - I Found U (Paul Johns Radio Mix) (4:11)
-08. Axwell & Sebastian Ingrosso - Together (Serge Revenge Remix) (5:41)
-09. Basto! feat. Amanda Wilson - Watchin' Gregory's Theme (KIVO, Rasmus Uhre Bootleg) (7:03)
-10. Broken Tunes - Dance Over Me (EasyTech Accordion Mix) (4:49)(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 04:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C5C9153A6C34D7E14D27D25A56219D2BDFE0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103404   (886038) от 12.02.2017
-
-VA - EDM Hits 2017 [MP3|320 Kbps] <Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Farrin & Winters - Shaolin 06:06
-02. Wrong Plane - Coming Home 04:27
-03. Capricorn, Valletta - 20 Hz (Remix) 06:26
-04. B2 - Enter The Game 03:39(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115A6FE330A0C448DC0EF5B90BEEDAC9B1CA47A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494934   (886039) от 09.09.2021
-
-Sensei 1.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sensei - это приложение, которое охватывает как программное, так и аппаратное обеспечение, включая гораздо больше функций, чем другие приложения в категории оптимизации Mac. Оно включает в себя функции для очистки вашего диска, удаления приложений, анализа состояния аккумулятора и диска, мониторинга статистики CPU/GPU/RAM, оптимизации скорости загрузки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 09.09.2021Разработчик: Oskar Groth / Cindori ABПоддерживаемая ОС: OS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D88D22F4FC8BF1F345160A9EF403FDAFF87AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103172   (886042) от 12.02.2017
-
-VA - What's Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soda Lounge - The Love We Share (Radio Edit)  3:37
-02.  Mykel Mars - Good Time (Daft Lounge Mix)  5:42
-03.  Eddy Chrome - In Love (Double Deep Chillhouse Edit)  6:12
-04.  DJ Absinth - Morning Sun (Eddy Chrome Instrumental Edit)  3:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0294F31AEDCEB4CAE4A14469C1583301542004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494913   (886045) от 09.09.2021
-
-Мэри Пикфорд. Богиня Гибсона / The Gibson Goddess (1909) WEB-DLRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавная история иллюстрирующая женскую хитрость и наше мужское простодушие и , увы, поверхностность.  Толпа поклонников никак не оставит красивую женщину одну на морском курорте, не дает ей покоя. Поэтому она придумывает хитроумный план. Она появляется в откровенном (для тех времен ;)) купальнике, но чулки набиты ватой, чтобы ее конечности выглядели некрасивыми. (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Мэрион Леонард, Кейт Брюс, Фрэнк Эванс, Артур В. Джонсон, Джеймс Кирквуд, Джордж Николс, Энтони О’Салливан, Мэри Пикфорд, Билли Куирк, Гертруда РобинсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B2FD17C3D869F42366435FEFD8665EA64FD54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494919   (886046) от 09.09.2021
-
-BurnAware Free 14.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886046.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware Free - бесплатная и простая в использовании программа для записи CD, DVD и Blu-ray дисков. Позволяет выполнять все основные задачи по записи: создание и прожиг образов, запись аудио дисков из файлов WAV, MP3, и WMA, запись DVD-Video и дисков с данными, поддержка мультисессии, проверка записанных данных и многое другое.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334418AEC6AF70B764EE905C4B8C65334323F5EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870399   (886047) от 18.02.2015
-
-VA - Pure... 70s Dance Party (2011) [FLАС|Lоssless]<Pop, Rock, Funk / Soul, Europop, Rock & Roll, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Ocean - Red Light Spells Danger (1977) - 3:32
-02. Daryl Hall & John Oates - Rich Girl (1976) - 2:25
-03. Odyssey - Native New Yorker (1977) - 3:27
-04. Melba Moore - This Is It (1976) - 3:30(   Читать дальше...   )Жанр: Pop, Rock, Funk / Soul, Europop, Rock & Roll, Pop Rock, DiscoПродолжительность: 04:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC5E3BEA1FC87F65766A69C79B5814E6547F29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103411   (886050) от 12.02.2017
-
-Monika Roscher Bigband - 2 Album (2012, 2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Failure in Wonderland
-2016 - Of Monsters and BirdsЖанр: Fusion, Contemporary JazzПродолжительность: 02:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB377665B5127892C0CDB424911902235BF9239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870414   (886051) от 18.02.2015
-
-VA - Pure... 80s Dance Party (2011) [FLАС|Lоssless]<Pop, Electronic, Rock, Funk & Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nena - 99 Red Balloons (1983) - 3:51
-02. Daryl Hall & John Oates - Maneater (Edited Version) (1982) - 4:00
-03. Prefab Sprout - The King Of Rock 'n' Roll (1988) - 4:23
-04. Modern Talking - You're My Heart, You're My Soul (Original No. 1 Mix '84) (1984) - 3:21(   Читать дальше...   )Жанр: Pop, Electronic, Rock, Funk / Soul, Pop, Italo-Disco, Pop Rap, Disco, Hi NRG, New Wave, Synthpop, Rock & Roll, Pop RockПродолжительность: 04:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:025C2928058370473990A632355F4FE65B36E183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103432   (886052) от 12.02.2017
-
-VA - Cosy Winter Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omaya - We All Do - Original Mix
-02. Weathertunes - La Seine - Original Mix
-03. Van - All as Before - Original Mix
-04. Foggy Sky - Who Are You - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AA94B7640991B270CD77197DAD2FC1E080A077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494789   (886054) от 09.09.2021
-
-Join Any Video 3.0.2 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886054.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением Join Any Video вы можете смотреть любой формат видео на своем Mac без кодирования.
-Очень просто использовать. Всего 2 шага:
+В чужом океане рассказывает историю Эллери Вас, ксенобиолога, которая открывает внеземные формы жизни в поисках пропавшей напарницы.
 
-• Перетащите любое количество видео.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.09.2021Разработчик: AnandПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+Эллери получает от Минэ Номура вызов на планету Глиезе 677Cc. Прибыв туда, она обнаруживает лишь заброшенную базу. Эллери отправляется в плавание по океану тайн, имея в своем распоряжении только неисправный акваланг и странный ИИ, (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 3 апр. 2020Разработчик: Jump Over The AgeПоддерживаемая ОС: 10.10+Жанр: Приключенческие игры, ИндиЯзык озвучки: английскийЯзык интерфейса: английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7948CFC495090C6DE46BDAE3B90464DBB7F6EC8
+magnet:?xt=urn:btih:55505042E7BED40B0D156CD9350EAD246A5D77C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,27 +283,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 994895   (886057) от 10.03.2016
+###  Публикация: 1373218   (881988) от 05.04.2020
 
-Любовь Ковалевская | Чернобыль «ДСП». Последствия Чернобыля (2010) [MP3]
+Рамки - NNM-Club - Рамки от Warrior 123 #13 - 1373218 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рамки созданные нашим одноклубником Warrior 123
+ОднослойныеФормат: PSDРазрешение файлов: 2000x1300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DFB93EBCE353292E0491815671E7E6C88C2898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373194   (881989) от 05.04.2020
+
+Сергей Семанов | Мужицкий царь (2004) [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886057.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данная книга — независимое расследование преступления под названием «Чернобыль». В ней показана динамика развития чернобыльской ситуации с 1986 по 1994 год с использованием достоверных данных радиобиологических и медицинских исследований, документов с грифом «Секретно» и «ДСП».
-
-Книга, составлена фактически из двух самостоятельных книг. Первая — «Чернобыль «ДСП» (   Читать дальше...   )Жанр: Публицистика, документальноеПродолжительность: 19:53:50
+Историческое повествование о наиболее значимых страницах жизни царя - "Миротворца" Александра III. Император Александр II был полон самых добрых намерений в отношении своих подданных, но в реформах копировал Запад, а не опирался на русские традиции, потому развел в православной стране истинно гнилой либерализм. А в гнилостной среде зарождаются, как известно, (   Читать дальше...   )Жанр: ИсторияПродолжительность: 02:43:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1206A0AE475E8EF559CFA26FCB0EA18E5F990680
+magnet:?xt=urn:btih:F2A084BC2000F748231967A48B73E2F9306BD21A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,28 +336,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103694   (886059) от 12.02.2017
+###  Публикация: 1373185   (881990) от 05.04.2020
 
-Stanley Cowell - Musa: Ancestral Streams (1974) 2006, Bomba Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Buzz Aldrin's Space Program Manager v1.7.1 (2014) [Multi] [macOS Native game]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Игры для macOS
+>>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886059.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Abscretions [05:07]
- 02.Equipoise [03:44]
- 03.Prayer For Peace [07:09]
- 04.Emil Danenberg [02:53](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:00
+Buzz Aldrin's Space Program Manager (SPM): дорога на Луну – игра об исследовании космоса. События происходят в 50-е годы, и гонка за превосходство между СССР и США скоро перенесется в новое измерение: космос. Возглавьте советское или американское космическое агентство, ваша цель – первым высадиться на Луну. Осторожно тратьте свой бюджет на запуск космических программ, (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2014Разработчик: Polar MotionПоддерживаемая ОС: 10.6+Жанр: Симуляторы, СтратегииЯзык интерфейса: английский, французский, немецкий, испанский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B501E5E439A78C0582F13EDE7CA636BD4E6B826A
+magnet:?xt=urn:btih:7AC9ABC557D5927DB08D74E9D77E9B0441D6F18A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,25 +362,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494773   (886060) от 09.09.2021
+###  Публикация: 1372995   (881991) от 05.04.2020
 
-Theine 3.3 [Multi/Ru]
+Скотный двор (1897) [PDF]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886060.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не позволяйте компьютеру Mac заснуть, затемнению экрана или запуску заставки. Theine не дает уснуть macOS, как кофеин внутри вас.Тип издания: macOS SoftwareРелиз состоялся: 07.09.2020Разработчик: IXEAU UG (haftungsbeschraenkt)Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+Животные.
+Для младшего и среднего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5FBA3C56B33C9BC778A2F8ACA7691EB7480E3B7
+magnet:?xt=urn:btih:8F1490585F65FD075690AC5B20AE5A3E12A27073
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,54 +389,323 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 995074   (886063) от 10.03.2016
+###  Публикация: 1373132   (881992) от 05.04.2020
 
-O&O Defrag Professional 19.5 Build 222 RePack by D!akov [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых известных и лучших программ для дефрагментации жёстких дисков на рабочих станциях. Позволит вам вернуть утраченную производительность рабочих станций Windows. Данное решение устранит фрагментацию файлов и расположит их в нужном порядке. Программа предлагает широкий выбор новых и уникальных функциональных возможностей, которые позволяют без лишних усилий (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA6E0A729D692320CA297D7C6771FDAC4933CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103047   (886064) от 12.02.2017
-
-VA - City of Souls: Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Drizzly Music presents: Dubai Loungers Series (Only For The Riches) - 5 Releases (2009-2016) [MP3|320 Kbps] <Lounge, Easy Listening, Lo-Fi>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886064.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don Gorda Project - Morning Darkness  5:45
-02.  Enrico Donner - Side Chain Reactions  5:58
-03.  Cane Garden Quartet - Erotisme  5:37
-04.  Baghira - Synapses  5:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:48
+2009 - Dubai Loungers • Only For The Riches
+2010 - Dubai Loungers • Only For The Riches, Vol.2
+2015 - Dubai Loungers • Only For The Riches, Vol.3 (Cafe Chill Out Edition)
+2015 - Dubai Loungers • Only For The Riches, Vol.4 (Cafe Chill Out Edition)(   Читать дальше...   )Жанр: Lounge, Easy Listening, Lo-Fi, Chillout, DowntempoПродолжительность: 09:50:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:109A736B5E88C1EE5850AFC6727C384BC8D8F9A4
+magnet:?xt=urn:btih:6FAAC345DCA81542348A7CD40C4EB6889D74BD5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373053   (881993) от 05.04.2020
+
+Pano2VR Pro 6.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garden Gnome Pano2VR – великолепная программа для создания сферических и цилиндрических 3D панорам, а также для создания на их основе уникальных виртуальных туров со всевозможными эффектами и переходами. Позволяет сохранять созданные панорамы в форматах Adobe Flash 10 (SWF), HTML5 (веб-галереи, форматы iPhone, iPad) или QuickTime VR (QTVR). Поддерживается работа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F82E859FAA32E88E09DE7EDF5F38D0DDEFB5D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373150   (881994) от 05.04.2020
+
+Б. А. Архангельский, Г. Н. Сперанский | Мать и дитя. Школа молодой матери (1955) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача этой книги состоит в том, чтобы ознакомить женщину с особенностями строения ее организма, с тем, как протекает нормальная беременность, научить ее, как избежать осложнений во время беременности и родов, а также рассказать родителям об особенностях организма ребенка, дать им советы по уходу, вскармливанию и воспитанию его.
+
+Лечить заболевания - дело врача; (   Читать дальше...   )Жанр: История, педагогика, медицина, биология, гинекология, педиатрияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3F6B8C14A93E14BF59708F293CE316715B6B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373040   (881995) от 05.04.2020
+
+Журнал | AD / Architectural Digest [France] №3-4 (март-апрель 2020) [PDF] [Fr]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E805313F6EDA2A0B1139158626E77EE6D78587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373179   (881996) от 05.04.2020
+
+Татьяна Полякова | Дневник чужих грехов (2019) [MP3, Ольга Благодатских]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чужие грехи – самое интересное для обывателя, но порой и самое опасное. Ведь за некоторые из них – убивают… Анна возвращается на хутор, доставшийся ей в наследство, где она когда-то была невероятно счастлива, единственный раз в жизни – полюбив. Но и в этом тихом и отдаленном месте кипят страсти и происходят настоящие преступления – по дороге со станции убита молоденькая (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0190C5103A2C47D6F99E0438E1E853802A8AE6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373141   (881997) от 05.04.2020
+
+Журнал | Женские секреты №2-3 (февраль-март 2020) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Женские секреты» — популярное издание для самостоятельных женщин, занимающих активную жизненную позицию. «Женские секреты» — это новости мира моды и звезд, фирменные рецепты красоты и здоровья, хозяйственные и кулинарные хитрости, способы обольщения и романтические истории.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AFCC877314F2A6F5652A3BB32A609FFFBBCF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372931   (881998) от 05.04.2020
+
+Мариэтта Чудакова | Рассказы про Россию. 1861—1922 (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга Мариэтты Чудаковой – члена Европейской академии, знаменитого литературоведа, историка литературы, биографа Михаила Булгакова, автора увлекательных романов для школьников – результат нескольких совпадений. Профессионального интереса ученого к истории Отечества. Гражданского темперамента общественного деятеля, члена Президентского совета при Б.Н. Ельцине. (   Читать дальше...   )Жанр: Проза для детей, Отечественная историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374C745102C03E00E57CC97499C4E4279DD250C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373235   (881999) от 05.04.2020
+
+Галина Алексеевна Берулава | Методологические основы деятельности практического психолога (2003) [PDF, DOC]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881999.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии излагаются современные проблемы взаимосвязи психологической теории и практики. Рассматриваются концептуальные основы двух методологических парадигм психологии: объектной (естественно-научной, позитивистской) и субъектной (личностно-ориентированной, гуманистической). Анализируются методологические основы практико-ориентированных видов деятельности (   Читать дальше...   )Жанр: УчебникиФормат: PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD3981288C961970CB0B37F1312CB97A5F7093D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372997   (882000) от 05.04.2020
+
+Волк и семеро козлят (1894) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русские народные сказки.
+Для детей младшего школьного возраста.Жанр: Детская проза, СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E45DE36ABFE3CD10BFA7760773E714B30F58F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373176   (882001) от 05.04.2020
+
+VA - Stand By Me: Planet Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882001.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Connor - Fashion (Extended Version)
+002. Swimming Tapes - Keep Her Closer
+003. Mark Morrison - Return Of The Mack (C & J Street Mix)
+004. T-Micky - N'oublie Pas(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B623D5BD8B4A6EC5F60A98AAC3DB028D7863A1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373066   (882002) от 05.04.2020
+
+VA - Arecibo Calling (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882002.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ORII - Steps (6:41)
+2. Samra - Inside Your Head (7:26)
+3. Effective - Free Flow (6:00)
+4. Sawlead - Ram Like Floyd (7:23)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F97FF9EC2ABA5D56BFCAA81E035C8EEA4E7643D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764216   (882013) от 08.03.2014
+
+Газета | 1000 секретов [Украина] №1 (январь 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882013.jpg" />
+</div>
+
+
+###  Подробнее
+
+"1000 секретов" - газета которая будет полезна каждому без исключения. Она содержит по несколько полос из каждой области человеческой жизни: воспитание детей, кулинария, здоровье, строительство и ремонт, сад и огород, умелые руки, дизайн, физическое развитие, психологические и юридические консультации.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0626A8330B3FD41AC260053D17E93FCA097030E
 ```
 
 https://mybot314.ru/tekegram_catalog/

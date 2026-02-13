@@ -1,3 +1,32 @@
+###  Публикация: 999117   (865956) от 21.03.2016
+
+Claude Debussy - Images & Preludes II (Marc-Andre Hamelin) (2014) [FLAC 2.0|96/24|Lossless|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Images Book I (1905) L105
+1 Reflets dans l'eau 5'19
+2 Hommage à Rameau 7'09
+3 Mouvement 3'27(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D10338304E712201B45CBC28E94E7D3CFF0AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998839   (866117) от 21.03.2016
 
 Ivan Moravec - Chopin: Nocturnes (1991) 2 CD [FLAC|Lossless|tracks] <Classical, Romantic>
@@ -720,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AB75891E80223D2B2A358A6522C87151C75FF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997532   (873427) от 17.03.2016
-
-Sarah Brightman - New Collection (2008) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time To Say Goodbye (Con Te Partiro) (With Andrea Bocelli) (04:07)
-02. The River Cried (04:05)
-03. Whistle Down The Wind (Whistle Down The Wind) (03:29)
-04. Jonny Wanna Live (04:41)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DA650456EFD645BBEAC000C7C089FBD02A9CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

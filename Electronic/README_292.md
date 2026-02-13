@@ -1,3 +1,32 @@
+###  Публикация: 1151612   (570530) от 20.07.2017
+
+VA - Erotic Chillout Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Go - Well & Ness 03:47
+02. Schwarz & Funk - Velvet Dreams 05:30
+03. King Hookiss - Dare 2 Dream (Ibiza Night Mix) 05:58
+04. Susy Seven - Come With Me 06:59(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 08:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB96E6FD164450972830EDD00CA0CCBEC55C17BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151290   (570696) от 20.07.2017
 
 VA - Summer Time (Dance Hits) (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -723,35 +752,6 @@ VA - Sunset Lounge Bar, Vol. 1 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FA015B744504731F1A45A5C3FE120374CBE8ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151410   (572742) от 19.07.2017
-
-New Order - Music Complete: Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, New Wave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tutti Frutti (Takkyu Ishino Remix) (7:55)
- 02. The Game (Mark Reeder Spielt Mit Version) (6:48)
- 03. Academic (Mark Reeder's Akademix) (7:23)
- 04. People on the High Line (Purple Disco Machine Remix) (7:05)(   Читать дальше...   )Жанр: House, Downtempo, New WaveПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E13ED1BDC371A5AF7F41D4B50B9BF817F3B1A83
 ```
 
 https://mybot314.ru/tekegram_catalog/

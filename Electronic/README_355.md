@@ -1,3 +1,33 @@
+###  Публикация: 1131919   (704593) от 07.05.2017
+
+Sexy Suicide - Intruder (2016) [FLAC|Lossless|tracks + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изначально группа называлась "Neon Romance", и была основана весной 2014-го года в Сосновце. "Neon Romance" сформировалась по инициативе Варфоломея Саламона и Майкла Капусцинского. Спустя несколько месяцев к группе присоединяется Марика Томчик, которая становится официальной вокалисткой.
+В течение некоторого времени ребята трудились над своим (   Читать дальше...   )01. Kiss of Winter
+02. Shame of Device
+03. Diary of Moon
+04. Afterlife(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202E3A224C406F1FFB42559E3F409A403CA2338E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287335   (704693) от 06.03.2019
 
 Didier Marouani & Space - Legend (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
@@ -714,35 +744,6 @@ Planetary Assault Systems - Straight Shooting (2019) Mote-Evolver [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:014BF28483FED1091871A35DAD02382AFB03224E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286986   (707429) от 05.03.2019
-
-909 Resistance - GoodBye RackFive (2018) Arrakis [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LM2 (05:14)
-02. BBR5 (05:17)
-03. LM2 (Mik Izif Remix) (05:58)
-04. LM2 (J-Rex Acid Remix) (07:27)Жанр: Techno, AcidПродолжительность: 00:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94278ED556D66873AF8517B3C5D539F0FC8FAB75
 ```
 
 https://mybot314.ru/tekegram_catalog/

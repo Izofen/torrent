@@ -1,3 +1,32 @@
+###  Публикация: 1014166   (776946) от 06.05.2016
+
+Lemongrass - Beauty (2016) [MP3|320 кб/с] <Electronic, Ambient, Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something True (ft Jane Maximova) 04:32
+02. Belle Vue 05:12
+03. Beautiful and Free (ft Karen Gibson Roc) 04:15
+04. Sunset People 04:42(   Читать дальше...   )Жанр: Electronic, Ambient, Downtempo, ChilloutПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5751749D6AF4D26429EE7A4C712E2F5F3EB5C130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013731   (777146) от 05.05.2016
 
 Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) Columbia [FLAC|Lossless|WEB-DL|tracks] <Electro, Trance, Ambient, House>
@@ -716,35 +745,6 @@ VA - Dark Miami (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC1DC003BA179083316B4BE0DCC3F98EA27FBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211102   (777872) от 06.03.2018
-
-VA - Club Hits Workout Vol.1 (2018) [MP3|320 Kbps] <Dance, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies and Netsky - Here with You (Bassjackers Remix)
-02. MATTN Magic Wand feat. Neisha Neshae - Let the Song Play (Futuristic Polar Bears Remix)
-03. Bombs Away feat. Elle Vee - Like You (Fresh Til' Death Remix)
-04. VASSY Afrojack feat. Oliver Rosa - Lost(   Читать дальше...   )Жанр: Dance, Club HouseПродолжительность: 02:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB6DA3EB7A91F1B46F26B816519CBA7B69F0C6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

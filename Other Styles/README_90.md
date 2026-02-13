@@ -1,3 +1,32 @@
+###  Публикация: 1152994   (560076) от 26.07.2017
+
+Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Galaxy [04:56]
+02. A First Star [02:24]
+03. Mankind [04:26]
+04. Other Worlds [04:37](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A49A6E7A1BE07F092FE933D3F02D689B958A344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152996   (560078) от 26.07.2017
 
 Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
@@ -738,35 +767,6 @@ Sammy Kershaw - Labor Of Love (1997) [FLAC|Lossless|image + .cue] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E6A0D5C1F648FF385275A78DFE83AE6B1E06A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152190   (566821) от 22.07.2017
-
-Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - The Mole (05:36)
-02. Hans Zimmer - We Need Our Army Back (06:28)
-03. Hans Zimmer - Shivering Soldier (02:52)
-04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B57E9D06CFA17781CAACC15FB888616775B333
 ```
 
 https://mybot314.ru/tekegram_catalog/

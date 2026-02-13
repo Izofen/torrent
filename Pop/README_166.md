@@ -1,3 +1,177 @@
+###  Публикация: 1410595   (433872) от 22.09.2020
+
+Alicia Bridges - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Downtempo>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алисия Бриджес. Родилась 15 июля 1953 года  в Шарлотте, штат Северная Каролина и выросла в маленьком городке округа Кливленд-Лондейл, где пела с самого раннего возраста, научившись играть на гитаре в возрасте 10 лет. В возрасте 12 лет у нее была своя собственная радиопрограмма: шоу Алисии Бриджес, транслируемое каждую субботу на станции  WADA в Шелби. Написала в соавторстве (   Читать дальше...   )01. Body Heat  (3:03)
+02. Break Away  (3:25)
+03. High Altitudes  (5:03)
+04. We Are One  (4:18)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, DowntempoПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92276ED199C505DF18D797B108602A96426D4CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410782   (433874) от 22.09.2020
+
+Michael Fortunati - The Best Of Disco Covers (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Around And Count 2 Ten (5:56)
+02. Eat You Up (3:50)
+03. You Spin Me Round (Like A Record) (4:05)
+04. Never Gonna Give You Up (3:27)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C446BE57DE0B92A6C08AFF7756835DEE3D344EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945299   (433919) от 10.10.2015
+
+Ronan Keating - Ronan (2000) [FLAC|:image +.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Is A Rollercoaster
+02. The Way You Make Me Feel
+03. In This Life
+04. Heal Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA75B570868382E09D9FA8C92F8C301E42B77D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571277   (433939) от 21.08.2022
+
+Sandra - Into A Secret Land (1988) [OGG Vorbis|485 Kbps] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Land	4:45
+02. We`ll Be Together	4:10
+03. Heaven Can Wait	4:04
+04. Just Like Diamonds	5:40(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B584662698A5D2B4D680A0FB268FBDB32BEF19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571214   (433946) от 21.08.2022
+
+Sandra - Mirrors (1986) [OGG Vorbis|485 Kbps] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Second Day    0:35
+02. Don't Cry (The Breakup Of The World)	4:55
+03. Hi! Hi! Hi!	4:11
+04. Midnight Man	3:04(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E38E960D6A14076D5547F68068CA593157A5551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410781   (433973) от 22.09.2020
+
+The Naked and Famous - Recover (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recover (03:04)
+02. Sunseeker (03:48)
+03. Bury Us (03:09)
+04. Easy (03:53)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FAA6CD2664B532C8D8431F50F863FCABDF88B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063433   (434680) от 16.10.2016
 
 Madonna - Like A Virgin (1984) [FLAC|Lossless|image + .cue] <Pop>
@@ -569,177 +743,6 @@ Celine Dion - A New Day Has Come (2002) [OGG Vorbis|485 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B488FB886018DC8CDC64BDF060BFD4B1D66284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392868   (437019) от 26.09.2011
-
-Витас - Мама и Сын (2011) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248884   (437148) от 22.09.2018
-
-VA - Love Dancing (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437148.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Diana King - I Will Do It 3:41
-002. Phil Giava feat. Jacinta - You're My Destination (Extended Mix) 4:19
-003. Miss Jane - It Is A Fine Day (ATB Remix) 3:18
-004. Nadia & Alan Divall - Superstar (A.Voltage Remix) 4:23(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 08:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E0EEEAC9C032919A61B42338CBF6153B815552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 124135   (437547) от 20.09.2020
-
-ABBA - Дискография (1970-2007) 65CD [MP3|320] <PoP, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437547.jpg" />
-</div>
-
-
-###  Подробнее
-
-1970 - Lycka Remastered And Expanded - 01.16.17
-1973 - Ring Ring The Complete Studio Recordings - 00.57.36
-1974 - Waterloo (Unremaster) - 00.35.38
-1975 - ABBA (Unremaster) - 00.51.35(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 64:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AA7421DC40855AA070D63DC20FD3DA5087F7EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322904   (437698) от 03.09.2019
-
-Flora Cash - Press [EP] (2019) [FLAC|Lossless|tracks] <Alternative pop, Indie folk, Dream pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indie on Loud (3:25)
-02. They Own This Town (3:46)
-03. I Wasted You (3:42)
-04. You're Somebody Else (3:39)(   Читать дальше...   )Жанр: Alternative pop, Indie folk, Dream pop, Folk music, Indie popПродолжительность: 00:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8472A2EAD51D02BA55150391BDCE1FDF95CF7D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249153   (437866) от 22.09.2018
-
-Luca Rovini & Companeros - Cuori Fuorilegge (2018) [MP3|320 Kbps] <Italy Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senza gambe ne parole (05:10)
-02. Fuorilegge (04:44)
-03. Honky tonk senorita (03:09)
-04. Al tavolo di un altro (04:31)(   Читать дальше...   )Жанр: Italy PopПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E55A273056C77C56B95AF6569E3452E1BA6853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323386   (437868) от 03.09.2019
-
-Rocky M - The Best Of (1989) LP [MP3|320 Kbps] <Electronic, Europop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Heart (3:15)
-02. Disco Lady (3:27)
-03. An Angel Passed My Way (4:13)
-04. Fever (3:22)(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D378BE82ED2A71D9F819420794DA401EDA980F
 ```
 
 https://mybot314.ru/tekegram_catalog/

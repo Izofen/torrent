@@ -1,3 +1,32 @@
+###  Публикация: 997532   (873427) от 17.03.2016
+
+Sarah Brightman - New Collection (2008) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time To Say Goodbye (Con Te Partiro) (With Andrea Bocelli) (04:07)
+02. The River Cried (04:05)
+03. Whistle Down The Wind (Whistle Down The Wind) (03:29)
+04. Jonny Wanna Live (04:41)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DA650456EFD645BBEAC000C7C089FBD02A9CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997558   (873562) от 17.03.2016
 
 Beethoven - The Complete Symphonies (2003) 5CD [FLAC|Lossless|image + .cue] <Classical>
@@ -709,35 +738,6 @@ Tina Guo - Game On! (2017) [MP3|320 Kbps] <Classical Crossover, Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AFBFE4D15EB4A0421ADC55C5520E5662AF911FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103720   (885547) от 12.02.2017
-
-TCHAIKOVSKY - Francesca da Rimini • Symphony No.6 "Pathetique"  Moscow Radio Orchestra - G.Rozhdestvensky (1992) [FLAC|Lossless|image + .cue] <Orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885547.jpg" />
-</div>
-
-
-###  Подробнее
-
-П.И.Чайковский:
-[01] Франческа да Римини
-[02] Симфония №6: I. Adagio - Allegro non troppo
-[03] II. Allegro con grazia(   Читать дальше...   )Жанр: OrchestralПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03BE209DEEE31417A6283EB46226531C0E5935C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

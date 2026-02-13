@@ -1,3 +1,33 @@
+###  Публикация: 799218   (646156) от 26.06.2014
+
+The New Paul Mauriat Grand Orchestra - Still Blue (Best Collection Dedicated to Paul Mauriat) (2013) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как известно, оркестровая музыка до сих пор пользуется завидной популярностью в Японии и странах Азии, а после смерти Поля Мориа в 2006 году интерес поклонников к его творчеству только растет.
+Представляемый альбом французского оркестра, пока не известного широкой публике, дебютный. Однако не удивляйтесь, ведь он называется "Новый оркестр Поля Мориа". Почему (   Читать дальше...   )01. Pegase (3:41)
+02. Minuetto (2:38)
+03. La chanson pour Anna (2:59)
+04. Prelude 59 (3:54)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533FC8CE9F1A0F7607FDF743E829EE15F470178B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142022   (646417) от 12.06.2017
 
 The Romantic String Orhcestra - Very Special Songs Of The '70s: The World's Most Beautiful Melodies (1996) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -725,35 +755,6 @@ Andre Gagnon - Comme Dans Un Film (1986) [MP3|320 Kbps] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FC9BF0955A9FD32D73C3545A25752C8AF732FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031843   (649827) от 05.07.2016
-
-Shastro - Bandole! (1994) [FLAC|Lossless|tracks] <New Age, Ambient, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bandole!    05:41
-02.  Summer Rain    05:23
-03.  Kinana's Lullaby    05:32
-04.  Talkin' Stories    04:06(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2AE16F223494509FF51E029F5A7F2A5B7E45F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

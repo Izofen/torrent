@@ -1,3 +1,32 @@
+###  Публикация: 1200770   (1031941) от 12.02.2021
+
+VA - Uplifting Only Top 15 (2016-2021) (Обновляемая) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoundLift – Road To Happiness
+02. Sound Apparel – Vivere Est Militare (I Was Alone)
+03. Sunlight Project – La Nouvelle Generation
+04. Yahel – Open Your Mind (Night Sky Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 108:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0492273BF8257D8AA059414C1757A26D0A9837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447046   (1032073) от 12.02.2021
 
 VA - Synth Pop Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave, Electropop, 80s-10s>
@@ -706,35 +735,6 @@ De:tuned Label - 10 Years of De:tuned Series 11 Releases (2020) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BF7BE83ED0755FAB5007C4BDA35D5CC827609FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202911   (1032934) от 08.02.2021
-
-Chase Dobson (c.db.sn, Cellar Graves) - Discography 11 Releases (2006-2020) Tympanik Audio [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Techno, Dubstep, Ambient, Post Rock>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. inertia (07:11)
- 02. momentum (06:11)
- 03. repetition_motion (05:55)
- 04. ad infinitum (07:52)(   Читать дальше...   )Тип издания: CD, WebЖанр: Electro/Industrial/EBM/SynthwaveПродолжительность: 07:58:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48518BF9685489BA24A2761E1E376608B0EEC5A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

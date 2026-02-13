@@ -1,3 +1,32 @@
+###  Публикация: 1389044   (784769) от 09.06.2020
+
+VA - Vintage Reggae Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy-listening, Lounge, Reggae>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamaican Reggae Cuts feat. Pinky Dread - Say My Name (2:41)
+02. The Reggister's - Friends (4:05)
+03. Conkarah feat. Rosie Delmah - Hello (3:58)
+04. Trippynova - Come (3:16)(   Читать дальше...   )Жанр: Easy-listening, Lounge, ReggaeПродолжительность: 03:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F88AF7EB8311B01B6FC9C10D8C533906EED932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389052   (784776) от 09.06.2020
 
 Daniel Deluxe - Exile (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
@@ -716,35 +745,6 @@ VA - Best Of 2018 (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:755DB103C2392D362391F677234455B788901512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204117   (785384) от 04.02.2018
-
-Aelyn - Voice Of Suanda Vol. 5 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Aelyn & Feel - If You Feel Love (Original Mix)
-02.Aelyn - Game Over (Ruslan Radriges Remix)
-03.Aelyn & Universal Sense - Be Where You Are (Vocal Mix)
-04.Aelyn - Water & Fire (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234A16E83E38ABC99EE3CD08C14C7FC54E194598
 ```
 
 https://mybot314.ru/tekegram_catalog/

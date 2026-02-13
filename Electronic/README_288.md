@@ -1,3 +1,32 @@
+###  Публикация: 1045230   (561264) от 22.08.2016
+
+C.C.C.P. - Album & Compilation (1990, 1992) [MP3|320 Kbps] <Electronic, Industrial, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая синти-поп-группа. Выделились от "депеш мод подражателей 80-х" имея более жесткий и энергичный звук. Первые же дебютные синглы "American-Soviets" в 1986 попадают в танцевальные клубы и на пост-панк-вечеринки, став любимцами ди-джеев на протяжении 80-х - начала 90-х. Первый и самый интересный альбом, включающий названные, последующие и (   Читать дальше...   )01. The World Part I (1:03)
+02. American Soviets (5:14)
+03. Don't Kill The Rain Forrest (6:37)
+04. Conquestadores (4:53)(   Читать дальше...   )Жанр: Electronic, Industrial, Synth-popПродолжительность: 02:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D370F2796EBC339972111CB9EC2AB3A86B000EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152888   (561320) от 25.07.2017
 
 Huron - Inside Information (2017) [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Experimental, Glitch, Abstract, Ambient>
@@ -715,35 +744,6 @@ Maria Healy - Live @ Civic Underground Sydney, Australia (2019-05-03)[MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C4377E6F8A7F86D27838BA02C8B122F9F77277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235337   (562262) от 10.07.2018
-
-VA - Best of Lounge 2018 (Special Selection) Vol. 2  [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Noise - Karma Shabda (Original Mix) (05:06)
-02. Scarlet Blue - Cool Cool Girl (Sunday Morning Mix) (04:17)
-03. Lazygrooves - Secrets (Original Mix) (04:21)
-04. Lenny Ibizarre - A Drop in the Ocean (Original Mix) (04:11)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95E32FEE393FAB3526E83B1C2E50EC94DF87C92
 ```
 
 https://mybot314.ru/tekegram_catalog/

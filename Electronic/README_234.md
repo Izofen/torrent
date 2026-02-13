@@ -1,3 +1,29 @@
+###  Публикация: 1138492   (420149) от 28.09.2020
+
+Frore - Discography 12 Releases (2009-2018) Relaxed Machinery, Spotted Peccary, earthMantra [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tribal, Experimental, World, Dark Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Void Peripheral (57:26)Тип издания: WEBЖанр: Ambient, Tribal, Experimental, World, Dark Ambient, Drone •Продолжительность: 11:25:27 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86CCDE50E5878EC87EDDD336BD9C5B027B8CF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947442   (420188) от 16.10.2015
 
 Faithless - 2.0 (Remixes & Hits) (2015) 2CD [MP3|320 кб/с]<House, Trance>
@@ -719,35 +745,6 @@ Utah M. Paul - Дискография  44CD Taboo Records (1997-2010) [MP3|320 k
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75AB36637252DB82BD3BFDAE15FB9C413F194E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412075   (422955) от 27.09.2020
-
-Takkra - Universal Medicine (2020) Sofa Beats [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fountain (03:17)
- 02. Vacuum Of Shambala (05:22)
- 03. Sacred Flow (05:08)
- 04. Love Mantra (08:53)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7087D7436FCDCB8E2EF2D6AEDCB5A2AC8808AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

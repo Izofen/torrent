@@ -1,3 +1,32 @@
+###  Публикация: 1331076   (334984) от 13.10.2019
+
+Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Dawn (2:35)
+2.Pianissimo (3:26)
+3.Alpine Meadow (3:20)
+4.Peaceful Stream (2:52)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181081   (335067) от 06.11.2017
 
 Leo Rojas - Leo Rojas (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
@@ -716,35 +745,6 @@ Olivia Jo - Something Real Good (2015) [MP3|320 кб/с]<Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E3B492148AD46443FE328F04850A16F482A2210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074032   (340075) от 18.11.2016
-
-Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
-02. Marcy Harriell - More (Outtake) (03:17)
-03. Marcy Harriell - More (Reprise - Outtake) (02:39)
-04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA3A33C3492B6EF3546F8E5251BFE01CFEE4EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

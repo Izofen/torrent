@@ -1,3 +1,32 @@
+###  Публикация: 1297155   (1005815) от 22.07.2021
+
+Eric "The" Taylor (Resilience, Architects Of Existence) - Discography 7 Releases (2017-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Ghostly Appearance (21:45)
+ 02. A Trickled Tear (19:01)
+ 03. Pulling (16:32)
+ 04. Three Deep Breaths (17:17)Тип издания: CD, WebЖанр: Ambient, Experimental •Продолжительность: 07:49:47 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4826BFC711EB47228972201DC4F8AD2F22C65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289035   (1005933) от 21.07.2021
 
 Fief - I-IV (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Dungeon Synth, Medieval>
@@ -711,35 +740,6 @@ Blochemy - Discography 7 Releases (2013-2021) CleanError, SunSeaSky [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72652E79D1B632305AB08220C611E295DD8B1607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483645   (1006785) от 14.07.2021
-
-BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ulearum (04:47)
- 02. Callopsis (05:57)
- 03. Protarum (06:31)
- 04. Gorgonidium (06:14)Жанр: Ambient, TechnoПродолжительность: 00:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86141BD6EDC4445C58EF46D23C97F0A36FD266EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

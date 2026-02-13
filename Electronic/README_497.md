@@ -1,3 +1,32 @@
+###  Публикация: 1349483   (1004395) от 01.01.2020
+
+VA - Space Odyssey – Trip Six: New Year's Voyage 2020 (2020) 2CD, Compilation, Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Spacedisco, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pavel Kuznetsov - Introduction (1:15)
+02. TDHDriver - To the Heaven (5:28)
+03. AlimkhanOV A. - Pulsar (4:08)
+04. Laserlight - Intergalactic Flight (7:40)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Spacedisco, SynthdanceПродолжительность: 02:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF6917DF26C3F8D7A7D5A9969E51BA027CBC899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349468   (1004492) от 01.01.2020
 
 VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -710,35 +739,6 @@ Frank Bretschneider | Komet - Discography 32 Releases (1996-2021) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:126AD242AB9A8886F8800BF84F58B05E5B897C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297155   (1005815) от 22.07.2021
-
-Eric "The" Taylor (Resilience, Architects Of Existence) - Discography 7 Releases (2017-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Ghostly Appearance (21:45)
- 02. A Trickled Tear (19:01)
- 03. Pulling (16:32)
- 04. Three Deep Breaths (17:17)Тип издания: CD, WebЖанр: Ambient, Experimental •Продолжительность: 07:49:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4826BFC711EB47228972201DC4F8AD2F22C65B
 ```
 
 https://mybot314.ru/tekegram_catalog/

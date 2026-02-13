@@ -1,3 +1,32 @@
+###  Публикация: 984495   (935463) от 11.02.2016
+
+NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc Records, Inc. [FLAC|Lossless|tracks + .cue] <Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dream (5:18)
+02. On Wings of Angels (4:05)
+03. Breathe with Me (4:27)
+04. I Feel You in My Soul (4:36)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69599966D0E2F08171DB846368DD167BA33D84AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 284961   (935855) от 20.01.2011
 
 Звуки природы - Дождь, гроза (1997) [FLAC|Lossless]<Релакс>
@@ -777,32 +806,6 @@ Fall on Your Sword - Another Earth (2011) [MP3|320 кб/с]<OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C74F4B1A00D9FD29ACAAABA7CE61550709AB2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 174149   (937613) от 16.02.2010
-
-SAINT PREUX - ДИСКОГРАФИЯ 23 альбома (1969-2008) [MP3|256-320 kbps]<New Age, Classical music, Instrumental | Orchestra>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, Classical music, Instrumental | Orchestra
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

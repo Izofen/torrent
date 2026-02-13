@@ -1,3 +1,32 @@
+###  Публикация: 1229801   (622614) от 08.06.2018
+
+ScAnDroid Experiment's - Nature Reviving (Single) (2018) [MP3|320 Kbps] <Atmospheric, Ambient, Experimetal Electronic>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Reviving (Original Mix)
+02. Nature Reviving (Extended Guitars Mix)
+03. A Quiet Story (Original Mix)
+04. Nature Reviving (Acoustic Ambient Version)Жанр: Atmospheric, Ambient, Experimetal ElectronicПродолжительность: 00:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B6BEA2931FD9FFD5ED91AB6733C82B1CE4CC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229776   (622709) от 08.06.2018
 
 VA - Summer Hits (2018) [MP3|320 Kbps] <Trance>
@@ -711,35 +740,6 @@ VA - Ori Uplift & Syntouch - Uplifting Only 277 (2018) [MP3|320 Kbps] <Trance,Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE121C7316BC5F4C17BDEAE6CBCB5A543ED728E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035723   (624655) от 18.07.2016
-
-Goldfrapp - Seventh Tree (2008) CD+DVD, Deluxe Edition [FLAC|Lossless|image + .cue] <Electronic, Rock, Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Clowns  4:08
-02.  Little Bird  4:25
-03.  Happiness  4:17
-04.  Road to Somewhere  3:52(   Читать дальше...   )Жанр: Electronic, Rock, PopЯзык субтитров: Francais, Deutsch, Italiano, Espanol
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70518A8AA1E73AD6AD300E7DB5E996A2B7AAE144
 ```
 
 https://mybot314.ru/tekegram_catalog/

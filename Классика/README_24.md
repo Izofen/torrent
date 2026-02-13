@@ -1,3 +1,39 @@
+###  Публикация: 544267   (488706) от 08.09.2012
+
+Luciano Pavarotti - 16 Альбомов (20 CD) (1977-2007) [MP3|320 кб/с]<Opera, Classical Music>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488706.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве Лучано больше всего любил ловить лягушек и ящериц, играть в футбол — ну и, конечно, петь. Впрочем, в Италии, как известно, поют все. Отец Лучано приносил домой пластинки знаменитых теноров — Джильи, Карузо, Мартинелли, и вместе с сыном они слушали их буквально до дыр. Лучано забирался на стол в кухне и голосил во все легкие "Сердце красавицы". В ответ на его истошное пение одновременно из 15 соседних квартир раздавались не менее истошные крики: "Баста! Да замолчи же ты, наконец!!!"
+Отмечают, что благодаря своему вокальному мастерству, характерной легкости звукоизвлечения, сочетающимся «с высокой индивидуальностью, излучающей тепло и жизнерадостность», Паваротти стал «одной из „суперзвезд“ оперной сцены 20 столетия». Его популярности способствовали также частые появления в прессе и трансляции выступлений Паваротти по телевидению.1. Nessun dorma! (2:59)
+ 2. Libiamo ne'lieti calici (2:50)
+ 3. O sole mio (3:21)
+ 4. La donna e mobile (2:21)
+ 5. Volare (4:33)
+ 6. Panis Angelicus (4:01)
+ 7. Caruso (5:20)
+ 8. Non ti scordar di me (2:55)
+ 9. Torna a Surriento (4:22)
+ 10. Funiculi, funicula (2:40)(   Читать дальше...   )Жанр: Opera, Classical MusicПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1046849BCBAB69351569E1663C4DA4D33BF5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158824   (489791) от 17.08.2017
 
 Wolfgang Amadeus Mozart: Concertos for Clarinet, Flute and Bassoon / Karl Böhm (1998) [FLAC|Lossless]<Classical, Concerto>
@@ -780,35 +816,6 @@ Robert Wells - Rhapsody In Rock Complete (2000) [FLAC|Lossless|image + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E648B386D6933694F79F0682317177EA3F79A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561461   (513609) от 06.07.2022
-
-Jouni Somero - Palmgren: Complete Piano Works, Vol.4 (2022) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513609.jpg" />
-</div>
-
-
-###  Подробнее
-
-[1] Vårbäckarnas brus, SP343 ('The Rushing of the Spring Brooklets')
-[2] Valse d'amour, SP325
-[3]-[5] Une nocturne en trois scenes, Op.72
-[6]-[8] Tre fantasier, Op.82(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78CDECEFCEA6DBB7B8A2538172C04FC0D559E785
 ```
 
 https://mybot314.ru/tekegram_catalog/

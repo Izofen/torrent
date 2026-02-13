@@ -1,3 +1,32 @@
+###  Публикация: 1318026   (497810) от 04.08.2019
+
+Tysk Raider - aux4418 (2019) mindcolormusic [FLAC|Lossless|WEB-DL|tracks] <IDM>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wellen (06:24)
+ 02. Saltu (05:32)
+ 03. Foras Modor (05:15)
+ 04. Bachende (06:19)(   Читать дальше...   )Жанр: IDMПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5FE58F9A62A9ECCD72BADA420C3993F9B4C860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541781   (498052) от 03.09.2012
 
 Origen - 6 альбомов (1996-2009) [MP3|192-320]<new age, ambient, meditative>
@@ -740,35 +769,6 @@ SIM80 - Kinetic Origins (2019) Detroit Underground [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD1932F9E3E192B8C2323264082DBBFE079E82C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934493   (502536) от 05.09.2015
-
-VA - Big City Chillout Moments (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarlett Copley - Sea of Change [04:31]
-02. Parker Thornhill - 22 Past [04:38]
-03. Natalie Goldwyn - Sextetto Visceral [03:55]
-04. Natacha Nygard - Fire of Desire [04:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E403269BEE9BAA41F675C8EF6D2FAE1ED86638
 ```
 
 https://mybot314.ru/tekegram_catalog/

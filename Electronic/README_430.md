@@ -1,3 +1,32 @@
+###  Публикация: 1118125   (813495) от 25.03.2017
+
+VA - Miami Music Week 2017 (Deluxe Version)  [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Clam - Meltdown Joint (Original Mix) 04:20
+02. Clark Morrison - When Love Dies (Clark Morrison Remix) 04:42
+03. Bad Surfer - Take My Body (Dub Mix) 04:23
+04. Autosky - Abstract Love (Original Mix) 05:37(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934284455AA9041CBA098ABE9A935A0521B52D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008717   (813581) от 19.04.2016
 
 Omnimar - Restart (2016) [MP3|320 кб/с] <Synthpop, Ambient, EDM>
@@ -722,35 +751,6 @@ VA - Venera Music Vol.3 (2016) [MP3|320 кб/с] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED8625CDE791BA6C669EB6E169C8E1C55C3A8164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008312   (816111) от 18.04.2016
-
-VA - Cub Session Rush Hour Vol.10 (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axay, SPHYNX - Love Me 04:17
-02. Falko Niestolik, Oni Sky - Together (Funkin Matt Remix) 03:52
-03. Jay Frog - Share Love (feat. Dacia Bridges) 04:42
-04. Toby Webster - Jack It! 03:53(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1683B9FAED413CAAB8228BC9A07E2366CB738012
 ```
 
 https://mybot314.ru/tekegram_catalog/

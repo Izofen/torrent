@@ -1,3 +1,32 @@
+###  Публикация: 1121596   (800506) от 02.04.2017
+
+Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Utopia
+02. As It Should Be
+03. Cosmopolitan Skies
+04. Magnetism(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E9901E9BA12A02E943C462313974BEF4EF18F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120763   (800551) от 02.04.2017
 
 Людмила Николаева и ансамбль 'Русская душа' - Сирень цветёт (1997) [FLAC|Lossless|image + .cue] <Folk-Pop>
@@ -716,35 +745,6 @@ Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB44DDE609B07F66D0B50079EB6BC44FD0C759F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199039   (802813) от 14.01.2018
-
-David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Breathe (10:50)
-02.  Lightdancer (10:12)
-03.  Deep Blue (9:53)
-04.  Floating (10:08)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 02:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A861CF123BBA58EE8B00ECC252D42EBFDE8DB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

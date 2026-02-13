@@ -1,3 +1,32 @@
+###  Публикация: 1217433   (743359) от 04.04.2018
+
+Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ease (5:20)
+02. Atme (8:32)
+03. Thank You (6:19)
+04. Sigh (4:50)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA960B7B5D879631E90A0758843115B75C1F1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282443   (743615) от 13.02.2019
 
 Allister - Best Of... 20 Years & Counting (2019) [MP3|320 Kbps] <Pop-Punk, Punk Rock>
@@ -716,35 +745,6 @@ Baraka - Zarathushtra Mantras (2017) [FLAC|Lossless|WEB-DL|tracks] <Ethno folk, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:575824AD045301F2E7D6F3F9AA8D3BB47B062B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182244   (754923) от 10.07.2020
-
-Ennio Morricone - The Best Of 50 Years Of Music (2010) [FLAC|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ecstasy Of Gold (From The Good The Bad The Ugly) (3:39)
-02. Once Upon A Time In The West (2:57)
-03. Here's To You (From Sacco E Vanzetti) (3:57)
-04. The Master And Margherita (4:58)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7651EF9B044F701476E98B8249115B3CCD7EBE76
 ```
 
 https://mybot314.ru/tekegram_catalog/

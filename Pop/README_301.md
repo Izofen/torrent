@@ -1,3 +1,177 @@
+###  Публикация: 1381568   (826251) от 07.05.2020
+
+Dream Express - A Million In 1, 2, 3 (1977) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Million In 1,2,3 (3:03)
+02. Spinning Top (2:42)
+03. Stop The Things You're Doing (3:44)
+04. If You Feel The Way I Do (4:03)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B246E208C45DAB7B8F59ED11F77055A5B8B285AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115370   (826259) от 18.03.2017
+
+Студия-80 - Лабиринты снов (2017) [WavPack|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление (00:25)
+02. Алло (04:18)
+03. Солнце на ладони (04:28)
+04. Слезы на стекле (04:32)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AB7B7F8AE38322AEE7ED7A1048F76691FA414C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115626   (826343) от 18.03.2017
+
+НеИгрушки - Сто дней до приказа (1999) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ай-яй-яй
+02. Сто дней до приказа
+03. Ты один, я одна
+04. Я забуду тебя (Не первая любовь)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BCBF299774CF8C0EB09759CF31C53F553850C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115538   (826443) от 18.03.2017
+
+VA - Nu Disco Vol. 1 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Devil In My Head 06:25
+02. Ffunk - About You 03:48
+03. Nekliff & Mary Sk - First Dot (Tosel & Hale Remix) 05:58
+04. Tunnelvision - Popping Candy (Monrabeatz & Black Birdz Remix) 05:50(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 04:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D377A527A39C2CE51C84B751E318AD525E2D5FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115643   (826454) от 18.03.2017
+
+Шериф - Джулия (2002) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джулия
+02. Не уходи
+03. Натали
+04. Скорый поезд(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208E0F5B8B7B5B2FC0A57A63B3B6F2029C8C3E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115422   (826643) от 18.03.2017
+
+Stevie B. - City Jungle (1980) LP [MP3|320 Kbps] <Funk-Soul, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ex-участник из O.R.S. (Orlando Riva Sound).01. City Jungle (5:16)
+02. Livin' In Shame (3:10)
+03. Evil You (4:01)
+04. No Remedy (3:50)(   Читать дальше...   )Жанр: Funk-Soul, Pop-RockПродолжительность: 00:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC1986A273E11E98C30B3E0D3748A065C7498B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115666   (826646) от 18.03.2017
 
 Rockefeller - Song Of An Island (1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Schlager, Disco>
@@ -569,180 +743,6 @@ VA - Звёзды Сан-Ремо/Stars Of San-Remo - Amore Mio (2003) Stereo & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D0C6DA7722669E0DD61AD3A8D8AE50AACCFEFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005949   (830744) от 10.04.2016
-
-Moulin Rouge - Tea For Two (1991) [FLAC|Lossless|tracks] <Hi-NRG, Synth Pop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tea For Two
-02. Get Over You
-03. Fooling Me Too Long
-04. Promised Land(   Читать дальше...   )Жанр: Hi-NRG, Synth Pop, Italo-DiscoПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7EF77157F134BA85DB3617C8CD7F3957E51A192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005871   (830808) от 10.04.2016
-
-All Saints - Red Flag (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртый альбом выпущенный с промежутком в 10 лет.01. One Strike (03:34)
-02. One Woman Man (04:01)
-03. Make U Love Me (03:46)
-04. Summer Rain (03:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C49B615B8D234EB76E132734A425B3AF4D06786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380767   (831360) от 04.05.2020
-
-VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый выпуск нового десятилетия состоялся в январе 2020 г. Очередной сборник новинок из топов США (и немножко Великобритании) получился несколько более спокойным и "приглушенным" по сравнению с общим тоном предыдущих выпусков. Пожалуй, энергия на короткое время дает всплеск на 11 и 12 треках с дивами следующей волны Camila Cabello и Dua Lipa, но в остальном (   Читать дальше...   )01. Maroon 5 - Memories  (3:05)
-02. Taylor Swift feat. Shawn Mendes - Lover (Remix)  (3:39)
-03. Halsey - Graveyard  (3:01)
-04. Shaed & Zayn - Trampoline  (3:02)(   Читать дальше...   )Релиз состоялся: 24 января 2020Жанр: Pop, Rock, DanceПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D15955FCB7FE75CBAD1724A5FEBF44FEE80D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114757   (831381) от 15.03.2017
-
-Потап и Настя - Золотые Киты (2017) [FLAC|Lossless|image + .cue] <Pop, R&B>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не Пара
-02. Крепкие Орешки
-03. Не Люби Мне Мозги
-04. Позвони Своей Зае(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68ECB0BA343F768E1C88E500A4C15344B07C755B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380531   (831451) от 04.05.2020
-
-VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UB40 - (I Can't Help) Falling In Love With You (3:24)
-02. Bryan Ferry - Slave To Love (4:18)
-03. Cat Stevens - Wild World (3:20)
-04. Carpenters - We've Only Just Begun (3:04)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881E026BE3B2BD874CF17E14F5EE8E01F38B9258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114768   (831557) от 12.10.2021
-
-Rockets - The Reissue Collection (1976 - 2021) [MP3|320 Kbps] <Electronic, Synth-pop, Space Rock, Disco, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французская поп-рок группа. Известны своим имиджем "пришельцев из космоса", одними из первых в истории музыки масштабными шоу с использованием целого каскада спецэффектов (в частности, "инопланетных" декораций, пиротехники, лазеров). Альбомы Plasteroid и Galaxy стали золотым и платиновым соответственно.Список альбомов:
-1976 - Rockets (2002)
-1978 - On The Road Again (1996)
-1979 - Plasteroid (2004)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Space Rock, Disco, HouseПродолжительность: 11:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB40535394AC5B2A3A617A60A5C083626CAB408B
 ```
 
 https://mybot314.ru/tekegram_catalog/

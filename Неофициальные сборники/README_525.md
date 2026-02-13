@@ -1,3 +1,61 @@
+###  Публикация: 1385277   (797812) от 24.05.2020
+
+VA - Record Super Chart 637 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Capon - Shut Up Chicken 2:31
+02. Cream Soda & ХЛЕБ - Плачу на техно 2:40
+03. Topic & A7S - Breaking Me 2:47
+04. Тайпан feat. Agunda - Луна не знает пути 2:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB1DF87FE913C98CA068F483A0DE08FA7A7BCD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385374   (797865) от 24.05.2020
+
+VA - Music News vol.7 (2020) [MP3|320 Kbps] <Rock, Pop, Soul>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3D - Can We Have (02:24)
+ 02. 7раса -  Любовь сбивающая с ног (03:41)
+ 03. 7раса -  Масло (03:37)
+ 04. 7раса -  Обезьяньи куплеты (03:45)(   Читать дальше...   )Жанр: Rock, Pop, SoulПродолжительность: 03:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13208BFE3C7DB33FBADD03A5EA187D50EA7EA092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385359   (797876) от 24.05.2020
 
 VA - Beatport Uplifting Trance: Electro Sound Pack #95 (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
@@ -690,64 +748,6 @@ VA - Deep House Collection Vol.193 (2018) [MP3|320 Kbps] <House, Deep House, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2445C73467CCA8F9DD6AA97ED46D319862C6F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273877   (798664) от 04.01.2019
-
-Creedence Clearwater Revival - Travelin' Band (2019) 2CD, Compilation [MP3|320 Kbps] <Folk Rock, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fortunate Son
-02. I Put a Spell on You
-03. Cotton Fields
-04. Tearin' Up The Country(   Читать дальше...   )Жанр: Folk Rock, Classic RockПродолжительность: 01:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE35585094BC1583FFD7B37011428B9A87A877C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273883   (798703) от 04.01.2019
-
-VA - До весны не будить... (2019) [MP3|320 Kbps] <Instrumental, Piano, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Richter, Yuki Numata Resnick, Ben Russell - Dream 3
-02. Matyas Bacso - Daydream
-03. Mathias Rehfeldt - Tundra
-04. Evgeny Grinko - Cold Morning(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F00F968F101917522F531E3F3F579ABF5ECDD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

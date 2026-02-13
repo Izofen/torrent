@@ -1,3 +1,38 @@
+###  Публикация: 545189   (476209) от 14.09.2012
+
+Loudness - 2·0·1·2 (2012) [WavPack|Lossless]<Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476209.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. The Stronger (4:20)
+02. 2012 ~End of the Age (5:00)
+03. Break New Ground (5:07)
+04. Driving Force (4:55)
+05. Behind The Scene (5:31)
+06. Bang 'em Dead (4:07)
+07. The Voice of Metal (Song For RJD) (4:12)
+08. Who The Hell Cares (5:40)
+09. Spirit From The East (2:18)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:39+00:06:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056736   (479166) от 26.09.2016
 
 Kazu Matsui - The Stone Monkey (2005) [APE|Lossless|image + .cue] <Contemporary, Crossover Jazz, Fusion>
@@ -722,34 +757,6 @@ Label ARPEGGIO-Sound - 2 альбома (2007-2009) Touhou Instrumental /Doujin/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56EA2C94C8179E0AB3642CF0C797224075B465D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936523   (494276) от 12.09.2015
-
-logical emotion - 2 альбома (2011-2012) Touhou Instrumental /Doujin/ [FLAC|tracks] <Piano Arrange, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2011.08.13 (YPME-1002) Touhou Project pops arranged instruments (C80)
-2012.05.27 (YPME-1003) Touhou Project pops arranged instruments2 (Reitaisai 9)Тип издания: DoujinЖанр: Piano Arrange, J-RockФормат: Touhou InstrumentalПродолжительность: 00:00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6663710EAE7A887C77F19A290010B0A55A4991
 ```
 
 https://mybot314.ru/tekegram_catalog/

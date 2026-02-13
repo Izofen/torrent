@@ -1,3 +1,61 @@
+###  Публикация: 1248587   (442040) от 20.09.2018
+
+Billy F Gibbons (Zz Top) - The Big Bad Blues (2018) [MP3|320 Kbps] <Blues Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missin’ Yo’ Kissin’ (Gilly Stillwater)
+02. My Baby She Rocks
+03. Second Line
+04. Standing Around Crying (Muddy Waters)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3501E5FF6A1E1B5216F4DDA303E2E02236EC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409759   (442864) от 18.09.2020
+
+Cindy Blackman Santana - Give the Drummer Some (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (feat. Santana) (5:06)
+02. We Came to Play (feat. John McLaughlin) (5:41)
+03. She's Got It Goin' On (3:20)
+04. Miles Away (1:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6478912AB49358F299018895DAAB8C3B0CA71C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544405   (443811) от 28.09.2012
 
 SAGA - 2 альбома  [MP3|320 кб/с]<Rock, Progressive Rock, Symphonic Rock, AOR>
@@ -727,64 +785,6 @@ The Beatles - Complete Christmas Collection [Bootleg] (1994) [MP3|192 kbps]<Rock
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163388   (450223) от 05.09.2017
-
-Porno Wolves - Renegades (2017) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Garden (05:14)
-02. Winter's Night (04:13)
-03. Riddles In The Dark (06:03)
-04. Bad Man (05:19)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D3850BDF3D58B55B3B681B866EBC58E3E9D556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163502   (450341) от 05.09.2017
-
-VA - Ultimate Driving Songs (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Free - Alright Now  4:22
-02.  Stealers Wheel - Stuck In The Middle With You  3:32
-03.  Elton John - Crocodile Rock  4:04
-04.  Bachman Turner Overdrive - You Aint Seen Nothing Yet  3:47(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745CC7AD58A272633BB012A09B393F30A4EB1098
 ```
 
 https://mybot314.ru/tekegram_catalog/

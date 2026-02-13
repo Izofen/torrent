@@ -1,3 +1,32 @@
+###  Публикация: 747501   (962438) от 19.01.2014
+
+Trance Lucid - Arise (1996) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 April
+02 Balloons
+03 Unbridled
+04 Leaving(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D3EF164A73A0E6188D8D764697CBDE42346025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747221   (962539) от 19.01.2014
 
 Acoustic Mania - Talking Hands (1997) [FLAC|Lossless]<Instrumental, Easy listening, Acoustic-Guitars>
@@ -722,35 +751,6 @@ Alexandre Desplat - Little Women / Маленькие женщины (Original M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960B3E3DCFD36DA995E3DC1819541F69AC03CF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358712   (967311) от 09.02.2020
-
-Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Women (03:12)
-02. Plumfield (03:39)
-03. The Beach (02:49)
-04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8F4CEDE382055379CAA015EF8331E1A7769301
 ```
 
 https://mybot314.ru/tekegram_catalog/

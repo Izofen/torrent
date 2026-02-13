@@ -1,3 +1,67 @@
+###  Публикация: 1068168   (382081) от 31.10.2016
+
+VA - 70 Sax Classic Jazz (2016) [MP3|320 Kbps] <Sax, Instrumental, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Parker Quartet - Now's the Time
+02. John Coltrane Quartet - A Love Supreme, Pt. 1: Acknowledgement
+03. Charlie Parker - Just Friends
+04. Sonny Rollins - Sonnymoon for Two (Evening)(   Читать дальше...   )Жанр: Sax, Instrumental, JazzПродолжительность: 06:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739B4640314C36F552836B0E355C7371B9265456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 250632   (382256) от 27.10.2010
+
+VA - 20 Лучших блатных песен (2002-2003) [MP3|320 kbps] 14 CD <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382256.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Группа "Эшелон" Постой, паровоз  3:01
+2 Группа "Эшелон" Ванинский порт 3:00
+3 Группа "Эшелон" Таганка 5:04
+4 Группа "Эшелон" Бродяга 3:37
+5 Группа "Эшелон" Черная роза Г3:56
+6 Группа "Эшелон" Коногон 4:07
+7 Группа "Американка" По приютам я с детства скитался 3:02
+8 Группа "Эшелон" Этап на север 2:34
+9 Группа "Американка" Кирпичики 3:05
+10 Группа "Эшелон" Спецэтап (Эшелон) 3:27(   Читать дальше...)Жанр: ШансонПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3765D315FCBEFD4D60F5098297DBC5271E9FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068017   (382481) от 31.10.2016
 
 VA - XXXL Радио Хиты 50х50 (2016) [MP3|320 Kbps] <Поп, Dance, Рок>
@@ -687,64 +751,6 @@ VA - In My Feelings: Lyric Rnb Compilation (2019) [MP3|320 Kbps] <Rhythm And Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D56C502B3B212DF65E63B0896C03DB6FF27FFC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414508   (383408) от 09.10.2020
-
-VA - Background Instrumental Smooth Jazz (2020) [MP3|320 Kbps] <Jazz, Jazz Smooth, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383408.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Miles Davis Quartet - It Never Entered My Mind
-002. Clan Greco - Tilt
-003. Riccardo Arrighini - Autumn Leaves
-004. Tenderlonious - Almost Time(   Читать дальше...   )Жанр: Jazz, Jazz Smooth, InstrumentalПродолжительность: 07:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2635D1BE618289C65937A518FB7F281988D7B702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414645   (383424) от 09.10.2020
-
-VA - не Громкие новинки недели 84 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Carti - Не Выдыхай (3:00)
-02. DJ Sukhoi - Неболей (4:15)
-03. EDEM & Артём Майзингер - Самолётная (3:02)
-04. Endorfin - Луна (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CEEA547B028D91D4DD4B2ED370AC567A563C18
 ```
 
 https://mybot314.ru/tekegram_catalog/

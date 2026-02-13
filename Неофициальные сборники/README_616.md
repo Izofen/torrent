@@ -1,3 +1,61 @@
+###  Публикация: 984379   (935518) от 11.02.2016
+
+VA - Evolution of Disco - CD1 (1964-2015) [MP3|128-320 кб/с] <Funk,Disco,House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Paul - Me and Mrs. Jones  04:51
+02. Jerry Butler - One Night Affair  03:28
+03. Diana Ross - Where Did Our Love Go  02:36
+04. The O'Jays - Now That We Found Love  04:42(   Читать дальше...   )Жанр: Funk,Disco,HouseПродолжительность: 05:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEEADD9CC9A37311C16AFE12125CF3DCD77EFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985340   (935537) от 11.02.2016
+
+VA - Are You Ready? (Vol.22) (2016) [MP3|128 - 320 кб/с] <Nu Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Doomfinger - Thirty-Four
+02 - Brik - Betrayed
+03 - Cope - Reflection
+04 - Stilldown - Angel By Design(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 01:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DFBEFF421FA87D817CBEDA61104DE5A53A88D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985330   (935545) от 11.02.2016
 
 VA - Chill And Deep House Music (2016) [MP3|320 кб/с] <Chill, Deep House>
@@ -688,64 +746,6 @@ Donna Summer - Queen of Disco (2020) 2CD Compilation [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7810074557D882617A1C5BD8387D443F21D150D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364128   (937738) от 02.03.2020
-
-Pat Travers - Travelin' Blues (2020) 2CD Compilation [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life In London
-02. Calling Card Blues
-03. Who Can You Turn To
-04. Stevie(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74924FC012B9A4404C3593A0826159AA0E6B8FF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364244   (937885) от 02.03.2020
-
-VA - 100 Greatest Trance Anthems (2020) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Midsun - Underwater
-002. Kev Wild - Euphoric Dream
-003. Physical Dreams - I Did For You
-004. Cresta - Shapeshifter(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743164582D5E9C7AF67794484DFCF8C70FA83B0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

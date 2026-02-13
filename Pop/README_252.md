@@ -1,3 +1,177 @@
+###  Публикация: 1287642   (701760) от 08.03.2019
+
+VA - At Midnight! Disco Club Classics (2019) [MP3|320 Kbps] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T-Connection - At Midnight (5:07)
+02. Chic - Everybody Dance (12" Mix) (8:30)
+03. The Spinners - Are You Ready For Love (Single Version) (3:44)
+04. Norma Jean Wright - Saturday (6:06)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA4A48EDE47C4800A3AAB3488444FA1A0CFB9A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287715   (701868) от 08.03.2019
+
+Ахра - Карие глаза (2006) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карие глаза
+02. Моя любимая
+03. Небо и луна ( New Mix )
+04. Будь моей(   Читать дальше...   )Жанр: РорПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE6989C49C59AC9F5C5F31FADCD85443ABD6DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026787   (701943) от 16.06.2016
+
+Scotch - Pictures Of Old Days (1987) Deluxe Edition, 2016, Deluxe CD Music [FLAC|Lossless|tracks] <Italo-Disco, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plus Plus (5:01)
+02. Rhythm Of Love (3:19)
+03. Pictures (5:23)
+04. Over The Rainbow (3:53)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4C889A15A5EF68B7399C4743DC7356DC1E8A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026790   (702163) от 16.06.2016
+
+Thomas Anders - Lunatic (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunatic (3:19)
+02. Lunatic (Extended Version) (5:31)
+03. Lunatic (Instrumental) (3:21)
+04. You're My Heart, You're My Soul (New Hit Version) (3:28)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FDE0AD8B9BC8649DEF75D165F3D73892E93127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220580   (702456) от 20.04.2018
+
+Dennis Coffey - Back Home (1977) LP [MP3|320 Kbps] <Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funk Connection (5:22)
+02. Back Home (5:35)
+03. Free Spirit (5:51)
+04. Our Love Goes On Forever (6:00)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046D72506D541EAE1B77ECAB3F00A8045884E337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132415   (702654) от 08.05.2017
+
+Alyzee - My Life (2017) [MP3|320 Kbps] <Alternative Pop, Ethnic Electronic Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'd Give My Life
+02. All My Lying
+03. No No
+04. The Search(   Читать дальше...   )Жанр: Alternative Pop, Ethnic Electronic RockПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B45D7B688A694C4D8E5ED68BD41E4FB8F8B47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132277   (702659) от 08.05.2017
 
 Katy Perry - Chained to the Rhythm (2017) Single [FLAC|Lossless|tracks + .cue] <Pop>
@@ -569,180 +743,6 @@ Silent Circle - My Star (2020) [FLAC|Lossless|image + .cue] <Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7ADA778A148CAAAFF0B501445F2783F32DC7DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026188   (705876) от 14.06.2016
-
-Шоколад - Первый альбом (2004) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Для тебя сегодня я пою
-02. Забудь, прости, прощай
-03. Натали
-04. Елена(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9430F1C8809DBB7D4A1DADD2CE9DF1676FE4909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220327   (705996) от 18.04.2018
-
-My Indigo - My Indigo (2018) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Indigo
-02. Crash and Burn
-03. Out of the Darkness
-04. Indian Summer(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00811D942443650C6CEEBFFAC51C01BD8D507176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026181   (706040) от 14.06.2016
-
-Roxette - Sleeping In My Car (1994) Single [FLAC|Lossless|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleeping In My Car    03:34
-02. The Look (Unplugged)    05:12
-03. Sleeping In My Car (The Stockholm Demo Version)    03:14
-04. Almost Unreal    03:56Жанр: Pop RockПродолжительность: 00:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4DA6396269369761E5D871DA31B7027CF67E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220332   (706186) от 18.04.2018
-
-Lucky Star - Who's Foolin' Who (1978) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who's Foolin' Who (4:27)
-02. Even The Bad Times (3:31)
-03. You Are My Lucky Star (5:08)
-04. Uncle Jack (3:49)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20746739D64014584F0633867010AE8F1F15A9B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220349   (706190) от 18.04.2018
-
-Nick Straker Band - The Very Best Of (1997) CD [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Walk In The Park (3:51)
-02. Don't Come Back (3:40)
-03. A Little Bit Of Jazz (5:28)
-04. Straight Ahead (6:44)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E404E858C6E667B916D0A4028ECA3EE9C20348C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131533   (706466) от 06.05.2017
-
-Baccara - I Belong To Your Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Belong To Your Heart (3:49)
- 02. Super Sexy Baby (4:10)
- 03. I Will Follow You (3:20)
- 04. I Love You Moscow (3:20)(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD1D38FE38C6CEA4CA099E220FC6C60283AB367
 ```
 
 https://mybot314.ru/tekegram_catalog/

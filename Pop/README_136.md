@@ -1,3 +1,61 @@
+###  Публикация: 1180930   (323827) от 07.11.2017
+
+VA - Zouk Monster Vol 1. (2017) [MP3|320 Kbps] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love virtuel - Carbeti, Stephane Moreau 3:43
+02. Une vie sans couleur - Myl's 4:29
+03. Je m'enfuis - Lindsey Lin's 3:44
+04. I ja tro ta - Cedrick Vernon 4:42(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEF46D4F0FC4DFE1C5C3B89C7B2326AFEDDC97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582216   (324488) от 08.10.2022
+
+Sarah Brightman - A Winter Symphony (2008) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival
+02. Colder Than Winter
+03. Ave Maria (Duet With Fernando Lima)
+04. Silent Night(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5ECAC121ACBEEA1A813617C4619156BECC31DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582066   (324492) от 08.10.2022
 
 Sarah Brightman - The Very Best Of 1990-2000 (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Synth-pop>
@@ -687,64 +745,6 @@ VA - BRAVO The Hits 2015 (2015) [FLAC|Lossless|tracks|WEB-DL]<Top 40, Pop, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E2CCEDF1BC1955D276D6088E9339D9EFA77D2F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957498   (327322) от 17.11.2015
-
-МакSим - Хорошо (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любовь алого цвета
-02. Золотыми рыбками
-03. Иди
-04. В лето(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E86090CD7455E4C1C66044212C05199B48DE0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957304   (327428) от 17.11.2015
-
-VA - Радуга (1 пластинка) (1980) [MP3|320 кб/с]<Instrumental, Pop, Retro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оркестр Макса Грегера - Хелло, Долли (Дж.Герман)
-MAX GREGGER ORCHESTRA - Hello Dolly (Jerry Herman) ©197?
-02. Джо Дассен - Если в мире нет тебя (Паллавичини - Лемеси)
-JOE DASSIN - Et si Tu N’Existais pas (Salvatore Cutugno - Vito Pallavicini - Pasquale Losito - Claude Lemesle) ©1969(   Читать дальше...   )Жанр: Instrumental, Pop, RetroПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9881D8F8681A3A2D75AB8DC3C9D58E306418382
 ```
 
 https://mybot314.ru/tekegram_catalog/

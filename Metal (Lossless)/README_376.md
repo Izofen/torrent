@@ -1,3 +1,125 @@
+###  Публикация: 436198   (981486) от 14.01.2012
+
+Angeli Di Pietra - Anthems of Conquest (2011) [FLAC|Lossless]<Folk Metal, Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Last Flight of the Valkyries (4:52)
+02. Gates of Time (3:47)
+03. Fate of the Promised Land - The Desert (1:19)
+04. Fate of the Promised Land - Mark of the Scimitar (5:29)
+05. Towards New Shores (1:32)
+06. Buccaneers (4:18)
+07. Anthem of Conquest (3:35)
+08. I Am Spartacus (5:11)
+09. The Battle of Camlann (4:27)
+10. Avalon (2:27)(   Читать дальше...   )2011Жанр: Folk Metal, Power Metal, Female Vocal
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972498   (981812) от 06.01.2016
+
+Silent Knight - Conquer & Command (2015) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Call To Arms (01:22)
+02. Conquer & Command (05:09)
+03. Empty Threat (05:28)
+04. Prisoner Of Your World (05:08)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:361E847E8E9610DD3E3CC58263D550F288DEEB51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972065   (982069) от 06.01.2016
+
+Casket - 3 альбома (1997 - 1998) Discography [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way to Happiness 5:33
+02. Emotions... 7:35
+03. Black Mountain 6:17
+04. Confessions 8:31(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 02:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D5D2B2B22766C4BEF17BFF2C3D922A72C7E837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972622   (982072) от 06.01.2016
+
+Kuni - Rock (2011) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Take off the Masque
+02.Freedom
+03.In the Dark
+04.Sweet & Danger(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1CED86DE91F394995ABD2B6F3B734C8A779416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972501   (982078) от 06.01.2016
 
 Rocka Rollas - Pagan Ritual (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -659,146 +781,6 @@ Edenbridge - The Grand Design (2006) [FLAC|Lossless|image + .cue] <Sympho Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCDB127DC3688C056E42E04F0D274771F1FC28ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434691   (985345) от 11.01.2012
-
-Vildhjarta - Masstaden (2011) [FLAC|Lossless]<Progressive Math Metal / Djent>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow (3:38)
-02. Dagger (4:25)
-03. Eternal Golden Monk (3:51)
-04. Benblåst (3:13)
-05. Östpeppar (1:56)
-06. Traces (6:13)
-07. Phobon Nika (2:53)
-08. Måsstadens Nationalsång (0:46)
-09. When No One Walks With You (3:19)
-10. All These Feelings (6:53)(   Читать дальше...   )2011Жанр: Progressive Math Metal / DjentПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162507   (985447) от 08.01.2010
-
-Bloodflowerz - Diabolic Angel (2002) [FLAC|Lossless]<Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.	Fatal Kiss			04:32
-02.	Diabolic Angel		05:06
-03.	Lovesick			04:39
-04.	Ablaze			05:41
-05.	Sadness			04:48
-06.	One Second		04:29
-07.	Mea Culpa		01:13
-08.	Tears Of The Night	06:24
-09.	Cold Rain			04:20
-10.	Season Of Love	04:39Жанр: Gothic Metal
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612764   (985541) от 02.02.2013
-
-Running Wild - 9CD Japan Edition (1987 - 1998) Japan Edition [WavPack|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March Of The Final Battle (The End Of All Evil) [02:01]
-02. The Rivalry [05:35]
-03. Kiss Of Death [03:37]
-04. Firebreather [04:04]
-05. Return Of The Dragon [06:47]
-06. Resurrection [04:46]
-07. Ballad Of William Kidd [08:44]
-08. Agents Of Black [03:57]
-09. Fire & Thunder [07:33]
-10. The Poison [04:40](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740852   (985809) от 01.01.2014
-
-Iced Earth - Plagues of Babylon (2014) Limited Deluxe Edition [FLAC|Lossless]<Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Plagues Of Babylon
-02. Democide
-03. The Culling
-04. Among The Living Dead
-05. Resistance
-06. The End?
-07. If I Could See You
-08. Cthulhu
-09. Peacemaker
-10. Parasite(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22963F426408B8FD41D257638ACC92E0A628CD12
 ```
 
 https://mybot314.ru/tekegram_catalog/

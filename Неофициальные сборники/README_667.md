@@ -1,3 +1,61 @@
+###  Публикация: 1457141   (1024596) от 25.03.2021
+
+VA - Power Up! (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lyfes - You (2:38)
+02. Greg Dela - Count on Me (2:41)
+03. Joel Corry, MNEK - Head & Heart (2:46)
+04. MOTi, DES3ETT, Gerson Rafael - Body 2 Body (3:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00104C4E41E18C22CD29EBA2E25F5C10515C9697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457029   (1024602) от 25.03.2021
+
+VA - Symphony Of The Street (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rap - в настоящее время сформировался как очень яркая и самобытная культура, условно называемая уличной. Со своей музыкой, одеждой, сленгом, изобразительным искусством - граффити, несколькими стилями танцев, со своей системой жизненных ценностей - то есть со всеми признаками полноценной субкультуры, какой была культура модов или хиппи001. Asian Doll - Everybody Stressed
+002. Death Over Simplicit - Childhood's End
+003. Evidence - Speaker Cabinet
+004. Ampichino - Go Crazy(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 10:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E17685621F24309D7B4B5821CC3B9461D22A527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457026   (1024620) от 25.03.2021
 
 VA - New Revolution: Rock Indie Music (2021) [MP3|320 Kbps] <Rock Indie, Alternative>
@@ -684,64 +742,6 @@ VA - Remixes 2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DFAC978CD42803A54BAAD9CEC937A8F6AA60CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455700   (1025443) от 20.03.2021
-
-VA - Moonlight: Neoclassical Collection (2021) [MP3|320 Kbps] <Neo Classic, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник посвящается переосмыслению классики и современным композиторам, работающим в направлениях, так или иначе дружественных с классической музыкой в ее современных вариациях. Если традиционная классика требует строгого соблюдения канонов, то сегодня, когда границы жанров размываются, композиторы новой школы уделяют время экспериментам и привнесению новых стилистических (   Читать дальше...   )001. Ilio Barontini - Moonlight
-002. Elisabeth Brauß - Opus 2021
-003. Derek Hunter Wilson - Foolish
-004. Ramin Djawadi - White Walkers(   Читать дальше...   )Жанр: Neo Classic, InstrumentalПродолжительность: 06:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA65CE079242C8705ADAA69ECEBEF9110D147CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455696   (1025490) от 20.03.2021
-
-VA - Glow Party: Trance Favorites (2021) [MP3|320 Kbps] <Trance, Uplifting, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка сборника "Glow Party: Trance Favorites" подкупает своего слушателя чистотой звучания, продуманной аранжировкой и прекрасным вокалом. Треки приятно слушать, они мелодичны и определенно создают положительное мнение о своих создателях.001. Paul Denton & Will Rees - Fluidity
-002. Smith & Brown - Phobos
-003. Tranzlift & Alternate - High Arcturus
-004. Aura Infinity - Phosphor(   Читать дальше...   )Жанр: Trance, Uplifting, ProgressiveПродолжительность: 13:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5865BBAD625CDFFF5E0C02C72864622F7CE13C30
 ```
 
 https://mybot314.ru/tekegram_catalog/

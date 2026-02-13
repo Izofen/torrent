@@ -1,3 +1,61 @@
+###  Публикация: 1206010   (782802) от 12.02.2018
+
+VA - Club Night Vol.5 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782802.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Giuseppe Ottaviani  -  Till The Sunrise (Extended Mix)  6:57
+002.  Bobina feat. Denise Rivera  -  Siente (Extended Mix)  6:10
+003.  Don Diablo feat. Dave Thomas Junior  -  Killer (Extended Mix)  5:16
+004.  Arash feat. Helena  -  Dooset Daram (Filatov & Karas Extended Mix)  5:13(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE36E9A19C200FE7171AACCE1F00469A6FCE98E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206066   (782859) от 12.02.2018
+
+VA - New Age Style - Enigmatic 28 (2018) [MP3|320 Kbps] <New age, Enigmatic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma - Sadeness Part I (Armandox 2017 Version) (5:10)
+02. Martin Floracks - The Spirit Of Music (5:00)
+03. Amure - No War (6:50)
+04. Empire Of Love - Heart Of Fire (original mix) (4:38)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 02:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D22CA9BB229C0A1C9B4F31E7FFA413121A04B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205918   (782967) от 12.02.2018
 
 VA - MonsterJam Eurodance (2018) [MP3|320 Kbps] <Eurodance, Club, House>
@@ -687,63 +745,6 @@ VA - Music for You vol.5 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33602D70DC9BAEEC4C851D12E13BD5C71BA72677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205248   (783687) от 09.02.2018
-
-VA - Дискотека 2000х Dance Club - The Best! Лучшие танцевальные хиты от NNNB (2018) [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Kane - Club Sound (Radio Edit)
-02. Benny Benassi - Satisfaction (Isak Original)
-03. Ida Corr & Fedde Le Grand - Let Me Think About It
-04. Pakito - Livin On Video(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 17:22:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67F7C55F80FBDF9CECD36FEA89895E0152ACD19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205316   (783691) от 09.02.2018
-
-Demo - Солнышко (2017) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783691.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Солнышко
-2. Dj Apollo
-3. Up MusicЖанр: Club, DanceПродолжительность: 00:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C09FB402795417642A17ACBFD8D8D5338ECAB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

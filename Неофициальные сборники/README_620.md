@@ -1,3 +1,61 @@
+###  Публикация: 983683   (942193) от 07.02.2016
+
+VA - Уголовочка от радио Шансон. Часть 8 (2016) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942193.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. А.Полотно И Ф.Карманов - Живите-Здравствуйте
+002. Ирина Круг - День В Котором Нет Тебя
+003. Александр Закшевский - Привет Малыш
+004. Дмитрий Фомин - Достало(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8E390117B35BB62AE4D007EDDA1B9552C587D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983792   (942196) от 07.02.2016
+
+VA - Уголовочка от радио Шансон. Часть 9 (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942196.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Гордей Белов - Девочка Вконтакточка
+002. Валерий Новиков - Крутой Перец
+003. Ляля Размахова - Бяки-Буки
+004. Стас Михайлов - Семь Дорог(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A079FAC79F033D2C423400BF2976AC30C26216E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983616   (942197) от 07.02.2016
 
 VA - Klubnaya Volna Vol.2 (2015) [MP3|320 кб/с] <Club, Dance>
@@ -693,64 +751,6 @@ VA - Ultimate NightClub Waves Hits (2017) [MP3|242~320 Kbps] <Future House, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14F5E7139B84DF1DE4057830FF750A4D496EA9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091137   (943235) от 09.01.2017
-
-VA - Pure Trance Moments Winter (2016) [MP3|320 Kbps] <Dance, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943235.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andy Moor & Michele C - We Can Be Free (Alex Ender Extended Mix) 6:28
-002. Craft Integrated & Naian - Parsec (Extended Mix) 7:43
-003. Alex Wright & Falcon - Hawkeye (Extended Mix) 7:18
-004. Johnny Yono - M87 (Extended Mix) 5:36(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 11:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51820B892C8F87983E724CC7D49DB0A7A5A28EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983154   (943421) от 06.02.2016
-
-VA - Guitar Collection 2 (2016) [MP3|320 кб/с] <Instrumental, Metal, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saracen - Lament 03:44
-02. Steve Vai - Dyin' Day 04:29
-03. Joe Satriani - Made Of Tears 05:32
-04. Joe Stump - The Killer Instinct 06:53(   Читать дальше...   )Жанр: Instrumental, Metal, RockПродолжительность: 02:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D4710CFE165DFC44E321F1B3AC8ECFE9DFC05A
 ```
 
 https://mybot314.ru/tekegram_catalog/

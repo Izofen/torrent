@@ -1,3 +1,32 @@
+###  Публикация: 1359686   (963204) от 13.02.2020
+
+VA - Erotic Lounge Selection (2020) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Sky - Speakeasy (Blue Chill Cut) (3:07)
+02. Dr. Drummer - Windparade (3:16)
+03. Underpiano - Piano D'ansia (3:02)
+04. Lounge Paradise - Davis Inside (3:03)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB874D76DED0F5AFDDCC4D0FA85E6743B5F9EC6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359429   (963210) от 13.02.2020
 
 Dj Donatas VZ - Nobody Harder - Volume Zero (2004) [MP3|320 Kbps] <Trance>
@@ -715,33 +744,6 @@ Banks - Goddess (2014) Deluxe Version [FLAC|Lossless|tracks + .cue] <Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B820760C208083E18BE32496B148C509A3538BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958773   (967124) от 09.02.2020
-
-Plaster - Discography 12 Releases (2011-2019) [FLAC|Lossless|tracks+.cue, tracks]<IDM, Downtempo, Minimal, Experimental, Techno, Leftfield>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mongrel (07:18)
- 02. Harden (06:46)Тип издания: CD, WebЖанр: IDM, Downtempo, Minimal, Experimental, Techno, Leftfield •Продолжительность: 05:19:39 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10518A58CE1DE1A1581FC90808BFF92A0DAB60D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

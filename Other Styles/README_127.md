@@ -1,3 +1,32 @@
+###  Публикация: 182244   (754923) от 10.07.2020
+
+Ennio Morricone - The Best Of 50 Years Of Music (2010) [FLAC|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ecstasy Of Gold (From The Good The Bad The Ugly) (3:39)
+02. Once Upon A Time In The West (2:57)
+03. Here's To You (From Sacco E Vanzetti) (3:57)
+04. The Master And Margherita (4:58)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7651EF9B044F701476E98B8249115B3CCD7EBE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 322114   (754925) от 10.07.2020
 
 Ennio Morricone - The Very Best Of (1995) [APE|Lossless|image + .cue] <Instrumental>
@@ -716,35 +745,6 @@ Edward Simoni - Zauber der Panfloete (2012) [MP3|320 Kbps] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:569753CF4030056F82269635BCE3572E94C957DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017084   (762832) от 16.05.2016
-
-Соня Тимофеева - Цыганские народные песни (1970) LP [MP3|256 кб/с] <Цыганская песня >
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кай ёнэ
-02. Настенька
-03. Нанэ мандэ родо
-04. Гэя Куля(   Читать дальше...   )Жанр: Цыганская песняПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED21EC2460E31BD1FFFC13FF20CE40046720497
 ```
 
 https://mybot314.ru/tekegram_catalog/

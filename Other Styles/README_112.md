@@ -1,3 +1,32 @@
+###  Публикация: 1135205   (682897) от 18.05.2017
+
+Manolo Fernandez - Celtic Music Dream (2017) [MP3|320 Kbps] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dreamcatcher
+02. The Elves Are Coming
+03. Her Celtic Eyes
+04. Morrigan(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D829D5552DFD3DFAC0255CCEE3B4F25B8980196D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134508   (682911) от 18.05.2017
 
 Daniel Pemberton - The Counselor / Советник (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack>
@@ -732,35 +761,6 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34F47BBC62A329F1B58C31CDCBF9884953E1EF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134512   (687345) от 16.05.2017
-
-VA - Los clasicos argentinos - Tango - Vol.18 - Horacio Salgan: La magia de un creador (1996) [MP3|128 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raul Garello y su Orquesta - Buen amigo
-02. Miguel Calo y su Orquesta - Yuyo verde
-03. Alberto Marino y su Orquesta - Mano cruel
-04. Sexteto Mayor - Kicho(   Читать дальше...   )Жанр: TangoПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719A77F031D273B5A355BB12F9820E32B2C76EC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

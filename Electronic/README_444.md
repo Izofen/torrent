@@ -1,3 +1,32 @@
+###  Публикация: 1110815   (852080) от 03.03.2017
+
+VA - Armada Miami (The House Edition) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kryder feat. Roland Clark & John Julius Knight - [03:21]
+02. Jan Blomqvist - Dark Noise (ME & her Remix) [04:14]
+03. Erick Morillo - The Edge [03:08]
+04. Thomas Gold feat. Jillian Edwards - Magic (Alex P [03:14](   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659081FF950ACA53544745E2B5CB0A611A2EECFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110700   (852081) от 03.03.2017
 
 VA - Fitness Tech Beats (2017) [MP3|320 Kbps] <Minimal, Tech House>
@@ -714,35 +743,6 @@ VA - Cala Ibizarre Sunset Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9056CD41E76802C2EAE41D8EE859F072F0115404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000930   (853846) от 28.03.2016
-
-WANT/ed - Fringe (2016) [MP3|320 кб/с] <Synth Pop, Coldwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий полноформатный альбом группы из Калининграда (Кёнигсберга - так его почему-то до сих пор на Западе называют!).01. (You) Won't Regret (feat. Holger Muller)
-02. Baiter (feat. Holger Muller)
-03. Sputnik 1 (feat. Holger Muller)
-04. Let's Get Entwined (feat. Patrik Hansson)(   Читать дальше...   )Жанр: Synth Pop, ColdwaveПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75EC50F23D4E008031E771D1B64D8F2BB288141
 ```
 
 https://mybot314.ru/tekegram_catalog/

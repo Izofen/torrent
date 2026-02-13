@@ -1,3 +1,32 @@
+###  Публикация: 1150488   (594037) от 15.07.2017
+
+VA - Avicii Presents Strictly Miami (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dennis Ferrer - Sinfonia Della Notte (John Dahlback Remix)  7:16
+02.  John Dahlback - Love Inside (feat. Andy P) (Extended Mix) (Strictly Miami Edit)  3:30
+03.  Michael Kohlbecker & Peter Eilmes - Tabasco (MOGUAI Remix) (Strictly Miami Edit)  4:36
+04.  Barbara Tucker - I Get Lifted (David Tort Vocal Mix) (Strictly Miami Edit)  6:52(   Читать дальше...   )Жанр: HouseПродолжительность: 02:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE02EF320D8BB5216893E1BD42CC17141ACE934A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150327   (594056) от 15.07.2017
 
 VA - Electro Summer 2017 [MP3|320 Kbps] <Electro House>
@@ -724,35 +753,6 @@ Dense & Translippers - Entitas (2019) Cosmicleaf Records [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDE50E9486FDFFF3D749F9900C0CBCC3613BA49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232773   (596353) от 26.06.2018
-
-Jamie Dupuis - Harp Guitar Relaxation (2018) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Back for You
-02. Ciel du nord
-03. Lakeshore 1
-04. Relaxation(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0003711DCF6C178F229E1A39ECE0619582380041
 ```
 
 https://mybot314.ru/tekegram_catalog/

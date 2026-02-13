@@ -1,3 +1,32 @@
+###  Публикация: 1527372   (736893) от 28.01.2022
+
+Blank & Jones - Relax: Jazzed 3 (2022) [FLAC|Lossless|WEB|tracks] <Chillout, Jazz, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallen (Jazzed) (4:24)
+02. Cinque Terre (Jazzed) (4:53)
+03. All of Me (Jazzed) (5:50)
+04. The Nightfly (Re-Jazzed) (3:50)(   Читать дальше...   )Жанр: Chillout, Jazz, LoungeПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B55F767072B77AB58FDDB30EDB8DB2613D8290F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527268   (736895) от 28.01.2022
 
 Richard Durand - Reactivate (2022) [FLAC|Lossless|WEB|tracks] <Trance>
@@ -712,35 +741,6 @@ VA - Suanda Music Radio Top 20 (January/February) (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9E7932B1BCC44A10F847714104BE6EDDD810750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283372   (740388) от 16.02.2019
-
-VA - Deep Sundays, Vol.1 (2019) [MP3|320 Kbps] <House, DeepHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gray Zone - People On The Move (Philter Mix) 3:16
-02. Mike Morrow - You Are (Eau De Musique Mix) 3:19
-03. Kenny Daniels - High On Emotion (Original Mix) 3:16
-04. Express Five - In The Past (Original Mix) 3:16(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C89A9F29156C72CF7E3355387ABEA96C1F26838
 ```
 
 https://mybot314.ru/tekegram_catalog/

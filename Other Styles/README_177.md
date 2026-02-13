@@ -1,3 +1,32 @@
+###  Публикация: 980856   (952880) от 31.01.2016
+
+VA - Sirtaki Dance (1997) Instrumental [FLAC|Lossless|tracks + .cue] <Folklore>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.Zampetas, A.Sakelarios - Siko Horepse Sirtaki (3:53)
+02. St.Xarhakos, V.Goufas - Na Me Thimase (3:16)
+03. I.Kapellas - Nostalgo (3:34)
+04. George Maustaki, D.Christodoulou - Mesogios (3:21)(   Читать дальше...   )Жанр: FolkloreПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923F5B79D8885CA9E73A270FFF14764DE34774B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980644   (952901) от 31.01.2016
 
 VA - Mambo (2000) 3CD box [FLAC|Lossless|tracks + .cue] <Mambo>
@@ -719,35 +748,6 @@ Portal - Soundtrack (2014) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C040A5B0EA53AED0E78F41079BBBA837E26AA92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360552   (959460) от 16.02.2020
-
-Hacknet - Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remi Gallego - Malware Injection
-02. Cinematrik - The Quickening
-03. Sean Gillespie - Tetrameth
-04. Carpenter Brut - Roller Mobster(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C11F512449617FE3A9093581CF80E09723C857
 ```
 
 https://mybot314.ru/tekegram_catalog/

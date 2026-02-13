@@ -1,3 +1,177 @@
+###  Публикация: 1387509   (791307) от 02.06.2020
+
+VA - DMC Dance Extra Mixes 150 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24kGoldn - City Of Angels (Futose Remix Extended)
+02. 2Drunk2Funk - Everything
+03. Ava Max - Kings & Queens (Until Dawn Club)
+04. Delena - SOS (Full Intention Extended Remix)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEEC1C005507550BB0FE1C5984EBAD3275495D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387516   (791330) от 02.06.2020
+
+VA - DMC Dance Mixes 254 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Sweeney - Cover It Up (Extended Mix)
+02. Danny Foster & Rogue Fe. Kele Le Roc - Magic (Funkt3ch Lockdown Vocal Mix)
+03. Demi Lovato - I Love Me (Zac Samuel Remix Clean)
+04. Dua Lipa - Physical (Alok Remix)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662710BFCB82D5F3BFA62C1A08D8002DFE1557FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387487   (791332) от 02.06.2020
+
+Jebadiah - Rock 'N' Soul (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disco каверы на темы песен The Rolling Stones от известного продюсера и аранжировщика - Michael Zager.01. All Together (6:27)
+02. Under My Thumb (6:37)
+03. Ruby Tuesday (4:40)
+04. Honky Tonk Women (5:44)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBFB4843BA43510BE41D183FF084C2F773DA84FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387646   (791335) от 02.06.2020
+
+Star City - I'm A Man (1978) Reissue CD, 1998, Unidisc [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm A Man (12'' Mix) (8:45)
+02. La La Means I Love You (4:08)
+03. I Can't Get Over You (5:46)
+04. Melodia (Melody Of Love) (4:05)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654C3C8FA250031E828808901BDFED640AA61703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510450   (791455) от 16.11.2021
+
+Shakira - Laundry Service꞉ Washed and Dried (2021) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Objection (Tango) (3:44)
+02. Underneath Your Clothes (3:45)
+03. Whenever, Wherever (3:16)
+04. Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C60ED09AAB0BB71A435569370711384F9E227C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510418   (791528) от 16.11.2021
+
+Watson Beasley - Watson Beasley (1980) Reissue CD, 2003, Unidisc [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's On My Mind (12 Inch) (5:49)
+02. Breakaway (Extended) (5:07)
+03. Darlin' I (5:06)
+04. Body Free (4:58)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F5314A2A5BBA8207BEAFC262435D20CE0D5758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510395   (791579) от 16.11.2021
 
 Gayle Adams - 2 Albums (1980, 1982) Reissue CD, 1992, Unidisc [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
@@ -572,180 +746,6 @@ CD - 1 - Romantica:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBEF02CDCEC95F548E248A01D9B53608FBFE0632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509842   (792830) от 14.11.2021
-
-VA - The Best Christmas Album In The World...Ever! 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Thank God It's Christmas (4:19)
-02. Band Aid 30 - Do They Know It's Christmas? (3:48)
-03. Sam Smith - Have Yourself A Merry Little Christmas (2:50)
-04. Justin Bieber - Mistletoe (3:03)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3308F2CFC643DF98D4D2E688889D8EE3C977B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509887   (792929) от 14.11.2021
-
-Melody Stewart - Action Satisfaction (1980) Reissue CD, 2009, Unidisc [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Action Satisfaction (6:25)
-02. Get Down Get Down (6:45)
-03. Don't Take Your Loving From Me (5:42)
-04. You Don't Know What You're Missing Tonight (5:25)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 01:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB05821365F0470EA4FC927CEB948E22FDA0FD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274598   (793004) от 07.01.2019
-
-Герр Антон - Одинокий мужчина и другая честная попса (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокий мужчина (3:30)
-02. А он её (3:15)
-03. Так тому и быть (3:33)
-04. Пухленькие девушки (3:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BD3DB994C89F678D78703B90F2B3BE490C1C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274561   (793047) от 07.01.2019
-
-Jess Glynne - Always In Between (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. No One
-03. I'll Be There
-04. Thursday(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE4F0222793AEC9BDF53325AFE354A9B5E1EF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123004   (793147) от 06.04.2017
-
-Thomas Anders - Pures Leben (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der beste Tag meines Lebens
-02. Sternenregen
-03. Das Lied das Leben hei?t
-04. Feuerwerk(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A2E596777C65464F703FBF4A58D0098AB3549C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122954   (793296) от 06.04.2017
-
-Silver Convention - The Very Best Of (2004) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <Disco, 70's>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Robin Fly (5:32)
-02. Save Me (4:19)
-03. Ooh What A Night (5:16)
-04. Spend The Night With Me (4:19)(   Читать дальше...   )Жанр: Disco, 70's |Продолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6B3ED3F706A57C44AE683BC90F98C00D1BBAAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

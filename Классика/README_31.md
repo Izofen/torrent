@@ -1,3 +1,31 @@
+###  Публикация: 1228016   (640834) от 29.05.2018
+
+VA - Top 30 Most Popular Wedding Classics (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Easy Listening>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Midsummer Night's Dream, Op. 61 Act V. Wedding March - Staatskapelle Berlin, Gunther Herbig, Chor Der Deutschen Staatsoper Berlin 05:05
+02. Lohengrin, WWV 75 Treulich geführt ziehet dahin - Das süße Lied verhallt - Staatskapelle Berlin, Chor Der Deutschen Staatsoper Berlin, Otmar Suitner 08:23
+03. Solomon, HWV 67, Sinfonia II, Pt. III I. Arrival (   Читать дальше...   )Жанр: Classical, Instrumental, Easy ListeningПродолжительность: 02:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77F2A139B735AB05E2E38260B60132AF0CD957F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033020   (641585) от 09.07.2016
 
 Andrea Oliva & Angela Hewitt - Bach: Flute Sonatas (2013) [FLAC|Lossless|tracks] <Classical, Baroque>
@@ -757,40 +785,6 @@ VA - Peaceful Piano (2017) [MP3|320 Kbps] <Classical, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77B885F3ABB06887F010AC5BC999592E134B2C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511588   (667164) от 16.06.2012
-
-Esmerine - 3 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Experimental, Neoclassical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dog River (03:28)
-02. Walking Through Mist (03:34)
-03. Last Waltz (05:50)
-04. Trampolin (04:42)
-05. Snow Day For Lhasa (05:15)
-06. Sprouts (07:35)
-07. Little Streams Make Big Rivers (03:32)
-08. Au Crépuscule, Sans Laisse (03:04)
-09. Fish On Land (06:46)2003-2011Жанр: Post-Rock, Instrumental, Experimental, NeoclassicalПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1008070   (817307) от 17.04.2016
+
+Gus Dharma - Bali Meets China (2016) [MP3|320 кб/с] <World Music, Relax, Ethnic Instrumental>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon a Time in China
+02. China Doll
+03. Long Road to China
+04. Rise and Fall(   Читать дальше...   )Жанр: World Music, Relax, Ethnic InstrumentalПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BD110F648C6894C7F03F8437F1CC2E4BC75AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116862   (820545) от 21.03.2017
 
 Serenity in Murder - The Eclipse (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -746,41 +775,6 @@ Chris Babida - 3 albums (2000-2008) [MP3|320 кб/с]<Instrumental, Classical cr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36FD92E7393727E8B229D10F62CFC84E986638B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 303500   (857747) от 06.03.2011
-
-Miku Hatsune - Tribute to Виктор Цой (2010) [MP3|320 kbps]<Vocaloid Character Vocal>
-
->>East Asian Music
->>Doujin Music
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Intro
-02.Blood Type
-03.Ant Hill
-04.Watch Yourself
-05.War
-06.We Want Change
-07.Star Called Sun
-08.8-th Class Loli
-09.Sad Song
-10.In Our Eyes (Tsoi version)(   Читать дальше...)Жанр: Vocaloid Character VocalПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2B4EF1572E12BFE95CA981D1D6073FDE180BEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

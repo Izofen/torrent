@@ -1,3 +1,175 @@
+###  Публикация: 1305831   (556179) от 01.06.2019
+
+Arirang Singers - Discorea (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Eyes (4:02)
+02. Troubles (3:26)
+03. Come And Join Us (4:15)
+04. Water Dance (3:37)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0B8717A6128C6B029C6950FC61801CD8B7BE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305772   (556189) от 01.06.2019
+
+VA - Clubfete 2019.2 (63 Summer Club & Party Hits) (2019) 3CD [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556189.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01.  Robin Schulz feat. Harlœ  -  All This Love
+02.  Mark Ronson  -  Nothing Breaks Like A Heart
+03.  Chic  -  Le Freak (Oliver Helden's Remix)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 03:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534159433B842744C6E6EB6595054CE8AF0E8C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305775   (556191) от 01.06.2019
+
+Amant - Amant (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If There's Love (14:37)
+02. Hazy Shades Of Love (13:35)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E12679731DBD83D75F26F332E1EC1DFB5AC68E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236175   (556245) от 15.07.2018
+
+VA - Первый дачный, Vol. 4 (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feduk - Закрывай глаза
+02. Слава - Мальчик мой
+03. Филипп Киркоров - Цвет настроения синий
+04. Nuteki - #Египетхит(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C99B1F24C5D8C8E9FCA238DC46972F584527083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236173   (556248) от 15.07.2018
+
+Dj Smash - The Best (Remastered) (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moscow Never Sleeps (Remastered)
+02. Lovers 2 Lovers (feat. Ridley) (Remastered)
+03. Волна (Remastered)
+04. Моя любовь 18 (Remastered)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B86E8571EB624BF9BF9086579DF5639CE0279C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556942   (556398) от 12.06.2022
+
+Vanessa Mai - No Hard Feelings (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Hard Feelings [00:02:38]
+02. Schwarze Herzen [00:02:24]
+03. Melatonin [00:02:19]
+04. Happy End [00:02:18](   Читать дальше...   )Жанр: PopПродолжительность: 00:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05E5D4E8B68A56E9CD3BA46F901A3963A2CB0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305508   (556446) от 31.05.2019
 
 VA - Simplified More Than Acoustic (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
@@ -572,180 +744,6 @@ VA - The Voices Of Ken Laszlo (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B619C01FCD3A8E811FCD1CC8F7807516888C0773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556384   (559857) от 09.06.2022
-
-VA - Feelin' Good (2004) 2xCD [FLAC|Lossless|image + .cue] <Pop, Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559857.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Billy Idol - Hot in the City
-02. Spice Girls - Say You'll Be There
-03. KC and The Sunshine Band - That's the Way (I Like It)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 02:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071754BBFA20739759F608C0A81AD71E713E487F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304885   (559917) от 28.05.2019
-
-VA - Inakustik Clearaudio 40 Years Excellence Edition (2018) [FLAC|Lossless|image + .cue] <Pop,  Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   Charly Antolini - Jammin' (03:42)
-02.   Cameron Carpenter - Toccata & Fuge (08:47)
-03.   Yelena Eckemoff - Mommy's Shawl (05:06)
-04.   Brenda Navarrete - Mulata Linda (03:44)(   Читать дальше...   )Жанр: Pop,  FolkПродолжительность: 01:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561703EBFE2A795EB7BE15E24DF35D4E253FFFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304894   (559941) от 28.05.2019
-
-Sigrid - Sucker Punch (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sucker Punch (03:14)
-02. Mine Right Now (03:23)
-03. Basic (03:37)
-04. Strangers (03:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE6645081699D2AE7B050E9561689C4F68D34F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304912   (560063) от 28.05.2019
-
-VA - Fox Giganten (Die besten Discofox Schlager Hits 2019 fur deine Tanz Party) (2019) [MP3|320 Kbps] <Schlager, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kay Dorfel - Malinconia
-02. Tommy Fischer - Du machst mich kopflos
-03. Michael Fischer - Unser Moment
-04. Tom Mathis - Parlez vous francais(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 03:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80154D634B107F7F668121B7FCFA09A09CDAFDD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235294   (560373) от 11.07.2018
-
-Donna Summer - Summer: The Original Hits (2018) [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Love 03:46
-02. Love To Love You Baby 03:21
-03. I Remember Yesterday 04:42
-04. On My Honor 03:31(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03BC717A6E37D8D16F3F303D12F1A748EF38DF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924158   (560808) от 02.08.2015
-
-Natalie Imbruglia - Male (2015) [FLAC|tracks|WEB-DL]<Pop, Adult Alternative, Soft Rock, Covers>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instant Crush (4:57)
-02. Cannonball (3:28)
-03. The Summer (3:18)
-04. I'll Follow You Into The Dark (3:25)(   Читать дальше...   )Жанр: Pop, Adult Alternative, Pop Rock, Soft Rock, CoversПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70EA0ABFB80333C165D0FDF2AD3D373F3FB215F
 ```
 
 https://mybot314.ru/tekegram_catalog/

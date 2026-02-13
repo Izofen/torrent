@@ -1,3 +1,176 @@
+###  Публикация: 1208053   (780093) от 21.02.2018
+
+Christie Lamb (Кристи Лэмб) - Loaded (2017) ABC Music [MP3|320 Kbps] <Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кристи Лэмб - австралийская кантри-певица и автор песен. Пользуется большим успехом в Австралии. В 2016 году певица получила самую престижную награду в Австралийской кантри-музыке «CMAA New Talent of the Year 2016» - «Золотая гитара». Дебютный студийный альбом Кристи «All She Wrote» успешно достиг 2-й строчки в австралийском хит-параде «ARIA Country Chart» в 2014 (   Читать дальше...   )01. Bad Habit 3:06
+02. Flamethrower 2:58
+03. Magic 2:54
+04. Party's Over 3:21(   Читать дальше...   )Жанр: CountryПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8102EB39FC10C9FEBD1827A4D31957D25FF326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208050   (780100) от 21.02.2018
+
+Christie Lamb (Кристи Лэмб) - All She Wrote (2014) ABC Music [MP3|320 Kbps] <Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кристи Лэмб - австралийская кантри-певица и автор песен. Пользуется большим успехом в Австралии. В 2016 году певица получила самую престижную награду в Австралийской кантри-музыке «CMAA New Talent of the Year 2016» - «Золотая гитара». Дебютный студийный альбом Кристи «All She Wrote» успешно достиг 2-й строчки в австралийском хит-параде «ARIA Country Chart» в 2014 (   Читать дальше...   )01. Broken Record 3:29
+02. All She Wrote 2:52
+03. Something In The Way 3:38
+04. Manhunt 3:07(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9E50C14539A76F00792E28BCA85141BBCC110D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208130   (780105) от 21.02.2018
+
+Club 8 - Golden Island (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swimming With The Tide 02:56
+02. Breathe 03:37
+03. Lost 02:35
+04. Pacific 03:20(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934695FB15525297626ED67764FCF3593DA2BBE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207923   (780273) от 20.02.2018
+
+VA - Nu Disco Love (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audio Jacker – Come On Baby (Original Mix)7:38
+02. Discotron – Feel The Need (Original Mix)4:24
+03. Disko Junkie – Without Love (Original Mix)5:56
+04. Giorgio Rodgers – Somebody Else (Original Mix)5:02(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4256EC97C0BE1D93B9DB0492D11645B45F0FE308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207802   (780388) от 19.02.2018
+
+Kim Wilde - 13 Studio Albums (1981-2013) 16CD [MP3|320 Kbps] <Electronic, Pop Rock, House, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ким Уайлд (18 ноября 1960, Лондон, Англия) — британская поп-певица, автор, ди-джей и телеведущая. Приобрела популярность в 1981 году, спев песню «Kids in America», которая в главном британском чарте «UK Singles Chart» поднялась на второе место. В 1983 году получила премию BRIT Award в номинации «Лучшая британская исполнительница». Большого успеха в США добилась благодаря (   Читать дальше...   )Список альбомов:
+1981 - Kim Wilde
+1982 - Select
+1983 - Catch As Catch Can(   Читать дальше...   )Жанр: Electronic, Pop Rock, House, Synth-popПродолжительность: 15:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A6487D6E6F54DB3BCFE5DCB2E689F8097C9B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207695   (780397) от 19.02.2018
+
+На-На - По накатанной (2018) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780397.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тук-тук
+2. По накатанной
+3. 10 днейЖанр: PopПродолжительность: 00:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3A6E9AA3A7AA892F875F0410E14E61C8674850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207602   (780546) от 18.02.2018
 
 Eros Ramazzotti - Duets (2017) Compilation [FLAC|Lossless|image + .cue] <Pop>
@@ -571,180 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2573ACDDCBF4BE14EA770D8B6833C7374737843C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390862   (781793) от 18.06.2020
-
-Bee Gees - Odessa (1969) Box Set Felt Cover 2009 3-CD Reprise Records [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bee Gees (рус. Би Джиз) — британско-австралийская музыкальная группа, основанная в 1958 году. Состояла из троих братьев: лидера-вокалиста Барри Гибба, второго лидера-вокалиста Робина Гибба и клавишника-гитариста Мориса Гибба. Мировые продажи пластинок группы превышают 220 миллионов копий, что делает их одним из самых успешных коллективов в истории музыкальной индустрии. (   Читать дальше...   )01. Odessa Demo (6:42)
-02. You'll Never See My Face Again Alternate Mix (4:08)
-03. Black Diamond Demo (4:04)
-04. Marley Purt Drive Alternate Mix (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5766EC2AF8AE4BB31A96C06BBED37D2529F1B912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391123   (781845) от 18.06.2020
-
-Катя Лель - Сияние (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781845.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чемодан
-2. Утону в твоих глазах
-3. Подключись
-4. Я не она(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C273D9D352536B6A43CAEC3579561DE47C063577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206635   (782100) от 14.02.2018
-
-Systems In Blue - Melange Bleu (The 3rd Album) (2017) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1. - The Blue Part
-01. Back In Blue 4:13
-02. There's No Heart 3:54
-03. Lady Ocean 3:42(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DABA1924929309CABAEBA944DF8FA79B0E897B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206559   (782138) от 14.02.2018
-
-OFF - 2 Albums (1988,1989) CD [MP3|320 Kbps] <Electronic, Pop, New Beat, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luca Anzilotti, Michael Münzing, Sven Väth - таков состав группы из Франкфурта/Германия, который несколько лет спустя будет рассматриваться как коллектив произведший огромное влияние на немецкую танцевальную сцену и получивший платиновые пластинки.01. Bad News (5:06)
-02. Time Operator (5:23)
-03. Step By Step (3:53)
-04. Electrica Salsa (4:47)(   Читать дальше...   )Жанр: Electronic, Pop, New Beat, Synth-popПродолжительность: Кодек: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D287AFC177CAC534048C15B87BB08F422E7079F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206461   (782139) от 14.02.2018
-
-16 Bit - Inaxycvgtgb (1987) CD [MP3|320 Kbps] <Electronic, Synth-pop, New Beat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Are You (4:13)
-02. (Ina) Gadda-Da-Vida (Feat. Eddie Hind) (5:10)
-03. Be Quit (4:19)
-04. Mac's Flight (3:32)(   Читать дальше...   )Жанр: Electronic, Synth-pop, New BeatПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952AA4669C0FD3BDFF3138CA61E9E437F97282F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205962   (782520) от 13.02.2018
-
-Justine - You`re My Sunshine (2000) Single [MP3|320 Kbps] <Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You`re My Sunshine (Radio Version) 3:24
-02. You`re My Sunshine (Extended Mix) 5:15
-03. You`re My Sunshine (Bonelli Remix) 3:32
-04. You`re My Sunshine (Karaoke Version) 3:30Жанр: EuropopПродолжительность: 15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF67643422062C69B04EBFC4CFC553A8B9922B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

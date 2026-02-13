@@ -1,3 +1,32 @@
+###  Публикация: 943140   (449433) от 03.10.2015
+
+Alnaes, Sinding - The Romantic Piano Concerto Series (Piers Lane & Bergen Philharmonic Orchestra) (2007) [FLAC|image +.cue]<Classical, Romantic Period, Concerto, 20th Century Period>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto in D major, Op. 27
+01. Allegro moderato (12:53)
+02. Lento (08:47)
+03. Allegro assai (Tempo di valse) (09:52)(   Читать дальше...   )Жанр: Classical, Romantic Period, Concerto, 20th Century PeriodПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E83535EF3D24ABB64894AA5F8218BB8C0CE3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943371   (449442) от 03.10.2015
 
 Schubert - Piano Sonatas D.960, D.840 “Relequie” (Rudolf Serkin) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Recitals, Sonata>
@@ -719,35 +748,6 @@ Sleeping Beauty
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A9B575EC1D966BF832DDC33EE6E208ABF657CF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940409   (467021) от 25.09.2015
-
-Mozart - Symphony Nos. 38 & 39 (Alexander Schneider & Chamber Orchestra of Europe) (1986) [FLAC|image +.cue]<Classical, Orchestral, Classical Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 38 in D major ("Prague"), K. 504
-01. Adagio - Allegro (11:24)
-02. Andante (09:30)
-03. Presto (06:22)(   Читать дальше...   )Жанр: Classical, Orchestral, Classical Period, SymphonyПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63C7AD93217D4070CE1BD1BD0C92F026904D4BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

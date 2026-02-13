@@ -1,3 +1,32 @@
+###  Публикация: 1550924   (591158) от 13.05.2022
+
+Asia 2001 - Eternal (2022) [FLAC|Lossless|WEB|tracks] <Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doing This (Club Mix) (6:15)
+02. No One (Club Mix) (6:10)
+03. Stand By (Club Mix) (6:03)
+04. Sound Addiction (Club Mix) (5:58)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EDE99F1C948862548FD6911C46FB57D7C28878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550891   (591186) от 13.05.2022
 
 Schiller - Epic (2021) [FLAC|Lossless|tracks + .cue] <Chillout, Downtempo, Ambient>
@@ -713,35 +742,6 @@ VA - Ablazing Vol. 1 (Mixed by Rene Ablaze) (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:993BBDA344797F6330251CA8D10B042077E5B1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300748   (592809) от 07.05.2019
-
-Trudge - 100 (2019) 1Ø Pills Mate [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Acid, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A (04:02)
- 02. From Sorrow To Darkness (06:13)
- 03. Burning Inside (05:49)
- 04. Tool (06:39)(   Читать дальше...   )Жанр: Techno, Ambient, Acid, BreaksПродолжительность: 00:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6A3EFA37BDCFC9108520C730D310371449D1F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1002623   (843314) от 03.04.2016
+
+VA - Hits Disco and Pop Dance - Part II (2016) [MP3|256 кб/с] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arabesque - Dance Dance Dance
+02. Solid Base - Set Me Free
+03. Jules - You & Me
+04. Anita Ward - Ring My Bell(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA31B300F4FA6821DE1CEEE6F1AACA239C14C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112005   (843389) от 08.03.2017
+
+VA - Ham!d Production February 2017 (2017) [MP3|192-320 Kbps] <Pop, Deep, Trance, Melbourne>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaliyah & Timbaland - Try Again (Alex Mistery Remix)
+02. Akcent & Amira - Gold
+03. Alex M.O.R.P.H & Woody Van Eyden Feat. Tiff Lacey - Dreamcatcher (Mhammed El Alami Remix Extended)
+04. Alok & Bruno Martini feat. Zeeba - Hear Me Now(   Читать дальше...   )Жанр: Pop, Deep, Trance, MelbourneПродолжительность: 03:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F75DBD5B906FF7CBD323F1D90E92B2833AECEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003598   (843405) от 03.04.2016
 
 VA - Ещё Одна История: Авторская Лирика (2016) [MP3|256 кб/с] <Шансон>
@@ -690,64 +748,6 @@ VA - Девочки танцуют 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76145F8AC300F47010988DA02CBEFDB2D13D68FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003019   (845013) от 02.04.2016
-
-VA - Музыка хорошего настроения 6 (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845013.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eric Prydz Feat. Rob Swire - Breathe
-002. Нюша & Арсений Бородин - Выбирать Чудо
-003. Scarlet White - Memory Finds You
-004. Кристалл - Сгорает Ночь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9232A37C5AF2F8ED8B642F32BC6AE5A47DE7D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111914   (845040) от 07.03.2017
-
-VA - Текила-любовь. Топ новинок (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845040.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Светлана Лобода - Текила-Любовь
-002. Ханна - Невиновная
-003. Анжелика Агурбаш Feat. Арамэ - Было И Прошло
-004. Malika - Разожги Во Мне Пламя(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B084DD64AB847165E34F6E7DF4946C236C001964
 ```
 
 https://mybot314.ru/tekegram_catalog/

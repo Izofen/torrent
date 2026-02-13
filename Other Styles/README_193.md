@@ -1,3 +1,32 @@
+###  Публикация: 1457715   (1023464) от 31.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023464.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:20] 01. Pensacola, Florida (Godzilla Theme)
+[07:26] 02. Skull Island (Kong Theme)
+[02:02] 03. Apex Cybernetics
+[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB15A744B58F72E42D5115BFDB70BABFBD932CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457771   (1023466) от 31.03.2021
 
 Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
@@ -719,35 +748,6 @@ Darren Korb - Hades OST (2020) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBFC18A2620B3407DC4D1D55FE92646CE3F0A885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450117   (1029343) от 24.02.2021
-
-Devesh Sodha - Past & Present (2018) + Singles (2013-2020) [FLAC|Lossless|WEB-DL] <Soundtrack, Instrumental, Epic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny Of The Urban Warrior
-02. Carol of the Bells (Epic Version)
-03. Promises
-04. Falling FasterЖанр: Soundtrack, Instrumental, EpicПродолжительность: 00:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28186DE1AD7B25F70FE6EA3D4FC758A85F02410
 ```
 
 https://mybot314.ru/tekegram_catalog/

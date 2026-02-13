@@ -1,3 +1,32 @@
+###  Публикация: 994430   (889623) от 08.03.2016
+
+VA - Die Hit-Giganten: Pop and Wave Hits Der 80er (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <SynthPop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. a-ha - The Sun Always Shine on TV (5:05)
+02. ABC - The Look of Love (3:29)
+03. Level 42 - Lessons in Love (4:01)
+04. Gazebo - I Like Chopin (4:50)(   Читать дальше...   )Жанр: SynthPop, New WaveПродолжительность: 02:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54A8E5DCFEE57BABBC1624F183BEB9B4C072EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102792   (889661) от 10.02.2017
 
 VA - Frozen Moments Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -713,35 +742,6 @@ Space Afrika - Discography 7 Releases (2014-2021) Where To Now?, Sferic [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B93EB1F956FF4A0D7FDA7964ECC570252B9C4F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102543   (891139) от 09.02.2017
-
-VA - Pacha Ibiza (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix & Bebe Rexha - In the Name of Love [03:16]
-02. Breathe Carolina x IZII - Echo (Let Go) (Extended Mix) [04:49]
-03. Dimitri Vegas & Like Mike vs. Diplo feat. Deb's Daughter - Hey Baby[03:07]
-04. Million Dollar Weekends - Addicted to Your Love [03:11](   Читать дальше...   )Жанр: HouseПродолжительность: 08:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1C780EF93559438122A12AA0E28A779EE30B6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

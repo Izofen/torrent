@@ -1,3 +1,177 @@
+###  Публикация: 1475158   (1012429) от 06.06.2021
+
+Anabel Englund - Messing With Magic (2021) Deluxe Edition [FLAC|LOSSLES-Web-DL] <Dance, Synth-pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Hot (MK x Nightlapse Remix) [00:03:45]
+02. Float [00:03:32]
+03. Picture Us [00:02:37]
+04. Spell My Name [00:02:53](   Читать дальше...   )Жанр: Dance, Synth-pop, Dance-popПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77650AEC1A9704894B59DA37BE41D635F3E6ECC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475251   (1012439) от 06.06.2021
+
+Najwa - AMA (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muñequita Linda
+02. Solamente Una Vez (con Israel Fernández)
+03. Esta tarde vi llover (feat. Rusowsky)
+04. Perfidia(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4C3270352C53C5915A5925354C38E39C42FBEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474886   (1012694) от 04.06.2021
+
+Little Big - COVERS (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012694.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Everybody (Little Big Are Back)
+2. Blitzkrieg Bop
+3. Barbie Girl
+4. Koldunya(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5291EDB78FFF255BAED487615DDDC1E70CB65C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474932   (1012727) от 04.06.2021
+
+VA - At My Worst - Chilled Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Sweat$ - At My Worst (2:50)
+02. Joel Corry, MNEK - Head & Heart - Acoustic Version (3:38)
+03. Charlie Puth, Selena Gomez - We Don't Talk Anymore (3:37)
+04. Griff - Good Stuff (3:13)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D1C87CE01D0D7830D8DF4B52D977BB78514980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474639   (1012881) от 03.06.2021
+
+Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless|tracks+.cue] <Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Day In Your Life (4:17)
+02. Rockin Robin (2:33)
+03. People Make The World Go Round (3:14)
+04. HappyЖанр: Pop, Funk, SoulПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D6C120CAF5BF182D7CCB110C46A26EC208B54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474718   (1012890) от 03.06.2021
+
+Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stasera Che Sera (3:23)
+02. Per Un'Ora D'Amore (3:59)
+03. Cavallo Bianco (4:57)
+04. Ma Perche' (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF27F4033AF25894D1C56352B5E9589A467D04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474093   (1013205) от 01.06.2021
 
 Boys Don't Cry - All the Very Best (серия "Другие восьмидесятые") (2020) Compilation [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
@@ -567,180 +741,6 @@ TQ - Out Of The Shadows - The Album (2014) [FLAC|Lossless|tracks + .cue] <Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:949A2F08EC2410944D2BDD314CE19D609D3081F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472560   (1014373) от 25.05.2021
-
-Stainless Steal - Can-Can (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can-Can (14:21)
-02. More Than Meets The Eye (6:04)
-03. Messing With You (Is Like Messing With The Devil) (5:28)
-04. It All Comes Down To Love (6:43)Жанр: Electronic, DiscoПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03407911272FA472A4267BD32E764371B16248F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472203   (1014503) от 24.05.2021
-
-Марина Сафонова - Ставка на ZERO (2003) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 ZERO
-02 Не по правилам
-03 Стекло на губах
-04 Ищу Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F9CF60E20AAC1CC6AEEB6EE161FD4ACBBDB538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472106   (1014527) от 24.05.2021
-
-VA - American Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Count On Me (3:17)
-02. Jason Mraz - Have It All - Acoustic (3:45)
-03. Christina Perri - A Thousand Years (4:45)
-04. Seasick Steve - Walkin Man (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC16A188607A1D2C232783262D4E7AEE134EDBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471998   (1014667) от 23.05.2021
-
-Zolita - Evil Angel (Deluxe) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bedspell (00:02:49)
-02. Loveline (00:02:32)
-03. Somebody I Fucked Once (00:03:07)
-04. Shut Up And Cry (00:03:15)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B433DD79A5F6DCB005996D089E20EFF5664676B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471752   (1014784) от 22.05.2021
-
-VA - Созвездие хитов. Застольные песни 1. (2004) [FLAC|Lossless|tracks + .cue]<Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Джигарханян - ...щас спою! ( из М/ф )
-02. В. Девятов - Коробейники
-03. О. Воронец - Ромашки спрятались
-04. А. Литвиненко и Т. Мушта - Огней так много золотых(   Читать дальше...   )Жанр: РетроПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB28D9702236708668F9BA7242E5123A63A89CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471753   (1014800) от 22.05.2021
-
-VA - Мужские песни (2003) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Маршал - Журавли, журавли...
-02. А. Днепров - Милая
-03. Самоцветы - Колоколенка
-04. Рядовой Дарин - На свадьбе(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474E5E4B7400D7AD4A15488CD181A7C4677E536C
 ```
 
 https://mybot314.ru/tekegram_catalog/

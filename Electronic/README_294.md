@@ -1,3 +1,32 @@
+###  Публикация: 361883   (575083) от 11.07.2011
+
+VA - Bar Lounge Classics: Late Night Edition (2009) [MP3|320 kbps]<Chillout, Lounge, Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575083.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Bar Lounge Classics: Late Night Edition (2009)
+Год: 2009
+Жанр: Chillout, Lounge, Downtempo
+Продолжительность: 03:52:14(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8076EE1B8121CDDA174310BBF7F99D8707DE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233950   (575618) от 02.07.2018
 
 VA - In Search Of Sunrise 14 (Mixed By Markus Schulz, Gabriel & Dresden and Andy Moor) (2018) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
@@ -711,35 +740,6 @@ Huron (][uron) - Collection 11 Releases (2013-2019) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E04B4E800D23FAD91665F76E83FE6EB1330909D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303008   (577855) от 18.05.2019
-
-Scratch Massive - 7 Albums (2003-2018) [MP3|320 Kbps] <Electronic, Electro>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scratch Massive - дуэт ди-джеев, основанный в 1999 году на западе Франции и состоящий из Мод и Себастьян (Maud and Sebastien).Список альбомов:
-2003 - Enemy & Lovers
-2007 - Time
-2008 - Underground Needs Your Money Baby(   Читать дальше...   )Жанр: Electronic, ElectroПродолжительность: 06:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E7EF758C222AFB9D29DE8C0E048C22A5EF039F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1053757   (524192) от 18.09.2016
+
+VA - Дорожный шансон с любимой музыкой. Часть 7 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524192.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Владимир Курский & Бутырка - Воля-Вольная
+002. Варвара Комиссарова - Я Старше Ты Моложе
+003. Виктор Калина - Тобою Простужен
+004. Даниил Якубович - Корпоратив Был Между Прочим(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54ED1856B88B9601214951438C03A4A0A6E13FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313311   (524223) от 08.07.2019
+
+VA - Top 150 Deep House Tracks Vol.3 (2019) [MP3|320 Kbps] <Deep House, Club House, Tech House, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524223.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AEX - Indie (Original Mix)
+002. Alessio Cappelli - Don't Wanna Give Up  (Original Mix)
+003. Alessio Cappelli - I Have Been Before (Original Mix)
+004. Ali Bakgor - Say It's Over (Extended Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech House, Vocal HouseПродолжительность: 13:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF47ABC4A7A7D8430CAE7CEF3B43283A09DAD34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053783   (524265) от 18.09.2016
 
 VA - Осенний Хаус Калейдоскоп Топ 50 [Compiled by Zebyte] (2016) [MP3|48-416 Kbps] <Deep House, Nu Disco, Tropical House>
@@ -687,64 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBE239994E0C0DDB2D48A2C68590B80BF69E0CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053413   (526119) от 17.09.2016
-
-VA - Traxsource Top 100 July (2016) [MP3|320 Kbps] <UK Jackin, Indie Dance, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526119.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Full Intention - Dancin' 05:12
-002. Midnight Star - Midas Touch (Jamie Lewis Touch The Stars Mix) 07:43
-003. Soul Vision - Don't Stop (Dario D'Attis Remix) 06:56
-004. David Penn, Hosse - Con Son Ft. Africa G. (Vocal Mix) 05:33(   Читать дальше...   )Жанр: UK Jackin, Indie Dance, Nu DiscoПродолжительность: 11:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5697868310AB750D586854F17C022659E06CEA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053419   (526121) от 17.09.2016
-
-VA - 100% Ibiza - The Closing (2016) [MP3|320 Kbps] <Funky, Club, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freakbreak - Midnight Rain 06:31
-02. Noctiluca - Volver (Zak Gee Remix) 06:00
-03. Flip And Flap & Axis - Winter Dust 06:49
-04. Morgan Dora - This Is How I Want 05:47(   Читать дальше...   )Жанр: Funky, Club, Tech HouseПродолжительность: 04:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99D827587B9DFE3EF59CE0D37847DC5E30BA584
 ```
 
 https://mybot314.ru/tekegram_catalog/

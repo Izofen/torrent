@@ -1,3 +1,32 @@
+###  Публикация: 1289208   (688378) от 15.03.2019
+
+Faderhead - Starchaser (2019) EP [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, Darkwave, Industrial>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light My Way (4:50)
+ 02. I'm Out Of Control (4:08)
+ 03. Get Mad At Your Robot Self (4:27)
+ 04. Starchaser (4:25)(   Читать дальше...   )Жанр: EBM, Synthpop, Darkwave, IndustrialПродолжительность: 00:26:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD88A1ED6EB0FB5A5F02C09B9AEFE8333F90647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288989   (688383) от 15.03.2019
 
 VA - Ibiza Springtime (20 Sunset Cocktails) (2019) [MP3|320 Kbps] <House, DeepHouse>
@@ -714,35 +743,6 @@ VA - Translinguistic Perceptions (2015) [MP3|320 кб/с] <Downtempo, Experiment
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB9E0232911857DDF293002DDABE3213F7E61181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068014   (690995) от 14.05.2017
-
-Ari Mason - 2 альбома + EP (2014, 2016) [MP3|200 -320 Kbps] <Synthpop, Darkwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dim The Lights (03:51)
-02. Beasts Tonight (03:29)
-03. Heaven's Gate (02:24)
-04. Empires (03:50)(   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48BB4C66CC529025A4780ECD22F84093CB5A400
 ```
 
 https://mybot314.ru/tekegram_catalog/

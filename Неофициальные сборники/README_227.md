@@ -1,3 +1,61 @@
+###  Публикация: 948883   (379470) от 22.10.2015
+
+VA - Vocal Deep House Vol.2 (Compiled by Zebyte) Russian Version (2015) [MP3|256-320 кб/с]<House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jama - Spring (Sergey Franc & Dmitriy Brain Remix) [04:24]
+02. Катя Лель - Долетай (Low Deep Mix) [04:09]
+03. D.I.P. - Время Ню (Mastadont Deep Mix) [06:34]
+04. Мохито - Я Не Могу Без Тебя (Tvkiller Radio Edit) [03:30](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE94F8A9DBEC12D91AF325DF921F48F33FD143D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253853   (379509) от 11.10.2018
+
+VA - Respect Drum & Bass (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Derrick & Tonika - Vatra Spirit
+002. Linear - Anthem At Dusk
+003. Wax Motif - Legit
+004. Foureye - Air Raid(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 10:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCEE1FE1B26775BF6FEEE6A50171E4E24304798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253849   (379519) от 11.10.2018
 
 VA - Dubstep Generation (2018) [MP3|320 Kbps] <Dubstep, Trap>
@@ -690,64 +748,6 @@ VA - Hot Line Miami: Mixed Emotions (2019) [MP3|320 Kbps] <Club, Dance House, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC4687049ADFB0217D838722FBACAAA7E40C5855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326891   (381075) от 22.09.2019
-
-VA - Music For Cozy Interior (2019) [MP3|320 Kbps] <Lounge, Downtempo, Chillout, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381075.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Martin Liege - Almost Home
-002. Paolo Diaz - Paulina (Original Mix)
-003. Richie Havens - Going Back To My Roots
-004. Nathan Brumley - Pictures Of You(   Читать дальше...   )Жанр: Lounge, Downtempo, Chillout, RelaxПродолжительность: 08:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2916CF4A0570974104036A865CD92563C60B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253376   (381131) от 10.10.2018
-
-VA - Billboard Hot 100 Year End (1920-2017) [MP3|320 Kbps] <Dance, pop, rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381131.jpg" />
-</div>
-
-
-###  Подробнее
-
-1920 - Billboard Year-End Hot 10 Songs (10 / 31:18)
-[02:53] 01. Paul Whiteman and His Orchestra - Valencia
-[03:34] 02. Gene Austin - My Blue Heaven
-[03:16] 03. Al Jolson - Sonny Boy(   Читать дальше...   )Жанр: Dance, pop, rockПродолжительность: 419:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920F2C5A887C8E3694005CA9B93E8C086E89565E
 ```
 
 https://mybot314.ru/tekegram_catalog/

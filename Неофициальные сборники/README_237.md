@@ -1,3 +1,73 @@
+###  Публикация: 566770   (398196) от 28.10.2012
+
+VA - Новые Хиты Дискотек Vol. 2 (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398196.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Inna feat. Play & Win - Inndia (Salvatore Ganacci Remix)
+002. Sound Hackers feat. Чи-Ли - Я Буду Помнить (Ruslan Mitrofanov & Max Delmar Remix)
+003. Azuro feat. Elly - Je Ne Sais Pas (R.I.O. Remix)
+004. Потап и Настя - Улелето
+005. Elena Gheorghe - Hypnotic (Radio Edit)
+006. ChinKong и Девушки Эйнштейна - Дискотека Home Party 16
+007. Xonia - Remember (Radio Edit)
+008. Иракли - Осень (Remix)
+009. Enrique Iglesias feat. Sammy Adams - Finally Found You (Vice Radio Edit)
+010. Иван Дорн - Бигуди (Slider & Magnit Radio Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 12:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87CFB1E1E8A67512F07582E1672B87709A7F2D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566982   (398197) от 28.10.2012
+
+VA - Новое на Europa Plus (2012) [MP3|256 кб/с]<pop, dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ M.E.G. - Stock-Holm
+02. Оксана Почепа - По подоконнику дождь
+03. gor Garnier feat. Minja & Mondo - Ajde Romale
+04. DJ Шанс feat. JayB (D.Lemma) - Ярче
+05. All Давай feat. DJ Ihlas - Москва-Дубай
+06. T-Killah feat. Лоя - Вернись (Fire Flame & Horizont Remix)
+07. Джиган - Нас больше нет (Michael Yousher Remix)
+08. Винтаж feat. Bobina - На-На-На
+09. DJ Simon Weeks feat. Los Tiburones - Rumbero
+10. Rihanna - Where Have You Been(   Читать дальше...   )Жанр: pop, danceПродолжительность: 06:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD2886D4AC0CBE77DD49649388E66903B685511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566754   (398246) от 28.10.2012
 
 VA - Дискотека Осенний Хит (2012) [MP3|320 кб/с]<Pop>
@@ -789,64 +859,6 @@ VA - Лучшая 200ка блатного радио 7 (2011) [MP3|128 kbps]<Ш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AC81B995559064CEA98B2D8B074753F06791C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169019   (401474) от 29.09.2017
-
-VA - Under The Carpet (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401474.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eugene Kushner - That I (Original Mix)
-002. Vitaly Beskrovny - If I? (Feat Simon Latham - Original Mix)
-003. Max Denoise - Bring To Me Life (Feat Claire Willis - Original Mix)
-004. Latham & Quano - Fallen Angel (Original Mix)(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 08:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EF9BEF40DC1458DB56236E2B066C48BCEFC889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713880   (401529) от 21.10.2013
-
-Laid Back - 25 Best Songs (2012) [MP3|204 - 257 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Horse (U.S. Edit) 1983
-02. Bakerman 1990
-03. Sunshine Reggae 1983
-04. Universe Lovesong 2005(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D552F2A26494AA0E51045942B0C50074FF61F11C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1009832   (805994) от 23.04.2016
+
+Timothy Wenzel - Distant Horseman (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Bend in the River (feat- Josie Quick)    04:23
+02. Distant Horseman (feat- Josie Quick)    05:05
+03. Turn and Walk Away    04:00
+04. A Night so Cold (feat- Josie Quick)    05:04(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF20CA73360F5BEA378156984F1DAFEA5AFF8467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198499   (806178) от 12.01.2018
 
 Ramin Djawadi - Игра престолов Сезон 7 / Game of Thrones Season 7 (2017) [MP3|320 Kbps] <Score>
@@ -714,35 +743,6 @@ Faranak Shahroozi - Eternal Love (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDB338ABB881AF819E20A1067BBCEBB280032049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197628   (812013) от 09.01.2018
-
-Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes, Instrumental, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ukon Kivi
-02. Lemmini March
-03. Sigurrine
-04. Mellow Praxis(   Читать дальше...   )Жанр: Cinematic Themes, Instrumental, ElectronicПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA2A9382F9E7CA24FF325D7105DD26AE279B6FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

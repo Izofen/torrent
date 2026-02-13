@@ -1,3 +1,176 @@
+###  Публикация: 1415655   (373787) от 13.10.2020
+
+Boney M - Oceans Of Fantasy + Single Hits (2000) [FLAC|Lossless|image + .cue] <Funk, Soul>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It All Be Music (04:56)
+02. Gotta Go Home (03:48)
+03. Bye Bye Bluebird (04:52)
+04. Bahama Mama (03:19)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AFDEF6E6EAFE74B336E1B58C240B08DDA3B03A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069415   (373976) от 04.11.2016
+
+Innocence - Natural Thing (1989) Maxi-Single, 1990, Chrysalis [FLAC|Lossless|image + .cue] <Electronic, Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373976.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Natural Thing (7 Inch) 4:05
+2. Natural Thing (Elevation) 10:03
+3. Natural Thing (Original) 4:15Жанр: Electronic, Pop, Funk, SoulПродолжительность: 00:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F006843CF644E2D5B5FDD729DDB81CA97477FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415820   (374176) от 13.10.2020
+
+Christian Kolonovits - 3 Albums (1976-1984) LP Collection [MP3|320 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый австрийский композитор и аранжировщик Кристиан Колоновиц относится к числу самых заметных музыкантов, формировавших ландшафт европейской поп-сцены в 70-х-80-х годах XX века. Работал с такими звёздами как Chilly, Boney M., Eruption , Scorpions, Tiger Lillies, Jose Carreras, Wolfgang Ambros, Ludwig Hirsch, Einstein, Black Jack, Joy и многими другими.Список альбомов:
+1976 - Life Is Just A Carnival
+1982 - Christian Kolonovits
+1984 - Erbsünde Für Fortgeschrittene(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E175719FB19E0DE78A22C18C4069E95C88239B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176096   (374336) от 20.10.2017
+
+Диана Гурцкая - Паника (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374336.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Звезда
+2. Пудель
+3. Аллилуйя
+4. Свадьба(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A254D2427866491171ECE8D57A0AE1D0455973D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176144   (374344) от 20.10.2017
+
+Cook County - Pinball Playboy (Playboy Theme) (1979) LP [MP3|320 Kbps] <Disco, Sax-Jazz-Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pinball Playboy (5:30)
+02. Little Girls & Ladies (3:42)
+03. Comin' To Getcha (4:25)
+04. Olympiad '84 (3:54)(   Читать дальше...   )Жанр: Disco, Sax-Jazz-FunkПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA73F19401171F6B1AB738BEBD7AF606922C2D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175958   (374345) от 20.10.2017
+
+Brigitte Bardot - B.B. (Remastered) (2017) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sidonie
+02. L’Appareil A Sous
+03. Les amis de la musique
+04. El cuchipe(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB22655815E64F80C8AA9FBA6DF9952E6AB29577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175862   (374427) от 20.10.2017
 
 Hi-Gloss - You'll Never Know (1981) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -577,180 +750,6 @@ Chime - Disco (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13F5B60D81361D832D8A52A942F36BB7B962B7F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415515   (376854) от 12.10.2020
-
-Carla Bruni - Carla Bruni (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376854.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Quelque chose
-2. Un secret
-3. Rien que l’extase
-4. Un grand amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE4579CEAA93019D9278330FEB17F6938AC1701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415568   (376860) от 12.10.2020
-
-J.T. Connection Featuring Dennis Tufano - Bernadette (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernadette, Reach Out I'll Be There, Butterfly Suite  (15:37)
-02. Relationships  (5:47)
-03. Midnight Dancer  (4:56)
-04. Dance My Life Away  (6:30)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D95C89D6516AA06725DB38B85F9E2DD478E66F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254098   (377168) от 12.10.2018
-
-Балаган Лимитед - Танцы по-русски (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377168.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Молодая, глупая
-2. Пару тыщ
-3. Давай поженимся
-4. Тик-так ходики (Restyling Project Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB3D9AFFF786450DE25B69915A986B2C258CDE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253595   (377269) от 12.10.2018
-
-Татьяна Снежина - Позови меня с собой (1997) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Музыкант ( К. Орбакайте )
-02. Будь со мной ( Лада Дэнс )
-03. Фантазия снега ( Вкус меда )
-04. Осень ( Е. Борисенко )(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B71CA8DC0A4BDF079A1FA5FF87BF0BD2818C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254097   (377279) от 12.10.2018
-
-NK (Настя Каменских) - No Komments (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377279.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. #этомояночь
-2. Дай мне
-3. Энимал
-4. Я люблю тебя(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48C9175507E33ED09CFB30F3ED4EE9CAB71E178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949135   (377340) от 23.10.2015
-
-VA - Monster Halloween Hits (2010) 3CD [MP3|320 кб/с]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Screamin' Jay Hawkins - I Put a Spell on You (2:26)
-02. The Five Blobs - The Blob (2:39)
-03. Sheb Wooley - The Purple People Eater (2:14)
-04. Bobby 'Boris' Pickett & The Krypt Kickers - Monster Mash (3:08)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FFEA528B715F8DAD5E43DF06366FB49DCD5F3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

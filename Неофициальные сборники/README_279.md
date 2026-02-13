@@ -1,3 +1,73 @@
+###  Публикация: 548499   (467682) от 18.09.2012
+
+VA - Танцевальная АвтоДискотека. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467682.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJs From Mars & Fragma - Insane (In Da Brain) (DJ Ross & Alessandro Viale Radio Remix)
+002. Bingo Players - Rattle
+003. Jaycee Madoxx - Never Say Never (Marc Korn Hands Up Radio Mix)
+004. Michel Telo - Bara bara bere bere
+005. Linkin Park - Until It Breaks
+006. Greg Parys - The girl is mine
+007. Itaka - La danza de ibiza (Radio mix)
+008. Mike Posner - Looks Like Sex
+009. Aura Dione feat. Rock Mafia - Friends
+010. Britney Spears - Look Who's Talking Now(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFB9C22E17ABBF0251D14D1C6D1E9AE5A196291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386887   (467726) от 13.09.2011
+
+VA - Душа Шансона. Только лучшее (2011) [MP3|320 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467726.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алёна Скок - Пожинаю Что Посеяла
+002. Сергей Славянский - Алёнушка
+003. Вадим Южный - Старый Друг
+004. Сергей Волокамский - Четыре Года
+005. Александр Кирсс - Доченькам
+006. Боба Грек - Дружок
+007. Александр Туралин - Ментовской Беспредел
+008. Таня Тишинская и Эдуард Видный - Дым От Сигарет
+009. Анатолий Грабежов - Белое и Думы
+010. Игорь Кандур - Лестница В Небо(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 04:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010B0CEDAAC40B55C5C211B6C66133ABDA1FDFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058367   (467745) от 01.10.2016
 
 VA - Only Fresh Club Music Vol.2  (Клубные новинки сентября) (2016) [MP3|320 Kbps] <House, Electro House, Future House и др.>
@@ -713,61 +783,6 @@ VA - I Love Drum & Bass (2015) [MP3|320 кб/с]<Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C21EF84D1B038C94E807314B9F6FC6D355D6496B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940479   (469346) от 24.09.2015
-
-VA - Summer Sunset Grooves (2015) [MP3|320 кб/с]<House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Love (feat. Adi Cudz) - Monsieur De Shada
-02. Ibiza 2015 - Jian Amari
-03. Ritmo de la Noche - G. No, Kaysha
-04. Justify Why - Davagani(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3433F8C1AE507FB3A8764E5B60A7EEEB72C68123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547626   (469444) от 17.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 71 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8517CFCDA26AA8D540F3E3AAA9FD221A80AE21
 ```
 
 https://mybot314.ru/tekegram_catalog/

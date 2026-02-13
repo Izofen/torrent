@@ -1,3 +1,32 @@
+###  Публикация: 1230900   (610585) от 15.06.2018
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 June (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DT8 Project - Climb (Original Mix)
+02. Ferry Corsten & Paul Oakenfold - A Slice Of Heaven (Extended Mix)
+03. Vadim Zhukov - Travelling (Mike Saint-Jules Interstellar Mix)
+04. Dylhen - Brouhaha (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922CC90DCC584B3E46F90373954CA7F17DA0676B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230901   (610586) от 15.06.2018
 
 VA - Ori Uplift & Delta IV - Uplifting Only 279 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -728,35 +757,6 @@ Gesaffelstein - Hyperion (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:225AA283A0E36AD8A56663CD1D2B9658E48FE3BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296341   (613445) от 16.04.2019
-
-Innersync - The Gate To The Shire (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Trance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Glory (Original Mix)
-02. Forever Planet Earth (Original Mix)
-03. The Garden Within (Original Mix)
-04. The Gate To The Shire (Original Mix)(   Читать дальше...   )Жанр: Downtempo, ChillOut, TranceПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF109E4191CAE276ED10403D368032ABF2A7037B
 ```
 
 https://mybot314.ru/tekegram_catalog/

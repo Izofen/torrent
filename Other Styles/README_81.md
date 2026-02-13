@@ -1,3 +1,32 @@
+###  Публикация: 1316079   (508825) от 23.07.2019
+
+Biffy Clyro ‎ - Balance, Not Symmetry (2019) Original Motion Picture Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score, Alternative Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balance, Not Symmetry
+02. All Singing And All Dancing
+03. Different Kind Of Love
+04. Sunrise(   Читать дальше...   )Жанр: Score, Alternative RockПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B178A9A365DEEA4B4CCFF1741971FA8B25200D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932652   (509018) от 29.08.2015
 
 Jean-Michel Jarre - Essential Recollection (2015) [MP3|320 кб/с]<Ambient, New-age, Electronic>
@@ -735,35 +764,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:099D921663F18F6676FA835188AC7B52CD300186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314749   (516948) от 16.07.2019
-
-Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
-02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
-03. Wilbert Roget, II - Netherrealm Incursion (03:43)
-04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E9BD7D9600DB23B7E3B08F3BA949936330DD6EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

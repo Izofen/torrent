@@ -1,3 +1,32 @@
+###  Публикация: 1256927   (349862) от 24.10.2018
+
+Joep Beving - Conatus (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Neo-Classical, Modern>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349862.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Joep Beving - Prelude
+2. Joep Beving - For Steven (Eefje de Visser Rework)
+3. Colin Benders - Hanging D (Colin Benders Rework)
+4. Joep Beving - A Heartfelt Silence (Andrea Belfi Rework)(   Читать дальше...   )Жанр: Contemporary, Neo-Classical, ModernПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E484499FEB3BFB1DA60F4015FC2A02BD4F337CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329761   (350154) от 06.10.2019
 
 Armel Dupas - Broderies (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano, Minimal>
@@ -726,35 +755,6 @@ Piano Concerto No. 5 in E flat major ("Emperor"), Op. 73
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76738B22D86371B769352F697F065837BA491EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176124   (369107) от 22.10.2017
-
-Lindsey Stirling - Warmer In The Winter (2017) Target Exclusive [FLAC|Lossless|WEB-DL|tracks] <Christmas, Classical Crossover, Jazz Crossover, Violin>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Of The Sugar Plum Fairy (2:38)
-02. You're A Mean One, Mr. Grinch (feat. Sabrina Carpenter) (2:46)
-03. Christmas C'mon (feat. Becky G) (3:49)
-04. Carol Of The Bells (2:45)(   Читать дальше...   )Жанр: Holiday, Christmas, Classical Crossover, Jazz Crossover, Easy Listening, Electronic, Instrumental, ViolinПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89793F5C2914CF27CA24CD21F65CCB4251C3A14E
 ```
 
 https://mybot314.ru/tekegram_catalog/

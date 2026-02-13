@@ -1,3 +1,32 @@
+###  Публикация: 1290311   (648293) от 01.04.2022
+
+Steen Thottrup • ex resident of Cafe Del Mar - Discography 13 Releases (2009-2022) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648293.jpg" />
+</div>
+
+
+###  Подробнее
+
+2009 - Sunset People (Reissue)
+2014 - Filmatica (Reissue)
+2015 - Filmatica (Remixed)
+2016 - Don't Tell Me No (Single)(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, Lounge, Deep House, Modern ClassicalПродолжительность: 07:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE5D72F1E2B13F802813E51FDAD429613C9BCEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541174   (648296) от 01.04.2022
 
 Kavinsky - Дискография (2006-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electro Pop, French Touch>
@@ -716,35 +745,6 @@ Vintage Culture - Live @ Carnaval, Warung Beach Club, Brazil (2022-02-26) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:833C71F665AFE3613475D1A35D2A402E2A3E99E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141700   (648813) от 11.06.2017
-
-VA - Mykonos Sunset Vol 4 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ill Twin - Charlies (Max Laut Edit) (03:27)
-02. Bendito - City (Mathew Brabham Remix) (06:16)
-03. Nudisco - I See (05:41)
-04. Microwave Monkeys - Twist In My Sobriety (Radio Edit) (Feat Nita) (03:58)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97693ECF8D717972459946479C8BBB4CC9B6D8C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

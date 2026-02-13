@@ -1,3 +1,32 @@
+###  Публикация: 1046554   (552113) от 27.08.2016
+
+VA - After Hours Ibiza (2016) [MP3|320 Kbps] <Deep House, Funky, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy Next Door - Freak 07:56
+02. Pysh - Woo Woo 07:33
+03. Bassmental & Kerri Chandler - Keep It Deep (Sascha Dive's Four To The Floor Edit) 05:47
+04. Ananda Project - Justice, Mercy (Aquanote's Peace Mix) 06:53(   Читать дальше...   )Жанр: Deep House, Funky, Soulful HouseПродолжительность: 04:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCB1180F370ED7F4E7BA5546D05966F57357E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046736   (552114) от 27.08.2016
 
 VA - When The Night Falls (25 Amazing Tunes) Vol. 4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -719,35 +748,6 @@ Orician - New Generation (2012) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB2B0B214EEAA246E866C38AE24AF16C1291E929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046272   (553124) от 26.08.2016
-
-VA - EDM Summer Closing (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emmiel - Every Hour Of Every Day (Kooky Electro Funk Remix) 03:15
-02. Massimo Vanoni - I See You 08:30
-03. Jane Doe - Knight Rider (Ray Livingstone Rework) 04:26
-04. Luke Meyers - Play House (Vocal Edit) 05:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEED170FC1CBD4115404D8D2DEB43484209DE3F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

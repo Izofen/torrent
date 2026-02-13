@@ -1,161 +1,22 @@
-###  Публикация: 1479505   (1009580) от 24.06.2021
+###  Публикация: 1482681   (1007468) от 09.07.2021
 
-Kid3 3.8.7 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kid3 — бесплатный инструмент, позволяющий редактировать теги аудиофайлов. Данная версия программы предназначена для работы в операционной среде Windows и для того, что бы приступить к редактированию тегов, не потребуется даже инсталляция приложения. Приложение может быть запущено из любой директории, является портативным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6515F12E2D07F11C10329DD593CC0665A180F39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479634   (1009581) от 24.06.2021
-
-Ирэн Блаватская | Уходя не зарекайся (2021) [MP3]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще вчера я была современной свободной девушкой, известной спортсменкой. Ездила по миру и защищала честь страны. У меня был жених, любовь, и куча планов на жизнь… А что сегодня? Сегодня я никто… Не знаю, доживу ли до завтра, и в каком публичном доме, в гареме, или где еще в итоге окажусь… Скажи мне кто-нибудь еще вчера, что я могу оказаться в такой ситуации, то точно (   Читать дальше...   )Жанр: Любовный романПродолжительность: 11:51:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478730   (1009582) от 24.06.2021
-
-VA - Audiowarp, Best Of The Mix (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance, Hard Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiowarp - All Around Us (Original Mix) (FOOLS FOREST, 2009)
-02. Audiowarp - 31 Seconds (Original Mix) (MOON UP, 2009)
-03. Audiowarp - Summersonic (Original Mix) (Q-DANCE, 2010)
-04. Audiowarp - Power Of The Music (Original Mix) (BENEFACTOR, 2011)(   Читать дальше...   )Жанр: Hard Trance/TechnoПродолжительность: 02:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065F800B8B7C6F2325A3D1A6855EA2D7EF835CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479337   (1009583) от 24.06.2021
-
-VA - Bassline Massive Project (2021) [MP3|320 Kbps] <Bass, Drum And Bass, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009583.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chisel - Boy
-002. DJ Vantigo - Looking For You
-003. Parallel - Communications
-004. Electronics - Retribution(   Читать дальше...   )Жанр: Bass, Drum And Bass, BasslineПродолжительность: 07:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9132BA6CE813F517F947519D03F98F66E870A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479341   (1009584) от 24.06.2021
-
-VA - Beatport Deep House: Sound Pack #301 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009584.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jimmen - Love Affair
-002. Soulcool - Love Inside
-003. Miguel Palhares - Dreamer
-004. Worldnation - Stateless(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:47:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479511   (1009585) от 24.06.2021
-
-Wise Care 365 Pro 5.7.1.571 RePack (& Portable) by Dodakaedr [Multi/Ru]
+DMG Canvas 3.0.15 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009585.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+DMG Canvas создает образы дисков (.dmg). Процедура создания образа состоит из простого перетаскивания нужных файлов в окно приложения. В качестве фона можно использовать файл, созданный в графическом редакторе. Вы сразу видите результат, таким как он будет выглядеть в Finder. Для создания готового образа нажмите кнопку Build. Данная утилита также позволяет добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Araelium GroupПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6009F3933910521B0171D54A5F35BFF61A20DB3
+magnet:?xt=urn:btih:86CAE2FF60E2BEF3AF4AC323A7C78565125B64DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479490   (1009586) от 24.06.2021
+###  Публикация: 1482561   (1007469) от 09.07.2021
 
-VA - You're In My Heart: Acoustic Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Митрополит Иоанн (Снычёв) | Мир со злом недопустим (2017) [DJVU]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009586.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rod Stewart - You're In My Heart (The Final Acclaim)
-02. Tamia - Officially Missing You
-03. Jess Glynne - I'll Be There (Acoustic)
-04. Donna Lewis - I Could Be the One(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:02
+Разумение своей нравственной немощи побуждает человека стремиться к исправлению. Когда это стремление к чистоте и святости овладевает целым народом, он становится носителем и хранителем идеи столь высокой, столь сильной, что это неизбежно сказывается на всём мироустройстве. Такова судьба русского народа. В этом положении народ и его государство неизбежно подвергаются (   Читать дальше...   )Жанр: Православие. История. ПолитикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0E4D548DFCBC86E8270840F7BD4C4186B297238
+magnet:?xt=urn:btih:564AA1E80E2D425D76595AF63D1C375EA4891E08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,28 +50,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479603   (1009587) от 24.06.2021
+###  Публикация: 1482641   (1007470) от 09.07.2021
 
-Smyglyssna - Departures (2001) Vertical Form [FLAC|Lossless|Vinyl|tracks] <Leftfield, IDM, Ambient, Minimal>
+Colin Bass ( ex-Camel ) - At Wild End (2015) [FLAC|Lossless|tracks + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To Earth
+02. We Are One
+03. Walking To Santiago
+04. Waiting For Someone(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A09EB8F85F02AB92717A34101F938A90B5A3B372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482665   (1007471) от 09.07.2021
+
+VA - Genome (2021) Point Source Electronic Arts [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Glitch, Abstract, Experimental>
 
 >>Electronic
->>IDM (Lossless)
+>>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009587.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Gazebo (03:36)
- 02. What's That Smell? (03:07)
- 03. Suburban Rooftops (04:04)
- 04. Night Sea (04:05)(   Читать дальше...   )Жанр: Leftfield, IDM, Ambient, MinimalПродолжительность: 00:24:44
+01. Testube - Suction Pore (03:43)
+ 02. tokee - Happiness (04:29)
+ 03. proswell - support local dsp (05:29)
+ 04. Sytrjv - Hack Scribble (02:17)(   Читать дальше...   )Жанр: IDM, Glitch, Abstract, ExperimentalПродолжительность: 01:20:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0AF92963152CDA6FD6EB6FB5831801D015F7BA3
+magnet:?xt=urn:btih:DA6A39640AE41ABE99F11CF495D87E9E08A70C97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,277 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479352   (1009588) от 24.06.2021
+###  Публикация: 1482539   (1007472) от 09.07.2021
 
-VA - Beatport Disco House: Sound Pack #304 (2021) [MP3|320 Kbps] <Funky, Disco House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009588.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Probably Shouldnt - Canon
-002. Mirko Hirsch - You're Just
-003. Jerem A - Always Too Much
-004. DJ Skip - Fallin N Love(   Читать дальше...   )Жанр: Funky, Disco House, ElectroПродолжительность: 09:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369246D5C5F181AB50F7865E18AAB1281B242C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479345   (1009589) от 24.06.2021
-
-VA - Beatport Tech House: Sound Pack #302 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jon Snow - What Is House
-002. Deetron - Count On Me
-003. Ron Flatter - Jolie Culotte
-004. Franksen - Wait Now(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 12:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB124DACF113C562BD727FD2AABF4A7127D25D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479354   (1009590) от 24.06.2021
-
-VA - Euphoric Progressive Trance (2021) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009590.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cole Twains - Beyond Time
-002. Nadi Sunrise - Between You And Me
-003. Jay Del Mar - Odyssey
-004. Veselin Tasev - Before Sunrise(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 10:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BCDC41AD07D662D632B4A79570C660E04C3D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479601   (1009591) от 24.06.2021
-
-DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strike Wave (04:54)
- 02. Red Scare (04:47)
- 03. Commanding Heights (04:52)
- 04. Relative Form (04:39)(   Читать дальше...   )Жанр: Electro, IDM, AcidПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE720C426DA90E64A35AD92D1C9E173E9E1DB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479561   (1009592) от 24.06.2021
-
-Евгения Кретова | Код имплементации: 40 ((Книга 2)(Часть 1-2)) (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кажется, справедливость восторжествовала. Кажется, разоблачены все, кто хотел гибели Единой галактики и пересмотра существовавшего в ней порядка. С событий «Навигатора из Нерюнгри» прошло 8 дней. В приграничном секторе один за другим появляются «летучие голландцы» – безлюдные корабли, управлявшиеся земными экипажами. Кто стоит за нападениями: мстительная Креонида (   Читать дальше...   )Жанр: Боевая фантастика, Детективная фантастика, Космическая фантастикаПродолжительность: 14:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F76E6800655C94250BB6CE2C850E9A1204D52B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479460   (1009593) от 24.06.2021
-
-А.Г. Горюнова (сост.) | Основание семейной жизни. Размышления и советы архимандрита Иоанна (Крестьянкина) (2021) [FB2, EPUB]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вступая в брак, каждый человек мечтает о счастливой семье, строит самые радужные планы. Почему же так часто счастье разбивается о быт, о житейские невзгоды, о непонимание? Эта книга составлена из советов старца архимандрита Иоанна (Крестьянкина) о том, на каком основании возможно построить и сохранить хорошую семью, чтобы совместная жизнь мужчины и женщины, и вместе (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479557   (1009594) от 24.06.2021
-
-Евгения Кретова | Покрова Ахерона (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простить предательство друга, принять врага, побороть страх – только первые шаги на пути Скорби. В этой схватке не будет победителей. В ней нет пути назад, не стоит рассчитывать на милосердие. Госархив Коклурна раскрыл тайну имплементации и подарил Единой галактике надежду на спасение. Но пробужденный враг слишком силен и опасен. Он – тот, кого далекие предки считали (   Читать дальше...   )Жанр: Боевая фантастика, Детективная фантастика, Космическая фантастикаПродолжительность: 17:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5CAC72783D481F112348A61563A1F04B70FD12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479457   (1009595) от 24.06.2021
-
-Shaded Explorer - Harmonic Growth (2020) Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Experimental, Field Recording>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brainroot (05:17)
- 02. Pneuma (04:32)
- 03. Omeostasi (07:08)
- 04. The Human Vector (08:18)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Experimental, Field RecordingПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E119883015477D6048CAE57B8B6370E1617D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479563   (1009596) от 24.06.2021
-
-Андрей Добров | Смертельный лабиринт (2021) [MP3, Борис Клейнберг]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1844 год. После смерти знаменитого русского баснописца Ивана Крылова его лечащий врач Федор Галлер неожиданно для себя оказывается втянут в опасную интригу. Чтобы добыть бумаги «Нептунова общества», в котором более века состояли высшие аристократы империи, он должен пройти лабиринт, напичканный смертельными ловушками, построенный еще Абрамом Ганнибалом – «арапом (   Читать дальше...   )Жанр: Исторические детективыПродолжительность: 10:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17056DFF33215DD30449BECAD4D64295B9CE3249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479496   (1009597) от 24.06.2021
-
-The Tung Bandits - The Tung Bandits (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Tearfall - Wasted Days (2005) [FLAC|Lossless|image + .cue] <Gothic Metal, Goth Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009597.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Apple Of My Eye
-02. Don't Turn Away
-03. Be Your Fix
-04. Look Hard Enough(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:16
+01. Wasted Days (03:25)
+02. Dance (05:18)
+03. 13 (04:20)
+04. Seduction (04:08)(   Читать дальше...   )Жанр: Gothic Metal, Goth RockПродолжительность: 00:21:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD5423ADD08621DF8F40C4FD117DFC383AC5CC0B
+magnet:?xt=urn:btih:A97B70DF027338993B56AA7BB14EF535F2FA0EE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,28 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479453   (1009598) от 24.06.2021
+###  Публикация: 1482553   (1007473) от 09.07.2021
 
-VA - opensource.code (2002) Source Records [FLAC|Lossless|tracks+.cue] <Techno, Minimal, IDM, Ambient>
+VA - Genome (2021) Point Source Electronic Arts [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract, Experimental>
 
 >>Electronic
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009598.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Akufen - Synthaxis 2 (07:32)
- 02. Jan Jelinek - Music To Interrogate By (06:08)
- 03. S.E. Berlin - Toninas (05:50)
- 04. Robert Lippok - 6 A.M. (05:18)(   Читать дальше...   )Жанр: Techno, Minimal, IDM, AmbientПродолжительность: 01:12:45
+01. Testube - Suction Pore (03:43)
+ 02. tokee - Happiness (04:29)
+ 03. proswell - support local dsp (05:29)
+ 04. Sytrjv - Hack Scribble (02:17)(   Читать дальше...   )Жанр: IDM, Glitch, Abstract, ExperimentalПродолжительность: 01:20:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB8EB3DE22CFE9505E0FDDBEB7C87EF1F968B3FF
+magnet:?xt=urn:btih:C7163435D89E2533850D4862526CC7D41B676F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,24 +166,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479413   (1009599) от 24.06.2021
+###  Публикация: 1482440   (1007474) от 09.07.2021
 
-Michael LuBrant - Jersey Rain (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+Emerald Rage - High King (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009599.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Celluloid and Vinyl (00:04:03)
-02. Midnight Once Again (00:04:05)
-03. The Real Thing (00:04:53)
-04. Jersey Rain (00:05:37)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:46:06
+01. Into The Sky 05:30
+02. Wrathful Eyes 04:26
+03. High King 05:37
+04. Heart Of A Pagan 03:25(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:16
 
 ## Скачать торент
 ```bash
@@ -557,28 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479524   (1009600) от 24.06.2021
+###  Публикация: 1482481   (1007475) от 09.07.2021
 
-Melanie C - In And Out Of Love (Acoustic) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Thelemite - Thelemism (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009600.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In And Out Of Love (Acoustic)
-02. Who I Am (Acoustic)
-03. Never Be The Same Again (Acoustic)
-04. Too Much (Acoustic)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:06
+01. Unholy Steel
+02. In For The Kill
+03. Anatolia
+04. Up On The Cross(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:881360CD3407F5280DDF17F0D7D616CEAA3FE235
+magnet:?xt=urn:btih:CD94A5A573E94C87D699844F57CF03452C67F52D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,28 +224,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479339   (1009601) от 24.06.2021
+###  Публикация: 1482672   (1007476) от 09.07.2021
 
-Alain Jean-Marie - Afterblue: Jazz In Paris (1998, 1999) 2CD, 2009, Gitanes Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+Music Tag Editor 5.7.4 [Multi]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009601.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD01 - Afterblue:
-01. Some Other Spring [6:17]
-02. Ghost of Yesterday [5:06]
-03. Where Are You [6:15](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 01:57:24
+Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
+Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
+Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 19.06.2021Разработчик: SwiftMediaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61C4AE52970039A1F7EB5DB8E46DD3B857F0F8A8
+magnet:?xt=urn:btih:1075CB536655504D761590E172ACA8B4C8C42513
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,21 +252,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467719   (1009602) от 23.06.2021
+###  Публикация: 1482577   (1007477) от 09.07.2021
 
-Майор Гром: Чумной Доктор (2021) WEBRip [H.264/1080p-LQ]
+myTracks 4.0.9 [Multi]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009602.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Майор полиции Игорь Гром известен всему Санкт-Петербургу пробивным характером и непримиримой позицией по отношению к преступникам всех мастей. Неимоверная сила, аналитический склад ума и неподкупность — всё это делает майора Грома идеальным полицейским. Но всё резко меняется с появлением человека в маске Чумного Доктора. Заявив, что его город «болен чумой беззакония», (   Читать дальше...   )Производство: Россия / Bubble StudioЖанр: Приключения, боевик, криминал, детективРежиссер: Олег ТрофимАктеры: Тихон Жизневский, Любовь Аксёнова, Алексей Маклаков, Михаил Евланов, Александр Сетейкин, Сергей Горошко, Дмитрий Чеботарёв, Олег Чугунов, Юрий Насонов, Антон БогдановПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 02:16:36
+myTracks — удобный геотаггинг фото
+myTracks — замечательное приложение, которое будет полезно многим фотографам и путешественникам. С ее помощью можно легко загрузить ваши маршруты с большинства известных GPS-девайсов или просто из GPX-файла, и добавить геотаги к отснятым во время путешествия фотографиям.
+Кроме этого myTracks показывает проделанные маршруты на картах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2021Разработчик: Dirk StichlingПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
@@ -641,26 +280,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479018   (1009603) от 23.06.2021
+###  Публикация: 1482667   (1007478) от 09.07.2021
 
-Microsoft Windows 10.0.19043.1052, Version 21H1 (Updated June 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+Sync Folders Pro 4.3.1 [Multi/Ru]
 
->>ОС Windows
->>Оригинальные версии Windows
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009603.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1052.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+Sync Folders Pro - это простое в использовании приложение, с возможностью тонкой настройки параметров синхронизации для самых взыскательных профессионалов.
+Приложение идеально подходит для резервного копирования на внешние носители информации, включая: USB, карты памяти, диски на удаленных компьютерах в вашей сети, папки на Cloud сервисах (Dropbox, и т.д.) При каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.07.2021Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13061C96EE841C7BB3339787AC1D545445DB545F
+magnet:?xt=urn:btih:52C17CAE0D93ABAAFAA43E2C015A90537CBB5FF9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,28 +307,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479312   (1009604) от 23.06.2021
+###  Публикация: 1482396   (1007479) от 09.07.2021
 
-Верный старт в 1C и др. | Подборка учебных курсов по 1С [часть 2] (2015-2021) PCRec
+Aphonic Threnody - The All Consuming Void (2021) [FLAC|Lossless|image + .cue] <Funeral Doom Metal, Death Metal>
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009604.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка видеокурсов и других материалов по программированию и администрированию 1С за 2015-2021 года.
-В состав второй части подборки входят:
-Infostart Event 2017-2019
-БУХ.1С(   Читать дальше...   )Производство: Верный старт в 1C и др.Жанр: 1С, программирование, администрированиеПродолжительность: ~00:10:00 видеоурок
+01. Restless
+02. Chapel Of The Dead
+03. Until I Am Empty
+04. Chamber Of Parasites(   Читать дальше...   )Жанр: Funeral Doom Metal, Death MetalПродолжительность: 01:04:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5F615F646A0A0DBC3DBEA648F3BF87D844A615B
+magnet:?xt=urn:btih:1CA40186332BB661936AC9383ED4F36F79CAEA25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,25 +336,398 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388215   (1009605) от 23.06.2021
+###  Публикация: 1482557   (1007480) от 09.07.2021
 
-Смешарики. Новый сезон (2020) WEB-DLRip [H.264/1080p-LQ] (серии 1-53 из 53) [обновляемая]
+Find Any File (FAF) 2.3.1 b1 [Multi]
 
->>
->>
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009605.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Истории о дружбе и приключениях обаятельных круглых героев. Весёлые и музыкальные, неожиданные и мечтательные, домашние и авантюрные. Целый мир в одной уютной ромашковой долине.Производство: Россия / Группа компаний «Рики»Жанр: Мультфильм, детскийРежиссер: Денис Чернов, Алексей Горбунов, Александра АверьяноваАктеры: Вадим Бочанов, Антон Виноградов, Сергей Мардарь, Владимир Постников, Светлана Письмиченко, Михаил Черняк, Владимир Маслаков, Максим Сергеев, Игорь Яковель, Денис ЧерновПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: ~00:06:00 серия
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1C31AC7D812A5FCCF143AFE419DD2B0C50C593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482607   (1007481) от 09.07.2021
+
+Pastore - Phoenix Rising (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoenix Rising
+02. Damn Proud
+03. Symphony Of Fear
+04. March Of War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12E19A5B14200BD7ED4421D15631F04E4AC5B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476577   (1007482) от 09.07.2021
+
+Yello - Yello 40 Years (2021) [AAC|~337 Kbps] <Synthpop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007482.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Bimbo (3:35)
+1.02. Pinball Cha Cha (3:24)
+1.03. The Evening’s Young (3:08)
+1.04. Bananas to the Beat (2:58)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 04:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F929E9BABB08FCF97211E826DA84B1758685DA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479269   (1007483) от 09.07.2021
+
+Alicia Keys - Songs in A minor (20th Anniversary Edition) (2021) [AAC|~331 Kbps] <Pop, R&B>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piano & I (1:52)
+02. Girlfriend (3:35)
+03. How Come You Don’t Call Me (3:58)
+04. Fallin’ (3:30)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FAB0B82FBCD8C809748023466C1492038E9BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477897   (1007484) от 09.07.2021
+
+BTS - BTS, THE BEST (2021) [AAC|~323 Kbps] <k-pop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007484.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Film out (3:37)
+1.02. DNA (Japanese Version) (3:44)
+1.03. Best Of Me (Japanese Version) (3:48)
+1.04. Lights (4:51)(   Читать дальше...   )Жанр: k-popПродолжительность: 01:28:56
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482729   (1007485) от 09.07.2021
+
+Submerge 3 v3.7.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
+Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Арабский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CDDFE98B24AC334B20E3A6085FDFF96BF5841B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477170   (1007486) от 09.07.2021
+
+Maroon 5 - JORDI (Deluxe) (2021) [AAC|~319 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maroon 5, Megan Thee Stallion - Beautiful Mistakes (3:47)
+02. Lost (2:53)
+03. Maroon 5, blackbear - Echo (2:59)
+04. Lovesick (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FBB7F134B76C6426D97AD2476CC305D2A194B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476469   (1007487) от 09.07.2021
+
+Игорь Саруханов - Лучшие песни (1993) [AAC|~339 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маскарад (5:03)
+02. Ящики почтовые (3:40)
+03. Позади крутой поворот (4:12)
+04. Barber (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FCA2E55C48BF47A25C74A67DF6B650A9347989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478393   (1007488) от 09.07.2021
+
+Ottawan - Ottawan 2 (1981) [AAC|~341 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hands Up (Give Me Your Heart) (4:52)
+02. Siesta For Two (4:01)
+03. A.I.E. Is My Song (3:31)
+04. Sing Along With The Juke-Box (4:04)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE17C010469F50C8769B96E97CABE0BBB69EB1A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479274   (1007489) от 09.07.2021
+
+Muse - Origin of Symmetry (XX Anniversary RemiXX) (2021) [AAC|~347 Kbps] <Alternative>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Born (6:04)
+02. Bliss (4:15)
+03. Space Dementia (6:22)
+04. Hyper Music (3:22)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFF62F22FAFF91F84BABA9D3BDBC4F150DC3DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482616   (1007490) от 09.07.2021
+
+Microsoft Edge 91.0.864.67 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4840EB34A888F22A06F1C79EBAF5FCD5F26F997D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477168   (1007491) от 09.07.2021
+
+Garbage - No Gods No Masters (2021) [AAC|~321 Kbps] <Rock, Alternative>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007491.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. The Men Who Rule the World (4:27)
+1.02. The Creeps (3:34)
+1.03. Uncomfortably Me (3:17)
+1.04. Wolves (4:17)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0E1AA0EEB747F8395E6DE1E009C2081D90F188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482654   (1007492) от 09.07.2021
+
+Женя Полонская - Вот Такая Любовь! (2006) [APE|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В Шератон отеле
+02. Разведённые мосты
+03. Вот такая любовь !
+04. Москва-Петербург(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD20FCBE90F715206BE6B100D1EDED591107C7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478391   (1007493) от 09.07.2021
+
+Ottawan - Ottawan (1980) [AAC|~351 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.I.S.C.O. (5:03)
+02. Hello Rio! (4:27)
+03. Shalala Song (3:41)
+04. Tant que durera la nuit (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82FEB0CA852810D5096FAA860CD3DAE37DB13D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

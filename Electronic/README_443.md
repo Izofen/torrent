@@ -1,3 +1,32 @@
+###  Публикация: 1111256   (848843) от 05.03.2017
+
+VA - Summer Bodies Are Made In Winter: Techno Edition (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hopeer – Open Water 06:34
+02. Morgenklang – Broken Flowers 06:58
+03. Lars Sommerfeld – Think It 09:30
+04. Holle64 – Clapton 07:08(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799542909CE8BCCFE006DBA291805752FCCC69AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111229   (848844) от 05.03.2017
 
 VA - Ibiza Electronic House Mecca Music Del Mar Club Deluxe (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -710,35 +739,6 @@ Drexciya - Journey Of The Deep Sea Dweller I - IV (2011-2013) [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20824BC7B9CEE49A245F57744BCCE67225BDCF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110815   (852080) от 03.03.2017
-
-VA - Armada Miami (The House Edition) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kryder feat. Roland Clark & John Julius Knight - [03:21]
-02. Jan Blomqvist - Dark Noise (ME & her Remix) [04:14]
-03. Erick Morillo - The Edge [03:08]
-04. Thomas Gold feat. Jillian Edwards - Magic (Alex P [03:14](   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659081FF950ACA53544745E2B5CB0A611A2EECFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

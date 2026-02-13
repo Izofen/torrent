@@ -1,3 +1,32 @@
+###  Публикация: 1450109   (1029388) от 24.02.2021
+
+Insect Jazz - Hum & Buzz (1997) Elektrolux [FLAC|Lossless|tracks+.cue] <Electro, IDM, Acid>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophetual Insection (01:18)
+ 02. Insect Jazz (09:07)
+ 03. Hubl Bubl Insect (08:49)
+ 04. Digital Wolfdrone (11:01)(   Читать дальше...   )Жанр: Electro, IDM, AcidПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BC63F63EE060EF62D28E9C5BED7C0A5F503C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623484   (1029400) от 01.04.2023
 
 VA - Cafe De Anatolia - Desert Rose (2023) [MP3|320 Kbps] <Organic House, Progressive House>
@@ -703,35 +732,6 @@ VA - Every Day Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL] <Baleari
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C45F661FAEF6D036EA14F0D75D0FE753C2730674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449139   (1030230) от 20.02.2021
-
-VA - Spencer Brown Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond - Sun In Your Eyes (Spencer Brown Remix) (10:00)
-02. Spencer Brown - 5th & Concord (7:09)
-03. Above & Beyond; Richard Bedford - Northern Soul (Spencer Brown Remix) (9:03)
-04. Jody Wisternoff; Mimi Page - For Those We Knew (S.B. & Claybourne Remix) (9:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3806B7CA21FD0468F2B644DA4D4A8D6C6FB601
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 982858   (946710) от 04.02.2016
+
+Eric Prydz - Opus (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liam
+02. Black Dyce
+03. Collider
+04. Som Sas(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8DFD73EEB51D99924A7ECD8B02A414795035AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090173   (947076) от 06.01.2017
 
 Tove Lo - Lady Wood (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop>
@@ -710,35 +739,6 @@ Mano Le Tough - Changing Days (2013) [FLAC|Lossless]<Tech House, Deep House, Min
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362320   (949506) от 23.02.2020
-
-Peter Pearson - Making Waves (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Évocation (5:20)
- 02. Making Waves (4:27)
- 03. Searching (5:34)
- 04. We Meet Again (4:10)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, DowntempoПродолжительность: 01:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354BBA42C06B68DEE3154938B71AD5073BCBF9E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

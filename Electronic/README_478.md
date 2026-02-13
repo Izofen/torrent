@@ -1,3 +1,32 @@
+###  Публикация: 985133   (937254) от 10.02.2016
+
+VA - Happy Valentine's Day (2016) [MP3|320 кб/с] <Lounge, ChillOut, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hints of Soul - Mixed Flowers
+02. The Magical Corner - Laguna
+03. Arrojas - Over the Past Year
+04. The Sura Quintet & Pato - Alegria(   Читать дальше...   )Жанр: Lounge, ChillOut, Easy ListeningПродолжительность: 01:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68893957EEA601E0BAD4D6EBE69F949FEB03706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 860901   (937279) от 18.01.2015
 
 V.A. - Hed Kandi: Summer Of Sax (2014) 2CD [FLAC|Lossless]<House, Lounge, Jazzy>
@@ -719,35 +748,6 @@ VA - 12"/80s (2005) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub, Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:137D0E016ADCC21086BDE52A6E70B2DD603819C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091672   (940115) от 11.01.2017
-
-Visage - Demons To Diamonds (2015) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before You Win (5:26)
- 02. Become (3:40)
- 03. Loving The Alien (4:28)
- 04. Days Become Dark (4:37)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F19404D36FFB364779C2DB70486AAD603038416
 ```
 
 https://mybot314.ru/tekegram_catalog/

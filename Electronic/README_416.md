@@ -1,3 +1,32 @@
+###  Публикация: 1274137   (794119) от 06.01.2019
+
+Dreamtime - Particles (2015) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phantasm (5:24)
+02. Cosmoride II (4:42)
+03. Typhoon (6:17)
+04. Guru Meditation (4:24)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5B78D0937387DF7A0E014B751FF97ABDE3232D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274334   (794131) от 06.01.2019
 
 Michael Elliot - Undercover (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
@@ -711,35 +740,6 @@ Derrick May - Innovator (1997/2008) R & S Records [FLAC|Lossless|tracks+.cue] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67FAA32B2C9BB65ADE0F3800B1960A57AF21541A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274127   (795050) от 05.01.2019
-
-Dreamtime - Farout (2009) [APE|Lossless|image + .cue] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleeping Prophet Part One (2:18)
-02. Ghosthack (5:47)
-03. Escape to the Past (6:16)
-04. New Horizons (6:51)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867A0498C0149BEA0D1929DA1990C43BE6AF6D78
 ```
 
 https://mybot314.ru/tekegram_catalog/

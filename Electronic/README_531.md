@@ -1,3 +1,32 @@
+###  Публикация: 1439265   (1040160) от 12.01.2021
+
+VA - Best Of Trancer (Mixed by Nick Turner) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocoro - Meari (Original Mix)
+02. Etasonic - Rainbowland (AirLab7 Remix)
+03. Air Project - Crystal Illusion (Original Mix)
+04. Nick Parker - Forever You (Dalmoori Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D44EF8E77F01F2F5A734E4A40E0D8DF876B8CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439068   (1040298) от 11.01.2021
 
 VA - Dream Dance Vol. 90 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
@@ -714,35 +743,6 @@ VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2020) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB63641525407D0998E8A3DB7DA4E115A07C03E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438274   (1041118) от 08.01.2021
-
-Starsplash - Back By Popular Demand (2004) [FLAC|Lossless|image + .cue] <Trance, Hard Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Everybody's In The Place (1:28)
-02.Hardstyle (3:39)
-03. Breaking My Heart (5:44)
-04. Alive (3:32)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123CA1AD664E700C0924DB8EA620A7D9EFE84549
 ```
 
 https://mybot314.ru/tekegram_catalog/

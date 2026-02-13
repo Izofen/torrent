@@ -1,3 +1,61 @@
+###  Публикация: 1376439   (860483) от 17.04.2020
+
+VA - Beatport Vocal House: Sound Pack #66 (2020) [MP3|320 Kbps] <Vocal House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860483.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hardwell And Suyano - Go To War
+002. Gregory Esayan - Part Of Me (Original Mix)
+003. Edu & Susie Ledge - In My Memory (Original Mix)
+004. Feel & Alexandra Badoi - We Are One(   Читать дальше...   )Жанр: Vocal House, Club, DanceПродолжительность: 10:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1370EAB3BBE1ABDBABE3BCB2B654857A469EE6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768743   (860550) от 20.03.2014
+
+VA - Lounge At The Seashore 7 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860550.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Creep N00m - Cosmic Walker (Original Mix)
+002. Mvt Galaxy - Foto Viva
+003. Ficci, Snowflake - I'll Always Remember Ft. Snowflake
+004. Naomi - Three Stars No Match(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC19A86AA37E352CE00AC3E90698975DEA724D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108970   (860563) от 26.02.2017
 
 ZZ Top - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -687,64 +745,6 @@ VA - 100 Hot Exotic: Electro Club House (2016) [MP3|320 кб/с] <Club, Electro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ACBE46C83D982DD5A3A754CBBACD45DE371E1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108431   (863012) от 25.02.2017
-
-VA - Только хиты. Русский попсовый сборник от Хит fm. Версия № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863012.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anyfrieva Daria - Космос 3:00
-002. Яна Батаева - Мы Уйдем Вдвоем 3:06
-003. Atesh - Самая Сильная 3:07
-004. Helena Shadia - Не Верь Мне 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF72582715131EB7D2969EB4284CB0034ADCA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999844   (863048) от 23.03.2016
-
-VA - Несознанка. Академия хитов шансона (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863048.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дмитрий Фомин - Леха Гитарист
-002. Илья Гусев - Небеса
-003. Ирма Брикк И Геннадий Грищенко - У Нас Все Будет
-004. Валерий Субботин - Звездочки(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7AF89DD55AB6473F6FBA8B9C4C3C9F923514EB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

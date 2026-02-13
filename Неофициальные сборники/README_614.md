@@ -1,3 +1,61 @@
+###  Публикация: 1094061   (930864) от 17.01.2017
+
+VA - Top 100 шансон зимний (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930864.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дмитрий Прянов & Наталья Сколубович - Всякое Бывает 3:33
+002. Александр Казанцев (Сотник) - Сибирячка 3:31
+003. Ян Марти - Женщина С Ангельским Именем 3:28
+004. Татьяна Козловская - Какая Меня Муха Укусила 5:14(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7556DE817EACA5C3BAE72DC2CD490D819F5360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986524   (930898) от 14.02.2016
+
+Хор Telasi (Грузия) - Народные песни (2011) [MP3|256 кб/с] <Folklore>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aka Si Reqisho
+02. Brolis Kelsa
+03. Ckhenosnuri
+04. Garekakhuri Sacekvao(   Читать дальше...   )Жанр: FolkloreПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B42B98061F018AA932ADF8633EC368864A9556C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094337   (930904) от 17.01.2017
 
 VA - Убойные хиты на Шансоне. Версия № 9 (2016) [MP3|256 Kbps] <Шансон>
@@ -687,64 +745,6 @@ VA - Calendar Chillout (Chillout for Everyday) (2015) [MP3|320 кб/с]<Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:111EF54BFC836E465039177A27148ADA38ADCF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093486   (933490) от 15.01.2017
-
-VA - Hip And RnB Benefit (2017) [MP3|320 Kbps] <RnB, Hip Hop, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933490.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aaliyah - Back and Forth [3:51]
-002. Nivea Ft Jagged Edge – Don't Mess With My Man (Maxim Kurtys Remix) [5:16]
-003. Made in M & Smuv - C'mon [1:33]
-004. The Weeknd - Rockin [3:53](   Читать дальше...   )Жанр: RnB, Hip Hop, SoulПродолжительность: 12:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AF806927D284A686B03D79CBC0DC852C7B3896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364985   (933568) от 05.03.2020
-
-VA - Take Your Chance: Eurodance Mix (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933568.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maph Feat. Jaque - Hold Me
-002. Vincent - Andamento Lento
-003. Danilo Effe - House Music (Original Mix)
-004. Salt Cathedral - Tus Ojos(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015A938215EA4DF21CB98756E34A17E612C5F909
 ```
 
 https://mybot314.ru/tekegram_catalog/

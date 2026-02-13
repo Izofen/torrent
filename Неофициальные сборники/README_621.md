@@ -1,3 +1,61 @@
+###  Публикация: 1091137   (943235) от 09.01.2017
+
+VA - Pure Trance Moments Winter (2016) [MP3|320 Kbps] <Dance, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943235.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Moor & Michele C - We Can Be Free (Alex Ender Extended Mix) 6:28
+002. Craft Integrated & Naian - Parsec (Extended Mix) 7:43
+003. Alex Wright & Falcon - Hawkeye (Extended Mix) 7:18
+004. Johnny Yono - M87 (Extended Mix) 5:36(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 11:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51820B892C8F87983E724CC7D49DB0A7A5A28EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983154   (943421) от 06.02.2016
+
+VA - Guitar Collection 2 (2016) [MP3|320 кб/с] <Instrumental, Metal, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saracen - Lament 03:44
+02. Steve Vai - Dyin' Day 04:29
+03. Joe Satriani - Made Of Tears 05:32
+04. Joe Stump - The Killer Instinct 06:53(   Читать дальше...   )Жанр: Instrumental, Metal, RockПродолжительность: 02:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D4710CFE165DFC44E321F1B3AC8ECFE9DFC05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981887   (943524) от 06.02.2016
 
 VA - Радио ENERGY (NRJ) часть 1 (2009-2016) [MP3|128-320 кб/с] <Dance, Pop, House, Trance>
@@ -698,64 +756,6 @@ VA - Весна 2020. Hit Music от Мяу [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A85A119181D2CDC6EC77DE2DE9315EA2DE0F337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091025   (944851) от 08.01.2017
-
-VA - Душевная музыка на радио Шансон. Выпуск № 6 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944851.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вадим Алленов - Шоферская 3:47
-002. Елена Ваенга - Веночек 4:24
-003. Александр Назаров - Цыганская Доля 3:29
-004. Владимир Курский - Лицемер 3:15(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E965F026426624E19CE093A4110540DCC9C9F63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091119   (944856) от 08.01.2017
-
-VA - Piano Collection 2 (2017) [MP3|320 Kbps] <Classical, Piano>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Roberto Cacciapaglia - Times  (03:41) 
-02|  Roberto Cacciapaglia - Nuvole di luce  (03:08) 
-03|  Ernesto Cortazar - Don't Let Me Fall  (02:29) 
-04|  George Winston - Montana Glide  (04:19) (   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 03:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B1061FC65CE360B8C125C8060026B5E62D2EB5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,215 @@
+###  Публикация: 1397131   (742639) от 18.07.2020
+
+Векторный клипарт - Happy Valentine's Day romantic decorative illustrations 43 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С Днем Святого Валентина
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5774D3726132BC96DAF2449C582CBC76AFC54973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217364   (742957) от 04.04.2018
+
+Растровый клипарт - Creative Market - 150 Shells Bundle (isolated objects) - 2350525 [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт ракушки
+150 ракушек в смарт-объекте с возможностью редактировать тениФормат: TIFРазрешение файлов: 2000x2000-6000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A114E89B047C6DB72C2748778D8052967FB42ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020957   (743034) от 27.05.2016
+
+Экшены - GraphicRiver -  Glamour Oil Retouching Photoshop Action - 15884950 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glamour Oil Retouching - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01699CB942764BBAD669D3469489CF9345FBE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020679   (743105) от 27.05.2016
+
+Экшены - CreativeMarket - HDR Reactor panel - 599270 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743105.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDR Reactor panel -  быстро превратит ваши фотографии в HDR эффект художественных работ.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596F5258327A6234A0407169358D64A026F3D2B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020974   (743106) от 27.05.2016
+
+Экшены - GraphicRiver - Creative Retouch - 11538758 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Creative Retouch - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17970BE376B2DD0A8CD5192C15D4452AAE5DF31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020834   (743110) от 27.05.2016
+
+Экшены - CreativeMarket - Pro Cartoon Oil Painting effect v.3 - 464118 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro Cartoon Oil Painting - этот набор действий был разработан для фотографов и графических дизайнеров.
+Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD713486AF75703D0226FA10B9F399287E01848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020985   (743213) от 27.05.2016
+
+Экшены - GraphicRiver - Gouache Painting - 16135141 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gouache Painting - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AD7D2281A8402745C8F1AC603D2352CD724451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020969   (743218) от 27.05.2016
+
+Экшены - GraphicRiver -  Realistic Painting Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Realistic Painting - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF129C2EF4BE5301131B56184275920412DF9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282681   (743392) от 13.02.2019
 
 Шрифты - Creative Market - BLACKHAWK Brush Font - 772377 [TTF, OTF]
@@ -466,216 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0628D65F7E5655356B260E2F8066590C85B9F562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020497   (744850) от 26.05.2016
-
-Экшены - GraphicRiver - Antiq Guilloche Photoshop Action CS3+ - 15956802 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D42DC8F0933ADAB85FF5D86FE30026FD2A96F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020395   (745043) от 26.05.2016
-
-Экшены - GraphicRiver - Watercolor Trace - Photoshop Actions - 16047140 [ATN, TPL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor Trace - этот экшен превратить любую фотографию в акварельный рисунок.
-Бесконечные возможности работать через слои.Формат: ATN, TPL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3EEBD10D26D94A23DBF831FA7D6610FA78AE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020382   (745049) от 26.05.2016
-
-Экшены - CreativeMarket - HDR Effect - Photoshop Actions - 353537 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745049.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDR Effect - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB592BC2196C8F16102090099F69BC9BC617A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020489   (745127) от 26.05.2016
-
-Экшены - CreativeMarket - Oil Painting Photo Art Action v.2 - 438293 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0840DEBC9A5CEA1C8CBE1E8706D82547EE9FCFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020511   (745133) от 26.05.2016
-
-Экшены - GraphicRiver - Dot Work Photoshop Action - 16152283 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dot Work - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B171CA73614B1E1C8E92C796546C85761C1D60C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020482   (745138) от 26.05.2016
-
-Экшены - CreativeMarket - Instant Tattoo Action - 611838 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Instant Tattoo - фотореалистичный эффект татуировки напрямую в Photoshop.
-Всего 3 шага для цифровой примерки татуировки любой сложности.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C8CA7D312676A119A61069C5B4CF89CCFDE2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020376   (745210) от 26.05.2016
-
-Экшены - GraphicRiver - 38 Retro / HDR - 10192306 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745210.jpg" />
-</div>
-
-
-###  Подробнее
-
-38 Retro / HDR - этот набор действий был разработан для фотографов и графических дизайнеров.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA485581753906C5CB56610600FABF8D057E7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020374   (745218) от 26.05.2016
-
-Экшены - GraphicRiver - Creative Painting - 16197793 [ATN, ABR, PAT, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creative Painting - создаёт красивые акварельные картины в несколько простых кликов. Неограниченное количество конечных результатов.Формат: ATN, ABR, PAT, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCECBA2872441F4037EE67E9C8CB7E9CBF33AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1412075   (422955) от 27.09.2020
+
+Takkra - Universal Medicine (2020) Sofa Beats [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fountain (03:17)
+ 02. Vacuum Of Shambala (05:22)
+ 03. Sacred Flow (05:08)
+ 04. Love Mantra (08:53)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7087D7436FCDCB8E2EF2D6AEDCB5A2AC8808AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324630   (423098) от 10.09.2019
 
 VA - Bikini Beach, Vol. 10 (2019) [MP3|320 Kbps] <Funky, Club House>
@@ -713,35 +742,6 @@ VA - Reactivate 13 (Mixed By John '00' Fleming) (1998) [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FC44FEE4BD32FC6C258633C78761892DB9FD04F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572108   (425588) от 25.08.2022
-
-VA - Uplifting Only Top 15: August  (Extended Mixes) (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LR Uplift - Sunrise (Intro Mix)
-02. SounEmot - Nuestra Promesa De Amor (Emotional Mix)
-03. Last Soldier - Harmony (Extended Mix)
-04. Avar - You (Extended Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25479DB76D29106A21A8A7BDF3F711CEB9157438
 ```
 
 https://mybot314.ru/tekegram_catalog/

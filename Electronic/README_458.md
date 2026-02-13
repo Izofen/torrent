@@ -1,3 +1,32 @@
+###  Публикация: 1103674   (885655) от 12.02.2017
+
+Absurd Minds - Tempus Fugit (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synth-pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Travel (4:10)
+ 02. Farewell (5:38)
+ 03. Kreuzfeuer (4:52)
+ 04. Now We Hear the Call (4:44)(   Читать дальше...   )Жанр: EBM, Synth-popПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EB7175DA2642A99B41D01ED2BD0BE43C08E5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103709   (885883) от 12.02.2017
 
 VA - Love Hits Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -715,35 +744,6 @@ VA - Dance Essentials (Armada Music) (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCDC747A6A29726CAC2410E63A3F15B5AD600F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494687   (887852) от 08.09.2021
-
-VA - Luminosity Beach Festival, Netherlands (2021) [MP3|128-320 Kbps] <Trance, Progressive House, Hard Dance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Activa @ Beachclub Bronze, Luminosity Beach Festival, Netherlands 2021-08-20(128Kbps):
-01. Activa - The Lost Language (Original Mix)
-02. Orkidea & Activa - Z21 (Activa’s ‘Origins’ Remix)
-03. Alex Daf - Back To Life (Activa Rework)(   Читать дальше...   )Жанр: Trance, Progressive House, Hard DanceПродолжительность: 17:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB29DB2BBB7ACDCCBCDC8057B03BB6DC103778C
 ```
 
 https://mybot314.ru/tekegram_catalog/

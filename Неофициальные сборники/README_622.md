@@ -1,3 +1,61 @@
+###  Публикация: 1091025   (944851) от 08.01.2017
+
+VA - Душевная музыка на радио Шансон. Выпуск № 6 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вадим Алленов - Шоферская 3:47
+002. Елена Ваенга - Веночек 4:24
+003. Александр Назаров - Цыганская Доля 3:29
+004. Владимир Курский - Лицемер 3:15(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E965F026426624E19CE093A4110540DCC9C9F63A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091119   (944856) от 08.01.2017
+
+VA - Piano Collection 2 (2017) [MP3|320 Kbps] <Classical, Piano>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Roberto Cacciapaglia - Times  (03:41) 
+02|  Roberto Cacciapaglia - Nuvole di luce  (03:08) 
+03|  Ernesto Cortazar - Don't Let Me Fall  (02:29) 
+04|  George Winston - Montana Glide  (04:19) (   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 03:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1061FC65CE360B8C125C8060026B5E62D2EB5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090971   (944859) от 08.01.2017
 
 VA - Dance Of Fire Salamanders (2017) [MP3|320 Kbps] <Club, Dance, House>
@@ -696,64 +754,6 @@ VA - Dance & Club Vol.1 (2017) [MP3|320 Kbps] <Electro, Vocal, Hands Up, Funky, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6B7BC3F063863A2281D9EDFFF05655DDD1B2F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090241   (946044) от 07.01.2017
-
-VA - Big Love 20 от Love Radio (25.12.2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye
-02	Макс Барских - Туманы
-03	Calvin Harris - My Way
-04	DJ Snake feat. Justin Bieber -Let Me Love You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863B055AB6DADDA6077CC457A21ABB38775C1B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090025   (946047) от 07.01.2017
-
-VA - Эх, Разгуляй! Новогодний выпуск радио Шансон. Версия № 7 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946047.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Елена Ваенга - Мишина Песня 3:54
-002. Мухтар Хордаев - Белый Вальс 3:05
-003. Андрей Ковалев - Залей Дождями 3:25
-004. Дэн Ясюк - Гитара Дорога 3:50(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F20F27D96434AD2FF167D87A887FE4E616E0DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

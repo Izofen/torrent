@@ -1,3 +1,32 @@
+###  Публикация: 1142553   (640907) от 15.06.2017
+
+Missing Persons - Spring Session M (1982) Reissue, 1995, CEMA Special Markets [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noticeable One
+02. Windows
+03. It Ain't None Of Your Business
+04. Destination Unknown(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD51250C25C2E94EA989258804E673584C605367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142643   (640910) от 15.06.2017
 
 Eguana - Invisible Civilization (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -713,35 +742,6 @@ Dmitriy N'Elpin (Dmitriy Nelepin) - Universe 2 Beyond Consciousness (2022) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26CB78E65B3A2252C530B6B6BED18C371E5A5C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541825   (642842) от 04.04.2022
-
-Dynalectric Orchestra - Signal Upon Arrival (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Contact (00:03:55)
-02 - Love Scene in a Neon City (00:03:33)
-03 - Falling (00:03:03)
-04 - It's a Matter of Time (00:04:35)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E824E0F5D888EF37921681E1977543039139CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

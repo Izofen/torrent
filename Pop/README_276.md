@@ -1,3 +1,179 @@
+###  Публикация: 1211957   (776901) от 09.03.2018
+
+Girls Aloud - Tangled Up (2007) Fascination, Polydor [MP3|320 Kbps] <Pop, Drum n Bass, Synth-Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776901.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин (   Читать дальше...   )01. Call The Shots 3:45
+02. Close To Love 3:53
+03. Sexy! No No No... 3:18
+04. Girl Overboard 4:11(   Читать дальше...   )Жанр: Pop, Drum n Bass, Synth-Pop, Euro HouseПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7BE478C19B63FD55928DA76BA90A688F07CC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211953   (776902) от 09.03.2018
+
+Girls Aloud - Chemistry (2005) Polydor, Christmas Edition [MP3|320 Kbps] <Pop, Electro, Synth-Pop, Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776902.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин (   Читать дальше...   )01. I Wish It Could Be Christmas Everyday 4:01
+02. I Wanna Kiss You So (Christmas In A Nutshell) 3:36
+03. Jingle Bell Rock 1:57
+04. Not Tonight Santa 2:42(   Читать дальше...   )Жанр: Pop, Electro, Synth-Pop, Ballad, DiscoПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DA99A6BE88F74768609CB6130BEF72FE34C604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211934   (776907) от 09.03.2018
+
+Girls Aloud - What Will The Neighbours Say? (2004) Polydor [MP3|320 Kbps] <Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776907.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girls Aloud» - очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars».
+
+Самая младшая из девчонок, Надин (   Читать дальше...   )01. The Show 3:38
+02. Love Machine 3:27
+03. I'll Stand By You 3:45
+04. Jump 3:41(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A11E1419EA5F160F56703C993629A2200F565D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211636   (777153) от 08.03.2018
+
+Андрей Губин - Всегда с тобой (2002) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танцы
+02. Будь со мной
+03. Я всегда с тобой
+04. Крошка(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0033FD476F947C64EDCA8E557F0A8092A4E1A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211449   (777205) от 08.03.2018
+
+группа Запад - Холод в моей душе… (1999) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не остановить
+02. Холод в моей душе
+03. Может быть стать нам ближе?
+04. Пустой вокзал(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5D7EDB90733F59F5A369132252DC3FBC51D798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211370   (777207) от 08.03.2018
+
+VA - Disco: Classic Singles (2018) [MP3|320 Kbps] <Disco, RnB, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kc & The Sunshine Band - (Shake Shake Shake) Shake Your Booty 3:06
+02. The Trammps - Disco Inferno 3:34
+03. Chic - My Feet Keep Dancing (7" Version) 3:44
+04. The Spinners - Are You Ready For Love (Single Version) 3:44(   Читать дальше...   )Жанр: Disco, RnB, PopПродолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4293B75D34AB5D38A005F85D250BCF2B9BA5368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211508   (777235) от 08.03.2018
 
 Venus Rising - Live On Venus (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -571,180 +747,6 @@ Gilla - Dance SuperHits (1999) [APE|Lossless|image + .cue] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D22DCBA9520907D0630384A9BBDCE460903D4165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013097   (777937) от 03.05.2016
-
-VA - Eurovision Song Contest Stockholm 2016: Come Together (2016) [MP3|320 кб/с] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freddie - Pioneer (Hungary)
-02. Nicky Byrne - Sunlight (Ireland)
-03. Hovi Star - Made Of Stars (Israel)
-04. Greta Salóme - Hear Them Calling (Iceland)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 02:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDE9897B21F792100340B6737DB16B484581897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013205   (777969) от 03.05.2016
-
-VA - Disco Candy Pop Sensation Vol.6 (2016) [MP3|320 кб/с] <House, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skaei - Can You Feel It (Weus Radio Remix)
-02. Milkbar Rockers - Safe and Sound (Dub Mix)
-03. Afrochuck - The Dirty Workout Plan (Radio Edit)
-04. Sugapop - Elysion (Extended Mix)(   Читать дальше...   )Жанр: House, PopПродолжительность: 02:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C225C5F9EA2054A45F2B4FADE993D578D46B11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210949   (778105) от 05.03.2018
-
-Grivina - Я хочу (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778105.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Love Deep House 3:34
-2. Мало 3:16
-3. Не дети 3:41
-4. Каплями 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD3042972434065905FEBAAD2D6B4B55F8BC60E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210789   (778108) от 05.03.2018
-
-Капиталина Лазаренко - Костер на снегу (2005) [MP3|320 Kbps] <Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778108.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Звёздочка - Э.Рознер - И.Казаков
-2. Колдунья - Л.Афанасьев - С.Гребенников, Н.Добронравов
-3. Вишнёвый сад - Л.Ги - Ж.Ларю, русск. текст Г.Регистана (без куплета на польском языке)
-4. Хороша была тропинка - М.Табачников - М.Коваленков(   Читать дальше...   )Жанр: РетроПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8867F93F1A5C711D964C036E4049B6D395AEBA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210829   (778111) от 05.03.2018
-
-VA - ZYX Italo Disco New Generation Vol.12 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778111.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Italove  -  Stockholm Is Calling (Flashback Ri-Mix)  5:55
-02.  Stylove feat. Vincent International  -  You Are Bambina (Extended Version)  6:10
-03.  Magic System DJ  -  Up & Down  5:03(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C6747EC67AE25DEC055A01357B8A64B855B070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210793   (778156) от 05.03.2018
-
-Маша Распутина - Я родилась в Сибири (1993) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кружит музыка 6:20
-02. Отпустите меня в Гималаи 5:35
-03. Душа моя беспутная 4:15
-04. Я такой не была 4:45(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A69B79397DA997EA73F4550157232954C94892
 ```
 
 https://mybot314.ru/tekegram_catalog/

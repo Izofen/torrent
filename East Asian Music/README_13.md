@@ -1,3 +1,32 @@
+###  Публикация: 1300995   (583084) от 13.05.2019
+
+MACROSS 82-99 - Idol, Sakura (2017) [FLAC|Lossless|WEB-DL|tracks] <Vaporwave, Nu-Disco, Electronic>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Belong (2:24)
+02.Back At It (w/ Lotus Cloud, ft/ Le Real) (2:40)
+03.Cherry (w/ Night Tempo, ft/ Punipunidenki) (3:55)
+04.Harajuku Heat (w/ Facy Sedated) (2:10)(   Читать дальше...   )Жанр: Vaporwave, Nu-Disco, ElectronicПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C4E9FE9951A8D22D6F00397140C455E6363397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301793   (583137) от 13.05.2019
 
 Mitch Murder - Selection 5 (2018) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Synth-pop>
@@ -720,32 +749,6 @@ Iron Attack! - Space Galaxy (2016) /Doujin/ [FLAC|Lossless|tracks + .cue] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B28B5624D63BBA50B40923D192B963CEA820245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339258   (621198) от 17.06.2011
-
-UVERworld - 7 albums + 16 singles (2005-2011) [FLAC|Lossless]<JRock, Pop Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621198.jpg" />
-</div>
-
-
-###  Подробнее
-
-albums:Жанр: JRock, Pop RockПродолжительность: 00:13:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

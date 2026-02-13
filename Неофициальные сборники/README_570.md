@@ -1,3 +1,61 @@
+###  Публикация: 1375545   (865308) от 14.04.2020
+
+VA - Rock Icons (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Lennon - Woman
+02. George Harrison - Got My Mind Set On You (2009 Mix)
+03. The Beatles - Come Together (Remastered 2009)
+04. The Rolling Stones - Brown Sugar (Remastered 2009)(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04F3BCD3C23964222399197C5C103053DF9F5DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375596   (865317) от 14.04.2020
+
+VA - Dark Country Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt White - The Hard Way
+02. Dominic Marsh - Dark Cloud
+03. Dolly Wright - Murderous Mind
+04. Chris Lewis - Devil's Country(   Читать дальше...   )Жанр: Rock, Blues, Blues RockПродолжительность: 03:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45C8F28945A0C2CCDCD8D7DFE8E5C665541CE86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375392   (865491) от 14.04.2020
 
 VA - Spring Pop: Eurodance Ultra Mix (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -690,64 +748,6 @@ VA - Popular Hits Of The 60s (2020) [MP3|320 Kbps] <Pop, Retro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21000C9052251E8C189F5773963D198FC9831907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375121   (867111) от 13.04.2020
-
-VA - Inspiration: Vocal House Party (2020) [MP3|320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867111.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taffo Velikoff - You
-002. Dj Fixx - Back 2 Ya
-003. Lione With Miranda Glory - Kids
-004. Furkan Syzo - Broken Heart(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908132E107C89A183D870A5EF43EA98E9C32C0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375335   (867113) от 13.04.2020
-
-VA - Metal Supreme (2020) [MP3|320 Kbps] <Rock, Metal, Thrash-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867113.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Metallica - Enter Sandman 5:31
-002. Anthrax - Caught In A Mosh 5:00
-003. Heaven Shall Burn - Endzeit 4:18
-004. Sepultura - Arise 3:18(   Читать дальше...   )Жанр: Rock, Metal, Thrash-Metal, Industrial-MetalПродолжительность: 08:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D01D3C51B2E27652CC593D44CF5F83A8754D033
 ```
 
 https://mybot314.ru/tekegram_catalog/

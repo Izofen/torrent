@@ -1,3 +1,32 @@
+###  Публикация: 1199849   (797501) от 18.01.2018
+
+VA - Aly & Fila - Future Sound of Egypt 531 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jody Wisternoff ft. Hendrik Burkhard - For All Time
+02. Wellenrausch & Gai Barone - Heroes Of Light (Jerome Isma-Ae & Alastor Remix)
+03. Pablo Artigas - Daybreak
+04. Kastis Torrau - Glice Glice(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E76CBAC77B47F5EF9B55BCBB9B0AEE6EBA7DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508535   (797518) от 08.11.2021
 
 DJ Licious - Tomorrowland Friendship Mix (2021-11-04) [MP3|320 Kbps] <Dance, Electro Pop, Tech House>
@@ -716,35 +745,6 @@ Above & Beyond @ ABGT 450 (Deep Warm Up Set), River Lea London, United Kingdom:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:607FC8BD3F0B493C485619A1407ACC949A947BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507603   (798294) от 05.11.2021
-
-Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07) [MP3|320 Kbps] <Electro House, Big Room, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - The Business (SWACQ Remix)
-02. FETISH - The Door
-03. Kriss Reeve & Repiet - Anybody
-04. Keanu Silva - King Of My Castle (Don Diablo Edit)(   Читать дальше...   )Жанр: Electro House, Big Room, Bass HouseПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

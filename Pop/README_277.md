@@ -1,3 +1,177 @@
+###  Публикация: 1013097   (777937) от 03.05.2016
+
+VA - Eurovision Song Contest Stockholm 2016: Come Together (2016) [MP3|320 кб/с] <Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freddie - Pioneer (Hungary)
+02. Nicky Byrne - Sunlight (Ireland)
+03. Hovi Star - Made Of Stars (Israel)
+04. Greta Salóme - Hear Them Calling (Iceland)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 02:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFDE9897B21F792100340B6737DB16B484581897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013205   (777969) от 03.05.2016
+
+VA - Disco Candy Pop Sensation Vol.6 (2016) [MP3|320 кб/с] <House, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skaei - Can You Feel It (Weus Radio Remix)
+02. Milkbar Rockers - Safe and Sound (Dub Mix)
+03. Afrochuck - The Dirty Workout Plan (Radio Edit)
+04. Sugapop - Elysion (Extended Mix)(   Читать дальше...   )Жанр: House, PopПродолжительность: 02:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C225C5F9EA2054A45F2B4FADE993D578D46B11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210949   (778105) от 05.03.2018
+
+Grivina - Я хочу (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778105.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Love Deep House 3:34
+2. Мало 3:16
+3. Не дети 3:41
+4. Каплями 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD3042972434065905FEBAAD2D6B4B55F8BC60E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210789   (778108) от 05.03.2018
+
+Капиталина Лазаренко - Костер на снегу (2005) [MP3|320 Kbps] <Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778108.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Звёздочка - Э.Рознер - И.Казаков
+2. Колдунья - Л.Афанасьев - С.Гребенников, Н.Добронравов
+3. Вишнёвый сад - Л.Ги - Ж.Ларю, русск. текст Г.Регистана (без куплета на польском языке)
+4. Хороша была тропинка - М.Табачников - М.Коваленков(   Читать дальше...   )Жанр: РетроПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8867F93F1A5C711D964C036E4049B6D395AEBA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210829   (778111) от 05.03.2018
+
+VA - ZYX Italo Disco New Generation Vol.12 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778111.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Italove  -  Stockholm Is Calling (Flashback Ri-Mix)  5:55
+02.  Stylove feat. Vincent International  -  You Are Bambina (Extended Version)  6:10
+03.  Magic System DJ  -  Up & Down  5:03(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C6747EC67AE25DEC055A01357B8A64B855B070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210793   (778156) от 05.03.2018
+
+Маша Распутина - Я родилась в Сибири (1993) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кружит музыка 6:20
+02. Отпустите меня в Гималаи 5:35
+03. Душа моя беспутная 4:15
+04. Я такой не была 4:45(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A69B79397DA997EA73F4550157232954C94892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211116   (778157) от 05.03.2018
 
 Алёна Апина - Давай так (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -571,180 +745,6 @@ Scotch - 2 Albums (1984, 1987) Reissue, Deluxe CD Music, 2016 [MP3|320 Kbps] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55758712E0A61BFFAE7E368C66FE3E03A853C8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210151   (778846) от 02.03.2018
-
-Leo Sayer - The Gold Collection (2018) 3CD, Compilation, Remastered [MP3|320 Kbps] <Pop, Pop Rock, Soft Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Make Me Feel Like Dancing (7'' Version)
-02. Thunder In My Heart
-03. Long Tall Glasses (7'' Version)
-04. The Show Must Go On (7'' Version)(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft Rock, DiscoПродолжительность: 03:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F30AEFC3AC0523B8DCA3195063684E23C06DA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210266   (778848) от 02.03.2018
-
-VA - New Italo Disco Top 25 Compilation Vol. 8 (2018) [MP3|320 Kbps] <Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mimosa  -  In Love (Short Sunshine Mix)  4:42
-02.  Modern Boots  -  All My Life (Short Valerie Mix)  4:26
-03.  Italian Party  -  Summer Love (Radio Disco Mix)  3:37
-04.  Boy Blue  -  It's Just An Illusion (Radio Blue Remix)  4:32(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36D1EFDB817FC8D6FBF5D3A58ABAF2C7A08F2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210186   (778859) от 02.03.2018
-
-Elli & Jacno - 4 Albums (1979-1984) [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раздача состоит из созвучно связанных альбомов Jacno (настоящее имя Denis Quilliard), изначально начавшего самостоятельно в 1979-м и в дальнейшем с привлечением вокалистки Elli Medeiros. Позже Jacno участвовал в проектах с  Pauline Lafont, Etienne Daho, Lio. С 1989 выпустил несколько сольных альбомов в стиле Pop-Rock.Список альбомов:
-1979 - Jacno
-1980 - Tout Va Sauter
-1982 - Boomerang(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 02:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4CA80145DA4A7E53E10F065B35E41EC7A7FF30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210184   (778959) от 01.03.2018
-
-Александр Малинин - Любовь жива (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778959.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Любовь жива
-2. Шоу
-3. Слова
-4. Счастье моё(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0397463EDBC5273944E586FD8AF9CE00F8AE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210060   (778992) от 01.03.2018
-
-Patricia Kaas - Sexe Fort (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Chanson, Smooth Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ou sont les hommes (3:49)
- 02. L'abbe Caillou (4:39)
- 03. Je ne veux plus te pardonner (3:25)
- 04. La nuit est mauve (4:19)(   Читать дальше...   )Жанр: Pop, Pop Rock, Chanson, Smooth JazzПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDD62E5CF407F828498CF557398ADE3D0B0B176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209922   (779091) от 28.02.2018
-
-A-Teens - The ABBA Generation (1999) [MP3|320 Kbps] <Pop, Europop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mamma Mia (3:45)
-02. Gimme! Gimme! Gimme! (A Man After Midnight) (3:57)
-03. Super Trouper (3:52)
-04. One Of Us (3:56)(   Читать дальше...   )Жанр: Pop, Europop, EurodanceПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973399795C7F7D20B5C7108CDD807FFA55B70778
 ```
 
 https://mybot314.ru/tekegram_catalog/

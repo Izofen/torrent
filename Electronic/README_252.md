@@ -1,3 +1,32 @@
+###  Публикация: 1161337   (467591) от 28.08.2017
+
+VA - Ori Uplift & Chris Blaylock - Uplifting Only 237 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PRE-RELEASE PICK: New World - Ikigai (Intro Mix)
+02. Follow Focus - Synchronous Idle
+03. FAN FAVORITE 131: SoundLift - Long Way Back
+04. BREAKDOWN OF THE WEEK: Eric Senn - Horus  (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957791E5D487A949D963E8FB277F74E705FEBE5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245876   (467779) от 08.09.2018
 
 VA - The Journal Of Organic Music (2018) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -715,35 +744,6 @@ Parov Stelar - Voodoo Sonic (The Trilogy, Pt. 3) (2020) [FLAC|24/44,1|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2168FCBAAF508E152E51758F86CB3DDB6E8751B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406910   (470563) от 05.09.2020
-
-VA - Beautiful Vocal Trance: Chapter 5 (2020) [FLAC|Lossless|tracks] <Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Costa feat. Ana Criado - The Secret Garden (Original Mix)
-02. Aurosonic feat. Stine Grove - In Euphoria We Rise (Original Mix)
-03. Dark Matters feat. Jess Morgan - I Don't Believe In Miracles (Shogun Remix)
-04. Beat Service feat. Cathy Burton - Love Is Your Home (Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175EC7247BD86FAB8F1D28DC89C6963806C787C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

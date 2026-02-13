@@ -1,3 +1,31 @@
+###  Публикация: 1288502   (686475) от 16.03.2019
+
+Rondo Di Milano - Pop Opera (1998) [FLAC|Lossless|image + .cue] <Pop, Classical Crossover, cover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Mattinata , Questa O Quella ,Marcia Trionfale, La Donna É Mobile,la Calunnia, Un Bel Di Vedremo, Di Quella Pira ,che Gelida Manina, Corao A Bocca C (16:25)
+
+02. Croce E Delizia, Toréador,Amami Alfredo, Largo Al Factotum,Brindisi-Bibiam Né Lieti Calici,una Furtiva Lacrima,di Provenza El Mar E ,Celeste Adia, Va Prnsiero Sull'Ali Dorate (16:24)Жанр: Pop, Classical Crossover, CoverПродолжительность: 00:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987524CFDDB7AD0092519B660C61F3E83242EF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221881   (689162) от 27.04.2018
 
 Apollo 100 - Golden Instrumental Hits (1989) Compilation [FLAC|Lossless|image + .cue] <Neo-Classical, Orchestra>
@@ -713,35 +741,6 @@ Bruno Sanfilippo - Piano Textures 1 (2007) [MP3|320 Kbps] <Neoclassical, Experim
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE2A72C2BBA3F75B13CB3BF1AC92B5FECC1CB3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218654   (721268) от 10.04.2018
-
-Bruno Sanfilippo - Claroscuro (2014) [MP3|320 Kbps] <Neoclassical, Ambient>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ClarOscuro 5:58
-02. Absenta 5:18
-03. Aquarelle Sur Papier 5:12
-04. A Constant Passion 3:40(   Читать дальше...   )Жанр: Neoclassical, AmbientПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51E33936CE19367AC19419ED670F313C7889083
 ```
 
 https://mybot314.ru/tekegram_catalog/

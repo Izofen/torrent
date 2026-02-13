@@ -1,3 +1,177 @@
+###  Публикация: 917774   (589086) от 12.07.2015
+
+Betty Who - Take Me When You Go (2015) Deluxe Version [MP3|320 кб/с]<Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Like Me (03:39)
+02. High Society (04:01)
+03. Glory Days (04:03)
+04. Somebody Loves You (03:31)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC8AC6520CC7E1B3C71C03F2BFAC7D79ADF3E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917344   (589553) от 11.07.2015
+
+VA - A Trip to Greece. Best of Ancient. Greek Music (2015) [MP3|320 кб/с]<Instrumental, Pop, New Age, World, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alec Makinson - Greek Salad (03:15)
+02. D. Silverstone - Greek Dance (02:35)
+03. Alexander Khaskin - Funky Greek (02:45)
+04. Lamberto Salucco - Greek Wedding (02:08)(   Читать дальше...   )Жанр: Instrumental, Pop, New Age, World, Easy ListeningПродолжительность: 01:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3609AB7AA6D11257F93E2AC78D71908A9CCA249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917168   (589576) от 11.07.2015
+
+Dara Sedaka - I'm Your Girl Friend (1982)/2005/ [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Huggin' (04:10)
+02. Just Say I Love You (03:47)
+03. The Real Me (03:59)
+04. Keep Me In Love With You (04:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BABE4B41DDBF5B94526B479577D0099D30135DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917346   (589597) от 11.07.2015
+
+Real Bodrit - Superman (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Быть или не быть
+ 02. Ботаник
+ 03. Superman
+ 04. Малыш(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CCB368B7B50F1C550595F66F1A3332DB795488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916896   (589873) от 10.07.2015
+
+Валерия - Это время любви (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это время любви
+02. Мой любимый
+03. Ты моя (feat. Анна Шульгина)
+04. Сердце из стекла (feat. Руслан Алехно)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9002D6EF989310EEE20F3D01FB1F6331440BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917082   (589885) от 10.07.2015
+
+VA - Disco. The Long Versions (2015) 3CD [MP3|320 кб/с]<Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589885.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD1:
+01. Ottawan - D.I.S.C.O (07:00)
+02. Nick Straker Band - A Walk In The Park (04:14)
+03. Village People - Y.M.C.A (04:46)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A52CEB415E84C762BC5B3BFD8ED7B6F42B2DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917034   (589918) от 10.07.2015
 
 VA - Pure... Dance Party (2014) Box Set, 4CD [FLAC|Image+.cue]<Pop, Rock, Electronic, R&B>
@@ -588,180 +762,6 @@ Nancy Martinez - Not Just The Girl Next Door (1987) [MP3|320 кб/с]<Electro, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315C326AB3FA851F78C2B6F08477AB4622598B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550444   (592074) от 11.05.2022
-
-VA - Big Mix 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maya - Shout Remix (2:07)
-02. Techno Traxx - Hello Daddy (3:38)
-03. Jasmine - I Know There Is Something On (2:26)
-04. The project '93 - Mammagamma Another Brick in the Wall (3:53)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60787C8ED7BB1E652F1AB5239185AC1002F288D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550443   (592075) от 11.05.2022
-
-VA - Back to Euro Hits (2013) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free 2 Night - Under the Sun (Eurodance Edit) (4:33)
-02. J & V - Crazy for You (Summer Ragga Mix) (3:15)
-03. Mr. Friso, Big J. Beezy & Kate Lesing - Got the Love (4:12)
-04. Unlimited Friends - 90's Never End (Real Thing Remix) (3:46)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D285F4410A6151ACF5FF3647FE4D29BB6C82F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550594   (592105) от 11.05.2022
-
-Fancy - Get Your Kicks (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice (5:07)
-02. Get Your Kicks (5:33)
-03. L.A.D.Y. O. (4:22)
-04. Slice Me Nice / Chinese Eyes (Special Mix) (4:22)(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C3B23C40911DCE8A2FCD95BE010F568E722D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550449   (592112) от 11.05.2022
-
-VA - 80s Disco Forever (2020) [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Flames Of Love (Extended Version) (5:20)
-02. Grant Miller - Colder Than Ice (Tess Remix) (6:49)
-03. The Hurricanes - Only One Night (12'' Version) (5:52)
-04. Psychic Interface - Dancin' In The Night (12'' Version) (5:07)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A868146532C213492F1545BB4140188E3B13A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550549   (592154) от 11.05.2022
-
-Fancy - Get Your Kicks (2019) Deluxe Edition [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice (5:07)
-02. Get Your Kicks (5:33)
-03. L.A.D.Y. O. (4:22)
-04. Slice Me Nice / Chinese Eyes (Special Mix) (4:22)(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6AF922463330A10DA89E129916AEC51985C253A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550434   (592161) от 11.05.2022
-
-Gianni Safred - Futuribile (The Life to Come) (1978) Reissue LP, 2019, Four Flies Records [MP3|320 Kbps] <Electronic, Jazz-Funk, Fusion, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Life To Come (3:07)
-02. Disco Satellite (3:19)
-03. Autumn 2001 (3:43)
-04. Disco Propulsion (3:04)(   Читать дальше...   )Жанр: Electronic, Jazz-Funk, Fusion, DiscoПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7720AE0CAAC72D5ED27D3CB59BC2134B9298389
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1254783   (370386) от 15.10.2018
+
+VA - Music For Sports Games: Hard Dance Party (2018) [MP3|320 Kbps] <Hard Dance, Hardcore, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370386.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Mad Dog - Laughing Loud
+002. Al Twisted & Necrotic - Screwface
+003. Terribble Smile - Teuflischer Schmerz
+004. Synthax - Sick & Repulsive(   Читать дальше...   )Жанр: Hard Dance, Hardcore, ElectroПродолжительность: 09:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02AEC3BC7F8A1D515537D6779CA4F3ECBCE06D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950537   (370390) от 26.10.2015
+
+VA - Absolute Busloops Tech Construction (2015) [MP3|320 кб/с]<Club, Progressive, Bigroom, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Van De Laser - Hey Sexy Lady (Video Edit) 03:17
+02. Topic Feat. Marco Minella - Real Stars 03:26
+03. Tiesto & Dallask - Show Me (Original Mix) 04:24
+04. Thomas You Feat. Mc Trini - Will You Be There (Radio Edit) 03:34(   Читать дальше...   )Жанр: Club, Progressive, Bigroom, HouseПродолжительность: 06:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCF17453DFB2AA58482581BCAE80FED830DD33C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254776   (370516) от 15.10.2018
 
 VA - Chill House: Deep Lovers Mix (2018) [MP3|320 Kbps] <Deep House, Chill House>
@@ -693,65 +751,6 @@ VA - Zumba 2020: Rumba Fitness [MP3|320 Kbps] <Latin, Bachata, Rumba>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFD5F5B455B5783F781A2D0554C296747AC286A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176222   (371795) от 21.10.2017
-
-VA - По волне моей памяти: Том 3 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Михаил Боярский - Вот и расстались  5:54
-02.  Алла Пугачёва - Песня на бис  7:13
-03.  Игорь Тальков - Бывший подъесаул  5:59
-04.  Александр Барыкин - Букет  3:40(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA41FC622B2F014D22FCD19D146BECB2D1EADB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415551   (371901) от 14.10.2020
-
-Виктор Аргонов Project - Русалочка (2013) (+bonus) [MP3|320 Kbps] <Trance, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет произведения относится к жанру научной фантастики. Действие происходит в современной России. Простой гражданин, прогуливаясь по берегу моря, встречает странную немую девушку. Она преследует его и вскоре излагает о себе невероятную историю, которая звучит как завязка сюжета сказки о Русалочке...
-Развитие событий показывает, что девушка действительно не является (   Читать дальше...   )CD1:
-01. Предания неведомых миров (инструментал) [3:27]
-02. Сделать шаг (ария Сказочницы) [2:50]
-03. Ты идёшь наверх (ария Отца) [3:04](   Читать дальше...   )Жанр: trance, technoПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A4C81649E72616190035CA2D51D60100763587
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1372724   (883744) от 04.04.2020
+
+Boytronic - The Robot Treatment (2019) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venus Covers Mars (Intro) [00:18]
+02. Under the Red [04:31]
+03. All You Can Eat [03:59]
+04. Wayward Sister [03:53](   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738D9BAFCD6AC7A33E735EF69476708005C3372B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192330   (883777) от 10.09.2021
 
 Astral Industries - Label-Pack 24 Releases (2014-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Dub Techno, Drone, Tribal, Abstract>
@@ -712,35 +741,6 @@ Sense - Discography 42 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4964A23B906C55E82E9E675C0FD77BDC265149F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103674   (885655) от 12.02.2017
-
-Absurd Minds - Tempus Fugit (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synth-pop>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Travel (4:10)
- 02. Farewell (5:38)
- 03. Kreuzfeuer (4:52)
- 04. Now We Hear the Call (4:44)(   Читать дальше...   )Жанр: EBM, Synth-popПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EB7175DA2642A99B41D01ED2BD0BE43C08E5C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

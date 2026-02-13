@@ -1,3 +1,32 @@
+###  Публикация: 1115158   (1030871) от 17.02.2021
+
+Michael Belletz (Mnemonic, The Last Gambit, Architrav, L.iet & Kurt Bogenholtz) - Discography 20 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Industrial, Electro,  ...
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ebenes Schallfeld (11:46)
+ 02. Freiraumwelle (10:17)
+ 03. Medienobservation (04:05)
+ 04. Bandbreite (11:24)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Ambient, Industrial, Electro, Abstract •Продолжительность: 22:04:39 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71E2B84E73A7AD456F2E12D6E82C674BF98A3F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448434   (1030942) от 17.02.2021
 
 VA - Sweet Morning Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL] <Balearic, Downtempo>
@@ -716,35 +745,6 @@ Bryan Kearney - Vocal Anthems Mix (2021-02-05) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4808B3BFEF42761F2EF8110151A3B7F4BF4A6C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200770   (1031941) от 12.02.2021
-
-VA - Uplifting Only Top 15 (2016-2021) (Обновляемая) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoundLift – Road To Happiness
-02. Sound Apparel – Vivere Est Militare (I Was Alone)
-03. Sunlight Project – La Nouvelle Generation
-04. Yahel – Open Your Mind (Night Sky Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 108:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0492273BF8257D8AA059414C1757A26D0A9837
 ```
 
 https://mybot314.ru/tekegram_catalog/

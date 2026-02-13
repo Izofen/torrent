@@ -1,3 +1,177 @@
+###  Публикация: 904110   (655390) от 02.06.2015
+
+Simply Red - Big Love (2015) [MP3|320 кб/с]<Pop, R&B, Nu Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On (03:12)
+02. Daydreaming (03:38)
+03. Big Love (04:09)
+04. The Ghost of Love (03:16)(   Читать дальше...   )Жанр: Pop, R&B, Nu SoulПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB4D41C7C438F94D5FC2A740145B924444365FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140542   (655732) от 06.06.2017
+
+ЛЕVиС - А я не знала, кому давала... (2000) [TAK|Lossless|image + .cue] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А я не знала, кому давала...
+02. Резиновая баба
+03. Шуры-муры
+04. Берегись автомобиля(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D246BAF831CDB09611929E4350C4D4B9331E037C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140535   (655734) от 06.06.2017
+
+ЛЕVиС - А я не знала, кому давала... (2000) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А я не знала, кому давала...
+02. Резиновая баба
+03. Шуры-муры
+04. Берегись автомобиля(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CADAD98CE05C98340FCD811FC89843AD5CB255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140557   (655882) от 06.06.2017
+
+Love Robot - Love Robot (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Robot (11:26)
+02. Robot Song (5:12)
+03. Yellow Robot (4:11)
+04. Slaves Of Pleasure (5:06)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45181CED47F8B2D51FC1F4E1F6301C166AA444AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140541   (655893) от 06.06.2017
+
+P.R. Computer - P.R. Computer (1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Modern Classical, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Well Tempered Computer (3:29)
+02. Arctic Light (3:23)
+03. The Pendulum (3:02)
+04. Chase (3:23)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Modern Classical, ExperimentalПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47DE319809FB209B951CBB51FBBAA7696EB10C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539941   (656080) от 27.03.2022
+
+Фристайл - The Best (2002) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ах, какая женщина
+02. Прощай навеки, последняя любовь
+03. Сезон любви
+04. Жёлтые розы(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1120D9CCF0A09BA72481D081E82A19F5D2243B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539645   (656116) от 27.03.2022
 
 Scotch - Disco Collection (2003) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
@@ -579,180 +753,6 @@ VA - Workout (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4F9CEE17C28A393CB2FBAA69F975D67494C4618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139865   (659205) от 03.06.2017
-
-Montana - A Dance Fantasy Inspired By Close Encounters Of The Third Kind (1978) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dance Fantasy Inspired By Close Encounters Of The Third Kind (16:00)
-02. V.M. IV (3:47)
-03. Warp Factor II (5:34)
-04. Love Star (2:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD695A71762E419DABB7C38BDA2F1B24F8069D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139903   (659286) от 03.06.2017
-
-P.L. - Space Dreams (1982) LP [MP3|320 Kbps] <Electronic, Electro, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Know What It Is (9:03)
-02. Transeuropa-Express (10:12)
-03. Come On And Do It (Long) (15:28)
-04. Come On And Do It (Short Version) (3:09)Жанр: Electronic, Electro, DiscoПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493028912025A3205E0E433D30BACCE28483EB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139300   (659302) от 03.06.2017
-
-Intonation - Passing The Planets (1982) Reissue LP , Electrecord, 1987 [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro & Mercury (5:44)
-02. Mars (4:33)
-03. Venus (4:25)
-04. Uranus (4:38)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, AmbientПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C046D56F766710E4F1326EC14D7001BA950F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225595   (659659) от 16.05.2018
-
-Восток - Все небо (1996) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Миражи 3:30
-02. Все небо 3:03
-03. Только дождь 3:42
-04. Огонек в ночи 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4DBCDE83470E11FC94881624E376CD70205060E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139582   (660198) от 02.06.2017
-
-VA - Body Shaper Vol. 2 (2017) [MP3|320 Kbps] <Pop, Trance, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Hills - Break (Radio Mix) 3:24
-02. Tommy Henriksen - Give'm Hell (Leeroy Radio Mix) 3:30
-03. Brothers - Sacrifice (Best DJ Version Radio) 3:32
-04. Chris Galmon - Spend My Time (Radio Edit) 3:35(   Читать дальше...   )Жанр: Pop, Trance, DanceПродолжительность: 02:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7152EF2AAC333BC765DD98EA9DB143B89066D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902875   (660219) от 29.05.2015
-
-French Horn Rebellion - Next Jack Swing pt.I (2014) [MP3|320 кб/с]<Alternative Dance, Nu Disco, Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Smash (feat. Workout & Bebe Panthere) (03:20)
-02. Caaalifornia (feat. Ghost Beach) (03:50)
-03. Love Is Dangerous (feat. The Knocks & Fat Tony) (03:51)
-04. French Horn Rebellion & Database - Poster Girl (03:41)(   Читать дальше...   )Жанр: Alternative Dance, Nu Disco, ElectropopПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9460960E12EB88D7CE99262F46094CF7D3363087
 ```
 
 https://mybot314.ru/tekegram_catalog/

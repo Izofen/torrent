@@ -1,3 +1,32 @@
+###  Публикация: 1044300   (564763) от 20.08.2016
+
+Lindsey Stirling - Brave Enough (2016) Limited Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop, Electronic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Girls - 4:35
+02. Brave Enough (feat. Christina Perri) - 4:23
+03. The Arena - 3:52
+04. The Phoenix - 4:04(   Читать дальше...   )Жанр: Classical Crossover, Pop, Electronic, Dubstep, ViolinПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE26942494E63A5C90D9F83A3D7C060614D688B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044028   (564899) от 20.08.2016
 
 John Barry - John Barry - Somewhere In Time (1998) [MP3|320 Kbps] <Score>
@@ -728,35 +757,6 @@ Double Violin Concerto, for 2 violins, strings & continuo in G major, RV 516
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D090FA8B985A3294CDF6C4986F0C93DD436EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300455   (588105) от 08.05.2019
-
-Neon Philharmonic Orchestra - Switched On Classics, Vol. 1 (1995?) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Classics On 45 (5:33)
--Piano Concerto No. 1
--Flight Of The Bumble Bee
--Symphony No.40(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2131A755862D165C06E785696A2AAA5765EEDAD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

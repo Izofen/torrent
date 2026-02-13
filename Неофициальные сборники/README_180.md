@@ -1,3 +1,32 @@
+###  Публикация: 1333235   (305270) от 24.10.2019
+
+VA - Autumn Chill Electronic (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305270.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Interstellaro - Splendid
+002. Sebhelyes - Bains Douches
+003. Gordon Geco - Awake (Original Mix)
+004. Electric Night - Spoq(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 09:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA1BEE50B7316AD1224604766556E72A73B6EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183900   (305274) от 15.11.2017
 
 VA - Verge Inverse Relax Edition (2017) [MP3|320 Kbps] <Lounge, Downtempo, Relax>
@@ -728,35 +757,6 @@ VA - Chill On the Moon Vol.4: Lounging On the Surface (2016) [MP3|320 Kbps] <Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD75DB145595360EA9EC303808B5D7BFDC254554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077388   (306597) от 28.11.2016
-
-VA - Massage del Mar Vol.2: Chill Out Sensual Meditation Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Lotion - Dawn of Light (Balearic Extended Mix) 7:40
-02. Brilliant Star - Pink Blue Hotel (Balearic Chill Guitar Mix) 5:20
-03. Rainman - Hammock Dreams (Extended Mix) 5:57
-04. Chillwave - Massage del Mar (Beach Cafe Mix) 4:26(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8945A1F5C4BAD4405C9F4A82D15F6B2EA66CE03
 ```
 
 https://mybot314.ru/tekegram_catalog/

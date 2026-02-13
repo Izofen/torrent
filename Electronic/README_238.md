@@ -1,3 +1,30 @@
+###  Публикация: 945460   (431747) от 11.10.2015
+
+Dustin Nantais - Cloak / A Long Road (The Remixes) (31.08.2015) [MP3|320 кб/с]<Electronic, Deep, House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dustin Nantais feat. Amber Long - A Long Road (Kobana Remix)
+02. Dustin Nantais - Cloak (Max Cue Remix)Жанр: Electronic, Deep, House, ProgressiveПродолжительность: 00:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD1279437FD20F4DE02027CC7EA1BE730920313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410913   (431838) от 23.09.2020
 
 Andrew Odd - Random Thoughts (2020) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
@@ -721,35 +748,6 @@ VA - Club Traxx - Progressive House 21 (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC7031BC96258AB7A8DA6FD2DA3A8540D705ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165359   (434426) от 12.09.2017
-
-Odesza - A Moment Apart (2017) [MP3|320 Kbps] <Chillout, Downtempo, Future Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:04)
-02. A Moment Apart (3:54)
-03. Higher Ground (feat. Naomi Wild) (3:35)
-04. Boy (3:04)(   Читать дальше...   )Жанр: Chillout, Downtempo, Future BassПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AF06C346AC3F0AB024E6A3ADC178988FD490B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

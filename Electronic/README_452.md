@@ -1,3 +1,32 @@
+###  Публикация: 1496798   (869794) от 19.09.2021
+
+VA - Hardstyle Workout 2021.2 Explicit [MP3|320 Kbps] <Hardstyle, Dance>
+
+>>Electronic
+>>Hardstyle, Jumpstyle, Hardcore
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Isaac - Follow Me (04:09)
+02. Headhunterz - Transcendence (04:06)
+03. Keltek - The Alignment (Cinematic Version) (09:06)
+04. Ran-D - Fight Fire with Fire (Radio Edit) (03:55)(   Читать дальше...   )Жанр: Hardstyle, DanceПродолжительность: 02:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C604F0A86303424030B1182960AE3A69BD9E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106985   (869827) от 21.02.2017
 
 VA - Uplifting Only Orchestral Trance Year Mix 2016 (Mixed by Ori Uplift) (2017) [FLAC|Lossless|WEB|tracks|image] <Uplifting Trance, Emotional Trance, Orchestral Trance>
@@ -711,35 +740,6 @@ Neroche - The Crooked Mile (2014) [MP3|~225 кб/с (V1)] <Abstract, Trip Hop, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8E36B77F0F24178C5D19D5D47A8C1179E6D9047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228499   (872267) от 10.04.2020
-
-VA - Sonica Recordings presents: Compilations Collection - 11 Releases (2005-2020) [MP3|320 Kbps] <Psy-Trance, Progressive Trance, Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872267.jpg" />
-</div>
-
-
-###  Подробнее
-
-2005 - Sonica
-2007 - Healing Lights (A Compilation by DJane Gaby)
-2010 - Sonica • Vol. II (Compiled by DJ Gino)
-2012 - Healing Lights 2 (Compiled by DJane Gaby)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Trance, Goa TranceПродолжительность: 13:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B1F2594FDC3974A989A8C52942A027B6E3EB60
 ```
 
 https://mybot314.ru/tekegram_catalog/

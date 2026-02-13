@@ -1,3 +1,32 @@
+###  Публикация: 1421973   (315426) от 06.11.2020
+
+VA - Music News vol.46 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315426.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kylie Minogue - Monday Blues (03:09)
+ 002. 22Bullets feat. Torine & Lovespeake - Lost In Your Eyes (02:27)
+ 003. Adam - Мама Я Устал (03:20)
+ 004. Alannys Weber - Love Got You (02:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F032E06EAC948DAF0B8289C9018ABEE059D3DBF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421969   (315428) от 06.11.2020
 
 VA - Sunset Vibe: Absolute Chillout (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
@@ -136,6 +165,41 @@ VA - Sentimental Rock Blues Story (2016) [MP3|192-320 Kbps] <Rock Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDA8E8F452C581909A2B7E1907889D94DEDDD8B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583070   (315690) от 01.12.2012
+
+ICON-CELENTANO - mixed by dj Pitkin (2012) [MP3|320 кб/с]<progressive dance / vocal house / club house / house>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_315690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-DJ PitkiN -  Bright Autumn Mix 12 (ICON Celentano)
+   02-DJ PitkiN -   Bright Autumn Mix 12 (ICON Celentano)
+   03-DJ PitkiN -  Bright Autumn Mix 12 (ICON Celentano)
+   04-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   05-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   06-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   07-DJ PitkiN- Bright Autumn Mix 12 (ICON Celentano)
+   08-DJ PitkiN  - Bright Autumn Mix 12 (ICON Celentano)
+   09-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   10-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)(   Читать дальше...   )Жанр: progressive dance / vocal house / club house / houseПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,64 +774,6 @@ VA - Games At Sunset: Psy Goa Trance (2017) [MP3|320 Kbps] <Psy, Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E47A47C72AC63EFAFF59BA02E21165440058EC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959353   (317194) от 24.11.2015
-
-VA - Charming Bourgeois Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beach Solaire - Autentico - Original Mix
-02. Dee Lice - Derize - Chill Groovers Mix
-03. Maurice Sanders - Oise - Original Mix
-04. Room 100 - Reminiscing - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688A1734558FEDF3E2D91184B52854E0BB2BAF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959359   (317196) от 24.11.2015
-
-VA - Charming Bourgeois Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Walden - Mirando El Mar - Original Mix
-02. Jazzoman - Gente - Original Mix
-03. Keerg - Lonely Hughes - Original Mix
-04. Fith Groove - Calibrato - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F7DC8F0873C18925893B04E3D468D404CF0B81
 ```
 
 https://mybot314.ru/tekegram_catalog/

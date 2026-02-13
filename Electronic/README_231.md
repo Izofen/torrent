@@ -1,3 +1,32 @@
+###  Публикация: 1413049   (411917) от 02.10.2020
+
+Henrik Meierkord - Själ (Sjal) (2019) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Neoclassic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Trädet 05:46
+2. Själ 07:30
+3. Ren Och Fin 09:34
+4. Kommunikation 08:04(   Читать дальше...   )Жанр: Ambient, Drone, NeoclassicПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E660125EBD242ED1A02B4B17377912AE7CB1F070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412975   (411921) от 02.10.2020
 
 Halftribe - Cloud Dreaming And Shadows (2020) [FLAC|Lossless|tracks] <Ambient, Experimental, Drone>
@@ -714,35 +743,6 @@ VA - Chillout Break Best Lounge Traxx (2015) [MP3|320 кб/с]<Downtempo, Chillo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:798EC4745347FA83B3A5F4BF00FF1D42355EA64A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066375   (414016) от 25.10.2016
-
-Excision - Virus (2016) [MP3|320 Kbps] <Drumstep, Dubstep, Trap>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virus
- 02. Neck Brace
- 03. Throwin' Elbows
- 04. Rave Thing(   Читать дальше...   )Жанр: Drumstep, Dubstep, Trap, House, Jersey ClubПродолжительность: 01:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B3A660D250985DC69AADE2182E8067206E2555
 ```
 
 https://mybot314.ru/tekegram_catalog/

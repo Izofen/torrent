@@ -1,131 +1,22 @@
-###  Публикация: 1122179   (799107) от 04.04.2017
+###  Публикация: 1508625   (796915) от 09.11.2021
 
-Катерина Полянская | Пропавший факультет, или Ведьмочки в Академии Боевых Магов (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Да, неласково встретили провинциальных ведьмочек в столичной Академии Боевых Магов! Однако их враждебно настроенные снобы-сокурсники еще не знают главного: ведьмы, если дружат, и в драку, и на бал, и в императорскую темницу друг за дружку пойдут, и потому задевать даже одну из них — вредно для здоровья. Цветане и ее подругам с порога Академии приходится это доказывать. (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEFC60E972BE0EB915E4E8F2819A137CD8A020A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122248   (799108) от 04.04.2017
-
-Бриллиантовый картель / Diamond Cartel (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харизматичный и безжалостный Мусса покупает в Гонконге у босса местных триад легендарный алмаз — Звезду Востока. Но камень не успевает попасть в руки нового хозяина. Его наёмники Алия и Руслан, в прошлом — любовники, похищают Звезду и пытаются сбежать с ней из страны.Производство: КазахстанЖанр: Боевик, ПриключенияРежиссер: Саламат Мухаммед-АлиАктеры: Арманд Ассанте, Питер О’Тул, Оливье Грюнер, Том ’Тайни’ Листер мл., Майкл Мэдсен, Кэри-Хироюки Тагава. Дон «Дракон» Уилсон, Боло Йен ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA2E9F702F3D4C809BEF75083843E6B3D16A094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122079   (799109) от 04.04.2017
-
-Living Legends 5: Beasts of Bremen / Живые легенды 5: Бременские чудовища (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваша сестра была избрана для участия в легендарном музыкальном фестивале Бремена. Однако что-то странное происходит в городе. Улицы и окрестности окутаны светящимся туманом, сестра пропала, а встречающиеся люди и не люди вовсе, а звери... Удастся ли вам справиться со зловещей магией и спасти сестру?Тип издания: UnofficialРазработчик: 4 Friends GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C045CE73B8DFD5E897CD8C05DF4DC4558E6E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120661   (799110) от 04.04.2017
-
-Yellow Claw - Los Amsterdam (2017) [MP3|320 Kbps] <Electronic, Dance, Trap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home (Feat. Sophie Simmons) (03:44)
-02. Without You (Feat. The Galaxy & Gia Koka) (03:30)
-03. Love & War (Feat. Yade Lauren) (03:00)
-04. Good Day (Feat. DJ Snake & Elliphant) (03:48)(   Читать дальше...   )Жанр: Electronic, Dance,  TrapПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C1A975798C78018D70C2B5213213EF79E2D8AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122083   (799111) от 04.04.2017
-
-Audiobook Builder 1.5.7 [Multi/Ru]
+ExactScan Pro 21.11 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799111.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796915.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для аудиокниг в Mac OS X существует специальный формат M4B, который является стандартом для iTunes Store. В связи с этим, чтобы иметь возможность залить к себе на iPod или iPhone аудиокнигу, не купленную в iTunes Store, нужно иметь инструменты для создания файлов m4b своими руками.
-
-Ничего особенно выдающегося в M4B нет – он абсолютно идентичен формату AAC. Но всё (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 апреля 2017Разработчик: Splasm Software, Inc.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский и др.
+ExactScan – современное решение для сканирования, в состав которого входит более 400 различных драйверов для сканеров документов от таких изготовителей как Avision, Canon, Fujitsu, HP, Kodak, Oki, Panasonic, Visioneer и Xerox. для которых изготовитель не предоставляет драйверы под операционную Mac OS, и, соответственно, без таких драйверов они не могут работать под (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: © 2021 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15BA61E08F9D63947A8962A3D2D6D60BACF3918C
+magnet:?xt=urn:btih:7A584BF9998BA8D0599791B4424C9B127111E705
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,302 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122249   (799112) от 04.04.2017
+###  Публикация: 1508650   (796916) от 09.11.2021
 
-Aiseesoft HD Video Converter 8.2.16 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft HD Video Converter - это мощный конвертер HD видео в популярные форматы. Поддерживает AVI, MPEG, WMV, DivX, Xvid, MP4, 3GP, WMV-HD, MPEG2-HD, DivX-HD, Xvid-HD, MPEG4-HD, H.264-HD(AVCHD) и другие видеоформаты, кодирование и декодирование High-Definition (HD), 1280x720 (720p), 1920x1080 (1080p). Вы сможете извлечь аудио из видео в AAC, AC3, AIFF, AMR, AU, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA493E56885107D5A581A8D7A8C91071243B685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122173   (799113) от 04.04.2017
-
-Ирмата Арьяр | Белое пламя (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самостоятельный роман из цикла «Лорды гор».
-
-Книга тайн Белогорья!
-Все секреты любимых героев раскрываются!(   Читать дальше...   )Жанр: Боевое фэнтези, Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34106C05A9D2505B0CD9F6306F17D967CD6D8B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121556   (799115) от 04.04.2017
-
-Rufus 2.13 Build 1078 Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C3B537D601E448897B1D2B9A5F281C8CFB1410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122267   (799116) от 04.04.2017
-
-Почти идеальная деревня / Un village presque parfait (2014) HDRip [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая горная деревушка Сан-Луан ля Модерн после закрытия фабрики по производству копчёного лосося медленно умирает. Жители разъезжаются кто куда в поисках работы, оставшиеся живут на пособие. Мэр деревни выигрывает грант, чтобы снова открыть фабрику, но есть одно «но»: в деревне должен быть врач для оформления медицинской страховки.
-
-Успешный пластический хирург (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Стефани МюньеАктеры: Дидье Бурдон, Лоран Дойч, Лионель Астье, Дени Подалидес, Эли Семун, Кармен Маура, Анни Грегорио, Армель, Пьер Менес, Гвендолин ГурвенекПеревод: Многоголосый закадровый, профессиональный (GreenРай Studio)Субтитры: отсутствуют.Продолжительность: 01:39:13Реклама: присутствуют аудио и видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3A423179328320675C9D889DA0ED50D6880271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121944   (799117) от 04.04.2017
-
-FontViewOK 4.46 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты, и конечно вы сможете с ними работать. Особенность программы, позволяющая вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4036BE66521042C4B7A1859EFC94AB2A2E1E5479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121914   (799118) от 04.04.2017
-
-Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crash (01:59)
-02. Heatseeker (03:32)
-03. Alone in the White (03:31)
-04. Welcome to the Village (03:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE36B725F3207A4C1B3965DC411A4C9F0ECE8DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121959   (799119) от 04.04.2017
-
-BBC. Великий рифт: Дикое сердце Африки / Great Rift: Africa's Wild Heart (2010) BDRip [H.264/1080p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трёхсерийный фильм BBC в области естествознания, показывающий ландшафты и дикую природу Восточно-Африканской Великой Рифтовой Долины. Поддерживая многообразие дикой жизни, фауны и различных сред обитания, Рифтовая Долина стала основой для некоторых очень важных экосистем Африки. В фильме показано формирование долины 30 миллионов лет назад, особенно выделяя многие (   Читать дальше...   )Телекомпания: Великобритания, BBC, Animal Planet Co-ProductionЖанр: Документальный, естествознание, природа, флора, фаунаРежиссер: Хью КуоршиПеревод: Одноголосый закадровый, любительскийЯзык субтитров: Русские, АнглийскиеПродолжительность: 3 х ~00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB844F22DC1D6524A63D684176AD87A41371DB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122316   (799120) от 04.04.2017
-
-Стефани Гарбер | Караваль (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Караваль».
-
-Скарлетт, дочь губернатора одного из Покоренных островов империи Элантинов, с детства мечтала принять участие в Каравале – полном волшебства спектакле, удивительной игре, которую ежегодно устраивает некий таинственный человек, известный как магистр Легендо. И вот в один прекрасный день девушка наконец-то получает пригласительный билет. (   Читать дальше...   )Жанр: Зарубежное фэнтези, Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40A6DB23DBA445FC7A32F930D51CDE68EEB8F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579438   (799121) от 04.04.2017
-
-Шары ярости / Balls of Fury (2007) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэнди Дайтона - одаренный игрок в пинг-понг, опозорившийся на мировой арене и вынужденный зарабатывать, выступая в шоу в Лас-Вегасе.
-Но шанс на возвращение в мир большого спорта ему предоставляет ЦРУ. Надо лишь принять участие в подпольном турнире, который проводит у себя в поместье криминальный авторитет Фанг - известный душегуб и энтузиаст настольного теннисаПроизводство: СШАЖанр: Боевик, Комедия, КриминалРежиссер: Бен Гарант / Robert Ben GarantАктеры: Дэн Фоглер, Кристофер Уокен, Джордж Лопез, Мэгги Кью, Джеймс Хонг, Терри Крюс, Роберт Патрик, Дидрих Бейдер, Аиша Тайлер, Томас Леннон, Кэри-Хироюки Тагава, Бретт ДельБуоноПеревод: ДублированныйПродолжительность: 01:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477B7CE0A00C8372B03EF67DE239395AB92060C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507065   (799122) от 02.11.2021
-
-Eyes Of Eden - Faith (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Night (3:37)
-02. When Gods Fall (3:37)
-03. Star (3:48)
-04. Pictures (4:10)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB7C6F2275B325127CE0729B7FE9844D4C6F820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507006   (799123) от 02.11.2021
-
-VA - A Day to Chill: Chillout Your Mind (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Airport Lounge, vol. 1 (2010) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799123.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - Apres Sun (Original Mix) (4:06)
-02. Chris le Blanc, Leo Zabarella - Melville Sings the Blues (Album Mix) (3:35)
-03. Living Room - A Cup of Jazz (Original Mix) (3:42)
-04. Pier-O - Cocktail Tune (4:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:53:17
+01. Pearldiver - Far Away (4:49)
+02. Jens Buchert - The Arrival (4:58)
+03. Newton - Raindrops & Teardrops (4:53)
+04. Pearldiver - Daydream (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23D5CACB7D69ED0069044445DFF26D12FB4909A9
+magnet:?xt=urn:btih:250C2C96276A9B94CC4A4EC847EA6DE47A372450
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,28 +53,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506644   (799124) от 02.11.2021
+###  Публикация: 1508574   (796917) от 09.11.2021
 
-Markus Schulz - Global DJ Broadcast Afterdark (2021-10-28) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+Invertigo - Veritas (2012) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darkness (08:29)
+2. Lullaby (6:01)
+3. Waves (7:51)
+4. Dr. Ho (7:34)(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1A9F1D7E34DE6F9AB7D8C853B1898F5E5A0A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508626   (796918) от 09.11.2021
+
+Nova 8 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799124.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rebel Boy & SAM WOLFE - Psalm 39
-02. Cosmic Boys & AKKI (DE) - Dark Places
-03. Mario Ochoa - Black Hole
-04. Layton Giordani - Living Simulation(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 04:00:47
+Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
+Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: © 2021 Panic, IncПоддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6BB26611E87C51036F7772C0A7EF3E1A54A86BD
+magnet:?xt=urn:btih:6ECFDD49965993BBF319FA4E7D68D9F2AE66692E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,25 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507017   (799125) от 02.11.2021
+###  Публикация: 1508590   (796919) от 09.11.2021
 
-Умелые сыщики / Slick Sleuths (1926) DVDRip
+VA - 50 Melodic Tunes of Winter 2021 (2021) [AAC|~309 Kbps] <House, Techno>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799125.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Частные сыщики Матт и Джефф идут по следу знаменитого опаснейшего преступника по прозвищу Призрак.Производство: США, Bud Fisher Film CorporationЖанр: Рисованная анимацияРежиссер: Чарльз Р. Бауэрс, Бад ФишерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:06:10
+01. Tempodata - Android (4:16)
+02. Taylor Switch - Contain (4:18)
+03. Tarcim Sakman - Besides (4:16)
+04. Talkbacker - Retro (4:14)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 03:31:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A32A8BD48A4474B18B5045EE81C8DC45F2A856DD
+magnet:?xt=urn:btih:DEF23527B5AC18D14E913EE8099E176F9BA90401
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +138,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506870   (799126) от 02.11.2021
+###  Публикация: 1508720   (796920) от 09.11.2021
 
-Konrad Paszkudzki Trio - Serenade In Blue: Harry Warren Song Book (2018) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+Stats 2.6.18 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799126.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. About A Quarter To Nine [5:12]
-02. Forty-Second Street [3:25]
-03. I Only Have Eyes For You [4:15]
-04. I Wish I Knew [3:47](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:49
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6B3A524726A9536AC246B58AACC0BB067350B49
+magnet:?xt=urn:btih:91CA9243DEF5536F092EC37894C83071EF04DEDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,26 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507010   (799127) от 02.11.2021
+###  Публикация: 1508745   (796921) от 09.11.2021
 
-Верёвки Леонтины / Les Ficelles de Leontine (1910) WEBRip
+A Better Finder Attributes 7 v7.17 fix [En]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799127.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая забавная киношутка. Модная в те годы эксцентрика.
-Озорная девчонка (очень частый персонаж комедий тех времен) разошлась не на шутку. Своими шалостями весь городок на уши поставила.Производство: Франция, Pathé FrèresЖанр: Комедия, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Нет сведенийПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:06:58
+A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2021Разработчик: © 2021 PublicspaceПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:260452FB34D9760E4A07BF20AD9BD7371799EE34
+magnet:?xt=urn:btih:AD50F3A5CE62C9E8B8F0D2E81DDC7CA93019CFE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,28 +190,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506578   (799128) от 02.11.2021
+###  Публикация: 1508632   (796922) от 09.11.2021
 
-VA - Halloween Songs (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
+System Toolkit 4.2.0 [Multi]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799128.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Duran Duran - Hungry Like the Wolf (2009 Remaster) (3:38)
-02. Talking Heads - Psycho Killer (2005 Remaster) (4:19)
-03. Warren Zevon - Werewolves of London (2007 Remaster) (3:27)
-04. Ava Max - Sweet but Psycho (3:05)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:51:15
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA684F327E5248E061D9EC3FF0B4A9F21AD81418
+magnet:?xt=urn:btih:15F81BB17C74C0C78B9EB51BA3BB0913A28FFEF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,28 +216,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506574   (799129) от 02.11.2021
+###  Публикация: 1508751   (796923) от 09.11.2021
 
-VA - Halloween Party (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
+MovieSherlock 6.3.3 [En]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799129.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bobby 'Boris' Pickett & The Crypt-Kickers - Monster Mash (3:11)
-02. Rockwell - Somebody's Watching Me (Single Version) (3:55)
-03. Lady Gaga - 911 (2:51)
-04. Stevie Wonder - Superstition (4:27)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 01:20:39
+MovieSherlock - это все-в-одном YouTube-загрузчик и конвертер. Это позволяет вам искать, загружать и конвертировать фильмы YouTube. MovieSherlock позволяет загружать видео быстро, плавно и без потерь качества!
+MovieSherlock - это лучший способ получить видео на ваш Mac.
+MovieSherlock позволяет загружать любое видео с YouTube и конвертировать его на вашем Mac в высококачественное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: © 2021 Capibara Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02482DCBECE6E61C73AAB0FD6B7ED26D5C35F124
+magnet:?xt=urn:btih:B216AFA32F2DAB7D4CA898B4626D325C5D7B9273
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,26 +244,139 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506905   (799130) от 02.11.2021
+###  Публикация: 1508679   (796924) от 09.11.2021
 
-Cinch 1.2.4 fix [En]
+VA - Airport Lounge, vol. 5 (2019) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rex Kramer - Feeling Great (5:03)
+02. Dub Mars - You Give Me the Honor (4:19)
+03. Jens Buchert - Sleepwalker (5:02)
+04. Relaxea - Sunshine Delight (7:18)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D56028CC3010F8C253964B5AD8044AAB7F49DAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508672   (796925) от 09.11.2021
+
+VA - Airport Lounge, vol. 7 (2016) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Openzone Bar - Lifestyle (Original Mix) (5:32)
+02. Lemongrass - Le Coup (Original Mix) (4:39)
+03. Counterweight - Laws Of Attraction (Original Mix) (4:41)
+04. Mara J Boston - Come Into My Life (Original Mix) (5:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D2A814D3560553A87CDD7EB7F622C319164CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508693   (796926) от 09.11.2021
+
+Tap Forms Organizer 5 v5.3.21 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tap Forms Organizer простое в использовании, абсолютно настраиваемое и очень мощное приложение. Tap Forms Organizer поможет вам отслеживать всю наиболее важную информацию вашей жизни. Tap Forms Organizer - настраиваемое приложение базы данных, оно разработано, чтобы удовлетворить Ваши уникальные потребности на работе, дома или в движении.
+Используйте Tap Forms Organizer (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2021Разработчик: Tap Zapp Software Inc.Поддерживаемая ОС: macOS 10.12 SierraЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7805C80F29BCFA19D09667B3F86F3967E9AD4FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508627   (796927) от 09.11.2021
+
+Wraith - Riot (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russian Roulette
+02. Riot
+03. Cursed
+04. You've Got It Comin'(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C770E8B177E0A79FE002319F003E5DCFC5A981FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508636   (796928) от 09.11.2021
+
+Caato Time Tracker Pro 1.1.9 [En]
 
 >>Программы для macOS
->>Утилиты для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799130.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cinch дает вам простой способ управлять окнами на Mac с помощью мышки, перетаскивая окна приложений в «горячие зоны» экрана. Перетащите окно, когда курсор мыши попадет в одну из таких зон, отпустите клавишу мыши.
-Cinch придется по вкусу тем, кто много и часто работает с несколькими открытыми окнами. Это может быть: окно браузера и текстовый редактор или пару окон (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.10.2019Разработчик: © Irradiated Software, LLC.Поддерживаемая ОС: macOS 10.6.6+Язык интерфейса: Английский
+Caato Time Tracker использует трехуровневую иерархию проектов, задач и подробных записей времени. Вы можете добавлять, удалять или редактировать записи на каждом уровне для максимальной гибкости. CSV-Export позволяет легко создавать отчеты с помощью вашего любимого приложения для работы с электронными таблицами.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 CS Software Consultancy LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10BCC999074A731A006DF5091D95583D6D08EAF1
+magnet:?xt=urn:btih:0CD3685A223F3C7EAA5EB61F7F0B14098C8E9D80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,26 +384,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506909   (799131) от 02.11.2021
+###  Публикация: 1508648   (796929) от 09.11.2021
 
-Things 3 v3.15.5 [Multi/Ru]
+Cookie 6.6.2 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799131.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: © 2021 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2021Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6902A8D8598FF76072FA3B1FD7A644219F31FB83
+magnet:?xt=urn:btih:27AFDF92A52BB3C84A3890FAC6C2D2B6E1FCDD19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +411,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506270   (799132) от 02.11.2021
+###  Публикация: 1508674   (796930) от 09.11.2021
 
-Tiësto - Musical Freedom Radio October (2021-10-16) [MP3|320 Kbps] <Electro House, Big Room>
+VA - Airport Lounge, vol. 8 (2016) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799132.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tiesto & Karol G - Don't Be Shy
-02. Kiko Franco & Bruno Be - Friday Night (It's Not Right)
-03. Mr. Belt & Wezol ft. Yasmin Jane - Broken Moonlight
-04. KREAM & Millean. ft. Bemende - What You've Done To Me(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:59:12
+01. Lazy Hammock - Fading Into Oblivion (5:59)
+02. Weathertunes - The Snake (4:13)
+03. Mindel - Butterfly (2:22)
+04. Omaya - Whisper (3:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:44:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08FEBD48A557495DA48C3DF79955608130343C1A
+magnet:?xt=urn:btih:4E0FB0509D9180F916F965BD49BCEEB9140661B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,25 +440,280 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506965   (799133) от 02.11.2021
+###  Публикация: 1508658   (796931) от 09.11.2021
 
-Wipr – Ad and Tracker Blocker 1.29 [En]
+VA - Airport Lounge, vol. 2 (2014) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axel B. - Piano Theme (3:47)
+02. Twentyeight - Hope (8:44)
+03. Thomas Lemmer, Lena Belgart - Is It Too Late (Classic Piano Mix) (3:41)
+04. Ambiworx - Gushanzhen (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870D6B9987DF7DBC1E2047AB783A3E4E20D371DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508687   (796932) от 09.11.2021
+
+VA - Airport Lounge, vol. 11 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tapelapse - Skyline Coffee (2:20)
+02. Velvet Dreamer, Tim Gelo - Strange Passenger (Original Mix) (5:03)
+03. Jo Paciello - Central Park Lounge (Original Mix) (4:43)
+04. Tapelapse - Benztown Lo-Fi (3:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED30A144D8DFF4F234B93CF41CDF99B8FD95BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508663   (796933) от 09.11.2021
+
+VA - Airport Lounge, vol. 4 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Lemmer - Rainy Day (Percussion Chill Mix) (3:00)
+02. Taron-Trekka - Lo-Fi Autumn (5:34)
+03. The Diventa Project - Say Goodbye (Surya Vox Mix) (3:34)
+04. Axel B. - Tomorrow (2:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A083349EBC3497E97D15798C24905B062721A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508666   (796934) от 09.11.2021
+
+VA - Airport Lounge, vol. 5 (2014) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B & W - Spirits (4:43)
+02. Daniele Soriani, Adriana Salvadori - Silk (D-Soriani Chilly Mix) (6:54)
+03. Ambiworx - Bamboo and Ebony (7:00)
+04. Alpha Centaury - Natale 2012 (1:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7564482CAD932CDCA23324BC7F7FD021262F550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011302   (796935) от 27.04.2016
+
+Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giordano: Andrea Chenier: La Mamma Morta, Atto III 04:56
+02. Spontini: La Vestale: O Nume Tutelar, Atto II 02:32
+03. Massenet: Manon: Je Ne Suis Que Faiblesse...Adieu, Notre Petite Table, Acte II 03:23
+04. Puccini: Manon Lescaut: Oh, saro la piu bella....Tu, tu amore?, Atto II 08:26(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45301CB05F6DB3944589E2F9B714EFF5708F890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010750   (796936) от 27.04.2016
+
+А.С. Дмитриев и др. | Генерация хаоса (2012) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Явление динамического хаоса, открытое в последней трети двадцатого века, широко распространено в природе и искусственных системах. Его необычные свойства буквально перевернули обычные представления о том, что малые возмущения или события могут приводить лишь к незначительным изменениям в будущем. Оказалось, что все может быть с точностью до наоборот ("эффект (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090A5789942A624C970A05F96C68D6EEB59835A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011403   (796937) от 27.04.2016
+
+SmartAlbums 2.0.12 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799133.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wipr блокирует всю рекламу, трекеры, майнеры криптовалюты, файлы cookie ЕС и уведомления GDPR, а также другие неприятности, поэтому вы можете сосредоточиться на важном для вас контенте при использовании Safari.Тип издания: macOS SoftwareРелиз состоялся: 22.10.2021Разработчик: © 2021 Giorgio CalderollaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+Альбомы: теперь легко
+SmartAlbums является революционным программным обеспечением, которое позволит создавать фотоальбомы быстро и весело! Простота установки, экономя время и творчество!
+
+Экспериментируйте с дизайном, перемешайте и размещайте фотографии ... Используйте готовые шаблоны или используйте возможность создать свой собственный. SmartAlbum, создан фотографами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 апреля 2016Разработчик: PIXELLUПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00C4738F422CD256BD84B56B7BA0B142D1D6D380
+magnet:?xt=urn:btih:13CB5C4E1849B6FB7CFB14CB56D0EA1A211DEBC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011505   (796938) от 27.04.2016
+
+Avast Clear 11.2.2738.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда невозможно полностью удалить антивирус Avast стандартным способом - с помощью компонента панели управления «Установка и удаление программ». В этом случае можно воспользоваться фирменной утилитой для удаления Avast.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C460B052DA66DE297B4611377501F9AF512DA7CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011433   (796939) от 27.04.2016
+
+Однажды в России (2016.04.24) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 2)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5701D8A8C888400753AB47BE8AE0464BD5CCE8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199997   (796941) от 19.01.2018
+
+VA - Intimate Piano - Body & Soul (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henry Mancini & Orchestra - As Time Goes By (2:25)
+02. Gordon Langford & Orchestra - Body & Soul (2:37)
+03. Bill Synder - Cocktails for Two (2:52)
+04. Roger Williams - Dream a Little Dream of Me (3:12)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383AD32493426188965237095B41157FA79499D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,23 @@
-###  Публикация: 1203111   (788647) от 01.02.2018
+###  Публикация: 1386640   (786538) от 07.06.2020
 
-Журнал | 5 Колесо №2 (298) (февраль 2018) [PDF]
+Не покидай (1989) DVDRemux
 
->>Автомобили
->>Автомобильные журналы
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788647.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"5 колесо" - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей.В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+В результате заговора прежние король и королева погибли на охоте и на троне оказался любитель лошадей и глуповатый солдафон (Невинный), а правит страной коварный канцлер (Филозов) со своей женой. В стране настали тяжёлые времена: искусство в опале, тюрьмы полны, процветают торгаши и серость.
+У короля и королевы (Федосеева-Шукшина) есть дочь - в принципе добрая , (   Читать дальше...   )Производство: СССРЖанр: Семейный, Комедия, ПриключенияРежиссер: Леонид НечаевАктеры: Игорь Красавин, Варвара Владимирова, Светлана Селезнева, Артем Тынкасов, Владимир Ставицкий, Елена Антонова, Вячеслав Невинный, Лидия Федосеева-Шукшина, Альберт Филозов, Регина Разума, Юрий Багинян, Александр Денисов, Леонид Нечаев и проч.Субтитры: отсутствуютПродолжительность: 02:20:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04C8815EF219E914978C6316FE9AC710BBF8CFD4
+magnet:?xt=urn:btih:2A5269665F1915C0C8B6880C91B8E56BBCD07924
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203044   (788648) от 01.02.2018
+###  Публикация: 1388641   (786539) от 07.06.2020
 
-VA - Terra Firma: Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+Двоечница (Двоечница Гяру) / Birigyaru / Flying Colors / Biri Gyaru (2015) BDRip [H.264/720p] [MVO]
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788648.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pulsate & Nexus & Tight - No Grudge (05:08)
- 02. Nemy & Missing - Did To Me (05:31)
- 03. Low:r - Pushing Back the Tide (feat. Carl Petros) (05:35)
- 04. Horton & Telomic - Ingrained (04:54)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:30:32
+Бири гяру — так в Японии называют школьниц, которые красят волосы, подгибают юбки и не особо горят желанием учиться. Знания Саяки соответствуют уровню ученика четвёртого класса, поэтому во время летних каникул девушка поступает в частную школу, чтобы подтянуться в учёбе. Благодаря учителю Цуботе она оставляет прежние привычки и начинает упорно учиться, приобретя (   Читать дальше...   )Производство: Япония / Asahi Shimbun, CBC Television, DentsuЖанр: ДрамаРежиссер: Нобухиро ДоиАктеры: Касуми Аримура, Нанами Абэ, Морио Агата, Ацуси Ито, Хонами Курасита, Аири Мацуи, Риэ Минэмура, Ясухи Накамура, Сюхэй Номура, Юхэй ОтидаПеревод: Многоголосый любительский (Колобок & XDUB DORAMA)Субтитры: Английские, китайские, польские, французскиеПродолжительность: 01:56:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D657846C636F70B650B29199E69D970184AB419
+magnet:?xt=urn:btih:012CA72BAA31CE92F486A9A1093C49BF2A7A2F3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203363   (788649) от 01.02.2018
+###  Публикация: 1388651   (786540) от 07.06.2020
 
-X Ray Connection - X Ray Connection (1984) LP [MP3|320 Kbps] <Electronic, Electro, Disco>
+Выбор матери (2019) WEBRip (сезон 1, серии 1-16 из 16)
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788649.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shoot (Special Video Version) (5:58)
-02. Escape From Space (6:56)
-03. No More Communication (5:33)
-04. Replay (5:21)(   Читать дальше...   )Жанр: Electronic, Electro, DiscoПродолжительность: 00:37:57
+Узнав, что восьмилетняя Инна подвергается истязаниям и может погибнуть от рук отчима и родной матери, школьная учительница Елена решает защитить девочку. После безуспешных обращений к властям она понимает, что никто, кроме нее, не сможет спасти ребенка от гибели.. .Производство: Украина / Компания "Artforms Production"Жанр: драмаРежиссер: Мила ПогребискаяАктеры: Валерия Ходос, Ева Шевченко-Головко, Ада Роговцева, Артемий Егоров, Ольга Радчук, Анастасия Цымбалару, Светлана Зельбет, Олеся Островская, Александр Сугак, Константин Данилюк и др.Язык озвучки: русскийПродолжительность: ~00:48:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7460279D004920D4A8D45A80CD971AA90D3294EC
+magnet:?xt=urn:btih:184E0C23BAC57A107485E27D247C998FA7984D96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +77,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203268   (788650) от 01.02.2018
+###  Публикация: 1324377   (786541) от 07.06.2020
 
-VA - Italo & Space Vol.50 Ultimate Party (2018) [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobeat>
+Neuroq - Discography 6 Releases (2016-2020) Muz-Flame, Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Psychill, Progressive Trance>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788650.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  DJ KramniK  -  Disco Magic 3  4:11
-02.  Alex Rasov  -  I Have A Dream  4:46
-03.  Michael Rimini  -  Stranger In My Heart  5:28
-04.  Hypnotix  -  Star Gates  4:20(   Читать дальше...   )Жанр: Italo Disco, Spacesynth, EurobeatПродолжительность: 03:35:28
+01. Maheswara Mantra (06:01)
+ 02. A Forest Is My Temple (09:37)
+ 03. Dual Spirituality (10:14)
+ 04. Silent Knowledge (06:44)(   Читать дальше...   )Тип издания: WebЖанр: Psybient/Downtempo/Ambient/Progressive TranceПродолжительность: 04:33:56 •
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:737C1553A42D8E231481F52F94BC619EDD35D60A
+magnet:?xt=urn:btih:1EE7063D8DF0F001F9C56DD1C38DE89E3AB5B50F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203102   (788651) от 01.02.2018
+###  Публикация: 1371858   (786542) от 07.06.2020
 
-VirusKiller Antivirus (ранее Endurance Antivirus) 4.1.6 [En]
+Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. | Не люблю боль, поэтому собираюсь вложить всё в защиту [ТВ-1] [2020, TV, 12 эп.] BDRip 1080p raw
 
->>Архив торрентов
->>Архив 4Apple
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788651.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Endurance Antivirus - Adware & Malware антивирус.
-" ... проведенное исследование группы независимых разработчиков, в области антивирусной безопасности, - атаки на системы с macOS в 2017 г. увеличились на 78% (что несомненно говорит, о все растущей популярности компьютеров Mac)."
-
-Приложение тщательно сканирует все файлы и папки в вашей системе. Уникальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2018Разработчик: EDELWEISS SRLПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+А вы слышали о неубиваемом новичке из NEWWORLD ONLINE, популярной VRMMO? Против неё не работают никакие атаки, а своим убийственным ядом она косит и монстров, и игроков. За необычную тактику её прозвали Ходячей Крепостью и Последним Боссом. И самое главное, в жизни это милая девчонка, едва знакомая с игрой! Ник у неё, кстати, «Мэйпл» и к NWO она подключилась совсем (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, комедия, фэнтезиРежиссер: Онума СинПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD7B07D09CC6ED9ADDC3E6F5E14EE7A1908F8009
+magnet:?xt=urn:btih:1FBF48A36D7ABC912717B20E13C7A63167406B62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,25 +132,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203338   (788652) от 01.02.2018
+###  Публикация: 1382444   (786543) от 07.06.2020
 
-Фёдор Чистяков - Нежелательная песня (2018) Single [MP3|320 Kbps] <Rock>
+Неукротимые сердца / All the Pretty Horses (2000) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое молодых ковбоев — Джон Грэди Коул и Лэйси Роулинс — покидают родной Техас ради поиска приключений и новых друзей в Мексике. И, конечно, с легкостью находят и то, и другое в этом красивом и суровом краю. Там, в прериях, где пасутся стада прекрасных диких мустангов, Коул безоглядно влюбляется в дочь богатого ранчеро. Но связь гринго и мексиканки — это табу.
+Не (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Miramax FilmsЖанр: Драма, мелодрама, вестернРежиссер: Билли Боб ТорнтонАктеры: Мэтт Дэймон, Пенелопа Крус, Генри Томас, Анхелина Торрес, Дж.Д. Янг, Лаура По, Сэм Шепард, Роберт Патрик, Лукас Блэк, Ивет ДиазПеревод: Многоголосый профессиональныйСубтитры: русские (полные), английские (полные)Продолжительность: 01:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AC2BFA96E7EC620D98E59DCF4BA90EE809157D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388647   (786544) от 07.06.2020
+
+VA - Shoot To Thrill A 2020 Legends Tribute To AC/DC (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788652.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Нежелательная песня (Медведи)Жанр: RockПродолжительность: 00:05:07
+01. Keri Kelli, Richard Kendrick, Chris Wimple, Lyle Muncy - Highway to Hell
+02. Sheldon Tarsha, Richard Kendrick - Back in Black
+03. Hells Belles - Rock & Roll Damnation
+04. Damon Johnson, Derrick LeFevre, Richard Kendrick, Chris Wimple III - Dirty Deeds(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 01:11:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20CCAD09CD005889295C17EA384FB5C33EB44D2C
+magnet:?xt=urn:btih:FFF757A23E5E6A1A18F1D87615C6A5232A924079
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +188,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203137   (788653) от 01.02.2018
+###  Публикация: 1388681   (786545) от 07.06.2020
 
-VA - Empire Records - Retromania 8 (2018) [MP3|320 Kbps] <Italo Disco>
+Антон Власкин | Японская нечисть. Ёкай и другие (2019) [FB2]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788653.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Danger Mode - Crime Wave
-02. Tove Lo - Disco Tits
-03. Ace, Hannah Williams - No Victim Song (Original Mix)
-04. Search DiP - Trapping You Again(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:52:48
+По убеждению японцев, леса и поля, горы и реки и даже людские поселения Страны восходящего солнца не свободны от присутствия таинственного племени ёкай. Кто они? Что представляет собой одноногий зонтик, выскочивший из темноты, сверкая единственным глазом? А сверхъестественная красавица, имеющая зубастый рот на… затылке? Всё это – ёкай. Они невероятно разнообразны. (   Читать дальше...   )Жанр: Культурология, ФольклорФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E0881C3C64FBC5D1FDA856532A18DF957799FF7
+magnet:?xt=urn:btih:462F960BEB5EBD401D6B328D883267D32E11F65E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +214,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203023   (788654) от 01.02.2018
+###  Публикация: 1388677   (786546) от 07.06.2020
 
-Tiny Moving Parts - Swell (2018) [FLAC|Lossless|tracks] <Alternative>
+Запасной выход (Потайная дверь) / Piso porta / Backdoor (2000) DVDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786546.jpg" />
+</div>
+
+
+###  Подробнее
+
+13-летний Димитрис живёт с любимым отцом, но тот внезапно умирает, узнав, что новое Правительство решило заблокировать постройку лучшего проекта всей его жизни — двенадцатиэтажного дома в центре Афин. Его мать, красивая, но хрупкая женщина, растеряна. Ей не на кого опереться и поэтому она постоянно повторяет сыну, что тот теперь должен стать главой домашнего хозяйства. (   Читать дальше...   )Производство: Греция, Франция, Румыния | Alpha TV, FilmNet, Filmex, Filmiki Etairia, Greek Film Center, Ideefixe Productions, JBA Production, Rosebud, Stefi S.A., TNTЖанр: драмаРежиссер: Йоргос ТсемперопулосАктеры: Констандинос Пападимитру, Alexandriani Sikelianou, Haris Sozos, Иэроклис Михаэлидис, Антонис Кафедзопулос, Margarita Anthidou, Vassiliki Deliou, Yorgos Kalaitzis, Ставрос Псиллакис, Alexandros TsakirisПеревод: Одноголосый любительскийСубтитры: Русские (San-ya)Продолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0833A16364B56F0C5E449374FAE62653AEED8009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388519   (786547) от 07.06.2020
+
+Blender Cloud | Создание морского чёрта в Blender 2.81 / Anglerfish (2019) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот образ был навеян удивительным глубоководным существом - морским чёртом. Проследите за пошаговым процессом создания от первых начальных скульптурных каракулей до окончательного рендеринга в Eevee. Семинар включает в себя примерно 7 часов прокомментированных видеороликов, финальный рендер и все исходные файлы.Производство: Blender CloudЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 06:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559FD80CCA8C9908F4B68127F6E72A8E597E8AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388640   (786548) от 07.06.2020
+
+GridinSoft Anti-Malware 4.1.47.4953 RePack & Portable by 9649 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786548.jpg" />
+</div>
+
+
+###  Подробнее
+
+GridinSoft Anti-Malware - антивирусная утилита, разработанная специально для удаления вредоносных программ без необходимости вручную править системные файлы и реестр. Обнаруживает и удаляет: шпионское и рекламного ПО, ПНП, трояны с удаленным доступом, интернет-черви. Она удаляет дополнительные системные изменения, которые осуществляют некоторые вредоносные программы, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B243A9325043DA985D33C47304DF3027736BD9F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388654   (786549) от 07.06.2020
+
+Rockopera - Tribute to Pink Floyd The Wall Live Orchestra (2013) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788654.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Applause
-2. Smooth It Out
-3. Feel Alive
-4. Caution(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:31:57
+01. In the Flesh?
+02. The Thin Ice
+03. Another Brick in the Wall, Pt. 1
+04. When the Tigers Broke Free(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF74D9E12EDC02DD3315268B96395C0A780F7A63
+magnet:?xt=urn:btih:98CF60D5355C924752D2D278706750294991FE2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,25 +321,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203120   (788655) от 01.02.2018
+###  Публикация: 1388676   (786550) от 07.06.2020
 
-Газета | Народный совет №4 (январь 2018) [PDF]
+Приключения Марка Твена / The adventures of Mark Twain (1985) BDRip [H.264/720p]
 
->>Журналы
->>Другие журналы
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788655.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
+В этом полнометражном анимационном фильме, основанном на историях Марка Твена, рассказывается о приключениях Тома Сойера, Бекки Тэтчер и Хака Финна, отправившихся в путешествие на межпланетном воздушном шаре Марка Твена.Производство: США, Will Vinton Productions, Harbour Town FilmsЖанр: мультфильм, фантастика, фэнтези, приключения, семейный, полнометражныйРежиссер: Уилл ВинтонАктеры: Джеймс Уитмор, Мишель Мариана, Гари Круг, Крис Ричи, Джон Моррисон, Кэрол Эдельман, Даль МакКеннон, Херб Смит, Марли Стоун, Вилбур Винсент и др...Перевод: Дублированный, профессиональный закадровыйСубтитры: Русские, английскиеПродолжительность: 01:26:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C09EEEF6B5BBB13D00493AEE26758F753D18A3C
+magnet:?xt=urn:btih:D6EB83E1ED9E9FDA659079C4955B37E376E7D1E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,28 +347,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203360   (788656) от 01.02.2018
+###  Публикация: 1388622   (786551) от 07.06.2020
 
-Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Смешанная эстафета (28.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Ниндзя из Беверли Хиллз / Beverly Hills Ninja (1997) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ниндзя — таинственный, пугающий и очень хитрый воин тьмы, который ничего не боится и не поддается контролю. Таким хотел видеть своего приемного сына наставник ниндзя, случайно подобрав младенца в лесу. И хотя из него и вырос толстый болван, он все равно должен стать воином и выполнить миссию ниндзя — вызволить из беды голливудскую красотку.
+Но здесь, в Беверли Хиллз, (   Читать дальше...   )Производство: США / TriStar Pictures, Beverly Hills Ninja Productions, Motion Picture Corporation of America (MPCA)Жанр: Комедия, боевикРежиссер: Деннис ДуганАктеры: Крис Фарли, Николетт Шеридан, Робин Шоу, Натаниель Паркер, О Сун-тхэк, Кит Кук, Крис Рок, Франсуа Чау, Дэйл Исимото, Дэминг ЧенПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00765624F643706C10FAA3070B7E868BF67D65AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388793   (786552) от 07.06.2020
+
+Aiseesoft Blu-ray Player 6.6.28 Repack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788656.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-28 января 2018 года, воскресенье. 17:00 МСК
-Открытый чемпионат Европы по биатлону 2018 года. Риднау-валь-Риданна (Италия)
-Смешанная эстафета 2x6 + 2x7,5 км
-Арена: Риднау (Риднау-валь-Риданна, Италия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:12:26
+Aiseesoft Blu-ray Player - универсальный в работе "все в одном", медиа проигрыватель для PC. Он способен воспроизвести разные Blu-ray диски с очень высоким качеством. Этот удивительный плеер, может воспроизводить не только blu-ray диски, но и все популярные видео и аудио форматы, а также ISO-образы. Он надежен и прост в применении.Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16F08359418F6351CC777400CEFFD4EB75D43062
+magnet:?xt=urn:btih:63ECA4B550D0C45C82A94FA6CB7298560FCBFFAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,86 +400,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203211   (788657) от 01.02.2018
+###  Публикация: 1388732   (786553) от 07.06.2020
 
-VA - Aly & Fila - Future Sound of Egypt 533 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FSOE Radio — FSOE 533 Intro
-02. Andre Absolut — Momentum Milani (Original Mix)
-03. Microtrauma — Vona 1.2 (Original Mix)
-04. Filter Bear — Never In (We Need Cracks Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB7D3BB9AF618D2793DF7E4A46355A830961A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203150   (788658) от 01.02.2018
-
-VA - Empire Records - Classic Disco 4 (2018) [MP3|320 Kbps] <Nu Disco, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Modell & Mercier  -  Electrika (Fashion Lovers Mix)  3:07
-02.  Tom Funk feat. Saucy Lady  -  Disco Town (Do The Right Thing Remix)  3:16
-03.  Gigamesh & Gavin Turek  -  I'd Do It Again  3:34
-04.  Flight Facilities  -  Sunshine (feat. Reggie Watts)  4:53(   Читать дальше...   )Жанр: Nu Disco, Deep HouseПродолжительность: 03:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10CC2D1D499BCD57D60CD60976924D787678E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203352   (788659) от 01.02.2018
-
-Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Супермикст (28.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Free Download Manager 6.10.0.3016 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788659.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-28 января 2018 года, воскресенье. 15:00 МСК
-Открытый чемпионат Европы по биатлону 2018 года. Риднау-валь-Риданна (Италия)
-Супермикст
-Арена: Риднау (Риднау-валь-Риданна, Италия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:47:18
+Free Download Manager — программа, которая сочетает в себе свойства менеджера загрузок и оффлайн браузера, т.е. позволяет скачивать не только отдельные файлы, но и веб-сайты целиком для их последующего просмотра без подключения к Интернету.
+Free Download Manager обладает практически всеми необходимыми для подобных программ возможностями, включая не только стандартную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AC370BC2166A3BDD1C608827739580F8E3AD9FB
+magnet:?xt=urn:btih:CA17177FD619810374DCF5CBDBE2217C54A7DE6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,25 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203361   (788660) от 01.02.2018
+###  Публикация: 1388697   (786554) от 07.06.2020
 
-Газета | Сезон у дачи №2 (255) (Январь 2018) [PDF]
+VA - Избранные классические произведения (2011) [MP3|128 Kbps]<Детская, Классика>
 
->>Журналы
->>Домоводство (журналы)
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788660.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+01. Mozart - Symphony No.40 g-moll KV 550. Allegro molto "NBC Orchestra, Arturo Toscanini" - 256 kbps
+02. Mozart - Symphony No.40 g-moll KV 550. Andante "NBC Orchestra, Arturo Toscanini" - 256 kbps
+03. Mozart - Symphony No.40 g-moll KV 550. Menuet. Allegro "NBC Orchestra, Arturo Toscanini" - 256 kbps
+04. Mozart - Symphony No.40 g-moll (   Читать дальше...   )Жанр: Детская, КлассикаПродолжительность: 03:14:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C11EA35E0FC153BD53C94D66B0063038994A9B0F
+magnet:?xt=urn:btih:0277F7E6921F7F94317FE36DBEED37A4ECCF3F50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,28 +456,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203162   (788661) от 01.02.2018
+###  Публикация: 1388670   (786555) от 07.06.2020
 
-Горные лыжи. Кубок мира 2017–2018. Кортина д Ампеццо (Италия). Женщины. Скоростной спуск (19.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Eraser 6.2.0.2988 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788661.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-19 января 2018 года, пятница. 12:15 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Кортина д Ампеццо (Италия).
-Женщины. Скоростной спускТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:19:59
+Программа для безвозвратного удаления данных с жесткого диска. Встраивается в контекстное меню и позволяет удалять без возможности восстановления как отдельные файлы и папки, так и целые разделы. Eraser переписывает выбранную область данных с помощью различных матриц случайных данных. Работает с любыми приводами и файловыми системами FAT16, FAT32 и NTFS.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82CE7DA0CC4B066D178537870AF42AE21966609F
+magnet:?xt=urn:btih:3F511EE788D8304D30796A86475465386D03A5AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,115 +482,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203349   (788662) от 01.02.2018
+###  Публикация: 1388652   (786556) от 07.06.2020
 
-VA - 120 Progressive Trance Selections (2018) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788662.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cosmic Gate & Sarah Lynn - Folded Wings
-002. Kaimo K, Cold Rush & Sarah Russell - Angel Fly
-003. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
-004. Aadagio feat. Anya - Elements (John Aidan Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 10:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921EA9C7214C9E1BBFED4E73967C32091705E3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203155   (788663) от 01.02.2018
-
-VA - Aurora Borealis Chillout 1 (2018) [MP3|320 Kbps] <Chillout, Instrumental, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Zierke  -  Memories (Instrumental Version)  2:38
-02.  Duplicity  -  Matte White Magic (Original Mix)  6:04
-03.  Morris Jones feat. Kim Greene  -  Let It Flow (Radio Edit)  3:39
-04.  Andre Schluter  -  Miss You (Patricio AMC Remix)  4:16(   Читать дальше...   )Жанр: Chillout, Instrumental, AmbientПродолжительность: 02:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F05485BCBAC6CA684CB8D580E4BC68B5BBC6136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203239   (788664) от 01.02.2018
-
-VA - Chai Cafe (Early Morning Music For Awakening & Relaxation) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Phillipson – Spare A Thought 02:51
-02. Aleksandar Dimitrijevic – Illuminate No Drums Version 05:05
-03. Anaamaly – I Am Perfect Either Way 04:59
-04. Matt Starling – Music For Nina 07:28(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46330FC0DFBE60BFA0733DBE3ED5099373DC4B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203226   (788665) от 01.02.2018
-
-Morrissey - Bona Drag (1990) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+Block Group - A Tribute to Pink Floyd (2012) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788665.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Piccadilly Palare (03:27)
-02. Interesting Drug (03:28)
-03. November Spawned A Monster (05:25)
-04. Will Never Marry (02:22)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:46
+01. Money
+02. Another Brick in the Wall
+03. If
+04. On the Turning Away(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93D992D201567AF582C2E5B2DBE1B226FFFA9F27
+magnet:?xt=urn:btih:E3ED9279B1674AB7FDA7BBFE5CF578ADAF9289E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,28 +511,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203254   (788666) от 01.02.2018
+###  Публикация: 1388741   (786557) от 07.06.2020
 
-Горные лыжи. Кубок мира 2017–2018. Китцбюэль (Австрия). Мужчины. Скоростной спуск (20.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+Ольга Коротаева, Надежда Олешкевич | Игрушка дракона (2020) [EPUB]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788666.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 января 2018 года, суббота. 13:30 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Китцбюэль (Австрия).
-Мужчины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:14
+Я вздрагивала от омерзения от одной мысли: мне придется отдаться дракону. Эти твари, ценящие лишь свое золото, никому не прощали ошибок. Мой отец ошибся, и теперь вся семья под угрозой. Мы должны денег. Много денег. Оплатить такой долг мы не в состоянии, поэтому есть лишь один выход. Если я сейчас не решусь и не переступлю порог его спальни, моего отца отправят в (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D898D270368937985B396FDE5256BD34F954BB70
+magnet:?xt=urn:btih:9D6F0970236E3860812A9D83C8E2B4C35265B849
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,115 +537,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203166   (788667) от 01.02.2018
+###  Публикация: 1388704   (786558) от 07.06.2020
 
-Горные лыжи. Кубок мира 2017–2018. Китцбюэль (Австрия). Мужчины. Супергигантский слалом (19.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788667.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 января 2018 года, пятница. 15:00 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Китцбюэль (Австрия).
-Мужчины. Супергигантский слаломТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BDBBC34A30F69EC5FE4776DC574C843A90B7E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203081   (788668) от 01.02.2018
-
-VA - Deep House | Odyssey, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicolas Hannig – No Sleep | SoloWg Remix (06:32)
-02. Fynn – Altered State | Nils Hoffmann Remix (05:21)
-03. Mike Sulu – The Daywalker (06:09)
-04. Solee – Dromen | Reinterpretation (07:36)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D93FF85C07A9CE6BE205C8253F9094F010AB6D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203256   (788669) от 01.02.2018
-
-Lostly - Outburst presents Spotlight (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lostly – Since (Album Mix)
-02. Lostly – The Art of Acid (Album Mix)
-03. Lostly & Emma Gillespie – Nightwalker feat. Emma Gillespie (Album Mix)
-04. Lostly – Rage at the Stars (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EF9F4766BFDEB6EA8E6012858A61D4D8004437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203036   (788670) от 01.02.2018
-
-Booth And The Bad Angel - Booth And The Bad Angel (1996) [FLAC|Lossless|tracks] <Alternative Rock, Soft Rock>
+The Tibbs - Tribute to Pink Floyd (12 Classic Hits) (2014) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788670.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Believe (02:57)
-02. Dance Of The Bad Angels (04:34)
-03. Hit Parade (03:17
-04. Fall In Love With Me (04:19)(   Читать дальше...   )Жанр: Alternative Rock, Soft RockПродолжительность: 00:47:13
+01. Money
+02. Another Brick in the Wall
+03. If
+04. On the Turning Away(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B8DEE62511C44EB0F347B32EE6563CA0B4F7638
+magnet:?xt=urn:btih:CA7676FF6A90889A571BEBFC230D8A923FCB41FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,26 +566,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203167   (788671) от 01.02.2018
+###  Публикация: 1388743   (786559) от 07.06.2020
 
-Side Liner - Life Calculator (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
+Светлана Казакова | Город, где живёт магия (2020) [EPUB]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788671.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forgotten in a Train Seat (06:58)
-02. Life Calculator (06:36)Жанр: Downtempo, AmbientПродолжительность: 00:13:34
+Первый роман цикла «Город, где живёт магия».
+И дернуло же меня в тот день отправиться в Университет Магии, полить цветочки в аудитории! Даже подумать не могла, во что вляпаюсь. Я стала свидетельницей убийства нашего декана! Неизвестный применил к нему магию, в этом не может быть сомнений. Я явно слышала звуки борьбы, вжавшись в стену в своем укрытии и стараясь не (   Читать дальше...   )Жанр: Городское фэнтези, Любовное фэнтезиФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8EFC7779066BE2103E05F8F2B0D0FC96970567C1
+magnet:?xt=urn:btih:2901F5FE3FCF4C235FFE6EEC3B6B29A1B98CBA0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -709,25 +593,105 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203357   (788672) от 01.02.2018
+###  Публикация: 1388749   (786560) от 07.06.2020
 
-Газета | Сезон у дачи №1 (254) (Январь 2018) [PDF]
+Борис Соколов | Москва мистическая, Москва загадочная (2016) [EPUB]
 
->>Журналы
->>Домоводство (журналы)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788672.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+Москва – один из самых таинственных городов на свете. С ее историческими зданиями и проживавшими в них замечательными людьми связано большое количество легенд и преданий. В основе их, как правило, лежат конкретные исторические факты, но народная фантазия в своем полете обычно уходит от них очень далеко. В этой книге речь пойдет только о трех, но, пожалуй, самых знаменитых (   Читать дальше...   )Жанр: История, Культурология, КраеведениеФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A2ACABDA1617BB88E384EDF70CA3EA888BD0B04
+magnet:?xt=urn:btih:9C8D34E0569E6B0A75A884B814E8D3439FCFB4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388748   (786561) от 07.06.2020
+
+Михаил Вострышев | Москва Первопрестольная. История столицы от ее основания до крушения Российской империи (2016) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва – город особенный и неповторимый. Это первая, древнейшая столица нашей родины – это сердце России!
+За свою более чем восьмивековую жизнь Москва видела и нашествие завоевателей, и праздничные салюты побед, и казни предводителей народных восстаний, и революционные потрясения. В Москве история как бы окружает нас, каждый шаг вызывает в памяти ее отдельные страницы. (   Читать дальше...   )Жанр: Популярно об истории, История РоссииФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C10F384A0B24474D0F9EDDEAD2CAB3D332BE418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388730   (786562) от 07.06.2020
+
+Томас Сас | Фабрика безумия (2008) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем была психиатрия до падения Берлинской стены по обе стороны от нее и какие мрачные корни в глубине веков она имела, какова тираническая психология негодяев, претендующих на священное звание врачей вчера и сегодня, как оправдывалось насилие в отношении "козлов отпущения" в эпоху развитого индустриального общества, как и почему больницы стали средством (   Читать дальше...   )Жанр: Медицина, ПсихиатрияФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9D53F9EEA84080FD7D05A4ABB7CA6781ABE7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388751   (786563) от 07.06.2020
+
+Наум Синдаловский | История Петербурга в преданиях и легендах (2016) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами история Санкт-Петербурга в том виде, как её отразил городской фольклор. История в каком-то смысле «параллельная» официальной. Конечно же в ней по-другому расставлены акценты. Иногда на первый план выдвинуты события не столь уж важные для судьбы города, но ярко запечатлевшиеся в сознании и памяти его жителей…
+Изложенные в книге легенды, предания и исторические (   Читать дальше...   )Жанр: Культурология, История РоссииФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96335E9BA2C0AB7F712C0A4B08D2D79CD5B1E415
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1483645   (1006785) от 14.07.2021
+
+BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulearum (04:47)
+ 02. Callopsis (05:57)
+ 03. Protarum (06:31)
+ 04. Gorgonidium (06:14)Жанр: Ambient, TechnoПродолжительность: 00:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86141BD6EDC4445C58EF46D23C97F0A36FD266EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069080   (1006806) от 13.07.2021
 
 Richie Hawtin (Plastikman, F.U.S.E., Concept 1, Circuit Breaker, Forcept 1, Robotman) - Discography (1990-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Acid, Experimental, Ambient>
@@ -704,35 +733,6 @@ Sound Quelle - Trait (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F43961E2B41AAB61EB6D34EADBA6FE3C8FBB1AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147225   (1007680) от 07.07.2021
-
-iTAL tEK - Discography 27 Releases (2007-2020) Planet Mu [FLAC|Lossless|tracks+.cue, tracks] <IDM, Dubstep, Bass, Abstract, Juke, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Granite And Glass (02:02)
- 02. Seraph (03:40)
- 03. The Lake (03:02)
- 04. For You There Is No Time (02:24)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Dubstep, Bass, Abstract, Juke, Experimental •Продолжительность: 10:55:31 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D8A5EF7B3607FE4D626A00479ED66324C8C8EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

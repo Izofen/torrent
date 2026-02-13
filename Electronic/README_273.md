@@ -1,3 +1,32 @@
+###  Публикация: 1240111   (531398) от 09.08.2018
+
+VA - Infrasonic Summer Selection (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milad E – Intension (Extended Mix)
+02. Nikhil Prakash – Chasing Stars (Extended Mix)
+03. Athom & Nuestro – Space Odyssey (Extended Mix)
+04. Arggic – Dreamyness (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673570992842E06E7D112D7EF112F4FA76FE3F00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155697   (531572) от 04.08.2017
 
 VA - Armada Trice - Ibiza (2017) [MP3|320 Kbps] <House,Progressive House>
@@ -712,35 +741,6 @@ VA - Bass House 2019, Vol.2 (2019) [MP3|320 Kbps] <Bass House, Electro House, Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8FC8FA24CF8BF3AF68B98FFA1FFE5E3D4E8D234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149772   (534085) от 03.07.2019
-
-The Nautilus Project - Discography 16 Releases (2008-2016) ZeECc, Forest Roots [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Drone, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between Space & Place (18:22)
- 02. Docking Station (09:40)
- 03. Colliding Stars (03:06)
- 04. Between Space & Place (Lars Leonhard Remix) (06:56)Тип издания: CD, Web •Жанр: Dub Techno, Ambient, Minimal, Drone, Techno •Продолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3E1936F1C6B0ACC6EB0C71EBC9DED7A93F6089
 ```
 
 https://mybot314.ru/tekegram_catalog/

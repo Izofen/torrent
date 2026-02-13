@@ -1,3 +1,116 @@
+###  Публикация: 1335872   (284401) от 04.11.2019
+
+V.A. - Buddha-Bar By Sahale And Ravin (2019) 2CD [FLAC|Lossless|tracks + .cue] <Lounge, Chill Out>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1 - By Sahale:
+01. Sahale - Shramana
+02. Sahale - Sapana
+03. Samarana - Gaya(   Читать дальше...   )Жанр: Lounge, Chill Out |Продолжительность: 02:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D337AD055F427D91CD725E8A3F71A7DDB41C7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335548   (284406) от 04.11.2019
+
+Dynamic Illusion - Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284406.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Eternal Universe 05:17
+2. Renegade 06:51
+3. Jungle Footsteps 08:00
+4. Back To Life 06:28(   Читать дальше...   )Жанр: Psychill, Progressive Chill, DowntempoПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75595265582FC6E17E6355B924D24D042C99194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186914   (284413) от 26.11.2017
+
+Null+Void - Cryosleep (2017) [FLAC|Lossless|tracks + .cue] <Synth-pop, Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Down (feat. Black Rebel Motorcycle Club) (4:52)
+ 02. Into the Void (3:36)
+ 03. Asphalt Kiss (4:46)
+ 04. Where I Wait (feat. Dave Gahan) (5:13)(   Читать дальше...   )Жанр: Synth-pop, TechnoПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E7BC26743E95416682D9086D995E06F100395D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081358   (284455) от 09.12.2016
+
+Comedy Woman (2016.12.09) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-Шоу, юморСубтитры: ОтсутствуютПродолжительность: ~ 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030AC6139CA244CDF17063ECCF186EAD55FD2F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081223   (284460) от 09.12.2016
 
 Display Driver Uninstaller 17.0.4.0 [Multi/Ru]
@@ -577,117 +690,6 @@ Shapednoise - Aesthesis (2019) Numbers [FLAC|Lossless|WEB-DL|tracks] <Experiment
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC6C31D78BA703B47213974E6A0896CDE72965AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081441   (284598) от 09.12.2016
-
-Яндекс.Браузер 16.11.0.2680 Final DC 01.12.16 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DF1979CD82E47C5220DB56BB5613398F1E4B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081186   (284618) от 09.12.2016
-
-Children TV 37 [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Children TV Free - Коллекция мультфильмов для детей, когда либо выложенных на YouTube.
-Хорошо показывает даже при не очень хорошем качестве сети.Тип издания: Пиратка (Full)Релиз состоялся: 30 октября 2015 г.Разработчик: CyberWalkAbout.comПоддерживаемая ОС: Android 3.0 и вышеЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90241326CB58DB19A04CC71F1320CD136F07451F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081328   (284621) от 09.12.2016
-
-LSB - Content (2016) LP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lydian (feat. Millie Watson) (06:42)
- 02. Pandora (feat. Sense MC) (04:03)
- 03. Missing You (feat. Tyler Daley & DRS) (06:48)
- 04. The Optimist (06:02)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADEF26A0243693259AFBF9A4DDED32913D497A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081297   (284623) от 09.12.2016
-
-VA - Ibiza Flashback (The 2016 Season Highlights) (2016) [MP3|320 Kbps] <Minimal, Soulful, Tech House, Indietronica, Funky>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tensnake - Desire (Original Mix) 4:43
-02. Marc Romboy - Atlas (Gorge Remix) 7:23
-03. Ucha - Shosholoza (Original Mix) 7:33
-04. Hanne & Lore - Karma Supra (Original Mix) 6:29(   Читать дальше...   )Жанр: Minimal, Soulful, Tech House, Indietronica, FunkyПродолжительность: 06:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D046A71F94064000FA34589CEB04CCB9DE2AB4D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

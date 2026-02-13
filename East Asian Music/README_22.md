@@ -1,3 +1,38 @@
+###  Публикация: 613255   (981078) от 05.02.2013
+
+Hiromi Sano - Mood Sax Best of Sorrow (2CD) (2008) [MP3|320 кб/с]<Instrumental, Saxophone>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981078.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:01. I Drink
+02. The Inn Zankano
+03. Summertime Shiretoko
+04. Seto No Hanayome
+05. Town Blues
+06. Dotonbori Humanity
+07. Nagasaki Was A Rainy Day
+08. Naniwa Koi Shigure
+09. Love Tears
+10. Ice Storm(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0634D2B8B29BF776BEAEA36B5A1BEE049F163B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741501   (981909) от 04.01.2014
 
 Strawberry Path - When The Raven Has Come To The Earth (1971) Remastered 2007 [APE|Lossless]<Hard Rock/Psychedelic/Prog Rock>
@@ -810,38 +845,6 @@ VA - Crystal Avolokitesvara (2006) [MP3|320 кб/с]<New age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7F7B8F941050A8E9673C32CEB74B0E3A8FA36E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597393   (1000486) от 02.01.2013
-
-VA - Rose Quartz. The Rose Quartz Of Buddist (2005) [MP3|320 кб/с]<New age, Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000486.jpg" />
-</div>
-
-
-###  Подробнее
-
-(07:57) 1. The beauty of pink crystal
-(06:38) 2. I love pink crystal music
-(04:53) 3. Pink crystal. Please let me have it
-(05:39) 4. Clean elegant pink crystal
-(12:47) 5. The hope of crystal
-(06:38) 6. The pink crystal of buddist
-(05:43) 7. The happy pink crystalЖанр: New age, InstrumentalПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CD60B37100EDE7B66F5A0D74848FA6B96DB1CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

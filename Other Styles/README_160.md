@@ -1,3 +1,38 @@
+###  Публикация: 185154   (888065) от 21.03.2010
+
+Balkan Beat Box - Blue Eyed Black Boy (2010) [MP3|320 кб/с]<Electronica / Rock Gypsy / Balkans Folk / Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Move It
+03. Blue Eyed Black Boy
+04. Marcha De La Vida
+05. Dancing With The Moon
+06. Kabulectro
+07. My Baby
+08. Balcumbia
+09. Look Them Act
+10. Smatron(   Читать дальше...   )Жанр: Electronica / Rock Gypsy / Balkans Folk / EthnicПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 664037   (888094) от 01.04.2020
 
 VA - Relax With... 11 альбомов (1993-1997) [FLAC|Lossless|image + .cue] <Nature Sounds, Relax>
@@ -761,35 +796,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F103713C1019B82535EEBEBECB6758EDA0EB9522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994376   (891577) от 07.03.2016
-
-Gomer Edwin Evans - Mystical Eastern Beauty (2016) [MP3|320 кб/с] <New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystical Istanbul
-02. The Golden Horn
-03. Evening Prayer
-04. Orange Sky(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA92468514816D0B6B410B9B032C5725E6168DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

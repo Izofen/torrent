@@ -1,3 +1,67 @@
+###  Публикация: 1318174   (496405) от 05.08.2019
+
+Hugo Race - The best (1999-2019) Compilation Album [MP3|320 Kbps] <Blues rock, Dark blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Mess
+02. Blind Faith
+03. Bow & Arrow
+04. Coming Over(   Читать дальше...   )Жанр: Blues rock, Dark bluesПродолжительность: 02:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755E868AD459B6D5E729912983DC80933378C3D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543649   (496436) от 05.09.2012
+
+VA - Русский Avto Club Сентябрь (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пашуля - Ты и я (Fidel Wicked Radio DFM)
+02. Nikita - 20-12 (DJ Sergey Fisun Remix)
+03. Юлия Савичева - Москва-Владивосток (Rodion Gordin 2012 Swedish Refix Radio)
+04. Алисия & Влад Корса - Здесь и сейчас (Harisma Remix)
+05. Quest pistols - Ты так красива (DJ Vengerov Remix)
+06. Geegun & Жанна Фриске - Ты Рядом (DJ Stylezz Remix)
+07. Вика Гранд - Я Не Боюсь (Movskii & Karasev Remix)
+08. Тамерлан и Алена Омаргалиева - Hey Yo (DJ Amor Remix)
+09. Герои - Мое маленькое глупое сердце (Orehov Lite Remix)
+10. Настя Любимова - Что такое любовь (DJ Solovey Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37055D8463BC0280ABEE1C6E238E6BDF0420160C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936390   (496489) от 11.09.2015
 
 VA - Unexpected Journey (2015) [MP3|128 кб/с]<Dance, Aсoustic, Folk, Indie, Deep House>
@@ -702,69 +766,6 @@ VA - Record Super Chart 598 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0249AED84AC559C55FE461796454E59E6CB18D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318042   (497803) от 04.08.2019
-
-VA - German Top 100 Single Charts 09.08.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497803.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shawn Mendes & Camila Cabello - Señorita
-002. UFO361, RAF Camora - Nummer
-003. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68517B8307C2A83C819B3EB00AAEC5034B68AF7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540931   (498056) от 03.09.2012
-
-VA - Самый крутой клубный музон Vol.2 (2012) [MP3|320 кб/с]<Dubstep, House, Club, Trance, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaymo & Andy George - The Hump
-02. Example - Stay Awake
-03. Jorgensen & Rosie Romero - Magnetic (Delicious remix)
-04. OkayfeatJeza-DanielWanroo
-05. Jay T - Condemned
-06. Lucenzo & Qwote Feat. Pitbull - Danza Kuduro (R3Hab Remix)
-07. Josha & Romee - Be Ya (Alex Stein & Vogue remix)
-08. Kozlov - Race
-09. Lana Del Ray – Blue Jeans
-10. Skrillex - Ruffneck (FULL Flex)(   Читать дальше...   )Жанр: Dubstep, House, Club, Trance, ElectroПродолжительность: 08:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D16593CF41B843CE6F0C73E122588829F2460C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

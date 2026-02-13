@@ -1,3 +1,32 @@
+###  Публикация: 1176124   (369107) от 22.10.2017
+
+Lindsey Stirling - Warmer In The Winter (2017) Target Exclusive [FLAC|Lossless|WEB-DL|tracks] <Christmas, Classical Crossover, Jazz Crossover, Violin>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Of The Sugar Plum Fairy (2:38)
+02. You're A Mean One, Mr. Grinch (feat. Sabrina Carpenter) (2:46)
+03. Christmas C'mon (feat. Becky G) (3:49)
+04. Carol Of The Bells (2:45)(   Читать дальше...   )Жанр: Holiday, Christmas, Classical Crossover, Jazz Crossover, Easy Listening, Electronic, Instrumental, ViolinПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89793F5C2914CF27CA24CD21F65CCB4251C3A14E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254974   (370267) от 15.10.2018
 
 Rick Wakeman - Piano Odyssey (2018) [MP3|320 Kbps] <Modern Classical, Piano, Instrumental>
@@ -759,41 +788,6 @@ UNSER MUND SEI VOLL LACHENS, BWV 110
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E95E1B268B607AF7D061055825F4D3B8F5C4054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571361   (387616) от 07.11.2012
-
-Gerd Zacher - Mendelssohn, Brahms: Organ Works (2006) 2 SACD [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-
-MENDELSSOHN
-
-1. Organ Sonata 1 op. 65 - Allegro moderato e seriose - 5:40
-2. Organ Sonata 1 op. 65 - Adagio - 2:26
-3. Organ Sonata 1 op. 65 - Andante - 3:18
-4. Organ Sonata 1 op. 65 - Allegro assai vivace - 3:44
-5. Organ Sonata 2 op. 65 - Grave - 1:23
-6. Organ Sonata 2 op. 65 - Adagio - 2:26(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:32 + 00:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D257D8E227C0A246D10A5722C61B8D4DFE2955
 ```
 
 https://mybot314.ru/tekegram_catalog/

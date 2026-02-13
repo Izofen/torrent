@@ -1,3 +1,32 @@
+###  Публикация: 1366096   (925636) от 10.03.2020
+
+Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тёмного леса (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925636.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:29| 01. The Legend
+|01:46| 02. Bad Dream
+|03:33| 03. Beginning of Strange Things
+|01:19| 04. Everything Is Great(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAD2AFE36D6A679D0225379D648CD73C371EE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366095   (925662) от 10.03.2020
 
 Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тёмного леса (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -789,41 +818,6 @@ VA - Музыка любви (2008) [MP3|320 кб/с]<Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:722FE50DCDBDD9BE1EC586E48F7F263AF028C850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753753   (929789) от 09.02.2014
-
-Leonard Rosenman - Фантастическое путешествие / Fantastic Voyage (2014) [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Main Title - Sound Effects Suite
- 02 - The Proteus
- 03 - The Chart
- 04 - Pulmonary Artery
- 05 - Group Leaves
- 06 - Pleural Cavity
- 07 - Proteus Moving Through Sac
- 08 - Channel to Ear
- 09 - Cora Trapped
- 10 - Proteus in Inner Ear(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9836782156E0A4241F2D28A59875E6DB645FBBEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

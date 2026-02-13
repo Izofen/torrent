@@ -1,3 +1,32 @@
+###  Публикация: 1377018   (854787) от 20.04.2020
+
+Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Metal, Electro>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854787.jpg" />
+</div>
+
+
+###  Подробнее
+
+|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
+|05:33| 02. Mick Gordon - Cultist Base
+|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
+|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC05FB30D2C1B966AF5E7FF1041DB1E062F0C987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 190007   (854818) от 10.04.2010
 
 Henry Mancini - Revenge Of The Pink Panther / Месть розовой пантеры (1988) [MP3|320 kbps]<Jazz/Soundtrack>
@@ -785,35 +814,6 @@ E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F479CB6BCEFDF9387459139DDBC843AE63645C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999883   (859067) от 25.03.2016
-
-VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norwegian Mountains (O. Sevag) [03:37]
-02. Gala (Gala Gala) [04:52]
-03. Le Reve (M. Lepisto) [04:08]
-04. The Waves Of Life (Wimme) [04:09](   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7244863EBC84EB25F3BD28771BD9430DC24235
 ```
 
 https://mybot314.ru/tekegram_catalog/

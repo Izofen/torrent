@@ -1,3 +1,177 @@
+###  Публикация: 1359611   (961986) от 14.02.2020
+
+Орбита - Raketa (2002) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вот Такая Любовь [3:33]
+02. Что Же Делать [5:05]
+03. Нарисуй [4:09]
+04. Последний Раз [4:15](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270DA909B8F006B4A7E1B43822BB50825C80D013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978833   (962159) от 24.01.2016
+
+VA - Piano Music For Weddings (2011) [MP3|320 кб/с] <Pop, Easy listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've Only Just Begun (Stan Whitmire) (3:20)
+02. I Will Always Love You (Pat Coil) (5:02)
+03. The Wind Beneath My Wings (David Hamilton) (4:59)
+04. So This Is Love (The Cinderella Waltz) (David Huntsinger) (3:07)(   Читать дальше...   )Жанр: Pop, Easy listeningПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CBD9BECA0C7A2D1A47BADB75B0129D58BA0379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978563   (962512) от 24.01.2016
+
+Philippe Chatel - Renaissance (2016) [MP3|320 кб/с] <Chanson, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 heures du matin (2:49)
+02. L'absence (4:07)
+03. La fille dans la bouteille (3:03)
+04. Chanson du pere (2:26)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5836D223A03707FE1829C16D1F7C37119F704E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359704   (963092) от 13.02.2020
+
+VA - 100 Greatest Jukebox Hits (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Waterboys - The Whole Of The Moon (2004 Remaster) 4:59
+002. Bob Dylan - Like A Rolling Stone 6:10
+003. The Rolling Stones - Sympathy For The Devil 6:18
+004. Led Zeppelin - Whole Lotta Love (2012 Remaster) 5:35(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8813FEBA5B6076CAC0ACAC7FA6E16251128BCA19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359374   (963093) от 13.02.2020
+
+VA - Disco Disco Disco (1989) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buckbeats - Daydream (6:21)
+02. Den Harrow - Don't Break My Heart (8:26)
+03. Rouge - Loving Me Totally (5:23)
+04. Buckbeats - Dancing Through The Night (3:53)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C18AA5A497C796718F7D595921D7C2929B6282D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359815   (963162) от 13.02.2020
+
+Ihsan Al Munzer - Belly Dance Disco (1979) Reissue CD, 2020, BBE [MP3|320 Kbps] <Disco, Instrumental, Funk Soul, Folk, World>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girls Of Iskandariah (2:37)
+02. Night Entertainer (Azef El Layl) (2:24)
+03. The Joy Of Lina (Farha) (4:37)
+04. Dance Of Tenderness (4:06)(   Читать дальше...   )Жанр: Disco, Instrumental, Funk Soul, Folk, WorldПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90CA361CFD2BD4C2E8C9DC4B495B89F5565F1FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359982   (963264) от 13.02.2020
 
 Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -571,180 +745,6 @@ Deborah Harry - Debravation (1993) [APE|Lossless|image+.cue] <Pop Rock, Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13D39D2EC139BBCCD68826F783A4764C450CCFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977356   (966572) от 20.01.2016
-
-VA - Nonplusultra: Pop 90er (2007) 5CD Box-Set [MP3|320 кб/с]<Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых популярных песен 90-х годов прошлого столетия01. Bangles - Eternal flame (Album Version) (03:57)
-02. Crash Test Dummies - Mmm Mmm Mmm Mmm (03:54)
-03. Shabba Ranks feat. Chevelle Franklin - Mr. Loverman (Radio Mix) (03:39)
-04. TLC - Waterfalls (Single Edit) (04:12)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13AB26C57E55E933484BEF8232FEEA3121CFA42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977225   (966633) от 20.01.2016
-
-VA - Nonplusultra: Pop 80er (2007) 5CD Box-Set [MP3|192 кб/с]<Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых популярных песен 80-х годов прошлого столетия01. Bangles - Eternal flame (La flama enternal) (Album Version) (03:55)
-02. Marvin Gaye - Sexual healing (Album Version) (03:58)
-03. Cyndi Lauper - True colors (Album Version) (03:49)
-04. Terence Trent D'Arby - Sign your name (Album Version) (04:38)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977C9C8D94A107BD4AED84E15979AACA270FEE48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358754   (967133) от 09.02.2020
-
-Al Bano & Romina Power - Raccogli l'attimo (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raccogli l’attimo
-02. Per troppo amore
-03. La luce che hai
-04. Fuori pericolo(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28967F9C1FE420EB4E3A9F20CEA7E0C75971640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358673   (967225) от 09.02.2020
-
-VA - 100 Greatest One Hit Wonders (2020) [MP3|320 Kbps] <Pop, R&B, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967225.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Morrison - Return of the Mack
-002. Jet - Are You Gonna Be My Girl
-003. Shampoo - Trouble
-004. Deee-Lite - Groove Is in the Heart(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 06:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AA05C362783DB9288B0736618425C1680B26A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358825   (967310) от 09.02.2020
-
-VA - 100 Greatest Guilty Pleasures: Cheesy Pop Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967310.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Barenaked Ladies - One Week
-002. a-ha - Take on Me
-003. Limahl - Never Ending Story
-004. Deee-Lite - Groove Is in the Heart(   Читать дальше...   )Жанр: PopПродолжительность: 06:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3C59CFC96174A32C99E88D41D50224EC8B0366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976844   (967396) от 19.01.2016
-
-VA - Дискотека СССР - Сборник поп-музыки (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Михаил Муромов - Яблоки на Снегу (4:16)
-02. С.Васюта И Гр. 'Сладкий Сон' - На Белом Покрывале Января (5:26)
-03. Империя - Поезд на Ленинград (4:47)
-04. Рома Жуков - Я люблю вас, Девочки (4:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DC166CDB0E7D622F49DC82AE4F1B5060CB25FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

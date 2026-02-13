@@ -1,3 +1,32 @@
+###  Публикация: 1072432   (351831) от 13.11.2016
+
+Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtrack) (2016) [FLAC 2.0|48/24|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shells Landing (01:30)
+02. Around The Clock News (01:45)
+03. The Shell (03:12)
+04. Approaching The Shell (09:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE9BB24C397390DE7ADA3DF3CE5B08C58FEFD85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072077   (351835) от 13.11.2016
 
 Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -720,41 +749,6 @@ David Arkenstone - Desert Spa (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Rel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D035D8B1653ECFE080BBBED8487883AA1AB10E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206525   (355050) от 18.11.2013
-
-Behzad - 4 albums (1999 - 2007) [MP3|320 кб/с]<New age, Flamenco, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_355050.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:13) 01. Bemirid (Rumi)
-(3:58) 02. Love Stories
-(4:54) 03. Persian New Year
-(2:51) 04. Roots
-(4:38) 05. Exhausted
-(4:04) 06. Barbie
-(4:58) 07. If You Go a Way
-(4:03) 08. Tears & Sensations
-(6:00) 09. Rest On My Shoulders
-(4:19) 10. Trapped in the Darkness(   Читать дальше...   )Жанр: New age, Flamenco, FolkПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

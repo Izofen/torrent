@@ -1,261 +1,18 @@
-###  Публикация: 917218   (589575) от 11.07.2015
+###  Публикация: 1040238   (586438) от 05.08.2016
 
-Mozilla Thunderbird 38.1.0 Final [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AAB7BC36DB2AA0B34991EA80A27195DB1ADCD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917168   (589576) от 11.07.2015
-
-Dara Sedaka - I'm Your Girl Friend (1982)/2005/ [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Huggin' (04:10)
-02. Just Say I Love You (03:47)
-03. The Real Me (03:59)
-04. Keep Me In Love With You (04:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABE4B41DDBF5B94526B479577D0099D30135DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917389   (589577) от 11.07.2015
-
-VA - A State Of Trance Radio Top 20 - July (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marlo - Atlantis (Radio Edit) (02:56)
-02. Above & Beyond Feat. Zoe Johnston - Peace Of Mind (Myon & Shane 54 Summer Of Love Radio Mix) (03:13)
-03. Andrew Rayel Feat. Jonny Rose - Daylight (Radio Edit) (02:44)
-04. Cosmic Gate With Sarah Lynn - Sparks After The Sunset (Rafaеl Frost Radio Edit) (03:54)(   Читать дальше...   )Производство: Armada Music B.V.Жанр: TranceПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0250E6E8FC1CB9DA49D634F2D4C0E18F512A0B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917221   (589578) от 11.07.2015
-
-Алексей Олейников | Захвачены в бою. Трофеи русской армии в Первой мировой (2015) [PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга А.В.Олейникова подробно рассказывает о трофеях русской армии, захваченных в годы Первой мировой войны: о знаменах, броневиках и орудиях, добытых русскими солдатами на полях сражений. Особое внимание уделяется военнослужащим германской, австро-венгерской и турецкой армий, оказавшимся в русском плену. Сопоставляя различные документы, автор анализирует урон, (   Читать дальше...   )Жанр: История войнФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1870A49FEC8D29FCA70EE63607C4A854DEB2819D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917086   (589579) от 11.07.2015
-
-Т. Папендик, Б. Столповский | Пчельник на лесной поляне (1926) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как организовать приусадебную пасеку, существенно повысить, медосбор, предотвратить роение и болезни пчел, правильно подготовить пчелиные семьи к зимовке, перерабатывать и хранить продукты пчеловодства рассказывает эта книга.Жанр: Пчеловодство, обучающая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F3BA1E1728CEC5B42B54735D6CB168692DFEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916507   (589580) от 11.07.2015
-
-Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка NATIVE AMERICANS  на выступлении в The Red Road Ensemble с группой североамериканских аборигенов. Первоначально разработанный в качестве фона на документальном TBS, Робертсон вернулся  к своим корням, смешивая традиционные ритмы коренных со звуком фолк и кантри. Звукозаписывающие компании думали, что это слишком "нетрадиционные" для основного радио (   Читать дальше...   )01 -  Ghost Dance (W/ Red Road Ensemble)
-02 -  Mahk Jchi (W/ Ulali)
-03 -  Golden Feather (W/ Red Road Ensemble)
-04 -  Eagle Dance (American Indian Dance Theater)Производство: США, The Red Road EnsembleЖанр: Native American, FolkРежиссер: The Red Road EnsembleАктеры: Robbie Robertson, Pura Fe Crescioni, Soni Moreno, Jennifer E Kreisberg, Laura Satterfield, Priscilla Coolidge, Rita Coolidge....Продолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14AA2CECFA94FB8725DC0737A497C60B241F094D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917223   (589581) от 11.07.2015
-
-CocCoc 43.0.2357.136 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589581.jpg" />
-</div>
-
-
-###  Подробнее
-
-CocCoc Browser  - браузер от вьетнамской компании Cốc Cốc. Основан на открытом исходном коде проекта Chromium, и визуально очень похож на Google Chrome. Браузер имеет упрощенный дизайн, что позволяет пользователю полностью сосредоточить все внимание на содержимом страницы. Большинство задач браузера выполняются в единственном окне.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198969D773976BB2A7DF36D8E0FDB254A595EC03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917237   (589582) от 11.07.2015
-
-BurnAware Professional 8.3 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589582.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B18F58DAB4EDE37AE8CB9B623051B3FC8A9817F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917302   (589583) от 11.07.2015
-
-Обои - Розовые принцессы [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветы. Розовые принцессы.Формат: JPGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350719A3F499DD8768E7048081EAC2B006B0BCCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917284   (589584) от 11.07.2015
-
-Канадская команда становится победителем гонки самых экономичных автомобилей
+Данные, полученные утраченной обсерваторией Hitomi, указывают на то, что черные дыры выступают в роли "галактических регуляторов"
 
 >>Поговорим
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_589584.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_586438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Студенты из университета Лаваля (Universite Laval), Квебек, Канада стали победителями 36-го международного соревнования SAE Supermileage, в котором принимают участие самые экономичные автомобили в мире. Вторую подряд победу на этом соревновании канадским студентам принес их автомобиль, продемонстрировавший топливную эффективность 2098 миль на галлон (0.11 литра на (   Читать дальше...   )
+Напомним нашим читателям, что в начале этого года японское Агентство космических исследований (Japan Aerospace Exploration Agency, JAXA) произвело запуск в космос новой рентгеновской обсерватории Hitomi. Эта обсерватория была самой современной на сегодняшний день, ее возможности должны были обеспечить появление множества важных и интересных открытий. Но, к превеликому (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -267,167 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917357   (589585) от 11.07.2015
+###  Публикация: 1040518   (586439) от 05.08.2016
 
-John Lee Hooker - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dimples (2:14)
-02.  Mambo chillun (2:47)
-03.  I'm so excited (2:52)
-04.  Time is marchin' (3:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E617BAADA76EE893BBF3C8478BE3D51F2FDCBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917315   (589586) от 11.07.2015
-
-Обои - Романтика городских мостов [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город. Романтика городских мостовФормат: JPGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A09A9B80F798AB0F93340A40AFF1C2FAEE4F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916701   (589587) от 11.07.2015
-
-Dj Feel - TOP 30 OF June (2015) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTN feat. Christina Novelli - Hold On To Your Heart (LTNs Sunrise Mix)
-02. A-Mase - Awakening (Original Mix)
-03. John Macraven ft. Robin Vane - Into the light (JOOP and Sherano Remix)
-04. Aelyn - New Day (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA42ACABC49DF31F0247024E422014243C6E3DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917297   (589588) от 11.07.2015
-
-VA - Summer Rhythm Ibiza Club Life (2015) [MP3|320 кб/с]<House, Progressive House, Dutch House, Bounce>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Napt - Hold Tight
-02. Duke Dumont - Nicht Vor Mitternacht (Original Mix)
-03. Frankho - Brain Drop (Original Mix)
-04. Fabio D'elia & Kawkastyle - Respawn (Original Mix)(   Читать дальше...   )Жанр: House, Progressive House, Dutch House, BounceПродолжительность: 10:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F022E3E87A1541F6F7D1B83408D1575490227D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917398   (589589) от 11.07.2015
-
-Aghiatrias - Ethos (2006) [FLAC|Lossless]<Dark Ambient, Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cognitive Trap (07:03)
-02. Situs Inversus (05:47)
-03. Les Coeurs Du Mal (05:27)
-04. Autodivine (06:59)(   Читать дальше...   )Жанр: Dark Ambient, IndustrialПродолжительность: 00:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83B001F7E5755C633A80539CB436BF835634FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917220   (589590) от 11.07.2015
-
-Mozilla Thunderbird 38.1.0 Portable by PortableAppZ [Ru]
+360 Total Security 8.8.0.1030 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589590.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+360 Total Security предлагает комплексную защиту от всех видов вредоносных программ и онлайн угроз. Бесплатный антивирус от Qihoo 360 использует защиту в реальном времени с антивирусными движками Avira и Bitdefender, проактивным QVM II и облачным 360 Cloud, а также "Исправление системы" для комплексной оценки и быстрого восстановления аномальных изменений (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4EF0ACA2826AF94E6F1EAC7ADEB7050AAD47AAA
+magnet:?xt=urn:btih:AA6CB7056BEF9402526015F8B690CCC0B254FBD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,248 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917355   (589591) от 11.07.2015
+###  Публикация: 1040604   (586440) от 05.08.2016
 
-The Hicksville Bombers - Voodoo Doll (2015) [MP3|320 кб/с]<Rockabilly, Rock'n'roll, Rockin'blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Rockin’ PartyЖанр: Rockabilly, Rock'n'roll, Rockin'bluesПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98311ED22979C2C1D508E2B3A1405586BB04928C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917422   (589592) от 11.07.2015
-
-Грегуар Делакур | То, что бросается в глаза (2015) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман французского прозаика Грегуара Делакура мало похож на первый («Шкатулка желаний»), но он столь же талантлив и самобытен. К тому же с ним связан громкий скандал – актриса Скарлетт Йоханссон подала на Делакура в суд за то, что он использовал ее имя в своем романе. По счастью, конфликт был улажен, и читатели всего мира могут наслаждаться изысканной и тонкой (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Нина ХотинскаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6147662D64120E79E7902D6D43F41A1640EAD318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916282   (589593) от 11.07.2015
-
-В. Городинская | Стихи. «Мяу!» (2004) [DJVU, PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник тематических детских стихотворений, содержание которых поможет малышам разобраться в том, что такое дружба, добро и зло, плохие и хорошие поступки.Жанр: Детская проза, СтихиФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2600C4CD4D9FF614E458A19B4694FF3DBFA2E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917258   (589594) от 11.07.2015
-
-Talisman - Vaults (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master Of Patience (Demo – Thomas Vikstrom Vocals)
-02. Riding On The Wind (Demo – Thomas Vikstrom Vocals)
-03. Live For Our Dreams (Demo – Thomas Vikstrom Vocals)
-04. Comin’ Home (Demo – Stefan Berggren Vocals)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59043D45DECDA96D1F7C1CF9D7A663A27C5EE3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917162   (589595) от 11.07.2015
-
-VA - Chillout (The Beauty Of Lounge & Jazz Music) (2015) [MP3|320 кб/с]<Lounge, Chillout, Jazzy>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filmmusic Group - Peaceful Journey (Chill Out Mix) (04:24)
-02. Jack Dazey - Chill Out New York (Yuppie Lounge Music) (03:32)
-03. Gary Wolk - Door Jamb (03:16)
-04. Timothy Button - The Winds of Change (03:47)(   Читать дальше...   )Производство: Whisky LullabyЖанр: Lounge, Chillout, JazzyПродолжительность: 03:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD1687B485D160221D18B8E1C2B05E23126BDDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917451   (589596) от 11.07.2015
-
-Постскриптум с Алексеем Пушковым (11.07.2015) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: Вопреки попыткам изоляции cаммит в Уфе. БРИКС - как новый центр силы. После референдума: решится ли еврозона расстаться с Грецией? Что нам хотят сказать, когда размахивают флагом Украины? По следам громкого скандала. А также... Украина, политический пир во время финансовой чумы. Когда власть занимается всем, кроме экономики.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD85F13CCA3ADFF260BB9BE7330AABE05F5A3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917346   (589597) от 11.07.2015
-
-Real Bodrit - Superman (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Быть или не быть
- 02. Ботаник
- 03. Superman
- 04. Малыш(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CCB368B7B50F1C550595F66F1A3332DB795488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917113   (589598) от 11.07.2015
-
-Rachel Sermanni - Tied to the Moon (2015) [MP3|320 кб/с]<Alternative, Contemporary Folk, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (04:43)
-02. Wine Sweet Wine (04:03)
-03. Old Ladies Lament (03:35)
-04. I've Got a Girl (03:43)(   Читать дальше...   )Жанр: Alternative, Contemporary Folk, Female VocalПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CA61B387077859A2C11DA75FA68A459A26606E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917181   (589599) от 11.07.2015
-
-Technimatic - Flashbulb EP (2015) [MP3|320 кб/с]<Drum & Bass>
+VA - Goa Culture, Vol: 17-19 (2015) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589599.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Secret Smile (feat. Lucy Kitchen)
-02. Dirty Hands
-03. Flashbulb
-04. Remember YouЖанр: Drum & BassПродолжительность: 00:21:22
+01. Ellinio - The Cure (9:00)
+02. Dedale & Hekula - Spiritual Identity (7:09)
+03. Opposite8 - Never Give Up (7:57)
+04. Egorythmia & Static Movement - Other Dimensions Of Space (7:37)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 07:07:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BF38A66C98D38B6A27382195A852DC2E05EBC54
+magnet:?xt=urn:btih:07EBE860E7AA0EAE1312E2A811A0ACFBA3A94DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,28 +79,643 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917442   (589600) от 11.07.2015
+###  Публикация: 1039271   (586441) от 05.08.2016
 
-Tamara Williamson - Sister Mother Daughter Wife (2015) [MP3|320 кб/с]<Alternative, Atmospheric Dramatic Song, Ambient>
+Insove - Beyond the Invisible (2016) [MP3|320 kbps] <Electronic, Ambient>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Electronic
+>>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589600.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Angel
-02. Anuradha
-03. Chantal
-04. Dreams Broken(   Читать дальше...   )Жанр: Alternative, Atmospheric Dramatic Song, AmbientПродолжительность: 00:39:45
+Электронно-атмосферный музыкальный веб-дуэт Insove, исполняющий инструментальную музыку без привязки к определённому жанру, сочетающий в себе электронику, эмбиент, бесконечные эксперименты и немного тяжёлых гитар.
+Существует с 2011 года.
+
+Альбом01 - Turn the Key
+02 - Darkness, Decay, Tenderness & Lightness
+03 - Slumber
+04 - Peace of Mind(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:43:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F15B9D698C814401A40AF5EC5CB5C433036447AB
+magnet:?xt=urn:btih:398B6316F992B15D16A1346D0D39393E2961A58D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040568   (586442) от 05.08.2016
+
+Экшены - GraphicRiver - Epic Studio Transparent Sketching 3 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Studio Transparent Sketching 3 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2400CBB391B90D287F681385D024387AD3AF711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040595   (586443) от 05.08.2016
+
+Экшены - PhotographyPlanet - Dragan-Inspired Actions [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dragan-Inspired - Andrzej Dragan создал стиль в фотографии, который многие пытаются подражать. С помощью этого набора действий, вы можете легко преобразовать обычные фотографии в мощный стиль Dragan. В комплект входит 17 действий.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDC8E6CD5EFB46DC1BA7EFED6A91BE68E433F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040529   (586444) от 05.08.2016
+
+Judas Priest - Battle Cry (2016) Live, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Intro) Battle Cry
+02. Dragonaut
+03. Metal Gods
+04. Devil's Child(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E400BB6C8F9F4C54B97D4614920EF90A74086F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040632   (586445) от 05.08.2016
+
+DJ Snake - Encore (2016) LP [MP3|320 Kbps] <Midtempo, Trap, Moombahton>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (A86)
+ 02. Middle (Ft. Bipolar Sunshine)
+ 03. Sahara (Ft. Skrillex)
+ 04. Sober (Ft. JRY)(   Читать дальше...   )Жанр: Midtempo, Trap, Moombahton, BassHouse, Hardstyle, FutureBass, Hip-Hop, HouseПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F0FBA40B50E1416EBFF54A9E46F03959072B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040515   (586446) от 05.08.2016
+
+David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Relax, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incantation
+02. The Letter
+03. Talavera
+04. Resurgam(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C605B6E8585DAADFD6773D928B2BC389285C549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040608   (586447) от 05.08.2016
+
+Желаю удачи (1968) Screener [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586447.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказа Василя Быкова "Четвертая неудача".
+Солдат Турóк, с которым вечно случаются неприятности, должен отвести на КП раненого капитана...Производство: СССР, БеларусьфильмЖанр: Военный, ПриключенияРежиссер: Вениамин СмагинАктеры: Владимир Мартынов, Николай Ерёменко (ст.), Игорь Комаров, Степан Хацкевич, М. СидорокПродолжительность: 00:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85482AE6E1ADDB26921C67C7880B5D2FBF352C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040607   (586448) от 05.08.2016
+
+Armin van Buuren - A State of Trance 775 (2016) [MP3|320 Kbps] <progressive trance, vocal trance, progressive house>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A State of Trance - Intro
+02. Ashley Wallbridge - Amnesia
+03. Rodg - Flaked
+04. Headstrong feat. Ghost Wars & Carrie Skipper - Angel Blue Eyes (Aurosonic Progressive Mix)(   Читать дальше...   )Жанр: progressive trance, vocal trance, progressive houseПродолжительность: 01:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBDF9E565A91EDA4D9C6960E9FCE267B92DFF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040482   (586449) от 05.08.2016
+
+Экшены - GraphicRiver - Epic Studio Pop Culture [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Studio Pop Culture - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63097EF330B2E6FAB9A72C85C8B67BFB15DD4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040537   (586450) от 05.08.2016
+
+Santana - Abraxas (1970) MFSL UDCD 775, 2008 [FLAC|Lossless|image + .cue]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Singing Winds, Crying Beasts 4:51
+02. Black Bagic Woman / Gypsy Queen 5:19
+03. Oye Como Va 4:17
+04. Incident At Neshabur 4:58(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48877FE2E34B665F9B2F0363BE5933B30C56B410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039960   (586451) от 05.08.2016
+
+Игорь Николаевич Белоусов | К вопросу о наследственности шизофрении в свете современной генетики (1967) [DOC]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересен с генетической точки зрения вопрос о постоянстве частоты шизофрении в населении. Известно, что многие мутантные формы могут существовать лишь в гетерозиготном состоянии, гомозиготные же особи не развиваются, т.к. погибают (так называемые летальные гены), вследствие чего неизбежно происходит элиминация болезненных гамет. Явление элиминации находит свое выражение (   Читать дальше...   )Жанр: Медицина, Психиатрия, ПублицистикаФормат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A689375BEAC7DCF36A6159F9F04E2B5DC5F6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040122   (586452) от 05.08.2016
+
+Юрий Жуков | Укрощение "тигров" (1961) [PDF, DJVU, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Жуков в Великую Отечественную войну был на фронте военным корреспондентом. В данной книге собраны его фронтовые заметки о Курской дуге и последовавшим за ней боям за Харьков. Многие бои расписаны буквально по минутам.
+Выдержки из книги:"...Это была ударная группировка эсэсовского танкового корпуса, и дрались они с отчаянием смертников...". "...Сюда (   Читать дальше...   )Жанр: Военная историяФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC7AE2C042F8618D4B291A4538D8BE0990C6B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040622   (586453) от 05.08.2016
+
+The Z.A.C.K. - Disco Cosmix (1979) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интереснейший проект в стиле спейс-диско.01. Mister Satellite (7:26)
+02. 565, Where Are You (6:07)
+03. Mind The Cosmic Rocker (6:55)
+04. Immediate Boarding Folks To The Moon (12:11)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0563A6F18C9480DE08B19860761D828A74B407FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809470   (586455) от 02.08.2014
+
+Монтевидео: Божественное видение / Montevideo, Bog te video! (2010) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Югославия, 1930 год. Тирке – молодой парень, обожающий футбол, но на футболе не заработаешь. В национальную футбольную федерацию Югославии приходит официальное приглашение принять участие в первом чемпионате мира по футболу, который пройдет в столице Уругвая, Монтевидео. Готовить сборную к чемпионату назначен Бошко Симонович, всеобщий объект насмешек. Никто не верит, (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Драган БьелогрличАктеры: Милош Бикович, Петар Стругар, Нина Янкович, Данина Йефтич, Войин Четкович, Виктор Савич, Никола Джурицко, Небойша Илич, Милутин Караджич, Бранимир БрстинаПеревод: Одноголосый закадровый, любительский - ViruseProjectПродолжительность: 02:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A300BAA9658D44DDE1E19F11CB618F093ACE049C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809491   (586456) от 02.08.2014
+
+Веселые и беззаботные / Fun and Fancy Free (1947) BDRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две музыкальные истории, участниками которых являются персонажи студии «Дисней». Устав от переездов и плохого обращения,
+цирковой медвежонок по имени Бонго сбегает в лес. Жизнь в дикой местности оказывается не так уж легка,
+но смелый малыш находит самое главное — настоящую любовь. А далее Микки Маус, Дональд Дак и недотепа Гуфи
+пускаются в захватывающие приключения, (   Читать дальше...   )Производство: США |  Walt Disney ProductionsЖанр: Мультфильм, семейный, музыкаРежиссер: Джек Кинни, Гамильтон ЛаскиПеревод: Дублированный (Невафильм), многоголосый закадровыйПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5F2DB64E6FF57F9E21A1EB07717FE904DDF4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809570   (586459) от 02.08.2014
+
+VA - Modern Talking Árnyékában 1. (2009) [MP3|320 кб/с]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
+02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
+03. New Baccara - Call Me Up (Maxi Version) (5:04)
+04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
+05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
+06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
+07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
+08. Lian Ross - It's Up To You (Maxi Version) (5:38)
+09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4331E4E45F40397C09186571CBFACB90F9A463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809657   (586462) от 02.08.2014
+
+Журнал | Chip [Украина] №8 (Август 2014) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A157F686A3B6C58F04876850E6083AB472922E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809566   (586472) от 02.08.2014
+
+VA - Modern Talking Árnyékában 1. (2009) [FLAC|Lossless]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
+02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
+03. New Baccara - Call Me Up (Maxi Version) (5:04)
+04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
+05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
+06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
+07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
+08. Lian Ross - It's Up To You (Maxi Version) (5:38)
+09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5BA06A0C10FA15DED02AC845393F9672FB6A95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040140   (586474) от 05.08.2016
+
+Иван Бунин | Рассказы 1932-1952 годов (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ива́н Алексе́евич Бу́нин (10 [22] октября 1870, Воронеж — 8 ноября 1953, Париж) — русский писатель и поэт, первый лауреат Нобелевской премии по литературе из России (1933 год).
+Лауреат Нобелевской премии по литературе в 1933 году за «строгое мастерство, с которым он развивает традиции русской классической прозы». Получив денежное вознаграждение за (   Читать дальше...   )Жанр: Русская классическая прозаПродолжительность: 03:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816AA3FF685DB5CAA4FE2D6F5406D1F5115ADB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040563   (586475) от 05.08.2016
+
+Экшены - GraphicRiver - Epic Studio Transparent Sketching [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Studio Transparent Sketching - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC10266F6D26967AEE77ED96B633088D705B1180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040545   (586476) от 05.08.2016
+
+Process Lasso Pro 8.9.8.38 Final RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows, по умолчанию, позволяет программам полностью загружать центральный процессор, что ведет к зависанию системы и, соответственно, к неудобству работы. Технология ProBalance (Process Balance) программы Process Lasso аккуратно перераспределяет приоритеты запущенных программ, так что процессы, которые ранее загружали весь центральный процессор, больше не будут (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4D19414BA0F9FBBACD863209C1831BB63C9453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040484   (586477) от 05.08.2016
+
+Экшены - GraphicRiver - Epic Studio Pop Culture 4 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Studio Pop Culture 4 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FFEA2051F89A384BCD75CE4566BEE504F1378D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040465   (586478) от 05.08.2016
+
+Тони Эбботт | Собрание сочинений [5 книг] (2012-2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оуэн и подземные царства - детский фантастический цикл Тони Эбботта.Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767BCB25760E03C13B49B1889B83D342DCD4AEEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1179239   (349217) от 31.10.2017
+
+DDR Space Program - 1 Single,2 EP (2016-2017) [MP3|320 Kbps] <New Wave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349217.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stardate (4:49)Жанр: New Wave, SpacesynthПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1EC2DBF1947395DBFCA1521D1D14AD481F02BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418462   (349290) от 24.10.2020
 
 Actress - Karma & Desire (2020) Ninja Tune [FLAC|Lossless|tracks+.cue] <Leftfield, Ambient, IDM, House, Techno>
@@ -716,35 +742,6 @@ Depeche Mode - Remixes for the Masses 2020 by Techni-ka (2020) EP [FLAC 2.0|44.1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D8F58A34EFDD03D5638863924D3233D394554D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900294   (350920) от 23.10.2020
-
-Digitonal - Discography 17 Releases (2002-2020) Just Music [FLAC|Lossless]<Ambient, IDM, Downtempo, Modern Classical>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bramley (06:16)
- 02. The Autumn Journal (04:55)
- 03. Orion (05:43)
- 04. Gold Of The Azure (10:04)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, IDM, Downtempo, Modern Classical •Продолжительность: 08:00:49 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A418FCAA20F3E013F38D7E255504B1AC203B7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

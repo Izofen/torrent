@@ -1,3 +1,32 @@
+###  Публикация: 788862   (1007838) от 06.07.2021
+
+Дживан Гаспарян - 5 альбомов (2004) [MP3|224 Kbps] <Instrumental, Ethnic>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джива́н Арамаи́сович Гаспаря́н (арм. Ջիվան Գասպարյան; 12 октября 1928, деревня Солак, Армения) — всемирно известный армянский музыкант и композитор, знаток армянской национальной музыки, мастер игры на дудуке. Народный артист Республики Армения. Профессор Ереванской (   Читать дальше...   )01. Zucchabar Gladiator Soundtrack
+02. To The River
+03. With This Love
+04. Fallen Star(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D1F90CA9D92D9F64936020FC216FF5A188DD14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116520   (1007872) от 06.07.2021
 
 Jivan Gasparian \Дживан Гаспарян - 33 Masterpieces (2010) 3CD Limited Edition [FLAC|Lossless|image + .cue] <Armenian Folk>
@@ -715,35 +744,6 @@ Autogenic Training Channel - Daily Ritual Meditation (2021) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CED711CDCBD8D646D974A4C8034056627E09D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469518   (1016395) от 12.05.2021
-
-Kundalini Yoga Music - Autogenic Training Channel (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kundalini Yoga Music (4:01)
-02. Spa Relaxation - Rain Sounds (3:13)
-03. Spirituality (4:17)
-04. Nocturnal Relaxation (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D753A13A1294DA8F3F750A9B500533B5564FF812
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1449745   (1029525) от 23.02.2021
+
+VA - 23 февраля: Страна (2021) [MP3|~245 Kbps (V0)] <Поп, рок, шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #Крутовокруг - 23 февраля, 8 марта (2:59)
+02. Фактор 2 - Афганистан (3:05)
+03. FM - Страна (3:12)
+04. Стас Экстаз - 23 февраля (3:02)(   Читать дальше...   )Жанр: Поп, рок, шансонПродолжительность: 03:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F178003995C5425846519245EBEA8138574CC11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449780   (1029536) от 23.02.2021
+
+VA - Hip-Hop Street Dance (Vol.07) (2021) [MP3|320 Kbps] <Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лонгплей, настроение которого колеблется из крайности в крайность - от меланхолии до агрессии. Тем не менее альбом обладает хорошим звуком, который четко и правильно отображает всю суть этого музыкального направления и посыл, который пытаются донести до нас авторы представленных композиций.001. DJ Fixx - Drunk In The Club
+002. Lil Uzi Vert - Over Your Head
+003. Cikada - C'est La Vie
+004. Dirt Vonnegut - Spirit Of '76(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 07:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A293DEEB4AA332F7F40AC970062E539A77CF37A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449783   (1029541) от 23.02.2021
 
 VA - Bienvenue: Rap Francais (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -687,64 +745,6 @@ VA - Neo Traditional Country (2021) [MP3|320 Kbps] <Country, Folk Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5156EB598E3AB89F716828E0DDA7554D1C0AF99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447721   (1031623) от 14.02.2021
-
-VA - Instrumental Jazz Palette (2021) [MP3|320 Kbps] <Jazz, Smooth, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы в поисках приятного настроя, активного ритма и отменных звуков, то сборник «Instrumental Jazz Palette» представит всю палитру Ваших музыкальных желаний. Композиции лонгплея это великолепная смесь, обладающая воздушностью фанка, мелодичностью соула и экспрессией джаза.001. Jarmo Nikku - Just A Little Bit
-002. Nubya Garcia - Together Is A Beautiful Place To Be
-003. Wayne Escoffery - Quarter Moon
-004. Mark De Clive-Lowe - Esss(   Читать дальше...   )Жанр: Jazz, Smooth, InstrumentalПродолжительность: 08:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5C400AFCD58FF92C57B3EDB48513AD65B0D548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447633   (1031629) от 14.02.2021
-
-VA - The Official UK Top 40 Singles Chart 12.02.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031629.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Olivia Rodrigo - drivers license
-002. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
-003. The Kid Laroi - WITHOUT YOU
-004. Anne-Marie - Don't Play(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38EB2CCAC1109C82685121A6A5C4CBF7F63E77D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

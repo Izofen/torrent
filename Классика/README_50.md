@@ -1,3 +1,32 @@
+###  Публикация: 1088962   (953584) от 02.01.2017
+
+Vitalij Margulis / Виталий Маргулис - Frederic Chopin / Фредерик Шопен — Nocturnes / Ноктюрны (1994) [APE|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturne № 1 b-moll Op 9/1
+02. Nocturne № 2 Es-Dur Op 9/2
+03. Nocturne № 4 F-Dur Op 15/1
+04. Nocturne № 5 Fis-Dur Op 15/2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4546C1506A9C290C96CC4CFB25FDEA2819EAD212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088473   (953609) от 02.01.2017
 
 Damien Poisblaud - Chant Grégorien - Abbaye du Thoronet (1990) PAVANE Records [FLAC|Lossless|image + .cue] <Григорианский хорал>
@@ -731,41 +760,6 @@ London Philharmonic Orchestra - The 50 Greatest Pieces Of Classical Music (2011)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E894D5A4204340682570BA4DA7787A552F6ED6EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616122   (974662) от 10.02.2013
-
-W.A.Mozart - Requiem/Symphony No.29: Karl Richter, MBO & Chor (1996) [FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Requiem for soloists, chorus, and orchestra, K. 626
-01. I. Introitus. Requiem aeternam
-02. II. Kyrie. Kyrie eleison
-03. III. Sequentia. Dies irae
-04. III. Sequentia. Tuba mirum
-05. III. Sequentia. Rex tremendae majestatis
-06. III. Sequentia. Recordare, Jesu pie
-07. III. Sequentia. Confutatis maledictis
-08. III. Sequentia. Lacrimosa dies illa
-09. IV. Offertorium. Domine Jesu Christe(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3B6A5D721C98B459C99976767D953C37C01ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

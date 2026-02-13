@@ -1,3 +1,32 @@
+###  Публикация: 900294   (350920) от 23.10.2020
+
+Digitonal - Discography 17 Releases (2002-2020) Just Music [FLAC|Lossless]<Ambient, IDM, Downtempo, Modern Classical>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bramley (06:16)
+ 02. The Autumn Journal (04:55)
+ 03. Orion (05:43)
+ 04. Gold Of The Azure (10:04)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, IDM, Downtempo, Modern Classical •Продолжительность: 08:00:49 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A418FCAA20F3E013F38D7E255504B1AC203B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953197   (351045) от 03.11.2015
 
 Kraftwerk - Minimum-Maximum (2005) [FLAC|image+.cue]<Electronic,Synthpop>
@@ -713,35 +742,6 @@ Neptune Project - Live @ Intricacy Albuquerque, New Mexico, United States 2019-0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:537F5F72055E6A0A898D8BC8A8FF9D13E377B19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072675   (352391) от 13.11.2016
-
-VA - New Years Eve: Dance Party Package (2016) [MP3|320 Kbps] <House, Disco, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natalie Grant - I Will Survive (Vocal Radio Edit) (3:17)
-02. The Booty Jocks - Night Fever (5:24)
-03. Proyecto E-Fecto & Markus D'Ambrosi - Sweat... A La La La La Long (Reggaeton Mix) (3:22)
-04. The Booty Jocks - Celebration (5:11)(   Читать дальше...   )Производство: Sounds UnitedЖанр: House, Disco, DanceПродолжительность: 01:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2278914262219A946551632FF7333BE1AA684C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -433,6 +433,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584200   (306858) от 04.12.2012
+
+Fancy - 37 альбомов + 35 синглов (1985 - 2011) [MP3|320kbps]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_306858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: EuroDiscoПродолжительность: 00:17:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261076   (307115) от 09.11.2018
 
 Леонид Агутин - Cover Version (2018) [MP3|320 Kbps] <Pop>
@@ -455,6 +481,41 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8744C01AFA0376A2E9D55253D34732E68477B2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581505   (307216) от 04.12.2012
+
+Britney Spears - 7 альбомов + Singles Collection Deluxe + 4 Compilations + Bonus (1999 - 2011) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_307216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three
+02. Baby One More Time
+03. Circus
+04. Do Something
+05. Everytime
+06. Gimme More
+07. If You Seek Amy
+08. I'm Not a Girl, Not Yet a Woman
+09. My Prerogative
+10. Oops!..(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,64 +754,6 @@ Cyndi Lauper - The Body Acoustic (2005) [FLAC|image+.cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5AFD73F3551621D444CDD4150444E97D86928D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422581   (308560) от 09.11.2020
-
-Workout Music Tv - Running Fall Hits 2020 Session [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Firework - Workout Remix 160 Bpm (4:12)
-02. Locked Out Of Heaven - Workout Remix 160 Bpm (4:12)
-03. Warrior - Workout Remix 160 Bpm (3:36)
-04. Crazy Train - Workout Remix 160 Bpm (4:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699BFF582C5B21F82CB23DB2C1B8615348648544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422559   (308561) от 09.11.2020
-
-Workout Music Tv - 40 Happy Aerobic & Cardio Hits 2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Got Love - Workout Remix 128 Bpm (4:33)
-02. Take Your Time - Workout Remix 128 Bpm (5:50)
-03. Faith - Workout Remix 128 Bpm (5:39)
-04. Good As Hell - Workout Remix 128 Bpm (4:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E78D94341BF9D6142072AF3ABF3D9C093A0C2AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1305571   (556142) от 01.06.2019
+
+Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Silver Lining  (3:51)
+02 - My House  (2:42)
+03 - Merry Go 'Round  (3:29)
+04 - Dandelion  (3:04)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58ED960956602402404E7D8F13AC34CD57599F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305718   (556144) от 01.06.2019
 
 Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk>
@@ -709,35 +738,6 @@ VA - Latin Hits 2017 The Best (Reggaeton  Bachata  Kizomba) [MP3|320 Kbps] <Lati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F6C5D88B2F388F76D75A3AE9EFFF3E479649A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152994   (560076) от 26.07.2017
-
-Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Galaxy [04:56]
-02. A First Star [02:24]
-03. Mankind [04:26]
-04. Other Worlds [04:37](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A49A6E7A1BE07F092FE933D3F02D689B958A344
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1273916   (798732) от 04.01.2019
+
+VA - Italo Disco (Essential House Music, Vol. 2) (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Amore - I Only Want You (BCR Full Extended Disco Mix)
+02. Aldo Lesina - Don't Break My Heart
+03. Ranger - In Your Eyes
+04. Tommy Sun - Lover Boy(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 03:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72AB36A60DA84FAABEC5359C5715857AAB30FB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273880   (798741) от 04.01.2019
+
+VA - EDM Rave Dance Music Explosion: Top 100 Massive Festival Hits 2019 - Goa Psy Trance Dubstep Bass Trap (Explicit) (2019) [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galaxy Dust Project - Capitan NEMO
+02. Wizack Twizack - Fly With Us
+03. K Theory - The Tower (Drewell Trap Remix 2018 Remaster)
+04. C-Drench - Snakes Hip Hop Rap Mix(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 10:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC95D8C7460CA62B98BBD645E9FE24973ACDA92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273843   (798766) от 04.01.2019
+
+Colorado - California Dreaming (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Dreaming (7:07)
+02. Bus Stop (5:11)
+03. Should I (4:15)
+04. Colorado Stones (5:40)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC0C30741FF9EEC3D40E93FA56C3D2001265055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507013   (799034) от 02.11.2021
+
+Duran Duran - Future Past (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799034.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Когда мы впервые пришли в студию в конце 2018 года, я пытался убедить ребят, что все, что нам нужно сделать, это написать два или три трека для EP", - сказал вокалист Duran Duran Simon Le Bon. "Четыре дня спустя, когда у меня было ядро ​​из более чем 25 сильных песен, которые все заслуживали внимания, я понял, что мы засядем в студии надолго, (   Читать дальше...   )01. Invisible
+02. All Of You
+03. Give It All Up (feat. Tove Lo)
+04. Anniversary(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C6E65FC1FF79C4B8CBE5A44486D7F94C386F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122264   (799193) от 04.04.2017
+
+VA - Hello Spring Party (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gorillag - Festival 06:09
+02. Cotton Animals - Secret Garden 06:01
+03. Homo Novo - Rumble in My Head 04:16
+04. Iarc - The Blend 05:28(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7648DE06549BE70C6C075313031383D4777A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122272   (799204) от 04.04.2017
+
+VA - Айсберг (1999-2001) 6CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shura - Сказка
+02. Алсу, Александр Шевченко - Дуэт
+03. Андрей Губин - Плачь, любовь
+04. Батыр - Забытый(   Читать дальше...   )Жанр: PopПродолжительность: 06:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A095947434F093073AD6E9776DB3BBE62C96F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122278   (799212) от 04.04.2017
 
 Arpeggio - Love And Desire - The Best Of (1994) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -565,180 +739,6 @@ N'Draman Blintch - Cosmic Sounds (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9107BF3449D498468C6B5B5590C9526BC6EA81F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506502   (800004) от 31.10.2021
-
-VA - Best Clean Pop Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - Baby (3:36)
-02. Gwen Stefani - The Sweet Escape (4:06)
-03. Lmfao - Party Rock Anthem (4:24)
-04. Bag Raiders - Shooting Stars (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 03:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33A3C4FE8A8E2D436E9D0084C3BCECE6D840E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385235   (800046) от 23.05.2020
-
-VA - Greatest Hits (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben E. King - Stand by Me (02:54)
-02. The Doors - Light My Fire (07:09)
-03. Enya - Orinoco Flow (04:24)
-04. Tina Turner - The Best (04:09)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B2ABC67EC7E2DFEFDDDFE8CD907B0F8EC91676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199721   (800141) от 17.01.2018
-
-VA - Есть глаза у цветов. Песни на стихи Расула Гамзатова (2007) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Захаров, ансамбль «Советская песня» - Любовь (О.Фельцман - Р.Гамзатов, пер. Р.Рождественского)
-02. Вахтанг Кикабидзе - Пожелание (А.Экимян - Р.Гамзатов, пер. Н.Гребнева)
-03. Вокальный квартет «Гая» - О тебе я думаю (М.Кажлаев - Р.Гамзатов, пер. В.Звягинцевой)
-04. ВИА «Цветы» - Есть глаза у цветов (О.Фельцман - Р.Гамзатов, пер. Н.Гребнева)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4985A95B83066B4D0BC07FC898C4AFF7EC18A60C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199544   (800307) от 17.01.2018
-
-Dalida - Ciao ciao mon amour (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Grenade a Seville (Cover Fertig)
-02. Les enfants du Piree (Cover Fertig)
-03. Bras dessus bras dessous (Cover Fertig)
-04. Garde-moi la dernieere danse (Cover Fertig)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AE67DCC3B0FFD46D7F21D16B9E6A1BC797F0D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385238   (800337) от 23.05.2020
-
-Karsu - Karsu (2019) [MP3|320 Kbps] <Jazz, Blues, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agree to Disagree
-02. Inadina
-03. Yalan Masallar
-04. Reloading My Mind(   Читать дальше...   )Жанр: Jazz, Blues, PopПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F91377B92B2A0D418686AF92A7F1A676EF99D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384900   (800338) от 23.05.2020
-
-23:45 - Новое время (2013) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моя любовь (3:47)
-02. Тайна (3:17)
-03. Сложно забыть (3:26)
-04. Плохая привычка (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767365F82EE20D612B63469F6AA08B79D266F088
 ```
 
 https://mybot314.ru/tekegram_catalog/

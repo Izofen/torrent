@@ -1,3 +1,32 @@
+###  Публикация: 1154156   (541060) от 30.07.2017
+
+VA - 25 Hot House Edits, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erick Morillo & Eddie Thoneick - Live Your Life (feat Shawnee Taylor - radio edit)
+02. Paul Kennedy – Nobody’s Fool (Radio Edit)
+03. Tom Leeland – Little Juice (Tl Original Radio Mix)
+04. Pepper Mashay - Get Ready For The Weekend (feat Johnny Bravo & Mieczyk - Classic Vibe radio edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAFA2F0BA51189D414BE149C67BFB364AA023F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925201   (541208) от 06.08.2015
 
 Judge Bitch - Gridiron (2014) [MP3|320 кб/с]<80s, Electronic, Dreamwave>
@@ -710,35 +739,6 @@ Saåad (Saaad) - Deep​/​Float (2014) Hands In The Dark [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E63C0F0324C15DA13F7E78C374F1AADE185072A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238864   (543780) от 02.08.2018
-
-Anosphere - 3 Studio Albums (2007-2011) CD [MP3|320 Kbps] <Electronic, Synth-pop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2007 - Field Of Mutants
-2007 - Timetraveller
-2011 - One And All(   Читать дальше...   )Жанр: Electronic, Synth-pop, SpacesynthПродолжительность: 03:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D222FA0153BA91B30D7ADA4A1A56EF8B8508FDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

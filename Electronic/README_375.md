@@ -1,3 +1,32 @@
+###  Публикация: 1396410   (746764) от 15.07.2020
+
+GMS - The G.M.S. Experiment (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746764.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. GMS; Infected Mushroom - Arabian Knights on Mescaline (2020 Remaster) (6:37)
+2. Copycat (RMX 2020 Remaster) (6:37)
+3. GMS; Space Cat - Snorkel Blaster (Riktam Remix 2020 Remaster) (7:34)
+4. Juice (2020 Remaster) (6:23)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF316E8DA07D32636F1265363839E9D01798AFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396438   (746847) от 15.07.2020
 
 Ben Bohmer (Ben Böhmer) - Breathing (Remixed) (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
@@ -712,35 +741,6 @@ Alex de Vega - Dark Adaptation (2013) [MP3|320 kbps] <Jungle, Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F15804EA000B45CD38531A49B694DD57F39F66E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019577   (750253) от 23.05.2016
-
-VA - Mallorca Chillout Lounge Music (200 Songs) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750253.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sev Bastian - Little More [04:02]
-002. Cablu - Stalkerman [03:17]
-003. Zen Ongaku - City Streets [05:05]
-004. Lee & Sun - Desperate for Your Love [03:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 15:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F592E56FB92A6118C61CCE44279DE97313E1A8E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

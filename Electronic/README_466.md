@@ -1,3 +1,32 @@
+###  Публикация: 1099273   (905324) от 01.02.2017
+
+VA - Tea Time Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael E - Be Kind  6:31
+02.  Peter Pearson - Still On My Mind  2:35
+03.  Euphonic Traveller - Chillin@Le Hotel Plaza  3:37
+04.  Lazy Grooves - Secrets  4:22(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D862D7384508CF7F364FB4FDD2B66AF2625628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099316   (905325) от 01.02.2017
 
 VA - Cool as Chill: Best Of Deluxe Lounge & Chillout Tunes (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -704,32 +733,6 @@ VA - Make Up Styling Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1813831EF2FC41DD493E93E4554DC55F5DFCEA21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289686   (906872) от 07.02.2011
-
-VA - Космонавт и Спутники - Наверх (2010) [FLAC|Lossless]<Progressive House, Progressive Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive House, Progressive BreaksПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

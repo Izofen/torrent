@@ -1,3 +1,32 @@
+###  Публикация: 1554988   (572250) от 02.06.2022
+
+Olga Stankevich - Alone With the City (2014) [FLAC 2.0|48/24|WEB-DL|tracks] <Instrumental Pop, Piano>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moscow Midnight (3:26)
+02. Beyond the Time (4:33)
+03. Smile (3:09)
+04. Recalcitrance (5:17)(   Читать дальше...   )Жанр: Instrumental Pop, PianoПродолжительность: 00:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04380B740E6D18E8CB38BA41C8E69E5A5663669F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043422   (572309) от 16.08.2016
 
 VA - Mirror's Edge (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack, Score>
@@ -720,34 +749,6 @@ Michael Giacchino - Мир Юрского периода / Jurassic World (Origi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9A320A68F498A9E7323C4ACF3B2E631D784CBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920390   (580130) от 22.07.2015
-
-Midori - Island Paradise (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Island
-02. Sparkling Light
-03. Temple ShrineЖанр: New Age |Продолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99949D17355FCE711C8475FACA97AD2B394D9A34
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 255443   (356542) от 07.11.2010
+
+VA - Romantic Melodies / Collection 15 albums  (2004 - 2008) [MP3|320 kbps]<Pop, Pop-Instrumental, Pop-Rock and many others>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Various Artists - Romantic Melodies - 2004-2008
+Год: 2004 - 2008Жанр: Pop, Pop-Instrumental, Pop-Rock & Other...Продолжительность: 14:43:20(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDEA698A0D0F394B9678A63649FC331E11D18613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577363   (356651) от 18.09.2022
+
+VA - 80s Top Tracks (2022) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Everywhere (2018 Remaster)
+02. Starship - We Built This City
+03. Duran Duran - Notorious (Single Version)
+04. Spandau Ballet - True(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 03:25:57 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB56F8CA409AA1346520B380BDC258FA980F7836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577366   (356759) от 18.09.2022
 
 VA - Songs for the Car (2022) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
@@ -681,64 +737,6 @@ VA - Car Audio. Мёд для твоих ушей (2015) [MP3|320 кб/с]<Deep,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CCA47951FD96B0F6C3658248072FD2DE4C32BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178328   (358310) от 27.10.2017
-
-VA - По волне моей памяти: Том 17 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Владимир Кузьмин - Симона 4:08
-02.  Юрий Лоза - Сто часов 3:33
-03.  Алла Пугачёва - Ты возьми меня с собой 2:49
-04.  Наталья Штурм - Школьный роман 3:37(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5469ACBEF2C962DB8CFBE822B2871DC14D5482D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178223   (358322) от 27.10.2017
-
-VA - По волне моей памяти: Том 16 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Дмитрий Маликов - Сторона Родная 3:55
-02.  Ирина Аллегрова - Я улыбнусь тебе сквозь слёзы 4:40
-03.  Женя Белоусов - Дуня-Дуняша 3:32
-04.  Юрий Антонов - Крыша Дома Твоего 2:57(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1630C15B116FA48850979973F322956300D98FCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

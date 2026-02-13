@@ -1,3 +1,32 @@
+###  Публикация: 1202911   (1032934) от 08.02.2021
+
+Chase Dobson (c.db.sn, Cellar Graves) - Discography 11 Releases (2006-2020) Tympanik Audio [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Techno, Dubstep, Ambient, Post Rock>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. inertia (07:11)
+ 02. momentum (06:11)
+ 03. repetition_motion (05:55)
+ 04. ad infinitum (07:52)(   Читать дальше...   )Тип издания: CD, WebЖанр: Electro/Industrial/EBM/SynthwaveПродолжительность: 07:58:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48518BF9685489BA24A2761E1E376608B0EEC5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310625   (1032952) от 08.02.2021
 
 Gemini Tri - Discography 7 Releases (2014-2021) SunSeaSky Productions [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Post Rock, Ambient>
@@ -681,35 +710,6 @@ MNEKiNG - White After Black (2020) [FLAC|Lossless|WEB-DL|image + .cue] <Acid, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA4D8F851FADC1DD6AFEF2EC91D7F6822FC9D272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445891   (1033298) от 07.02.2021
-
-The 5th Galaxy Orchestra - The Return to Planet Nostalgia (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Earth (3:01)
-02. Life Is so Wonderful as You (5:01)
-03. First Call Memories (3:45)
-04. Isabella's Dream (5:41)(   Читать дальше...   )Жанр: Balearic, Chillout, LoungeПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E8C13EE68803C18C472174BCD450092C69D1F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

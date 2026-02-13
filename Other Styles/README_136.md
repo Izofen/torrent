@@ -1,3 +1,32 @@
+###  Публикация: 1275753   (789859) от 12.01.2019
+
+Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethereal Whisper - 3:19
+02. Liquid Notice - 3:21
+03. Didgerido-It - 2:38
+04. A Seagull Chant - 2:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8154AA91BDCF72D5937F9967FE23AF083BF7613C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387645   (789983) от 04.06.2020
 
 Leonard Cohen - The Complete Columbia Albums Collection (2011) 17 CD [FLAC|Lossless|tracks + .cue] <Folk, Rock>
@@ -715,35 +744,6 @@ Philip Wesley - Dark Night of the Soul (2008) [FLAC|Lossless|tracks + .cue] <Mod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BC52A6863772248A7446855DF2D2A62C35195EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201009   (792778) от 24.01.2018
-
-Ernesto Cortazar - Legend Of The Sea (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Message In A Bottle  (2:47)
- 02/10. As The Sun Rises (4:12)
- 03/10. Legend Of The Sea (4:33)
- 04/10. Dancing Waves (4:09)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B081DFDF5B1E1B0212D643238099E64E1D0C2F38
 ```
 
 https://mybot314.ru/tekegram_catalog/

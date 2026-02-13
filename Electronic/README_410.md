@@ -1,3 +1,32 @@
+###  Публикация: 1202644   (789537) от 30.01.2018
+
+VA - Klubb Classics Chapter 1 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Boozywoozy  -  Live Is Music (Original Mix)  6:37
+02.  DJ Disco  -  Get Up (Original Mix)  6:51
+03.  Da Techno Bohemian  -  Bangin' Bass (Bangin' Bass Mix)  7:01
+04.  Klubbheads  -  Turn Up The Bass (Original Mix)  6:50(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3F8643FB1C1FE746EDECD5F117D7F69EC97886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202813   (789538) от 30.01.2018
 
 VA - FG Top 10: January (2018) [MP3|320 Kbps] <Trance>
@@ -713,35 +742,6 @@ Above & Beyond - Group Therapy 300 Live from Hong Kong - Deep Set (2018) DJ Mix 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A4C9B8FF6CE56818949D7133E4C40F10D37E44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275495   (790475) от 11.01.2019
-
-Marnie - Strange Words and Weird Wars (2017) [MP3|320 Kbps] <Electronic, Synthpop, Electro>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphabet Block (4:23)
-02. Bloom (2:58)
-03. G.I.R.L.S (3:58)
-04. Electric Youth (3:25)(   Читать дальше...   )Жанр: Electronic, Synthpop, ElectroПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B94A2C7EBAF7ADC19EF62B389B5F080DADA676F
 ```
 
 https://mybot314.ru/tekegram_catalog/

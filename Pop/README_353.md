@@ -1,3 +1,175 @@
+###  Публикация: 1456383   (1025115) от 22.03.2021
+
+Domino - 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2021 (5:21)
+02. Tora Tora ToraЖанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D34EF9F992E34073F7797B61204BDAA6FA71A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456070   (1025292) от 21.03.2021
+
+VA - Classic Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talisha Karrer - One (Acoustic) (04:05)
+02. Shannon & Keast - Love Story (Acoustic) (03:55)
+03. John Burnsby - I’m a Believer (Acoustic) (03:00)
+04. Karizma Duo - Everybody Wants to Rule the World (Acoustic) (02:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A3FA6253F4BDCA5586FEC69EC4D6FA16C050DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456054   (1025293) от 21.03.2021
+
+Justin Bieber - Justice (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Much (2:33)
+02. Deserve You (3:07)
+03. As I Am (2:54)
+04. Off My Face (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40DE24B616C2610728496B89BB0301B4DEA0BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456134   (1025314) от 21.03.2021
+
+Сенатор (Senator) - Лучшие хиты (2020) [MP3|~245 Kbps (V0)] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Недотрога (3:48)
+02. Эй, диск-жокей (4:09)
+03. Алёнка (4:27)
+04. Разлюби его (4:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0256524541D88C1DBBE5846CBECD9B4ADF1191B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456138   (1025318) от 21.03.2021
+
+Чё Те Надо? - Где найти мужчину? (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где найти мужчину? (3:10)
+02. Она работает на скорой врачом (3:31)
+03. Чайничек (2:56)
+04. Снег летит (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01244B3A5ACF20F311FA52A83E963EE5C3E83297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455924   (1025429) от 20.03.2021
+
+Madonna - Bedtime Story (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bedtime Story (Edit)
+02. Bedtime Story (Junior's Wet Dream Mix)
+03. Bedtime Story (Junior's Dreamy Drum Dub)
+04. Survival(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BDD443A26A71C6E9C3F436D839DF9B540F0561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455921   (1025437) от 20.03.2021
 
 Мари Краймбрери - Нас узнает весь мир (Part 1) (2021) [FLAC|Lossless|WEB-DL|tracks] <Europop>
@@ -568,180 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C87F3AD2166ECA6363390C21C19DC02161EAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454294   (1026428) от 14.03.2021
-
-VA - Spring Acoustic Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Survivin’ (Acoustic) (02:41)
-02. Shannon & Keast - Eastside (Acoustic) (03:06)
-03. Django Wallace - My Future (Acoustic) (03:22)
-04. John Burnsby - Easy (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D603BFE8E3612577820106BC4971AE16DD92ED78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453896   (1026597) от 13.03.2021
-
-Балаган Лимитед - Поговорки (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Обнимашки [00:03:30]
-02 - Чё те надо (Version 2019) [00:03:29]
-03 - На восходе [00:03:06]
-04 - Ветер унеси (Solo Version) [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4B39DAF3C0799B9D10D9FB97B9D7CECFD4D0E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453756   (1026763) от 12.03.2021
-
-гречка - Не за что (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026763.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. интро
-2. тысяча моментов
-3. это убило меня
-4. вечно так(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87D3F9CA9098D951DDB45B5CC2F56336280AF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452909   (1026918) от 11.03.2021
-
-VA - Я - голос ваш (2021) Трибьют Анны Ахматовой [MP3|320 Kbps] <Alternative>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANIKV - Вот это я тебе [00:02:05]
-02. IOWA - Дверь полуоткрыта [00:02:46]
-03. Елена Темникова - Реквием [00:03:03]
-04. Тося Чайкина - И мальчик что играет на волынке [00:02:55](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E22FD7B28700A02ED025FB7D4646E3FFF7EFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453593   (1026919) от 11.03.2021
-
-Балаган Лимитед - Поговорки (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Обнимашки
-2. Чё те надо (Version 2019)
-3. На восходе
-4. Ветер унеси (Solo Version)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B486C60558DF42B0282E0BA2FFDFA92F7D4A90E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453450   (1026926) от 11.03.2021
-
-Michael Bedford - When Angels Talk (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Angels Talk (3:37)
-02. More Than A Kiss (3:48)
-03. Tonight (3:26)
-04. Space Boys (3:37)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-DiscoПродолжительность: 00:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DA410F0607FA4E56A68825688C421475744511
 ```
 
 https://mybot314.ru/tekegram_catalog/

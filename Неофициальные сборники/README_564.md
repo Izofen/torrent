@@ -1,3 +1,61 @@
+###  Публикация: 1498593   (854399) от 28.09.2021
+
+VA - Fall Trends (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machine Gun Kelly - papercuts
+02. Taylor Swift - Lover
+03. The Lorax Singers - Let It Grow
+04. Florence + The Machine - Dog Days Are Over(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CADF05A63C74A47E3AF7D8C080BA91B8FDE41D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498605   (854405) от 28.09.2021
+
+VA - Pop Giganten Deutsche Poeten #2 (2CD) (2021) [MP3|320 Kbps] <Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854405.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Sarah Connor - Vincent
+02. Mark Forster - Ubermorgen
+03. Namika - Je ne parle pas francais (Beatgees Remix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 02:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CFE8D91E9D92211CD6F79E7F01DC4BECBD68BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498588   (854407) от 28.09.2021
 
 VA - Best Of Drum & Bass (2021) [MP3|320 Kbps] <Drum & Bass, Drumfunk, Soulful>
@@ -687,64 +745,6 @@ VA - Aspiration For Awakening: New Age Compilation (2017) [MP3|256-320 Kbps] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C87A49CBCC4EB62D15A584BF7BB5C705FCA30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110201   (855609) от 01.03.2017
-
-VA - Best Chillout Vol.26 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855609.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AIYLIIES - Join Me (Original mix) 4:04
-002. Alan Walker - Alone  (Restrung) 3:05
-003. Alan Walker - Faded (Risssing Remix) 3:50
-004. Alexander Tarasov - Winter (Original Mix) 5:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F81DBF749C4B25B88548AC9E59399398EFE2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110089   (855614) от 01.03.2017
-
-VA - Лучший русский шансон. Часть № 3 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855614.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олег Верд - Пулями 3:51
-002. Олеся Атланова - Встреча 3:48
-003. Белое Золото - Если Боль Назвать Любовью 3:51
-004. Сергей Рудов - Лето 3:45(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6EDEA902C8E47800FFB2B3DCED50EB64F0658B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

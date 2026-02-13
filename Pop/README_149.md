@@ -1,3 +1,177 @@
+###  Публикация: 1177155   (364891) от 24.10.2017
+
+VA - Dieter Bohlen: Die Megahits (2017) 3CD Premium Edition [FLAC|Lossless|tracks + .cue] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (Mix '84) (3:23)
+02. Midnight Lady (Aus Dem Tatort 'Der Tausch') (4:10)
+03. We Have A Dream (Radio Edit) (4:00)
+04. Take Me Tonight (Radio Edit) (4:02)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 03:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A37AE2DED95B7457915C8293B75336713CF0A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416774   (364966) от 17.10.2020
+
+Shania Twain - The Woman In Me (2020) Super Deluxe Diamond Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home Ain't Where His Heart Is (Anymore) [4:12]
+ 02. Any Man Of Mine [4:07]
+ 03. Whose Bed Have Your Boots Been Under [4:24]
+ 04. (If You're Not In It For Love) I'm Outta Here! [4:30](   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 02:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8E0FE2042575147A45198B3B1DF9E0197393AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177242   (365030) от 24.10.2017
+
+VA - BRAVO Hits 99 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lauv - I Like Me Better (3:19)
+02. Imagine Dragons - Whatever It Takes (3:19)
+03. Sunrise Avenue - I Help You Hate Me (3:11)
+04. Portugal. The Man - Feel It Still (2:42)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 01:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C21D7BEE80258A717C66BAC497727309521F800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951155   (365060) от 28.10.2015
+
+Мираж - The Best Of Greatest Hits (2002) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка нас связала
+02. Наступает ночь
+03. Звезды нас ждут
+04. Видео(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA77C6E64020CEFA579DF5B4DA702FFE1821A9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950913   (365201) от 28.10.2015
+
+Слава - Откровенно (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Спелый мой
+ 02. Первая любовь - любовь последняя
+ 03. Шлюха
+ 04. Таблетка(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47643AB1C2BAE0837ECEBBFF25A4CA38A08A6FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951217   (365210) от 28.10.2015
+
+Мираж - The Best Of Greatest Hits (2002) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка нас связала
+02. Наступает ночь
+03. Звезды нас ждут
+04. Видео(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BDE6A9B918A973D0FB27A4831A21C3E4E98B2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177246   (365475) от 24.10.2017
 
 Fever - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Funk, Soul, Disco>
@@ -598,198 +772,6 @@ Zivert - Vinyl #1 (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71ACB5CF43D8533B880F894B9748AB87C81E7217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176590   (369846) от 22.10.2017
-
-Carl Douglas - Kung Fu Fighting (1994) The Best Of Carl Douglas [MP3|320 Kbps] <Electronic, Pop-Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kung Fu Fighting (3:16)
-02. When You Got Love (3:30)
-03. I Want To Give You My Everything (2:37)
-04. Run Back (3:23)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, DiscoПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B5546A60B3F9B61352246490B7C009CE164C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574844   (370092) от 14.11.2012
-
-VA - Суперхиты дискотеки 90-х. Золотые баллады (2011) [MP3|320 кб/с]<Pop, Eurodance>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - I Miss You
-02. East 17 - Thunder
-03. Seal - Crazy
-04. Simply Red - Stars
-05. Rialto - Monday Morning
-06. Chris Rea - The Road To Hell (Part II)
-07. Coolio - Gangsta's Paradise
-08. Sarah Brightman - Eden
-09. Shakespears Sister - Stay
-10. East 17 feat. Gabrielle - If You Ever(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA1D0EDD08F97AB548E7C2E3B67188062698C52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950521   (370250) от 26.10.2015
-
-One Direction - Four • The Ultimate Edition (2014) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steal My Girl [03:48]
-02. Ready To Run [03:16]
-03. Where Do Broken Hearts Go [03:49]
-04. 18 [04:08](   Читать дальше...   )Жанр: PopПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0667ABA1BDD495AE880DD41E88B55A379BDD5AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575109   (370424) от 14.11.2012
-
-Радмила Караклаич - Цыганские песни разных лет (1981) [MP3|256 кб/с]<Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ja sam takva
-02. Samo ljubav
-03. Dve gitare
-04. Doslo vreme
-05. Sare patrja (Sve karte)
-06. Kad se setis
-07. Jo deves (Uvece)
-08. Aj Danu-Da naj
-09. Sunce
-10. S pesmom i gitarom(   Читать дальше...   )Жанр: РетроПродолжительность: 01:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8419DAFF1B4A4D0CB1AD7A57927EA6F93D44BA91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574846   (370542) от 14.11.2012
-
-VA - Суперхиты дискотеки 90-х ...продолжение (2011) [MP3|320 кб/с]<Pop, Eurodance>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East 17 - It's Alright
-02. E-Type - Set the World on Fire
-03. Captain Hollywood - Over and Over
-04. DJ BoBo - Take Control
-05. Ardis - Ain't Nobody's Business
-06. Mr.President - Coco Jambo
-07. Sonic Dream Collective - Don't Go Breaking My Heart
-08. Gala - Freed from Desire
-09. Jimmy Somerville - Comment Te Dire Adieu
-10. Haddaway - Rock My Heart(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC04CFE1F247CDF774AD03EC3E14892063773B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576116   (370837) от 12.09.2022
-
-Svenne & Lotta - 6 Albums (1973-1983) Collection [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Svenne & Lotta (в некоторых странах Sven & Charlotte) - поп-дуэт Свенне Хедлунд и Лотты Хедлунд. Они познакомились в 1967 году, когда (вместе с Бенни Андерссоном из ABBA) Свенне Хедлунд был вокалистом в группе Hep Stars. Шарлотта Уокер, которую в то время звали Лотта Хедлунд, гастролировала по Швеции с женским американским трио The Sherrys. Стремясь пойти (   Читать дальше...   )Список альбомов:
-1973 - Oldies But Goodies
-1975 - 2
-1976 - Letters(   Читать дальше...   )Жанр: Electronic, Disco, Pop Rock, SchlagerПродолжительность: 03:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7245E0CACAE5E3F7C743512783F50A59A7FB259
 ```
 
 https://mybot314.ru/tekegram_catalog/

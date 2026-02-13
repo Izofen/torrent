@@ -1,3 +1,32 @@
+###  Публикация: 1414656   (383634) от 09.10.2020
+
+Sciama - Broken Circle (2019) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383634.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Sediment	5:54
+2	Winter Noon	3:09
+3	A Sunless Sea	5:14
+4	Gleams Of Past Existence	5:43(   Читать дальше...   )Жанр: Ambient, Experimental, DroneПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BB0948906ECE95CFE9FEF3E6561CF795C8D19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574694   (383746) от 06.09.2022
 
 VA - In Search of Sunrise 18 (Mixed by Markus Schulz & Matt Fax & Dennis Sheperd) (2022) [MP3|320 Kbps] <Trance>
@@ -705,35 +734,6 @@ Ferry Corsten - Hello World (2016) [FLAC|Lossless|image + .cue] <Progressive Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:232DC029E416E188479ADF7D23DE4C39F7AD89AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067399   (387272) от 29.10.2016
-
-VA - Armin van Buuren - Universal Religion (2008) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunlounger - Another Day On The Terrace (Intro Club Mix) 05:35
-02. Dash Berlin - Till The Sky Falls Down (Dub Mix) 05:35
-03. Jose Amnesia feat. Jennifer Rene - Invincible (Sied van Riel Remix) 06:07
-04. Dubfire - Roadkill (EDX's Acapulco At Night Remix) 04:49(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E2EEF0D598BE297B35677647F99D9F4E8FDBFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

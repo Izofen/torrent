@@ -1,3 +1,29 @@
+###  Публикация: 616575   (974801) от 10.02.2013
+
+VA - Ultimate Classical Guitar - The Essential Masterpieces (2008) 5CD, Box Set [FLAC|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical GuitarПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 438267   (974814) от 19.01.2012
 
 Hans Zimmer - Гладиатор / Gladiator (2000) [MP3|320 kbps]<OST>
@@ -778,35 +804,6 @@ VA - Los clasicos argentinos Tango - Vol.06 (1996) [MP3|128 кб/с] <Tango>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:174C0A99090E24D5622F6E88E13F104D343A44D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973777   (978184) от 10.01.2016
-
-Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sally Jo (02:26)
-02. Muddy Water (04:55)
-03. Best I Can (03:20)
-04. Taylor Nichole (03:35)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DE2DC094180E9622407A6F0A2ACAEB29E45342
 ```
 
 https://mybot314.ru/tekegram_catalog/

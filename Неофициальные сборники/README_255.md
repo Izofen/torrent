@@ -1,3 +1,62 @@
+###  Публикация: 1064420   (427906) от 19.10.2016
+
+VA - Billboard Top 40 Singles Chart (22-10-2016) [MP3|~245 Kbps (V0)] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как то на трекере никто не подхватил тему топов известных музыкальных лейблов. Поэтому представляю очередной Billboard Top 40 Singles Chart . Официальный хит-парада синглов Америки, отсортированных по результатам продаж за неделю, ведется с 1936 года американским журналом Billboard.
+Во все треки вшиты обложки альбомов.01. The Chainsmokers - Closer (feat. Halsey)  (4:05)
+02. twenty one pilots - Heathens  (3:16)
+03. Shawn Mendes - Treat You Better  (3:08)
+05. DJ Snake - Let Me Love You (feat. Justin Bieber)  (3:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F8C6C7C709ABFB620970086CE93A05FB371301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064251   (427909) от 19.10.2016
+
+VA - Relax to House Vol. 3 (2016) [MP3|320 Kbps] <House, Chillout, NuDisco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andain - Beautiful Things (OutaMatic Remix)
+002. Anton Ishutin feat. Leusin - Waves (Andrey Kravtsov Remix)
+003. Audiobruz - Believe (Original Mix)
+004. DJ Bobo - Now Or Never(   Читать дальше...   )Жанр: House, Chillout, NuDiscoПродолжительность: 08:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70E3741D5ABD2A75155E62E86F4C7CDF78242B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064249   (428041) от 19.10.2016
 
 VA - Relax to House Vol. 2 (2016) [MP3|320 Kbps] <House, Chillout, NuDisco>
@@ -711,64 +770,6 @@ N/AЖанр: Drum and BassПродолжительность: 01:11:46
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82FA58E547EA956D89086BB2A02A8D6383DB6692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324103   (429703) от 07.09.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 06.09.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - Bad Guy 3:14
-02. Jonas Brothers - Sucker 3:01
-03. Shawn Mendes & Camila Cabello - Senorita 3:11
-04. Daddy Yankee feat. Katy Perry & Snow - Con Calma (Remix) 3:01(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9197B1D7B250DF8B71026B7C8E9E20CC2CF9146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324084   (429717) от 07.09.2019
-
-VA - German Top 100 Single Charts 07.09.2019 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429717.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Apache 207 - Roller
-002. Rin - UP IN SMOKE
-003. Tones and I - Dance Monkey
-004. Shawn Mendes & Camila Cabello - Señorita(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DE71973952E3170C541470509062D967B663E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 553540   (441901) от 29.09.2012
+
+VAD - Заря (2011) [MP3|320 кб/с]<New Age, Ethnic , Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zarya
+02.  Kumushki
+03.  Vo Sadu Sadochke
+04.  Nu-Ka
+05.  Golub
+06.  Ti Ne Stoy
+07.  U Vorot
+08.  Na Gorke
+09.  Maslyanaya
+10.  Ti VospoyЖанр: New Age, Ethnic , FolkПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F8978BAAA0A6722C5839F301629458037CDAC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553695   (441904) от 29.09.2012
 
 Jana Mashonee - American Indian Story (2006) [MP3|320 кб/с]<Native American Ethno, New Age, Pop, Folk>
@@ -745,35 +780,6 @@ Vangelis Katsoulis - If Not Now When (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01BD186848BB6C4262AAC9FAA7B8B913719FD75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247910   (448491) от 17.09.2018
-
-Rajendra Teredesai & BlueMonk - Samsara (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Himalayan Sunrise
-02. Sunshine Girl
-03. Darjeeling Dreams
-04. As Life Passes By, Pt. 1(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1FFF64B8A3D5E14D6F25166CD25744CCC7FAF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

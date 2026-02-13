@@ -1,3 +1,32 @@
+###  Публикация: 1065196   (420836) от 22.10.2016
+
+Anthem - Blazing Faith - revisited (2015) Deluxe Edition - Blu-Ray + SHM CD [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420836.jpg" />
+</div>
+
+
+###  Подробнее
+
+1st Album Live In Studio:
+01. Wild Anthem 05:01
+02. Red Light Fever 03:09
+03. Lay Down 04:57(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD55145041B9B0CF5F5B6FCF5BDD4DAA473CCF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065167   (420945) от 22.10.2016
 
 SYU - Crying Stars - Stand Proud! (2010) Korean Edition [FLAC|Lossless|image + .cue] <Progressive Neoclassical Power Metal>
@@ -751,41 +780,6 @@ VA - Who Do They Think We Are? - A Tribute to Deep Purple from Japan (1996) Reis
 08. Genki Hitomi, Hideaki Nakama(Hell And Back), Norifumi Shima(Concerto Moon) - Woman From Tokyo [06:13]
 09. Minoru Niihara, Fumihiko Kittaka(King-Show) - Fireball [03:52]
 10. Demon Kogure, Yoshiro Takahashi, Fumihiko Kittaka(King-Show) - Highway Star [06:38]Жанр: Rock, Hard Rock, Blues RockПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545189   (476209) от 14.09.2012
-
-Loudness - 2·0·1·2 (2012) [WavPack|Lossless]<Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476209.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. The Stronger (4:20)
-02. 2012 ~End of the Age (5:00)
-03. Break New Ground (5:07)
-04. Driving Force (4:55)
-05. Behind The Scene (5:31)
-06. Bang 'em Dead (4:07)
-07. The Voice of Metal (Song For RJD) (4:12)
-08. Who The Hell Cares (5:40)
-09. Spirit From The East (2:18)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:39+00:06:00
 
 ## Скачать торент
 ```bash

@@ -1,23 +1,22 @@
-###  Публикация: 553003   (446590) от 27.09.2012
+###  Публикация: 943411   (443120) от 06.10.2015
 
-80 дней / 80 egunean (2010) DVDRip
+В. Т. Пискунов (зав. ред.) | Государственно-монополистический капитализм: общие черты и особенности (1975) [DJVU]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446590.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Героини фильма познакомились еще в средней школе, но строгая мораль тех лет не позволила их отношениям зайти дальше, чем просто дружба. Позже судьбы девушек разошлись: одна из них вышла замуж и поселилась на ферме, вторая отправилась путешествовать по миру, окончательно определилась со своей сексуальной ориентацией и, сделав успешную карьеру преподавательницы фортепиано, спустя пятьдесят лет вышла на пенсию и вернулась в Сан-Себастьян.
- Случайная встреча в больнице переворачивает судьбы бывших подруг. Чувства, которым не было суждено раскрыться много лет назад, овладевают ими. Героиням предстоит решить, смогут ли они в семьдесят лет начать новую жизнь, или разум возьмет верх над чувствами…Жанр: ДрамаРежиссер: Хон Гараньо, Хосе Мария ГоэнагаАктеры: Ициар Аспуру, Хосе Рамон Аргойтия, Сорион Эгилеор, Ане Габарайн, Патриция Лопез, Мариасун ПагоагаПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 01:46:14
+Книга подготовлена коллективом ученых-экономистов высших учебных заведений СССР, Болгарии, Венгрии, ГДР, Польши. В создании ее принимали участие также сотрудники научных экономических учреждений этих стран. В ней рассматриваются общетеоретические и конкретно-экономические проблемы государственно-монополистического капитализма, в том числе и мало исследованные в нашей (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:499F75F83935ACE027C67E09D2A988958866AE23
+magnet:?xt=urn:btih:C73C04D052D037C8BE5163A1246F17ACB74F2F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 552982   (446591) от 27.09.2012
+###  Публикация: 943848   (443122) от 06.10.2015
 
-Журнал | Загадки истории №13 [2012] [PDF]
+М. А. Парнюк (отв. ред.) | Закон единства противоположностей (1991) [DJVU]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446591.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Формат: PDF
+В монографии проведено комплексное исследование закона единства противоположностей. Освещаются основные этапы его становления в историй философии, критически анализируются немарксистские интерпретации данного закона. Обосновывается его концепция как основного закона материалистической диалектики и тем самым определяется его место в категориальной структуре диалектики. (   Читать дальше...   )Жанр: История, философияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66D86AA4441E4558398B7A9B504AFCA022CD9A36
+magnet:?xt=urn:btih:B809EE57CFD849A064B97F3AD18084E9AB5D590A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,31 +50,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 550444   (446592) от 27.09.2012
+###  Публикация: 943858   (443124) от 06.10.2015
 
-VA - Sweet Jazz Soul (1997) [FLAC|Lossless]<Jazz>
+М. А. Парнюк (отв. ред.) | Категории одно и множество (1992) [DJVU]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446592.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Charles Mingus - Wednesday Night Prayer Meeting [05:42]
-02. The Manhattan Transfer - Birdland [05:58]
-03. Herbie Mann - Memphis Underground [07:07]
-04. Modern Jazz Quartet With Sonny Rollins - Bags' Groove [08:38]
-05. John Coltrane - My Favorite Things [13:41]
-06. Ornette Coleman - Lonely Woman [04:59]
-07. Charles Lloyd - SorceryЖанр: JazzПродолжительность: 01:00:44
+В монографии исследуются становление и развитие категорий «одно» и «множество». Освещается место этих категорий в структуре разных мировоззренческих систем. Анализируется их функционирование в математике, физике, химии, биологии, космологии.
+
+Для научных сотрудников, преподавателей и студентов вузов.Жанр: История, философия, науковедениеФормат: DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D5B8EBCBEF816619B8E65DAD3D6C5206229B3494
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,25 +78,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061763   (446594) от 11.10.2016
+###  Публикация: 944358   (443126) от 06.10.2015
 
-Mozilla Firefox 50.0 beta 6 (x86/x64) [Ru]
+VA - Unique Sense History Vol. 1 (Mixed By Abstract Vision) (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446594.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+01. Abstract Vision - Excalibur (Original Mix) (5:49)
+02. Digital X - Raveland (Original Mix) (4:52)
+03. Behind The Sunset - Actus Secundus (Arisen Flame Remix) (6:05)
+04. Tolga Uzulmez - Nihavend (Mino Safy Remix) (6:55)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:12:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF7307A230DFE7D4E42FABA9206DE936BAA2B2D6
+magnet:?xt=urn:btih:CF113E3CF2F6611F2CEE909CD1183E21A3E3E632
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,219 +107,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061855   (446595) от 11.10.2016
+###  Публикация: 943901   (443127) от 06.10.2015
 
-VA - Осенний Muz драйв (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Bahh Tee - Никотин (03:36)
-002.Kaleida - Think (04:27)
-003.Avicii - True Believer (04:48)
-004.Dante - Замутим (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 06:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC32A92BBA4B9AB536ABFCBE336FC37BA9D1578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061725   (446596) от 11.10.2016
-
-Capto – Screen Recording, Screen Captures, and Editing 1.2 [Multi]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capto (was Voila) - профессиональная программа для захвата видео и изображений с рабочего стола.
-Приложение от Французских разработчиков прошло тернистый путь, от простого менеджера скриншотов, до полнофункционального редактора и каталогизатора. Менеджеры скриншотов относятся к узкоспециализированным программам для Mac, которые востребованы лишь у небольшого числа (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 октября 2016Разработчик: Global Delight Technologies Pvt. LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061752   (446597) от 11.10.2016
-
-Desverger - The Prototype Versions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final Battle (06:35)
-02. Clandestine (05:11)
-03. Bocen (feat Manu Forti) (05:16)
-04. Arcs and Lines (05:52)(   Читать дальше...   )Жанр: IDM, Downtempo, AmbientПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061904   (446598) от 11.10.2016
-
-Синезий Киренский | Полное собрание творений [Том I] (2012) [PDF, DJVU]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синезий Киренский (370-412 н. э.) — философ-неоплатоник, астроном, механик, поэт, дипломат, солдат, митрополит Пентаполя — одна из ярчайших фигур рубежа IV-V вв. Он был учеником и одним из ближайших друзей Гипатии Александрийской, принадлежал к кружку Троила и Аврелиана в Константинополе, был прямым участником антиготского восстания 11-12 июля 400 г., изменившего (   Читать дальше...   )Жанр: Трактаты, гимныФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061781   (446599) от 11.10.2016
-
-VA - LUXEmusic - Dance Super Chart Vol.89 (2016) [MP3|320 Kbps] <House, Mash Up, Hand Up, Club, Dance>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent - Disco Inferno (DJ Pasha Lee and DJ Vitaco Remix)  4:34
-02. ACDC - T.N.T (DJ Zarubin Remix)  4:47
-03. Dimitri Vegas and Like Mike - Stay A While (Filatov & Karas Extended Mix)  4:51
-04. Cher - Believe (Yastreb Remix)  5:15(   Читать дальше...   )Жанр: House, Mash Up, Hand Up, Club, DanceПродолжительность: 03:35:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061609   (446600) от 11.10.2016
-
-Crescent Lament - Elegy For The Blossoms (2015) Digipak [FLAC|Lossless|image + .cue] <Melodic Black, Symphonic, Gothic Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446600.jpg" />
-</div>
-
-
-###  Подробнее
-
-恆月三途 Crescent Lament - "花殤 Elegy for the Blossoms
-01. 晴雨 - Sedative Rain 01:23
-02. 月映西窗 - Lullaby of Sanctuary 04:56
-03. 風月場 A - Mental Escape 04:35(   Читать дальше...   )Жанр: Melodic Black, Symphonic, Gothic MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061830   (446601) от 11.10.2016
-
-VA - Хитовый бум - 8 (2016) [MP3|256 Kbps] <Pop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446601.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Colbie Caillat - Goldmine
-002. Юлия Морозова - Всегда С Тобой Рядом
-003. Lera Lynn - The Only Thing Worth Fighting For
-004. Олег Кензов - Номером Один(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061397   (446602) от 11.10.2016
-
-Использование "силы" света позволило создать перезаписываемый голографический материал
+Ученые зафиксировали факт возникновения высокотемпературной сверхпроводимости на стыке двух изоляционных материалов
 
 >>Поговорим
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446602.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_443127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа исследователей из Имперского колледжа в Лондоне, Гарвардского университета и Массачусетского технологического института использовала силы давления света для создания динамического голографического материала. В отличие от других голографических материалов новый материал может быть многократно "перезаписан" и он может сохранять свое состояние сколь (   Читать дальше...   )
+Ученые, занимающиеся технологиями электронной микроскопии в Национальной лаборатории Ок-Ридж (Oak Ridge National Laboratory), сделали достаточно большой шаг на пути разработки новых сверхтонких материалов, которые способны проводить электрический ток без сопротивления при относительно высоких температурах. Используя возможности мощного электронного микроскопа, ученые (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -333,28 +133,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061587   (446603) от 11.10.2016
+###  Публикация: 944288   (443130) от 06.10.2015
 
-Black Kirin - National Trauma (2015) English Version [FLAC|Lossless|image + .cue] <Melodic Death, Folk Metal>
+Jvox - Strange Universe II (2015) [FLAC|Lossless|WEB-DL]<Leftfield, IDM, Downtempo, Abstract>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446603.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-黑麒 Black Kirin - "哀郢 National Trauma English Version
-01. 黄河 - Yellow River (Huánghé) 07:00
-02. 启衅 - Break the Wall (Qǐ xìn) 07:40
-03. 投名状 - Death Contract (Tóu míngzhuàng) 07:03(   Читать дальше...   )Жанр: Melodic Death, Folk MetalПродолжительность: 01:01:21
+01. Break Transmission (03:01)
+02. 45 Degree Angel (04:18)
+03. Seamless (08:56)
+04. Everybody Is A Circle (05:27)(   Читать дальше...   )Жанр: Leftfield, IDM, Downtempo, AbstractПродолжительность: 00:55:46
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7AF4E2B79199E2C128C7E4EAB76896694270E2DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,28 +162,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061491   (446604) от 11.10.2016
+###  Публикация: 944181   (443131) от 06.10.2015
 
-VA - Попсовый Бум. Часть 10 (2016) [MP3|256 Kbps] <Pop>
+Павел Спасов | Хлеб людской (1964) [PDF, DJVU]
 
->>
->>
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446604.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Жасмин - Сердце  3:10
-002. Karen Harding - Open My Eyes  3:11
-003. Hardwell - Blackout  5:13
-004. Самира - Ты Только Мой  4:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+Действие романа болгарского писателя П. Спасова «Хлеб людской» протекает в годы мирового экономического кризиса 1929—1933 годов. В центре повествования судьбы тех, для кого хлеб людской — предмет спекуляций и орудие наживы, и судьбы тех, кто этот хлеб производит.Жанр: РоманПеревод: А. С. СобковичФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:041077529062997CD6A1BB8517FCD16AAB6191A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,28 +188,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061703   (446605) от 11.10.2016
+###  Публикация: 1409698   (443136) от 18.09.2020
 
-VA - Record Super Chart № 457 (2016) [MP3|320 Kbps] <House, Electro House, Future House, Club, Dance>
+OmniGraffle Pro 7 v7.17.5 [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446605.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. KSHMR & Tigerlily - Invisible Children  2:50
-02. DBSTF & Maurice West - Temple (Extended Mix)  4:01
-03. Sick Individuals vs. Holl & Rush - Helix (Extended Mix)  4:24
-04. Елена Темникова - Импульсы  2:56(   Читать дальше...   )Жанр: House, Electro House, Future House, Club, DanceПродолжительность: 02:00:56
+OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2020Разработчик: Omni GroupПоддерживаемая ОС: macOS 10.14Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8C75FCCBCFEB02F9955F9BAB5EDA77A336BDF31C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,25 +214,167 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061838   (446606) от 11.10.2016
+###  Публикация: 1409578   (443137) от 18.09.2020
 
-CoolUtils PDF Combine 5.1.90 RePack (& Portable) by TryRooM [Multi/Ru]
+VA - Cherie Relax: Chill House (2020) [MP3|320 Kbps] <Chill House, Electro, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443137.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cody Currie - Metropolis
+002. Dreamweaver - The Museum
+003. Definition - Life
+004. Olsen Clay - Ball For All(   Читать дальше...   )Жанр: Chill House, Electro, Deep HouseПродолжительность: 08:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A592FB5989CEA0BD574820D96D14C50DDB2AF972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409649   (443138) от 18.09.2020
+
+Global Communication - Transmissions (2020) Remastered | Evolution [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incidental Harmony (08:42)
+ 02. Sublime Creation (Original Mix) (11:55)
+ 03. Aspirin (Global Communication Remix) (13:08)
+ 04. Rollercoaster (The Global Communication Yellow Submarine Re-Take) (08:18)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Downtempo, Ambient •Продолжительность: 03:36:00 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362566FFE1DCCC4EC6162D56CC80463DBEF625F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409581   (443139) от 18.09.2020
+
+VA - Club Vivid: Electro Dance Music (2020) [MP3|320 Kbps] <Dance, House, Techno, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443139.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tosch - No Bassline Needed
+002. Weston Boucher - Youniverse
+003. Roberto Cavicchioni - Lakota
+004. Boza - Dizzy(   Читать дальше...   )Жанр: Dance, House, Techno, TranceПродолжительность: 12:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E33A4AF7F6604FF0B0BE11707866B137FE7B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409776   (443140) от 18.09.2020
+
+Servamp | Сервамп [2016, TV] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Махиру обычный парень, любящий простоту и ясность во всем, а любые жизненные невзгоды ненавидит до смерти и старается их всячески избегать. Но жизнь его круто меняется после того, как на пути попадается бездомный черный котенок. Добродушный Махиру подобрал его и назвал питомца - Куро. Но как оказалось, Куро и не кот то вовсе, а некий сервамп, и что парень заключил (   Читать дальше...   )Производство: Brains Base / ブレインズ・ベース, Platinumvision / プラチナビジョンЖанр: приключения, комедия, мистикаРежиссер: Накано ХидэакиПеревод: YakuSub Studio (Nika_Elrik, Red-blue_heart)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 4 спешиала по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:880D53F1D8F13281A2B617A3FB79AF03237F6F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409778   (443141) от 18.09.2020
+
+ЛСП - One More City (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Золотой мальчик [03:39]
+02. Поп-звезда [02:57]
+03. Мамонтёнок [03:35]
+04. Девочка-пришелец [03:04](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7430110ABF39F2075749402BB043342D04DA732E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409618   (443142) от 18.09.2020
+
+R-Studio Network Edition 8.14 Build 179611 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446606.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF Combine - надежный инструмент и незаменимая программа для быстрого склеивания нескольких файлов PDF в один. Утилита работает с любыми типами PDF файлов очень быстро и качественно, что позволяет в считанные секунды получить нужный нам результат. Результат работы всегда точен и аккуратен, что важно для инвойсов, контрактов, банковских указов и других документов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+R-Studio - лучшее на сегодняшний день программное обеспечение для восстановления данных. Поддерживает файловые системы FAT12/16/32, NTFS, NTFS5, Ext2FS (Linux). Позволяет восстанавливать файлы, как на локальных логических и физических жестких дисках, так и на дисках, расположенных на удаленных компьютерах через компьютерную сеть.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70B0DA7D5103113937F9572C69AF961FA56B9113
+magnet:?xt=urn:btih:36CED6BCCF676A53376069747997DA5B20421BFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,28 +382,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061730   (446607) от 11.10.2016
+###  Публикация: 1409586   (443143) от 18.09.2020
 
-Serious Black - Mirrorworld (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+VA - Night Fusion: Pure Deep House (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443143.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dechard - Coming (Original Mix)
+002. 2 Plus 2 - Whistle (Extended Mix)
+003. Doublebeats - Stranded (Original Mix)
+004. Alberto Sainz - Yalla Balagan(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3B40E119261B3D5BABEAEEA3927B756CDE9487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409709   (443144) от 18.09.2020
+
+Ashampoo Music Studio 8.0.2.1 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Music Studio – полнофункциональный программный пакет, предназначенный для работы с аудиофайлами, умеющий копировать аудиодорожки на жесткий диск в форматах WMA, MP3, OGG, FLAC и WAV. Также программа позволяет пользователю создавать плейлисты, записывать диски всевозможных форматов, редактировать аудиодорожки и т.д. Программа пригодится всем, кто имеет дело (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7095FEB2A1C47733F7B69E42FB0D67BC9C85C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409615   (443145) от 18.09.2020
+
+VA - Music News vol.38 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slame - Беспредел (02:15)
+ 02. Alicia Keys - Truth Without Love (02:34)
+ 03. Cuebrick - Sway (02:17)
+ 04. Alicia Keys feat. Sampha - 3 Hour Drive (04:02)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADD158E0E23988E63FE63C43C07CB5A0FBF6FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409630   (443146) от 18.09.2020
+
+Black Moon Mother - Illusions Under the Sun (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Psychedelic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446607.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Breaking the Surface
-02. As Long as I'm Alive
-03. Castor Skies
-04. Heartbroken Soul(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:02:25
+1. Lost in the Maze (4:58)
+2. Around the Finger (5:07)
+3. High Win﻿ds (7:17)
+4. Slow Down (4:12)(   Читать дальше...   )Жанр: Doom Metal, Psychedelic RockПродолжительность: 00:30:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFC3D4064C22A899CCA7834CB0FEA0CFBEE235D9
+magnet:?xt=urn:btih:2D67EAEED1C463D2A37FACB39481B040899E459D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,24 +495,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061773   (446608) от 11.10.2016
+###  Публикация: 1409741   (443147) от 18.09.2020
 
-Alquimia - Espiritual (2015) Japanese Ed. 2016 Reissue [FLAC|Lossless|image + .cue] <Power Metal>
+CherryPlayer 3.1.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446608.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Indomable
-02. La Flor En El Hielo
-03. Éxodo
-04. Caballero Blanco(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:56
+CherryPlayer - уникальный проигрыватель аудио -, видеофайлов всех популярных форматов с возможностью прослушивания и просмотра контента прямо из Интернета. Особенно удобен этот проигрыватель для таких ресурсов как ВКонтакте , Last.fm, YouTube, BBC, BillBoard, т.к. тесно интегрирован с ними и их огромными архивами.
+Кроме того, это приложение поможет загрузить понравившийся (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A58745453E41E50958E9E5E8D7333C96BEE7870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409643   (443148) от 18.09.2020
+
+Тина Кароль - Найти своих (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Найти своих
+2. Лодочка
+3. Тина и Евгений Филатов
+4. Небо(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F44822B478F4414406D54BA37E0C6CBCA051B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409827   (443149) от 18.09.2020
+
+Skatt Bros. - Strange Spirits (1979) LP [MP3|320 Kbps] <Pop Rock, Disco>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_443149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancin' For The Man  (3:39)
+02. Fear Of Flying  (3:44)
+03. Midnight Companion  (3:27)
+04. Walk The Night  (3:54)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 00:34:10
 
 ## Скачать торент
 ```bash
@@ -504,28 +580,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061642   (446609) от 11.10.2016
+###  Публикация: 1409775   (443150) от 18.09.2020
 
-Toundra - IV (2015) [FLAC|Lossless|image + .cue] <Instrumental Post-Rock, Post-Metal>
+Анна Зубкова | Божественные сказы земель славянских (2019) [Сборник] [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446609.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Strelka [7:47]
-02. Qarqom [9:39]
-03. Lluvia [4:55]
-04. Belenos [7:23](   Читать дальше...   )Жанр: Instrumental Post-Rock, Post-MetalПродолжительность: 00:51:26
+Перед вами 5 сказов, записанных Анной Зубковой. На землях, которые населяли народы, именуемые теперь славянскими, была особая культура, особая традиция передачи знаний с помощью сказов. Это не были уроки, которые следует выучивать, но повествования, в которых говорилось и о нравственности, и об истории Земли, и о приёмах развития души, и о Боге-Создателе. Они были (   Читать дальше...   )Жанр: Народные преданияПродолжительность: 02:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82483D90BDFD4A4C31669CE47D64474EF1F10142
+magnet:?xt=urn:btih:C65C78359108FDEA181C8ED6B258EEA0D3DF8E94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,28 +606,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061654   (446610) от 11.10.2016
+###  Публикация: 1409760   (443151) от 18.09.2020
 
-Zuriaake - Gu Yan (2015) Digipak [FLAC|Lossless|image + .cue] <Black Metal>
+Viber 13.8.0.25 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446610.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-葬尸湖 Zuriaake - "孤雁 Gu Yan"
-01. 暮雲 - Intro: Afterglow 04:24
-02. 孤雁 - The Lorn Goose 12:18
-03. 天庭 - Heaven 07:19(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:00:57
+Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9E62AC39F587AC1C3B7346DC606B5E57CDD8869
+magnet:?xt=urn:btih:BE8118E51CE18EEAF2FC077C0CDE5DA97D8E0A3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,25 +632,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061799   (446611) от 11.10.2016
+###  Публикация: 1409745   (443152) от 18.09.2020
 
-BookMacster 2.2.14 [En]
+Viber 13.8.0.25 RePack (& Portable) by Dodakaedr [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446611.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BookMacster - приложение синхронизирует закладки между браузерами: Safari, Firefox, Chrome, Camino, iCab, Opera и OmniWeb, а так же в Интернет с Delicious, Pinboard, и Google Bookmarks. BookMacster поддерживает теги, комментарии и ссылки и в любой момент времени доступны в строке меню. Все закладки можно отсортировать по алфавиту, проверить на наличие "мертвых" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2016Разработчик: Sheep SystemsПоддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Английский
+Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A2BE9BA7AE2BB3C68C8028A88D300E74664D04C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,28 +658,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061547   (446612) от 11.10.2016
+###  Публикация: 1409610   (443153) от 18.09.2020
 
-VA - Airport Lounge Vol.8 (2016) [MP3|320 Kbps] <Downtempo>
+ЛСП - Свиное рыло (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
->>
->>
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446612.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock - Fading Into Oblivion (5:59)
-02. Weathertunes - The Snake (4:13)
-03. Mindel - Butterfly (2:22)
-04. Omaya - Whisper (3:57)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 01:44:45
+01. Свиное рыло [03:05]
+02. Подельник (feat. Снифф & Снафф) [02:37]
+03. Спрос [02:49]
+04. Стиморол [02:36](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:04
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2FD17CAB2F1CD354B0954D7935E1E9D74DE62CA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,115 +687,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061916   (446613) от 11.10.2016
+###  Публикация: 1409777   (443154) от 18.09.2020
 
-Toxic Ruin - Subterranean Terror (2016) [MP3|320 Kbps] <Thrash Metal>
+Gekijouban Servamp: Alice in the Garden | Сервамп: Алиса в саду [2018, Movie] HDTV 720p raw
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Аниме с субтитрами
+>>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446613.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Submerged In Chaos
-2. Immolation
-3. Seat Of Corruption
-4. Subterranean Terror(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:51
+Полнометражный фильм описывает события, о которых не говорилось в аниме-сериале. В адаптации рассказывается о прошлом Мисоно и Микуни, а также о попытке Отогири разорвать связь между Лили и его хозяином.Производство: Platinumvision / プラチナビジョンЖанр: приключенияРежиссер: Накано ХидэакиПеревод: YakuSub Studio (Nika_Elrik, Red-blue_heart)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E81A897CCD051591CD253209F56998617CF5D5B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706016   (446614) от 01.10.2013
-
-VA - Jazz For Weddings (2007) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etta James - At Last [3:01]
-02. Willie Bobo - This Guy's In Love With You [2:59]
-03. Margaret Whiting - The Way You Look Tonight [3:34]
-04. Johnny Hartmann - Unforgettable [2:37](   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D631A01B917E863409D9485DF1B656CF6F200F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706047   (446615) от 01.10.2013
-
-Pharoah Sanders - Spiritual Blessings (2013) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Colors   (5:39)
-02.  Astral Traveling   (5:50)
-03.  The Creator Has A Masterplan   (9:09)
-04.  Wisdom Through Music   (5:44)(   Читать дальше...   )Жанр: Jazz, Free JazzПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FCC1762856615265E60EEDF9F63BA494FC0917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706139   (446618) от 01.10.2013
-
-VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chillout, Lounge, Downtempo>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Halo(Side Mix)   (4:54)
-02.  Need to Feel Loved   (3:44)
-03.  Speak to Me   (5:12)
-04.  Love   (4:54)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8EDAA8A732F1FA62AE7920994370FD6CEB224B
+magnet:?xt=urn:btih:86C60DA18C76C8496500F3EA45350CEC00963711
 ```
 
 https://mybot314.ru/tekegram_catalog/

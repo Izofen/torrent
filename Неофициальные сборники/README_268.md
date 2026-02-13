@@ -1,3 +1,61 @@
+###  Публикация: 1408317   (451138) от 14.09.2020
+
+VA - Hits of My Soul Vol. 59 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451138.jpg" />
+</div>
+
+
+###  Подробнее
+
+[07:12] 01. Cathy Burton - Heaven (DNS Project Original Mix)
+[05:51] 02. Gareth Emery feat. Christina Novelli - Save Me (Lanos Extended Remix)
+[06:56] 03. Bobina & Betsie Larkin - No Substitute For You (Andy Duguid Remix)
+[06:45] 04. Solid Stone & Jennifer Rene - Heart Call (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance •Продолжительность: 16:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF4B97C72AE40A98370B67732ED9E311516FA6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942933   (451188) от 02.10.2015
+
+Modern Talking - Good Songs (2015) [MP3|160 кб/с]<Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451188.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. You're My Heart, You're My Soul (1984)
+002. Bells Of Paris (1985)
+003. Cheri Cheri Lady (1985)
+004. Diamonds Never Made A Lady (1985)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 09:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C3308E41D747D073FCEE06C6509121F63818B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551989   (451268) от 25.09.2012
 
 VA - Автозвук Осень Зарубежный (2012) [MP3|160-256 кб/с]<Pop, Dance>
@@ -723,64 +781,6 @@ VA - Absolutely Techhouse (2015) [MP3|320 кб/с]<Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:998240F02D5141074BDB0635EAEE70007126D3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322107   (452204) от 27.08.2019
-
-VA - Shazam Хит-парад Russia Top 100 Август (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452204.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Shawn Mendes & Camila Cabello - Señorita (3:11)
-2.C-BooL - Catch You (3:13)
-3.SAINt JHN - Roses (2:53)
-4.Элджей feat. Era Istrefi - Sayonara детка (2:44)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E6C77AD7B8DDA609F2ED0BF019379E224D61F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322007   (452485) от 27.08.2019
-
-VA - Rhythm Of My Song (2019) [MP3|320 Kbps] <Pop, RnB>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452485.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Krezip - How Would You Feel
-002. Iyla - Flowers
-003. Jessie Reyez - Saint Nobody
-004. Mariama - Raindrops(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 09:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CF4E483AA0165E20C6388ADE1DB12E78832466
 ```
 
 https://mybot314.ru/tekegram_catalog/

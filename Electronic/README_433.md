@@ -1,3 +1,32 @@
+###  Публикация: 1382145   (820875) от 10.05.2020
+
+VA - Silent Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Wanderlust (Original Mix)
+02. Michael E - It's Time (Original Mix)
+03. DMTunes - Evening Glow (Original MIx)
+04. Eskadet - Lost in Your Eyes (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBA21778DF28365674597BF7548D0E92E902196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382187   (820887) от 10.05.2020
 
 Booka Shade - Dear Future Self (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep House>
@@ -712,35 +741,6 @@ VA - 2020 Disco Party (2020) [FLAC|Lossless|WEB-DL|tracks] <Jackin' House, House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93BC13B0005811D28D1C31A8617001D8F313F6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503127   (822913) от 17.10.2021
-
-Koan - Ohm (Side A.B) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Breakbeat, Drum n Bass, Hip-Hop>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pigmalion (Breaks Version) (8:21)
-02. Agartha (Koan Remix) (8:18)
-03. Seven Muses (Ohm Version) (6:26)
-04. Arkanar (Breaks Version) (5:56)(   Читать дальше...   )Жанр: Electronic, Ambient, Breakbeat, Drum n Bass, Hip-Hop |Продолжительность: 01:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE59696ED53CF2E418E7518EE72386AE9985A88
 ```
 
 https://mybot314.ru/tekegram_catalog/

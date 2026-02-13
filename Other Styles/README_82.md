@@ -1,3 +1,32 @@
+###  Публикация: 1314749   (516948) от 16.07.2019
+
+Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
+02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
+03. Wilbert Roget, II - Netherrealm Incursion (03:43)
+04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E9BD7D9600DB23B7E3B08F3BA949936330DD6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314748   (516955) от 16.07.2019
 
 Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
@@ -719,35 +748,6 @@ VA - Latin Fitness:Summer Edition (2018) [MP3|320 Kbps] <Rumba, Salsa, Brazilian
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E4935F795C0464AE882A08A8AE82C8ECEB090ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927209   (524847) от 13.08.2015
-
-Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno (Remix)
-02. Don't Go Away
-03. The Mass
-04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C306D3B1FCE6FA62B9C671497A226DF1D0CB0F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

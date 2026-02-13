@@ -1,3 +1,32 @@
+###  Публикация: 1375242   (866934) от 13.04.2020
+
+Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turning
+02. Sun Dappled
+03. Ripples
+04. New Hope(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833A3495829665121E0ED0BD4F6FF8A3FFD0BF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375118   (866936) от 13.04.2020
 
 Danny Wright - Unwind: Peaceful Piano Relaxation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -757,35 +786,6 @@ Windsong - Windsong A Celebration of Life (Native American Chants & Dances) (199
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BC04237BB36FC10358CF8122B980C1570A03F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374712   (870764) от 11.04.2020
-
-Blackmore’s Night - Under A Violet Moon (1999) [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under A Violet Moon (04:24)
-02. Castles And Dreams (03:34)
-03. Past Time With Good Company (03:24)
-04. Morning Star (04:41)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E2CBBC7B2930B80A13217B78389922A620433B
 ```
 
 https://mybot314.ru/tekegram_catalog/

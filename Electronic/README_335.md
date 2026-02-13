@@ -1,3 +1,32 @@
+###  Публикация: 1139588   (659301) от 03.06.2017
+
+VA - Ori Uplift - Uplifting Only 225 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659301.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. FAN FAVORITE: illitheas - Shine (Intro Mix)
+2. Susana - Only Summer Knows
+3. Ana Criado - Still There's You (A.R.D.I. Remix)
+4. Daniel Vitellaro Ft' Tina K - All I Need (Amos & Riot Night Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFDCBBFC79A2E3FC86D6579189A6548C66F03BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139758   (659303) от 03.06.2017
 
 VA - Vienna Night Tales - The Best Of Urban Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39220FCBB083B365D15CB894ADD04F8772141BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225339   (660818) от 15.05.2018
-
-Ocralab - Sonitum Nubium (2018) Space Of Variants [FLAC|Lossless|tracks+.cue] <Abstract, Ambient, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aereperennius (07:24)
-02. Albiogenesi (07:15)
-03. Arcus (07:20)
-04. Floccus (07:44)(   Читать дальше...   )Жанр: Abstract, Ambient, Dub TechnoПродолжительность: 00:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D804C130603B5676FDBDBFE4DB0105BACC1B7E9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

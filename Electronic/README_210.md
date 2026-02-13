@@ -1,3 +1,32 @@
+###  Публикация: 1072675   (352391) от 13.11.2016
+
+VA - New Years Eve: Dance Party Package (2016) [MP3|320 Kbps] <House, Disco, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natalie Grant - I Will Survive (Vocal Radio Edit) (3:17)
+02. The Booty Jocks - Night Fever (5:24)
+03. Proyecto E-Fecto & Markus D'Ambrosi - Sweat... A La La La La Long (Reggaeton Mix) (3:22)
+04. The Booty Jocks - Celebration (5:11)(   Читать дальше...   )Производство: Sounds UnitedЖанр: House, Disco, DanceПродолжительность: 01:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2278914262219A946551632FF7333BE1AA684C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072407   (352604) от 13.11.2016
 
 VA - Space Cafe, Vol. I (Finest Chillout & Lounge Tracks) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -710,32 +739,6 @@ Subheim - Discography 10 Releases (2008-2020) Tympanik Audio, Denovali Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B3667D0DB8E25052E23D9C737C561332FB31314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724036   (355320) от 18.11.2013
-
-Vincent Villuis (Aes Dana) - Asura (Ambient DJ Set) (2000) Mixed [FLAC|Lossless]<Psybient, Trance, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (71:10)Жанр: Psybient, Trance, AmbientПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423D71EEFCCE125C82A55B25D33C35F9BD339670
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1007564   (817162) от 17.04.2016
+
+Edvin Marton & Vienna Strauss Symphony Orchestra - Rock Symphony (2016) [MP3|320 кб/с] <Classical, Violin, Instrumental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817162.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nothing Else Matters (4:02)
+ 2. Bohemian Rhapsody (4:51)
+ 3. Vivaldi Storm (2:37)
+ 4. Fanatico (3:27)(   Читать дальше...   )Жанр: Classical, Violin, InstrumentalПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2A4B9D0F3F80DC33DC15FE75AF76CA8E267621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007422   (817315) от 17.04.2016
 
 Joep Beving - Solipsism (2015) [MP3|320 кб/с] <Modern Classical, Piano>
@@ -731,35 +760,6 @@ New London Chorale - Young Messiah (1979) [FLAC|Lossless|WEB-DL|image + .cue] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31AA0BBA5361ADE34A7135AD6608E5A8755D0998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005195   (832212) от 09.04.2016
-
-VA - Top 50 Most Popular Classical Piano (2014) [MP3|320 кб/с] <Classical, Piano>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liebestraume, S. 541 III. Oh Lieb, so lang du lieben kannst - Franz Liszt
-02. Lieder ohne Worte, Op. 19b I. Andante con moto - Felix Mendelssohn
-03. Nocturne in B-Flat Minor, Op. 9 No. 1 - Frederic Chopin
-04. 4 Impromptus, D. 935, Op. 142 III. Impromptu in B-Flat Major Rosamunde - Franz Schubert(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 03:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F27ACBB3C5621C7E8B955338EED3C35B2529F29
 ```
 
 https://mybot314.ru/tekegram_catalog/

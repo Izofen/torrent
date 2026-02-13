@@ -1,3 +1,32 @@
+###  Публикация: 1000801   (857434) от 26.03.2016
+
+Janet Baker, Geoffray Parsons - Baker (2002) "BBC Legends" Series [FLAC|Lossless|tracks] <Classical, Vocal music.>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christoph Willibald Gluck - Paride ed Elena, opera in 5 acts, Wq. 39 - O del mio dolce ardor  4:13
+02. Jean-Baptiste Lully - Amadis, opera, LWV 63 - Bois epais  2:48
+03. Benedetto Marcello - Amadis, opera, LWV 63 - Il mio bel foco (Quella Fiamma che m'accende), for cantata for soprano, 2 violins, 2 oboes & continuo, SF. 142 (spurious)  3:33
+04. Lennox Berkeley (   Читать дальше...   )Жанр: Classical, Vocal music.Продолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9ACACB187197B08105949FA4D75D2BDCF3BD02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000751   (857497) от 26.03.2016
 
 Clifford Curzon, Budapest Strig Quartet - Brahms - Piano Quintet in F minor. Dvorak - Piano Quintet in A major. (2005) recordings 1950 - 1953 [FLAC|Lossless|image + .cue] <Classical>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2418F6AA2CE7C5DAA115EC8162EB6D11152C8D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999117   (865956) от 21.03.2016
-
-Claude Debussy - Images & Preludes II (Marc-Andre Hamelin) (2014) [FLAC 2.0|96/24|Lossless|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Images Book I (1905) L105
-1 Reflets dans l'eau 5'19
-2 Hommage à Rameau 7'09
-3 Mouvement 3'27(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D10338304E712201B45CBC28E94E7D3CFF0AE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

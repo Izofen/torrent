@@ -1,3 +1,33 @@
+###  Публикация: 1412054   (422715) от 27.09.2020
+
+Nicolas de Angelis - Grand Concert (1986) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nicolas de Angelis является ярким представителем французской школы романтической гитары, а также одним из вдохновителей последней волны нового французского романтизма. Родился в местности Сэнт Клод – северном предместье Парижа, потянувшемся вдоль берега Рэйна.
+В юности получил классическое музыкальное образование по классу гитары, с десяти лет занимаясь в парижской (   Читать дальше...   )01. - La Danse Du Sabre (Katchatourian) (02:28)
+02. - Danse Macabre (Saint-Saëns) (02:39)
+03. - Adagio (Albinoni) (03:17)
+04. - Barcarolle (Offenbach) (02:55)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FECD77F2AF1AD87D2A7BD73C214BFE39F9F9398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411998   (422963) от 27.09.2020
 
 Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Lossless|image + .cue] <Soundtrack>
@@ -713,35 +743,6 @@ Bernard L'Hoir - She's... (2015) [OGG| 407-500 кб/с]<New Age, Jazz, Folk, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFBB5C9855BBF92CF28E169D4730C471255CF29A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411015   (429483) от 24.09.2020
-
-VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J. C. Aprile & His Orchestra / Feelings (04:14)
-02. Denny Wright / Try A Little Tenderness (02:59)
-03. Denny Wright / Fly Me To The Moon (02:57)
-04. Dick Abell / Minette (02:21)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F10C83EC4AE7FE4132907AB864FFFF07D065FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

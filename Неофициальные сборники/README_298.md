@@ -1,3 +1,73 @@
+###  Публикация: 540741   (502562) от 30.08.2012
+
+VA - Top 100 Новинок В Машину! 50/50 (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 140 Ударов В Минуту - Надышаться Тобой
+ 02. Paulina Rubio - Loud
+ 03. Konstantin Ozeroff & Uncle Roma & DJ Sky - Буги-Вуги (Radio Edit)
+ 04. Ryan & Radu - Everything (Radio Edit)
+ 05. Ring Girls - Танцуй Для Меня
+ 06. SynthLoverz & Pournaras Thanos - Mine Edo
+ 07. Дмитрий Нестеров - Безумно Любя
+ 08. Wanda - One Big Love (Radio Edit)
+ 09. Ирина Кулькова & CJ Alexey Lavrentev - ВКонтакте (Radio Edit)
+ 10. Andrew Spencer - Give It Up (Game Of Love)(   Читать дальше...   )Жанр: РорПродолжительность: 06:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7F9EDD2242A72035EDA8AA6F4437C665DF1608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541169   (502573) от 30.08.2012
+
+VA - Молодежный хит осенний. Top 100 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Достучаться до небес feat. Анна Плетнева (Винтаж) - Отпусти меня
+ 02. Серебро - Мальчик
+ 03. Женя Вилль - Прячь в позвоночник
+ 04. Елена Терлеева - Просто
+ 05. Марсель - Иди ко мне
+ 06. Milena & Murzin Denis - В эту ночь
+ 07. Настя Задорожная - До дна
+ 08. Dan Balan - Не любя
+ 09. USB (United Sexy Boyz) feat. Сергей Жуков - Скажи зачем
+ 10. Анжелика Агурбаш - Просто Так(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B091A15C2643239F2403D0297518BFFFB23BDCCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563599   (502601) от 16.07.2022
 
 Shivaree - Compilation (2022) [MP3|320 Kbps] <Alternative>
@@ -740,76 +810,6 @@ VA - Сборник медленных хитов Vol.11 (2012) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF5314AED9A880E6D3B6300E2B8E0360082DC49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539454   (504819) от 28.08.2012
-
-VA - Хит Шансона хитов Vol.2 (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504819.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Елена Кантер - Пью за любовь
-002. М. Круг и В. Цыганова - Дорога дальняя
-003. О. Лифановский - Я Тебя Больше Не Жду
-004. М. Баталов - Вор
-005. Борис Гулярин - Сонька Золотая ручка
-006. С. Джанни - Я От Тебя Вдали
-007. Михаил Шуфутинский - Анжелина
-008. Назар - Люба-Любаша
-009. А. Новиков - Это Было У Моря
-010. А. Климнюк - Удачи тебе браток(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D11AA9703CACFCD26A84505F1713D943530F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539936   (504879) от 28.08.2012
-
-VA - I love Electro Music vol.1 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504879.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 13
-2. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 16
-3. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 2
-4. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 7
-5. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 8
-6. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 9
-7. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 14
-8. Alex Sayz ft Nadia Ali - Free To Go (Original Mix)
-9. Alexander Popov Feat. Kyler England - My World (Dub Mix Edit)
-10. Bel Suono & DJ Magic Finger  - Te Quiero(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219D00CEBE765877F2C61AE83A1FA479D6D1A31C
 ```
 
 https://mybot314.ru/tekegram_catalog/

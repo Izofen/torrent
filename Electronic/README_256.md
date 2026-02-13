@@ -1,3 +1,32 @@
+###  Публикация: 1406084   (479379) от 01.09.2020
+
+VA - Markus Schulz - Global DJ Broadcast -Top 20 August (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daxson & Dan Thompson - Echoes In Eternity (Extended Mix)
+02. BT & Matt Fax - 1AM in Paris (Original Mix)
+03. Arkham Knights - The Vision (Extended Mix)
+04. Ferry Corsten & Ciaran McAuley - Mo Chara (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65797E3C5E36C3FC32905DE490A6D47104255E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545871   (479901) от 12.09.2012
 
 VA - Bar Lounge Classics (2001-2009) [MP3|320 кб/с]<Chillout, Lounge, Downtempo, Deep House, Future Jazz>
@@ -719,35 +748,6 @@ Podval Capella - Wayfarer (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:267DCE9D75CC50CAF91E5BEBE633FF32518D9CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404387   (483543) от 30.08.2020
-
-Podval Capella - Shaman (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entrance
-02. Wisdom
-03. Lyra
-04. September(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 01:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2DB365475D292A3B74AE354A600932782DFBC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1451931   (1027932) от 05.03.2021
+
+Женя Белоусов - Девчонка-девчоночка (1994) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вечером на лавочке (04:18)
+02. У любви глаза разлуки (05:12)
+03. Девчонка-девчоночка (04:55)
+04. Дрянная девчонка (04:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7052C77AF235EB088522E6C60BCA27051694330E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451850   (1027952) от 05.03.2021
+
+VA - Greetings from Sanremo Festival Best Songs (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michele Bravi - Il Diario Degli Errori (3:26)
+02. Mahmood - Soldi (3:15)
+03. Boomdabash - Per Un Milione (2:54)
+04. Elettra Lamborghini - Musica (E Il Resto Scompare) (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 04:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1465359CCF2139B89BFBF70785153E1D75820392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451731   (1028158) от 03.03.2021
+
+Дискотека Авария - Лучшее 1995 - 2020 (Mixed By Atanov Cosperiva) (2021) [MP3|~225 Kbps (V1)] <Dance, Pop, Club>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дискотека Авария - Ат аффтара (Intro 1 Bar Version) (0:49)
+002. Дискотека Авария (Intro 2 Dance version) (1:45)
+003. Некуда деваться (2:47)
+004. Двигай-двигай (2:35)(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 01:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06746D60FC41BD211C22DE139F1D3DCEE53A56BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451577   (1028219) от 03.03.2021
+
+VA - Pop Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - I Believe In You
+02. Jason Derulo - Whatcha Say (Acoustic)
+03. Jason Mraz - Live High
+04. Seal - Crazy (Acoustic Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461ACB4048DEAC0E5EE1B2B6AFC9D296ECEB0BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451280   (1028326) от 02.03.2021
+
+Lara Fabian - 19 Albums, 6 Compilations, 4 Live, 27 Singles (1991-2020) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028326.jpg" />
+</div>
+
+
+###  Подробнее
+
+1991 - Lara Fabian
+1995 - Carpe diem
+1996 - Pure
+1999 - Lara FabianЖанр: Pop, ChansonПродолжительность: 41:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82815E9D786D07C3BEB4CE426E478B5D929A3D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451486   (1028342) от 02.03.2021
+
+VA - New Italo Disco Top 25 Compilation, Vol. 15 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy Blue - Don't Leave Me Alone (Short Vocal Disco Mix) (4:33)
+02. Boy Blue - Save Me (Short Vocal Classic Mix) (4:15)
+03. Italian Party - The Name of the Game (Vocal Radio Dancefloor Mix) (4:25)
+04. Momento - Systematic Lover (Vocal Short Dancefloor Mix) (Radio-Edit) (4:26)(   Читать дальше...   )Жанр: Italo-Disco, Dance, EurobeatПродолжительность: 01:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A78400E7CCA4E5C231EEC3B3C1011EB4006FA5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451326   (1028358) от 02.03.2021
 
 Star Sisters - Hooray For Hollywood  (1984) Reissue, 2005, 2000 FruitGum Corp[FLAC|Lossless|image + .cue] <Disco, Swing, Funk / Soul>
@@ -571,180 +745,6 @@ Lida - Музло из гаражей (2021) [MP3|320 Kbps] <Pop, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0608199F2F9361B3B931345065CE5A38A669341D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622813   (1029794) от 30.03.2023
-
-VA - Pop Classics (2023) [MP3|320 Kbps] <Disco, Funk, R&B, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lizzo - About Damn Time
-02. Ed Sheeran - Shivers
-03. Bruno Mars - Locked Out of Heaven
-04. Ava Max - Maybe You're the Problem(   Читать дальше...   )Жанр: Disco, Funk, R&B, Synth-popПродолжительность: 02:37:15 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640CCB1835784D858A5D55929EE6CC6EA8AF2624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622877   (1029799) от 30.03.2023
-
-VA - Party Mix (2023) [MP3|320 Kbps] <Electropop, Dance, Future House, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KXXMA - Herz an Herz
-02. Drenchill, Jorik Burema - Starlight
-03. nullzwei, Chris Sigl, BERTHAJU - JESUS IN BERLIN
-04. Felix Jaehn - Wishlist(   Читать дальше...   )Жанр: Electropop, Dance, Future House, SynthpopПродолжительность: 02:30:53 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BFC4D2B1C0C261421EF8B7359025AA899AD73A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449366   (1029966) от 21.02.2021
-
-Ariana Grande - Positions (2021) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. shut up
-02. 34+35
-03. motive (feat. Doja Cat)
-04. just like magic(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AC11FADF02F66E2C4D44B651E7E2893806EB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449337   (1029993) от 21.02.2021
-
-Каста & Runawaymuzic - Ремиксы Дроп 1 (2021) [MP3|320 Kbps] <Dance, Electronic, Rap>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029993.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Наши люди (Remix)
-2. Вокруг шум (Remix)
-3. Сказка (Remix)
-4. Макарэна (Remix)(   Читать дальше...   )Жанр: Dance, Electronic, RapПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBCD654693DEB905B9E60745453C20EA13FFF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449481   (1030001) от 21.02.2021
-
-Mflex Sounds - Back To The Roots (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro Disco, Spacesynth>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Back (8:28)
-02. I'm Alone (9:13)
-03. Tonight (9:10)
-04. Just You and I (7:07)(   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, SpacesynthПродолжительность: 01:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE7C3BE824D1911FAA3955B7F86B1D64137C97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449485   (1030013) от 21.02.2021
-
-Mflex Sounds - Hear My Heartbeat Volume One (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro Disco, Spacesynth>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Search a Heart (7:03)
-02. Plays to Light (6:41)
-03. Waiting All Night (6:51)
-04. Dreams (7:23)(   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, SpacesynthПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABB2E74993E5CF0B2556D417D3A781A825681F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

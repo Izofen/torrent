@@ -1,3 +1,61 @@
+###  Публикация: 1089020   (953523) от 02.01.2017
+
+VA - American Folk Blues (2017) [MP3|320 Kbps] <Folk Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953523.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Al Jones & His Band - Have You Ever Had The Blues 3:11
+002. John Lee Hooker - Lucille 6:07
+003. AJ & The Badcats - Get Used To It 4:51
+004. Blues Guitars United - The House Of The Rising Sun 3:52(   Читать дальше...   )Жанр: Folk Blues, Rock BluesПродолжительность: 07:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272518DF2FBBE5E04848B90CA92D2D67D09317B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088809   (953593) от 02.01.2017
+
+VA - УЛИ-ганские ПЕСНИ (2016) [MP3|96-320 Kbps] <Поп, Шансон, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953593.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Несчастный Случай - Песня без названия 4:24
+002. Катетер - Люда 3:32
+003. Ленинград - Геленджик 3:12
+004. Рабфак - Новая песня о правде 3:13(   Читать дальше...   )Жанр: Поп, Шансон, РокПродолжительность: 09:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10595B898F89F0747EDBDBF7A12D00D4C87B078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089024   (953610) от 02.01.2017
 
 VA - Начинаем отмечать! №2 (2016) [MP3|256-320 Kbps] <Pop>
@@ -693,64 +751,6 @@ VA - Зимние блатные песни на Шансоне (2016) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B59A7C2E399AFF5448E2326C7FB1CD175AB78C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088777   (954021) от 02.01.2017
-
-VA - Отрывайся с лучшими хитами. Выпуск № 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954021.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christina Novelli - Same Stars 3:42
-002. Honne - Woman 4:26
-003. Nero - The Thrill 3:30
-004. John Newman Feat. Charlie Wilson - Tiring Game 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE42341586ADDC0ED39D422C70498D0307D12A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088774   (954023) от 02.01.2017
-
-VA - Стопудовые зимние хиты. Сборник № 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954023.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Destiny Chukunyere - Embrace 3:31
-002. Смирнов & Компания & Мария Богомолова - Шипы У Роз 3:17
-003. Kentera - Barking At The Moon 3:26
-004. Michael Buble - Today Is Yesterday's Tomorrow 3:25(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C17134012F0A4176B0B44BC97D043A9583BE77
 ```
 
 https://mybot314.ru/tekegram_catalog/

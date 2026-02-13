@@ -1,3 +1,29 @@
+###  Публикация: 293201   (899810) от 11.02.2011
+
+Dandelium - Дискография (2006-2008) [MP3|256 kbps]<Instrumental symphonic melodic metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental symphonic melodic metalПродолжительность: 03:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CD029545E338494370D7B58917034DAD5D8EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636971   (899969) от 31.03.2013
 
 VA - Классика русского романса (2008) [MP3|320 кб/с]<Романс>
@@ -753,35 +779,6 @@ Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:892B23A912194E5BCC41B404B41C062D161DD6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369290   (903803) от 23.03.2020
-
-Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Atmospheric Folk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norðanátt (6:24)
-02. Eilífðina á Veturna (7:29)
-03. Jökulvíðerni (3:43)
-04. Maðr af Manni (7:10)(   Читать дальше...   )Жанр: Ambient, Atmospheric Folk, Dark Folk, Dark Ambient, NeofolkПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA20F4613F5A2710A21C899E2F1B16E811709A05
 ```
 
 https://mybot314.ru/tekegram_catalog/

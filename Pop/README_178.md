@@ -1,3 +1,183 @@
+###  Публикация: 546223   (480307) от 12.09.2012
+
+VA - Pure 60's ... (2012) Collection BoxSet 4CD[MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody To Love - Jefferson Airplane [02:59]
+02. In The Year 2525 - Zager & Evans [03:17]
+03. Get Together - The Youngbloods [04:37]
+04. Do You Believe In Magic - The Lovin' Spoonful [02:07]
+05. Green Tambourine - The Lemon Pipers [02:28]
+06. Hush - Billy Joe Royal [02:31]
+07. Summertime - "Big Brother & The Holding Company - Janis Joplin" [04:00]
+08. Yellow Brick Road - Captain Beefheart & His Magic Band [02:29]
+09. Changes - Moby Grape [03:24]
+10. Undun - The Guess Who [03:26](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroФормат: 4CD Collection BoxSetПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8251262F1D18663EED73E67E21DEE8EF7513CC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700690   (480319) от 16.09.2013
+
+ABBA - Gold: Greatest Hits (1992) Polydor D120679 [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (03:52)
+02. Knowing Me, Knowing You (04:02)
+03. Take A Chance On Me (04:04)
+04. Mamma Mia (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1DCDE3CE10D34B6CB21374ABDDD5E0671B5E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938607   (481301) от 18.09.2015
+
+Lana Del Rey - Honeymoon (2015) [FLAC|tracks+.cue]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeymoon
+02. Music To Watch Boys To
+03. Terrence Loves You
+04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E6F1D4935854F5E7A6A74860E7A0B7991498E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056074   (481394) от 25.09.2016
+
+Muslim Magomayev (Муслим Магомаев) - Arias From Operas (2015) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Figaro’s Cavatina From The Opera Il Barbiere Di Siviglia (4:41)
+02. Don Giovanni’s Aria From The Opera Don Giovanni (1:57)
+03. Figaro’s Aria From The Opera Le Nozze Di Figaro (3:53)
+04. Toreador Song From The Opera Carmen (Sung In Italian) (4:05)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52AAAF720EF6E611567E110411EC46DB97AAC06C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056340   (481407) от 25.09.2016
+
+D.D. Sound - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья La Bionda, Carmelo и Michelangelo (Angelo), уроженцы Сицилии, были первыми итальянцами, добившимися успеха в производстве диско-музыки сразу с двумя проектами.  Первый, предлагаемый вашему вниманию, - "D.D. Sound" или "Disco Delivery Sound" специализировался исключительно на стиле диско и был не менее успешным чем второй - "La Bionda". (   Читать дальше...   )Список альбомов:
+1977 - 1-2-3-4... Gimme Some More!
+1977 - Disco Delivery
+1978 - Cafe(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 02:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E36639FE329B6BD4F513206838A73DC8E73D061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056556   (481568) от 25.09.2016
+
+Платья за 130 - Бывшие (2016) [MP3|320 Kbps] <Retro Pop, Comedy Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свадьба
+02. Бывшие
+03. Тусовка
+04. Ми-ми-ми(   Читать дальше...   )Жанр: Retro Pop, Comedy PopПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539EE251C5CF50438CB6809D25226F1B27F44F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938405   (481594) от 18.09.2015
 
 Lana Del Rey - Honeymoon (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
@@ -571,192 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:138CE1832434D326ED819B5F4267C22677E7DB5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159414   (484162) от 20.08.2017
-
-The Runaway Club - Apollo (2016) [MP3|320 Kbps] <80's Electronic Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When We Were Kids
-02. I Don't Care
-03. So Damn Good
-04. Shooting at the Moon(   Читать дальше...   )Жанр: 80's Electronic PopПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6FD1E233854A1B4C3DC3A33C0DDB2272440F909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244164   (484186) от 31.08.2018
-
-Sertab Erener - Kirik Kalpler Albumu (2016) [MP3|320 Kbps] <Turkish Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acilis
-02. Ask Beni
-03. Olsun
-04. Karbeyaz(   Читать дальше...   )Жанр: Turkish Pop, Pop RockПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD391155D1CC4CC4FDBBAEFE838726BBAF64C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 237496   (484605) от 19.09.2010
-
-Ольга Зарубина - Звёзды советской эстрады/Хиты 80-90х (2009) [MP3|320 kbps]<retro, pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484605.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А мне покоя нет
-2. Возьми меня с собой
-3. Признание
-4. Так не должно быть (с Михаилом Боярским)
-5. Я к тебе приеду (с ВИА "Музыка")
-6. Жду
-7. Наша любовь (с ВИА "Метроном")
-8. Крылатая песня
-9. Реченька (с Олегом Ухналёвым)
-10. Если мириться - значит встречаться(   Читать дальше...   )Жанр: retro, popПродолжительность: 03:41:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384025   (484768) от 05.09.2011
-
-Балаган Лимитед - Welcome to Russia (2006) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Welcome To Russia 
-02.  А Я Выла На Луну 
-03.  Шуба 
-04.  Мама Не Велит 
-05.  Чирибом 
-06.  Дождь,Дождь 
-07.  На Закате 
-08.  Там,За Околицей 
-09.  Семь Сорок 
-10.  Тум-Балалайка (   Читать дальше...   )Жанр: PopПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405301   (485179) от 29.08.2020
-
-Ryan Paris - Ryan Sings the 80s… and More, Episode 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Paris & George Aaron - Can Delight (5:40)
-02. Ryan Paris - I Like Chopin (6:17)
-03. Ryan Paris - Always On My Mind (3:36)
-04. Ryan Paris - Mad Desire (6:16)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32520744919BDF88484B1247175AE8AA78B7467C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937996   (485288) от 16.09.2015
-
-Lana Del Rey - Honeymoon (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeymoon
-02. Music To Watch Boys To
-03. Terrence Loves You
-04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79FE3836C03868CE0294482DAE4E8997F9C9695
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,20 +1,335 @@
-###  Публикация: 1170551   (399154) от 01.10.2017
+###  Публикация: 569038   (393193) от 02.11.2012
 
-Шрифты - ParaType - Кириллические Шрифты [TTF]
+VA - FabricLive 62 by Kasra (2012) [MP3|320 кб/с]<Drum and Bass>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_399154.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция кириллических шрифтов ПараТайп 2002-2006 гг.
-Количество семейств: 384
-Полный состав: 835Формат: TTF
+01. Rockwell - Underpass (Aliz Perez VIP) 2:36
+02. Foreign Concept - Detuned Souls 2:14
+03. Dub Phizix - Handmade 1:50
+04. Phace & Noisia - Micro Organism 2:14
+05. Hybris - The Cleaner VIP 1:51
+06. Sabre, Stray & Halogenix Feat. Frank Carter III - Oblique VIP 2:58
+07. Mortem - Uprising 2:13
+08. Alix Perez - Myriads (Jubei Remix) 2:13
+09. Break - Soundwaves 1:51
+10. Judda - Pressure Plate VIP 2:13(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF5D33D8C1AB7552EB898DB7ACE483D15D04350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569352   (393197) от 02.11.2012
+
+Orphalis - Human Individual Metamorphosis (2012) [MP3|320 кб/с]<Technical Brutal Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+ 02. Hypnagogia
+ 03. Watchmaker
+ 04. Veins Of Delusion
+ 05. Prelude To Exsanguination
+ 06. Gnosis In Self-Immolation
+ 07. Monuments To Aneristic Illusion
+ 08. Giving Birth To A Hydrocephalic Deity
+ 09. Black Floods
+ 10. Anthropocene PurgationЖанр: Technical Brutal DeathПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67032FF1AE94A3D57C74C8F0A4A081334E86DAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569055   (393198) от 02.11.2012
+
+Car Bomb - 2 Albums (2007 - 2012) [MP3|320 кб/с]<Mathcore\Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sentinel
+02. Auto-named
+03. Finish It
+04. Lower The Blade
+05. Garrucha
+06. Third Revelation (feat. Joseph Duplantier)
+07. Recursive Patterns
+08. Spirit Of Poison
+09. Magic Bullet
+10. Crud(   Читать дальше...   )Жанр: Mathcore\ExperimentalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6F72A9D19774CF1029C14F3E46703452EE9EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569360   (393200) от 02.11.2012
+
+Kalopsia - Amongst The Ruins (2012) [MP3|320 кб/с]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salt Sown Earth 05:15
+02. Green Eyed Monster 03:44
+03. Messiah Complex 02:56
+04. Marred By Tragedy 05:33
+05. Pillars Of Ash 05:50
+06. Death Starts The Horror 04:15
+07. Liar's Eulogy 03:51
+08. Scatter The Remains 04:54Жанр: Death MetalПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:820EBBBC2010AD6B5869794A8FF45671F1745681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569367   (393203) от 02.11.2012
+
+Nepente - Suffering Is The Seed (2012) [MP3|160 кб/с]<Blackned Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffering Is The Seed [00:05:12]
+02. Hell Is The Name Of This Land [00:04:28]
+03. Merciful Death [00:04:42]
+04. Hear Me Howl [00:04:23]
+05. Slaves Will Always Be Slaves [00:06:16]
+06. Die For Me [00:04:56]
+07. This Shroud Is Yours [00:05:17]
+08. The Swamp [00:05:34]Жанр: Blackned DeathПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8822D2E6DDF35B7114FAEE598E649857F02C89DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569355   (393204) от 02.11.2012
+
+Malignancy - Eugenics (2012) [MP3|320 кб/с]<Brutal Technical Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Type Zero Civilization (02:53)
+ 03. Eugenics (02:55)
+ 03. Extinction Event (03:03)
+ 04. Global Systemic Collapse (03:51)
+ 05. Cataclysmic Euphoria (03:17)
+ 06. Separatists (04:44)
+ 07. Monstrous Indifference (01:23)
+ 08. Cryptobiosis (02:28)
+ 09. Creatures Of Conformity (02:53)
+ 10. The Breach (04:06)Жанр: Brutal Technical DeathПродолжительность: 00:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7922692C74B4F8A252360CDFC1313454146E9B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 402011   (393212) от 20.10.2011
+
+Дмитрий Силлов | Кремль 2222. Юг [2011] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цивилизация погибла. Все, что осталось от России - Поля Смерти и горстка людей, обороняющих московский Кремль от биороботов, киборгов, безумных шаманов, и прочей нечисти, порожденной Третьей мировой войной.
+ Молодой кремлевский дружинник Данила, сбежавший из плена нелюдей, в руинах бывшей столицы России встречает человека, который не боится ни биороботов, ни телепатов. (   Читать дальше...   )Жанр: фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11083593D6202215231A5765D1C7AF8373106A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172692   (393225) от 08.10.2017
+
+Петр Алексеевич Преображенский (сост.) | Памятники древней христианской письменности в русском переводе [7 Томов] (1860-1866) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393225.jpg" />
+</div>
+
+
+###  Подробнее
+
+В релизе представлены памятники древней христианской письменности в русском переводе, изданные протоиереем Петром Алексеевичем Преображенским.Жанр: ПатрологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFB1EB5426499DE9AD9421A326D888E1403D146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172456   (393226) от 08.10.2017
+
+Игорь Сахновский | Ревнивый бог случайностей (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это вечные истории о прекрасных чувствах мужчины и женщины, размышления о материнской любви, о дружбе и ответственности. От каждого произведения из сборника «Ревнивый бог случайностей» веет неизгладимым ощущением чуда, которое может приключиться с любым из нас в ближайший момент.Жанр: Современная прозаПродолжительность: 03:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5AD7E7366366B9389A382284CDEA6FA3A24254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172346   (393227) от 08.10.2017
+
+Loudness - Super Best (2013) japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Let It Go
+02 Black Star Oblivion
+03 S.D.I.
+04 Rock'n Roll Gypsy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F25118B07FCA0D1157B490F531F4DA440DE581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172474   (393228) от 08.10.2017
+
+Fogh Depot - Turmalinturm (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental Electronic>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_393228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quicksilver Spoon (5:06)
+02. Oscar (5:47)
+03. Who The Last Says No (4:23)
+04. Svetly Prazdnik (4:57)(   Читать дальше...   )Производство: Denovali Records - DEN268Жанр: Dark Jazz, Doom Jazz, Experimental ElectronicПродолжительность: 00:40:05
 
 ## Скачать торент
 ```bash
@@ -26,21 +341,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170541   (399155) от 01.10.2017
+###  Публикация: 1172483   (393229) от 08.10.2017
 
-Fall of Light (2017) [Ru/Multi] (1.0) License RELOADED
+У. З. Фостер | Негритянский народ в истории Америки (1955) [PDF]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_399155.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_393229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В роли Никса, воина, чьи славные годы давно позади, вам предстоит избегать Теней, пробираться через извилистые коридоры мрачных подземелий, прокладывать путь по темному миру на поверхности и сражаться с послами Тьмы в давным-давно покинутых храмах.Тип издания: LicenseРазработчик: RuneHeadsЖанр: Action, Adventure, Indie, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+Негритянская проблема — одна из основных и центральных проблем во внутриполитической жизни США. Неудивительно поэтому, что проблема эта привлекает внимание историков, экономистов, социологов, публицистов и политических деятелей США. За последние десятилетия в США издана поистине огромная литература по истории негритянского народа. Литература эта может быть подразделена (   Читать дальше...   )Жанр: История, политология, экономика, социология, культурологияФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -52,23 +367,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170635   (399156) от 01.10.2017
+###  Публикация: 1172394   (393230) от 08.10.2017
 
-Дем Михайлов | Кроу-3 (2017) [FB2]
+Hydra - Land Of Money (1975) Reissue, 1999, Capricorn Records [MP3|320 Kbps] <Rock, Hard Rock>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_399156.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Третий роман цикла «Кроу».
-
-Трудолюбивый гном преодолел много препятствий, столкнулся с грозными противниками, но сумел уцелеть сам и удержать свои рубежи. Но никто не даст передышку, впереди еще больше трудностей, долгих часов кузнечных и земляных работ, немало приключений и неожиданных встреч. Никто не знает, что случится дальше, но пока сторожевой пост Серый Пик (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGФормат: FB2
+1. Little Miss Rock N' Roll
+2. The Pistol
+3. Makin' Plans
+4. Land Of Money(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19411C65C9823EC663B5AC5064872D9487F12A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172468   (393231) от 08.10.2017
+
+Fogh Depot - Fogh Depot (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anticyclone (6:50)
+02. Mining (BTC) (5:12)
+03. Nevalyashka (4:07)
+04. Sagittarius (4:14)(   Читать дальше...   )Производство: Denovali Records - den224Жанр: Dark Jazz, Doom Jazz, Experimental ElectronicПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE1EE9182669C7986F43E3536A993D554B426DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172342   (393232) от 08.10.2017
+
+Infinity - Hybris (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_393232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arousing the Sleeping SerpentЖанр: Black MetalПродолжительность: 00:52:13
 
 ## Скачать торент
 ```bash
@@ -80,25 +451,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170592   (399157) от 01.10.2017
+###  Публикация: 1172309   (393233) от 08.10.2017
 
-КВН-2017. Высшая лига. Встреча выпускников 2017 (2017.10.01) SATRip
+Helker - A.D.N. (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>След.
->>Архив Юмора
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399157.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморПродолжительность: 01:52:23
+01. Arde Dentro Nuestro
+02. Tus Mentiras
+03. Falsos Profetas
+04. Igual Que A Vos(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB21AEE665FCDEA7D6B4F39E3C603787696AA118
+magnet:?xt=urn:btih:8AF513B22DA1FD462AD1A3446B302206DF0B5B6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,26 +480,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170595   (399158) от 01.10.2017
+###  Публикация: 1172510   (393234) от 08.10.2017
 
-Книжная серия | Правители России [24 книги] (2015-2017) [FB2, EPUB]
+Журнал | Ступени Оракула №10 (2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание предлагает разнообразие точек зрения — от фантастических предположений до научных теорий, оставляя выбор за читателем. Мнения профессионалов и свидетельства очевидцев, факты, феномены, версии. Журнал, открывающий мир!Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A757F0E1B1B239FDEA07C376195DED17C165B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172449   (393235) от 08.10.2017
+
+М. И. Брагинский (отв. ред.) | Рабочий класс и рабочее движение в Африке [60—70-е годы XX века)] (1979) [DJVU]
 
 >>Научная и техническая литература
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399158.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В коллекции политических биографий «Правители России» книги известных историков Российской Академии наук, для которых важна максимально объективная оценка.
-Перед вами пройдет вся тысячелетняя российская история с ее победами и трагедиями. Ведь у нас так сложилось: развитие государства определяют большей частью его лидеры – князья, цари, императоры, генеральные секретари (   Читать дальше...   )Жанр: История, Политика, Биографии и МемуарыФормат: FB2, EPUB
+Сборник посвящен исследованию состава, структуры, положения рабочего класса Африки, его роли в борьбе за социальный прогресс после завоевания независимости. Авторы статей исследуют новые тенденции в развитии рабочего класса и рабочего движения в Африке, связанные с формированием кадрового пролетариата, ростом его организованности, усилением роли профсоюзов в жизни (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6D099BEF00B40C7ED893F642FCB2EEFEBB822B2
+magnet:?xt=urn:btih:F77AEEBC578CBFD7D2BADFA1694D235817536CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,21 +532,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169948   (399159) от 01.10.2017
+###  Публикация: 1172311   (393236) от 08.10.2017
 
-FIFA 18 Legacy Edition (2017) [PS3] [EUR] 3.40 [Repack / 1.02] [Ru]
+Helker - En Algun Lugar Del Circulo (2013) [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_399159.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_393236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FIFA 18 - новая часть футбольного симулятора, разработанная студией EA Sports. Лицом FIFA 18 официально является игрок популярного испанского клуба "Реал Мадрид" Криштиану Роналду. Создатели заметно потрудились над графической составляющей и теперь все игроки на футбольном поле будут выглядеть еще более реалистично. Но эти улучшения коснутся не только тех, (   Читать дальше...   )Тип издания: RepackРазработчик: EA VancouverЖанр: Sport, Soccer, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+01. Nuevo Circo Romano
+02. Redencióm
+03. Fantasmas Del Pasado
+04. Al Final Del Camino(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:02
 
 ## Скачать торент
 ```bash
@@ -159,26 +561,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170409   (399160) от 01.10.2017
+###  Публикация: 568959   (393238) от 02.11.2012
 
-Недетское кино / Not Another Teen Movie (2001) BDRip [H.264/1080p-LQ]
+VA - Believe Motion Love (2012) [MP3|320 кб/с]<Trance>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399160.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Популярный в школе парень и звезда футбольной команды Джейк Уилер, ослепленный собственной славой и успехом, заключает пари со своими друзьями.
-Уилер делает ставку на то, что может сделать из любой девушки, посещающей их школу, королеву школьного бала. Друзья сразу же выбирают предмет своей шутки — внешне малопривлекательную начинающую художницу Джэни Бриггс, чей (   Читать дальше...   )Производство: США / Columbia Pictures, Original FilmЖанр: КомедияРежиссер: Джоэл ГалленАктеры: Кайлер Ли, Крис Эванс, Джейми Прессли, Эрик Кристиан Олсен, Миа Киршнер, Дион Ричмонд, Эрик Джангманн, Рон Лестер, Коди МакМейнс, Сэм ХантингтонПеревод: Многоголосый закадровый (Видео-Сервис)Субтитры: Русские, английскиеПродолжительность: 01:29:00
+01. Paul Van Dyk Feat Plumb - I Don't Deserve You (Radio Edit) 03:33
+ 02. Protoculture - Perpetual Motion (Original Mix) 07:08
+ 03. Ralphie B - Face Off (Original Mix) 09:36
+ 04. Ronny K Vs Vasaio Ft Jakub Hubner - Im Missing You (Radio Mix) 03:44
+ 05. Simon O'shine - Your Distant World (Original Mix) 09:43
+ 06. Tenishia - Where Do We Begin (Club Mix) 06:29
+ 07. Yigit & Jirihin - Rotundjere (Original Mix) 09:01
+ 08. Matt Davey - Believe In Me (Original Mix) 07:34
+ 09. Arjan Nilsen - Burana (Original Mix) 06:10
+ 10. Susana & Shogun - Only You (Original Mix) 08:10(   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B02CE99C8DC770716B7CD7BAD6DFDF486BE6EF7E
+magnet:?xt=urn:btih:3FEBC5EB421E534923727C378A1BE7277B2436DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,27 +596,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170604   (399161) от 01.10.2017
+###  Публикация: 1172308   (393240) от 08.10.2017
 
-Футажи - VideoHive - 24 Hi-Tech HUD / Interface Pack [MOV]
+Helker - Resistir (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Материалы для мультимедиа и дизайна
->>Футажи
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399161.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создайте свой собственный визуальный интерфейс.
-В пакет входит: 12 Full HD HUD-дисплеев, 12 дополнительных элементов интерфейса (с анимированным текстом), 3 фона. Все файлы с альфа-каналом.
-В элементах используется бесплатный шрифт, поэтому дополнительный текстовый контент можно легко разместить с тем же стилем шрифта.Формат: MOVРазрешение файлов: 1920x1080
+01. Resistir
+02. Basurero Nuclear
+03. Contra la Corriente
+04. Nunca Más(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4B51EC71F7B8EEDD1093E402C6F0D412ACDFD0C
+magnet:?xt=urn:btih:D9AFF5AE7005B6B45E1F0345BACA7BDB2E6EBC7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,47 +625,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170306   (399163) от 01.10.2017
+###  Публикация: 1172318   (393242) от 08.10.2017
 
-Футажи - VideoHive - Fog [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футаж "туман" можно использовать в качестве фона для текста или логотипа.Формат: MOVРазрешение файлов: 1920x1050
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9251BC84F3900342263B802B658BE2D253800573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170164   (399164) от 01.10.2017
-
-Проекты - VideoHive - The Motion History Slideshows - 18610823 [AEP]
+Oxiplegatz - Worlds and Worlds (1997) [APE|Lossless|image + .cue] <Avant-garde Black Metal>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_399164.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_393242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цель проекта - показать историю компании, архитектуры, электроники, больничных и государственных учреждений, карьерный рост, прогресс в области исследований.Формат: AEP
+01. Battle of Species
+02. First Contact - Conflict
+03. Aftermath
+04. Quest(   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 00:38:36
 
 ## Скачать торент
 ```bash
@@ -266,160 +654,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170176   (399165) от 01.10.2017
+###  Публикация: 1172332   (393244) от 08.10.2017
 
-Проекты - VideoHive - Website Presentation Pack - 20478293 [AEP]
+Mystery Blue - Conquer The World (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Проекты
->>Презентации (проекты)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399165.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_393244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет для создания презентаций. Отлично подойдет для сайтов, каналов YouTube, Twitter. А так же для страниц в соц.сетях.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6361FECE9389863ADB3407DFB7E7B7C73F2C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150887   (399166) от 01.10.2017
-
-Jikan no Shihaisha | Chronos Ruler | Повелитель хроноса [2017, ТВ, 13 эп.] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399166.jpg" />
-</div>
-
-
-###  Подробнее
-
-История рассказывает о «Правителях Хроноса», способных управлять временем в сражениях. Их цель — истребление пожирающих время демонов, которые появляются, когда люди желают повернуть время вспять.Жанр: приключения, мистика, сёнэнРежиссер: Мацунэ Масато / Matsune Masato / 松根マサトЯзык озвучки: японскийПродолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4751A1E274D6082BD7E667D28EACA7818308AC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 399687   (399186) от 14.10.2011
-
-Палата №6 (2009) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный врач провинциальной психиатрической больницы Рагин обнаруживает в одном из своих пациентов (Громове) человека с оригинальным мышлением, более того — собственной философией. В беседах с душевнобольным доктор видит безумие мира и скоро сам теряет рассудок. Но кто вправе решать, где та грань, за которой начинается безумие?Жанр: ДрамаРежиссер: Карен Шахназаров, Александр ГорновскийАктеры: Владимир Ильин, Александр Панкратов-Черный, Евгений Стычкин, Виктор Соловьев, Алексей Жарков, Станислав Эвентов, Алина Ольшанская, Анна Синякина, Альбина Евтушевская, Алексей ВертковПродолжительность: 01:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51963FCF3B1122386B5B73D87B6D84275C53060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566097   (399187) от 27.10.2012
-
-Computer Desktop Wallpapers Collection (26.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C28D2B7B654B5AB619F9B1447333D84907FF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566098   (399188) от 27.10.2012
-
-Best HD Wallpapers Pack (26.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C531791AC046AB86BE9FA3E0385690512A4640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566062   (399193) от 27.10.2012
-
-Unearthly - Flagellum Dei (2011) [FLAC|Lossless]<Black Metal, Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399193.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 7.62 3:57
-2. Baptized in Blood 5:39
-3. Flagellum Dei 3:30
-4. Black Sun 5:06
-5. Osmotic Haeresis 3:08
-6. My Fault 3:27
-7. Eye for an Eye 5:00
-8. Lord of All Battles 3:48
-9. Limbus (Instrumental) 2:29
-10. Insurgency 4:15(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:45:18
+01. Conquer The World (04:28)
+02. Innocent Crime (04:51)
+03. Running With The Pack (03:59)
+04. Evil Spell (04:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:01
 
 ## Скачать торент
 ```bash
@@ -431,25 +683,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566122   (399195) от 27.10.2012
+###  Публикация: 1172336   (393246) от 08.10.2017
 
-HQ Wallpapers Perfect Women (26.10.12) [Wallpapers 16+]
+Orcrist - From the Forgotten Forest (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399195.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+01. Intro/My Thoughts at the End of the World
+02. Pictures of a Murder
+03. Over Man’s Doom
+04. I’m Here in the Forest Enthroned(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C611F322E00B422B5EBDBC3E639C1C3E00A3B52
+magnet:?xt=urn:btih:5B4C4D528805B30C3CDF01A6F27D1664265D67A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,25 +712,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566102   (399198) от 27.10.2012
+###  Публикация: 1172303   (393248) от 08.10.2017
 
-Desktop Wallpapers (26.10.12) [Wallpapers]
+Helker - Legado Secreto (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399198.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Renacer
+02. Buscando una ilusión
+03. El final
+04. Amo universal(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEFF955DF831E3E1CB77A23E3842A946794C009F
+magnet:?xt=urn:btih:4445EF119503A5A572A519CC70D60C8EA1A9CE20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,233 +741,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566105   (399200) от 27.10.2012
+###  Публикация: 1172454   (393249) от 08.10.2017
 
-Cityscapes Wallpapers (26.10.12) [Wallpapers]
+Art Taylor - Taylor's Wailers (1957) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399200.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Batland [09:53]
+02. C.T.A. [04:44]
+03. Exhibit A [06:16]
+04. Cubano Chant [06:36](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:320953EA78C40A9DCA6495A8971BE7184B9A8F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566312   (399201) от 27.10.2012
-
-Andy Moor - Moor Music 084 (26-10-2012) [MP3|256 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk feat. Plumb - I Don't Deserve You (Jerome Isma-ae Remix) (Vandit)
- 02. Dennis Shepherd - Edge Of The World (Original Dub Mix) (Armada)
- 03. Andy Moor feat. Sue McLaren - Trespass (Antillas & Dankann Club Mix) (AVA)
- 04. Faruk Subanci - Elveda (AVA)
- 05. Aruna - Save The Day (Tom Fall Remix) (Black Hole)
- 06. Andrew Rayel feat. Jano - How Do I Know (Club Mix) (Armind)
- 07. UCast - Genesis (Second Way Remix) (Interstate)
- 08. The Madison - uKnow (Enhanced Progressive)
- 09. Tritonal and Super8 & Tab - ARC (Instrumental Extended) (Air up There)
- 10. C-Systems & Jo Micali feat. Hanna Finsen - Love Is Strong (Estiva Remix) (Enhanced Progressive)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A0D30E8EE99DADDC6BE30440E55650798F6FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566114   (399202) от 27.10.2012
-
-Gilrs Wallpaper (26.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 4500х3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A978836F4D4CBC3BD81CF9AF9FD442EFB3D2463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566002   (399203) от 27.10.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1680х1050/1600х1200 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF0A4F541B073ED8FF3BE8485FB7E2466ACAF75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566108   (399204) от 27.10.2012
-
-Gilrs Wallpaper Collection (26.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 5616х3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5488D7D735EF83FEA9FAAB09D1B53BB396A1433F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566256   (399205) от 27.10.2012
-
-Guttural Slug - Intercranial Purgatory (2012) [MP3|320 кб/с]<Brutal Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intercranial Purgatory 01:48
- 02. Cerebral Polution 02:14
- 03. Necrotic Sanity 02:10
- 04. Head Slammed 02:54
- 05. Skull Fucked 03:04
- 06. Lacerated 03:02
- 07. Forsaken 02:18
- 08. Leeches 02:25
- 09. Blood Pact 02:25Жанр: Brutal DeathПродолжительность: 00:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069AFA0974027159F53C958E5D009E4C341878F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566247   (399206) от 27.10.2012
-
-Mirror Queen - From Earth Below (2011) [MP3|320 кб/с]<Stoner Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Earth Below 04:01
- 02. The Mirror Queen 03:41
- 03. Dark Ships Arrive 04:00
- 04. On Dark Ships 05:39
- 05. The Mirror Queen Part 2 07:28
- 06. Mindworm 05:20
- 07. Black Finger Satellite 03:49
- 08. Into The Nebula 07:19
- 09. Lazarus 05:40
- 10. Mesmerization Eclipse 06:35Жанр: Stoner MetalПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF19B148E53BC76318D8B4145E18C7BCD8E9161A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169515   (399207) от 01.10.2017
-
-Майкл Грегер | Не сдохни! Еда в борьбе за жизнь (2017) [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_399207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как показывают исследования, питание и образ жизни важнее таблеток и скальпеля хирурга. Преждевременной смерти можно избежать, если слегка скорректировать свои пищевые пристрастия и образ жизни. Врачи героически борются с серьезными и хроническими болезнями, но ничего не могут сделать для их профилактики. Миллионы людей ежегодно умирают от 15 основных заболеваний. (   Читать дальше...   )Жанр: Медицина, Здоровое и раздельное питаниеФормат: PDF
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:0B138098AC5D3CF6AA10169C7069B6DFE76E4BC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

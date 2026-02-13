@@ -1,3 +1,61 @@
+###  Публикация: 1579900   (333070) от 29.09.2022
+
+Henry Mancini & His Orchestra - Compilation (2022) [MP3|320 Kbps] <Easy Listening, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing to Lose (Instrumental)
+02. Two for the Road
+03. Moon River (From Breakfast at Tiffany's)
+04. Annie's Song(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC1A634E0B36C2033767602D9967807603C3AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580031   (333076) от 29.09.2022
+
+VA - Fresh Autumn Tracks (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. НАZИМА - Пули (2:15)
+02. Иван Рейс, Мари Краймбрери - Ты меня бесишь (2:31)
+03. RASA - ПОГУДИМ (2:58)
+04. Клава Кока - Плачешь (2:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CA487DC283F4CE06340A61D9115118327181C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331301   (333253) от 14.10.2019
 
 VA - Осень на Love Radio (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -684,64 +742,6 @@ VA - не Громкие новинки недели 38 (2019) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6608736B8E3F77C598C107C7C2C18C9AD0AE1F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181236   (334919) от 06.11.2017
-
-VA - Mark Knopfler & Dire Straits (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Knopfler & Dire Straits -  Fade to Black  (03:47) 
-02. Mark Knopfler & Dire Straits -  Heavy Fuel  (05:07) 
-03. Mark Knopfler & Dire Straits -  Iron Hand  (03:07) 
-04. Mark Knopfler & Dire Straits -  Lady Writer  (03:43) (   Читать дальше...   )Жанр: RockПродолжительность: 04:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255BD477ACCCDDEDD4D79B6428994F137B2C3693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419959   (334940) от 30.10.2020
-
-VA - Shazam Хит-парад Russia Top 100 Октябрь (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334940.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fousheé - Deep End (2:21)
-002. SQWOZ BAB feat. The First Station - АУФ (3:12)
-003. Moses & Emr3Ygul & Alexiane - A Million On My Soul (Remix) (3:26)
-004. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BEA6DCFAF4899689D7E3EDF05FBD9C2A9E2EFC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

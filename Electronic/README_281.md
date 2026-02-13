@@ -1,3 +1,32 @@
+###  Публикация: 1237658   (550654) от 25.07.2018
+
+Pessimist - Pagans (2017) Osiris Music UK [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pagans (07:26)
+02. Astrous (09:16)
+03. Inner Circle (06:53)
+04. Mist (06:44)Жанр: TechnoПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1EEAF50F340B5EDEF0F872F9A3287492EE05FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230451   (550904) от 19.06.2019
 
 Olivier Orand | Hol Baumann | OP 11 - Discography 10 Releases (2006-2019) Ultimae Records, O'Breath [FLAC|Lossless|tracks+.cue, tracks] <Psybient, Downtempo, IDM, Psychill, Ambient>
@@ -716,35 +745,6 @@ VA - When The Night Falls (25 Amazing Tunes) Vol. 1 (2016) [MP3|320 Kbps] <Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71B85118A1769E790C6D48FC147DB2B745F0A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046554   (552113) от 27.08.2016
-
-VA - After Hours Ibiza (2016) [MP3|320 Kbps] <Deep House, Funky, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy Next Door - Freak 07:56
-02. Pysh - Woo Woo 07:33
-03. Bassmental & Kerri Chandler - Keep It Deep (Sascha Dive's Four To The Floor Edit) 05:47
-04. Ananda Project - Justice, Mercy (Aquanote's Peace Mix) 06:53(   Читать дальше...   )Жанр: Deep House, Funky, Soulful HouseПродолжительность: 04:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCB1180F370ED7F4E7BA5546D05966F57357E42
 ```
 
 https://mybot314.ru/tekegram_catalog/

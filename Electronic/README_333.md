@@ -1,3 +1,32 @@
+###  Публикация: 903636   (656223) от 01.06.2015
+
+VA - The Fatboy Slim Collection (2015) 4CD [MP3|320 кб/с]<Breaks, Funk, House, Big Beat, Electro>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656223.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1: 01:19:02
+CD 2: 01:18:40
+CD 3: 01:19:45
+CD 4: 01:18:07Производство: Sony Music / 888750 78432Жанр: Breaks, Funk, House, Big Beat, ElectroПродолжительность: 05:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A883CC8D87B659BC59C0230D6F00AA5B537400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140293   (656692) от 05.06.2017
 
 VA - Kontor Sunset Chill 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House, Downtempo>
@@ -718,41 +747,6 @@ VA - Skullduggery Selection Vol. 001 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92EA12BBB83B08FD46B72202E80C64A352BB1239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514699   (658066) от 24.06.2012
-
-16 Bit Lolitas - Supermarkt (2012) [MP3|320 кб/с]<Deep House, Progressive Breaks>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Different Light, Same Window
-02. Settle The Score (with Lucy Iris)
-03. Happy Hardcore Still Works
-04. Fat Fly
-05. Snake Inverter
-06. Blanket
-07. Na Na Nahana (with Lucy Iris)
-08. Traffic Jam Survival Kit
-09. Not The Ideal Grandson After All
-10. Unkle feat. Nick Cave - Money And Run (16 Bit Lolitas Remix)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2833FFD523CE2D5B566882CDD6286F463FBAC9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

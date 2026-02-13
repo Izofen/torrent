@@ -1,3 +1,32 @@
+###  Публикация: 908411   (490762) от 08.08.2019
+
+S.K.E.T. - Collection 4 Releases (2005-2017) Hands Productions [FLAC|Lossless]<Rhythmic Noise, Electro, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Dawn (05:34)
+ 02. Prepare For The Inevitable Struggle (06:41)
+ 03. Dash National States! (05:49)
+ 04. Terrorized To Consume (05:07)(   Читать дальше...   )Жанр: Rhythmic Noise, Electro, Industrial •Продолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B4B65D656153E3351017531CC955CF845BC49F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318544   (490773) от 08.08.2019
 
 Berlin - Transcendance (2019) Cleopatra Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, New Wave, Pop-Rock>
@@ -714,35 +743,6 @@ V.A. - Lounge Freebeat, Vol. 7 (2022) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3637A66DD5D698C2106FE4595F2ED63DD959A3BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565432   (494904) от 23.07.2022
-
-Drownd - [AN]AESTHETIC (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Coldwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Palpitation
-02. Filth
-03. Save Yourself
-04. DeathwishЖанр: Industrial Metal, ColdwaveПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A9FECD54DD7167C69923DCFD2D6B8AC4671A9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

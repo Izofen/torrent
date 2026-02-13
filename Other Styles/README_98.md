@@ -1,3 +1,32 @@
+###  Публикация: 1296785   (607895) от 19.04.2019
+
+А.И.Жихарев - Вознесение (2008) [FLAC|Lossless|tracks + .cue] <Музыка на плоских колоколах (билах)>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Напутствие (5:23)
+02. Призыв (3:58)
+03. Без названия (5:54)
+04. Исповедь (7:35)(   Читать дальше...   )Жанр: Музыка на плоских колоколах (билах)Продолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC651860470A4FE4ACFBD145FEF98D0D8C32DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296841   (608534) от 19.04.2019
 
 Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
@@ -751,41 +780,6 @@ VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Sta
 ###  Подробнее
 
 01. Hollywood Bowl Orchestra - John Dunbar Theme {Жанр: Classical, Pop, Rock, Stage & ScreenФормат: BoxSet 2CDПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221675   (612882) от 25.07.2010
-
-VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612882.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:52) 01. Jonas Assarsson - Calm Breeze
-(4:42) 02. Bindu - The Natural Flow
-(6:33) 03. Skovbye/Brander - Friendship part 2
-(4:47) 04. Egil Fylling - So many to make time for
-(4:13) 05. Steen Hansen - The Beach
-(4:40) 06. Jan Skogvaard Petersen - The first Wave
-(3:53) 07. Pushkar - Manamalei
-(6:09) 08. Gabrielle - Blind Mary
-(4:59) 09. Carsten Rosenlund - She Moved Through the Fair
-(4:46) 10. Peter Bastian & Stig Moller - Just Be(   Читать дальше...   )Жанр: Relax, ChilloutПродолжительность: 01:07:03
 
 ## Скачать торент
 ```bash

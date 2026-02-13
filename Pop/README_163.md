@@ -1,3 +1,174 @@
+###  Публикация: 1250980   (420095) от 30.09.2018
+
+Systems In Blue - There's No Heart (2018) Special 80's version, 12" [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's No Heart (Maxi Version) (5:09)
+02. There's No Heart (Instrumental) (5:08)
+03. There's No Heart (Radio Version) (3:48)Жанр: Pop, EuropopПродолжительность: 00:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FA68BF9B9668A7D955FC17FDAF6817A41C8EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947166   (420125) от 16.10.2015
+
+John Newman - Revolve (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolve
+02. All My Heart
+03. Something Special
+04. Lights Down(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9F1FD5521A18572A672C65D8B08D627D722B7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947285   (420257) от 16.10.2015
+
+Pentatonix - Pentatonix (Deluxe Edition) (2015) [FLAC|Lossless|WEB-DL]<Pop, A Cappella>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Na Na Na
+02. Can't Sleep Love
+03. Sing
+04. Misbehavin'(   Читать дальше...   )Жанр: Pop, A CappellaПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B05B375FA513B8C54887C0417615026CBBDEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947344   (420399) от 16.10.2015
+
+VA - Movie Love Songs (1997) [FLAC|tracks + .cue]<Pop, Soul, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Nitzsche & Buffy Sainte-Marie - Up Where We Belong.
+02. Giorgio Moroder & Tom Whitlock - Take My Breath Away.
+03. Stevie Wonder - I Just Called to Say I Love You.
+04. Franke Previte, John DeNicola & Donald Markowitz - Time of My Life.(   Читать дальше...   )Жанр: Pop, Soul, Easy ListeningПродолжительность: 01:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345B0027F08EBB84300C2C6553D5F747598DF353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166788   (421269) от 18.09.2017
+
+Kaleida - Tear The Roots (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Convolution
+02. Echo Saw You
+03. All The Pretty Pieces
+04. Division(   Читать дальше...   )Жанр: Alternative Pop, Synthpop, Indie PopПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05FDD09C8F8A51670C4FD19DA36B5F2C14805148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065075   (421305) от 22.10.2016
+
+Dee D. Jackson - Automatic Lover [New Digital Version] (1977) Maxi-Single, 1988, Jupiter Records [FLAC|Lossless|image + .cue] <Disco, Italo-Disco, Euro-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421305.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Automatic Lover - Remix '88 (Long Version) (6:52)
+2. Automatic Lover - Remix '88 (Club-Mix) (6:41)Жанр: Disco, Italo-Disco, Euro-Disco, Hi-NRGПродолжительность: 00:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEA190928F66B75DB3E883EC4E0C454504922F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324807   (421332) от 11.09.2019
 
 Nino De Angelo - Samuraj (1989) LP [MP3|320 Kbps] <Electronic, Pop>
@@ -573,180 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB124D198A0C800F6A04C757F81DA0826DF44CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166428   (423750) от 17.09.2017
-
-Батыр (Батырхан Шукенов) - Дискография (2006-2013) [MP3|320 Kbps] <Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Батырхан Шукенов советский казахский и российский эстрадный певец, музыкант, саксофонист, композитор, поэт. Заслуженный деятель искусств Казахстана. Посол доброй воли ЮНИСЕФ в Казахстане. Один из основателей и солист казахстанско-российской музыкальной поп-группы «А’Студио», в составе которой обрёл широкую популярность. После ухода из группы осенью 2000 года занялся (   Читать дальше...   )2006 - Отан Ана
-2006 - Твои шаги
-2007 - Batyr@XMZ
-2010 - Осторожно, милая девушка!Жанр: РорПродолжительность: 03:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5E1A47C42CB61352BDB5FE589D24B3E2704D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064875   (423894) от 21.10.2016
-
-VA - Gold Ballads (2003) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbie Williams - Feel
-02. Blue feat. Elton John - Sorry Seems To Be The Hardest Word
-03. Everything but the Girl - Mirroball
-04. Atomic Kitten - No One Loves You(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C82C106F047E4061E28FF22F6E452FC8D6BF71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064745   (423910) от 21.10.2016
-
-Melanie C - Version of Me (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear Life
-02. Escalator
-03. Anymore
-04. Something For the Fire(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759C7871A2D509255A1175DEE203667C4592CA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166606   (423920) от 17.09.2017
-
-Anastacia - Evolution (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Caught In The Middle
-2. Redlight
-3. Stamina
-4. Boxer(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191B3AB8346BAC401F7B13BE8B961E6252F0CB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166555   (423927) от 17.09.2017
-
-VA - Skitzmix 90's Anthems (Mixed by Nick Skitz) (2017) [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  VA - Skitzmix 90's Anthems (Continuous Mix 1)  1:19:09
-02.  VA - Skitzmix 90's Anthems (Continuous Mix 2)  1:18:07
-03.  Nick Skitz - 90's Anthems Megamix  6:39
-04.  Nick Skitz - Disco Burn (Skitz Burnin' Radio Edit)  3:45(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 05:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C181C235BE643A933C6B3D7F75A866028F970CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249303   (424748) от 28.09.2018
-
-Марк Артур (Marc Arthur) - Feel | Между нами (2007-2008) [MP3|320 Kbps] <Pop, Instrumental>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. November Rain (3:54)
-02. Love Supreme (4:42)
-03. You Give Me Love (4:15)
-04. Salvation (4:06)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3858167F568BED402BB1270EDE7EC6DF40109693
 ```
 
 https://mybot314.ru/tekegram_catalog/

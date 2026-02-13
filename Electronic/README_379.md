@@ -1,3 +1,32 @@
+###  Публикация: 1215553   (758101) от 26.03.2018
+
+Fa Calor - A Chill Out Moment (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ascending  3:26
+02.  Androm  3:40
+03.  Best Part Of Us  3:37
+04.  Blurred  4:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68042CC59CFF3BD67677EA8F7020959C29F22AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215566   (758103) от 26.03.2018
 
 VA - Deep House Spring Essentials 2018 [MP3|320 Kbps] <Deep House>
@@ -716,35 +745,6 @@ VA - Best Chill Out & Ambient Music For Sleep (2019) [MP3|320 Kbps] <Chill-Out, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3382B65E20A7F41D3AF1826C28EBBCE8E8749A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005557   (760535) от 03.02.2019
-
-Phil Von - Discography 4 Releases (2001-2019) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, Electro, IDM, Tribal>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exhaler La Nuit (05:10)
- 02. Capsized Poetry (05:22)
- 03. Modern Times Nostalgia (05:19)
- 04. Where Is The Other Side? (05:19)(   Читать дальше...   )Тип издания: CD, WebЖанр: Abstract/Ambient/IDM/SoundtrackПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44919D853CCE37ECED965775FB430E2EA04D0EBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

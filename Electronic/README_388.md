@@ -1,3 +1,32 @@
+###  Публикация: 659967   (773111) от 24.05.2013
+
+KlubbHeads - 5 Albums , 12 Compilations (1996 - 2004) [FLAC|Lossless]<House, Pumping House, Dutch Klubb House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IttyBitty, BoozyWoozy & Greatski feat. MC Hughie Babe - Get Ready (Intro) (0:22)
+ 02. Olav Basoki - Waterman (4:34)
+ 03. Andrea Bertolini - Nasty Bass (2:32)
+ 04. Benny Benassi pres. The Biz - Love Is Gonna Save Us (4:15)(   Читать дальше...   )Жанр: House, Pumping House, Dutch Klubb HouseПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015985   (773146) от 12.05.2016
 
 VA - GOA Vol.59 (2016) [MP3|320 кб/с] <Trance, Psy-Trance>
@@ -715,35 +744,6 @@ Prince of Denmark - 8 (2016) Forum [FLAC|Lossless|Vinyl|tracks] <Dub Techno, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7974F3034B5F6304FFAA3401B874F0A2464E2D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212959   (774453) от 14.03.2018
-
-VA - Ibiza Cafe Del Sol - Chill Lounge Club Sessions (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lea Perry  -  Dubby Sunset Sky At Cafe Del Mar (Ibiza Beach Mix)  5:14
-02.  Silver Beat  -  Time 2 Go (Isla Del Sol)  5:18
-03.  Rainman  -  Riding On A Cloud (Ibiza Mix)  4:05
-04.  Soleil Fisher  -  Lightbox (Ibiza Guitar Mix)  5:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51216573D39D60B9BEF3A3AC3F08FD55FB74DAFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

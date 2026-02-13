@@ -1,3 +1,32 @@
+###  Публикация: 1572932   (383646) от 06.09.2022
+
+Enigma - Le Roi Est Mort, Vive Le Roi! (1996) [OGG Vorbis|485 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Roi Est Mort, Vive Le Roi!	1:57
+02. Morphing Thru Time	5:47
+03. Third Of Its Kind	0:19
+04. Beyond The Invisible	5:00(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419659B5305E843B52266522C5B2D2273178233A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174635   (385250) от 15.10.2017
 
 Peter Kater - Dancing On Water (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Ambient>
@@ -738,35 +767,6 @@ Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172136   (392902) от 08.10.2017
-
-Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Deal With The Devil
-02. Don't Deal With The Devil (Instrumental)
-03. Introduction
-04. Tutorial(   Читать дальше...   )Жанр: Score / Jazz, Stage & ScreenПродолжительность: 02:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340C29F5700769848F3D079CC5F558A91FD55DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

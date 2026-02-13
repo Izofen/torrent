@@ -1,3 +1,174 @@
+###  Публикация: 1108284   (864410) от 24.02.2017
+
+Demis Roussos - Souvenirs (1975) Remastered, 2016, UMC [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sing An Ode To Love (4:10)
+ 02. Midnight Is The Time I Need You (2:57)
+ 03. I`ll Be Your Friend (4:07)
+ 04. Action Lady (2:59)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2B7A4E66CB33FA27DD53831CF05CDB8B7358F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108249   (864530) от 24.02.2017
+
+VA - Italo Disco Extended Versions Vol.7 (Italo Holiday) (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roby - Take My Heart  8:24
+02.  Alan Brando - Take My Heart  6:12
+03.  Mrs. Blue - Never Enough  7:43
+04.  Boris Zhivago - In Your Eyes (BCR Extended International Mix)  7:35(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3737DD1359B86887F8184B38DBE3FADF8BDBB1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108352   (864643) от 24.02.2017
+
+Ibibio Sound Machine - Uyai (2017) [MP3|320 Kbps] <World, Funk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me a Reason
+02. The Chant (Iquo Isang)
+03. One That Lights Up (Andi Domo Ikang Uwem Mi)
+04. The Pot Is On Fire(   Читать дальше...   )Жанр: World, Funk, PopПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022465BE1037F10F36B87A77B39DA0D1B39ED31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108019   (864737) от 24.02.2017
+
+Tommaso Pini - #COSECHEDANNOANSIA (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Cose che danno ansia
+02 – Francesca e dicembre
+03 – La mia testa
+04 – La disco mi rilassa(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01A25D2693A439451EFC48B8DDFDCFE6958BA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497473   (864877) от 22.09.2021
+
+Miko Vanilla - Vanilla (2021) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless LoveЖанр: DiscoПродолжительность: 01:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7889D9BE4AA6D79F642398662626857A736A77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497542   (864945) от 22.09.2021
+
+Sergio Y Estibaliz - Beans (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay On The Line (4:20)
+02. Tonight Is The Night (5:02)
+03. Asi Como Asi (3:32)
+04. Little Maggie (3:56)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE3ECFD1B0C92A8A334898108CEC2B0DB9A91B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375578   (865257) от 14.04.2020
 
 SHLAKOBLOCHINA - FATALITY (2020) [MP3|320 Kbps] <Pop>
@@ -574,181 +745,6 @@ VA - Another Side of Mike Mareen Part 1-3 (2016) [MP3|320 кб/с] <Italo Disco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2457C1BBC03E3DE313D2A0D153DE737672D36018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955845   (868607) от 12.04.2020
-
-VIP - Золотая монета (2006) Style Records [FLAC|Lossless|image + .cue]<Pop, Easy Listening>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прощай (4:09)
-02. Мишель (3:48)
-03. Золотая монета (4:01)
-04. Из-за тебя (4:11)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F952840CB07BD3B032ECC7476B89A11675E4771E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496847   (869801) от 19.09.2021
-
-Stage - The Prisoner Of Your Love (2014) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo Dance (Extended Version) [00:07:04]
-02. Ocean Of Crime (We're Movin' On) (Extended Version) [00:05:09]
-03. Real (Extended Version) [00:06:04]
-04. I Can't Get You Out Of My Mind (Dance Version) [00:06:14](   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDBA80BCE94A8CB1EF1BE383345C0F1E1E89E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496825   (869930) от 19.09.2021
-
-W. Bennett, B. Bennett - In The Groove (1985) LP [MP3|320 Kbps] <Electro, Pop, Rock, Disco, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Really Moving (2:45)
-02. Xenon Lights (3:47)
-03. In The Groove (2:49)
-04. Master Mix (3:04)(   Читать дальше...   )Жанр: Electro, Pop, Rock, Disco, AmbientПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9893EC492330F031DB6C7641DCF2A6F92DA1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998486   (870070) от 19.03.2016
-
-Captain Jack - The Captain's Revenge (1999) [FLAC|Lossless|tracks] <Electronic, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction  01:55
-02. Dream A Dream  03:38
-03. Get Up!  03:04
-04. The Race  03:51(   Читать дальше...   )Жанр: Electronic, Euro HouseПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660321674039F7B8DCE8687FD3DF0FE2505ADB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998126   (870205) от 19.03.2016
-
-VA - Number 1's: The Ultimate Collection (2014) 5CD [MP3|320 кб/с] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжая хорошую традицию и откликаясь на просьбы одноклубников представляю этот бокс сет в МП3. Ссылку на релиз в lossless найдете внизу раздачи.
-Здесь на 5 дисках собраны 100 хитов, которые  достигли столь желанной для каждого исполнителя вершины топа Великобритании в период с 60-х по 2000-е годы.CD1 - 60s:
-01. Marvin Gaye - I Heard It Through The Grapevine  (3:11)
-02. The Foundations - Baby, Now That I've Found You  (2:56)
-03. Diana Ross & The Supremes - Baby Love  (2:34)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7951B159787D13BDFB6099E8C1FBCD57B45E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998237   (870279) от 19.03.2016
-
-Annie Lennox - Cold + (1992) 3CD Box set, Singles, Japanese Edition, 1993, BMG Victor [FLAC|Lossless|image + .cue] <Pop, Adult contemporary>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold [04:25]
-02. Why (MTV Unplugged) [05:07]
-03. The Gift (MTV Unplugged) [04:41]
-04. Walking On Broken Glass (MTV Unplugged) [04:01]Жанр: Pop, Adult contemporaryПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71C6843F58CD3462384C95A9C23368624578907
 ```
 
 https://mybot314.ru/tekegram_catalog/

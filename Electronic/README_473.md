@@ -1,3 +1,32 @@
+###  Публикация: 988039   (922815) от 19.02.2016
+
+VA - Only Chillout Vol. 03 (Compiled & Mixed By Seven24) (2016) [MP3|320 кб/с] <Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Frolov - Voice from Inside (Chill-Out Version) (4:32)
+02. Seaman - In Old Forest (6:43)
+03. R.I.B. - Starlit (3:54)
+04. Seven24 - Forever (3:40)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 03:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79659B276238886DA71475B75470C18E9D36450E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095738   (922818) от 22.01.2017
 
 VA - Parquet Goodies 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
@@ -714,35 +743,6 @@ VA - Armada Chill 2017 [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BEB850AAD3EC88E4F157EBE1CCBF7E99D671BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987965   (924306) от 18.02.2016
-
-Blank & Jones - Pure Lounge: Chilling Club Sounds (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Nuits Blanches (4:08)
-02. Blank & Jones With Coralie Clément - J'en Reste Là (3:28)
-03. Blank & Jones - Coming Home (Afterlife Mix) (5:05)
-04. Blank & Jones With Cathie Battistessa - Happiness (Milchbar Terrace Mix) (4:12)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F77FF337A7D3CE357C3A0B665238CCB2089BF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

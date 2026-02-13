@@ -1,3 +1,32 @@
+###  Публикация: 1406910   (470563) от 05.09.2020
+
+VA - Beautiful Vocal Trance: Chapter 5 (2020) [FLAC|Lossless|tracks] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa feat. Ana Criado - The Secret Garden (Original Mix)
+02. Aurosonic feat. Stine Grove - In Euphoria We Rise (Original Mix)
+03. Dark Matters feat. Jess Morgan - I Don't Believe In Miracles (Shogun Remix)
+04. Beat Service feat. Cathy Burton - Love Is Your Home (Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175EC7247BD86FAB8F1D28DC89C6963806C787C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406506   (470598) от 05.09.2020
 
 The Living Tombstone - zero one (2020) [MP3|320 Kbps] <Electronic, Dubstep>
@@ -733,35 +762,6 @@ New Order - Music Complete (2015) [MP3|320 кб/с]<Synthpop, Electronic, New-Wa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:805859B19526DBD957D296FA46ED6C7E17CD4985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319840   (473270) от 17.08.2019
-
-VA - Sweet Love Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jacob Gurevitsch - Affection (Original Mix) 4:11
-02. Giacomo Bondi & Gabrielle Chiararo - Don't Dream It's Over (Original Mix) 3:54
-03. Peter Pearson - Drifting Off (Original Mix) 4:10
-04. Ingo Herrmann - Enough Of You (Original Mix) 3:51(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC175FB9A01C563D39A20A91E10E56D340DB0B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

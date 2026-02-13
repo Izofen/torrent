@@ -1,3 +1,32 @@
+###  Публикация: 1141489   (650549) от 10.06.2017
+
+VA - Chillout Finest (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jedidiah - Sempiternal  4:57
+02.  Koan - When Visible Becomes Invisible  7:58
+03.  Kuba - We Can Still Learn  4:50
+04.  Stefan Torto - Silent Hills  6:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC45A2738835C475D7EBBBEF103551FDA9B1D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141355   (650552) от 10.06.2017
 
 VA - House Of Ibiza 2017 [MP3|320 Kbps] <Funky, Club House>
@@ -722,35 +751,6 @@ Graham Van Pelt - Time Travel (2018) [FLAC|Lossless|tracks + .cue] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91681E3C0E3AEA8A707A8FAD66305BDFC85CA884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903625   (652869) от 04.06.2015
-
-VA - The Fatboy Slim Collection (2015) 4CD [FLAC|tracks +.cue]<Breaks, Funk, House, Big Beat, Electro>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652869.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1: 01:19:02
-CD 2: 01:18:40
-CD 3: 01:19:45
-CD 4: 01:18:07Производство: Sony Music / 888750 78432Жанр: Breaks, Funk, House, Big Beat, ElectroПродолжительность: 05:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB38FCE551AD739EFAE8CD85E912E52DED79A28
 ```
 
 https://mybot314.ru/tekegram_catalog/

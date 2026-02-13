@@ -1,3 +1,32 @@
+###  Публикация: 1568539   (462088) от 08.08.2022
+
+Dwson - A Tape For You (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover (feat Jullian Gomes) (Original Mix) (7:06)
+ 02. You & Me (Original Mix) (6:43)
+ 03. Weightless (feat Atjazz) (Original Mix) (6:02)
+ 04. The Silence (feat Hyenah & Apple Gule) (Original Mix) (7:31)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:49.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0803D773EB246ACB333AA1704751539A55FE48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059118   (462106) от 04.10.2016
 
 VA - Melodica Electronica Vol.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
@@ -732,35 +761,6 @@ KAAZE - Live @ Bali, Indonesia (2022-07-20) [MP3|320 Kbps] <Big Room>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83E350BD3B31882964E0FEC0CDC6B4418B462642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 825007   (464579) от 25.09.2014
-
-Sopor Aeternus & The Ensemble Of Shadows - Mitternacht (2014) [FLAC|Lossless|tracks + .cue] <Gothic, Neofolk, Darkwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mitternacht (02:22)
-  02. Beautiful (08:37)
-  03. La Prima Vez (05:33)
-  04. Bang-Bang (07:17)(   Читать дальше...   )Жанр: Gothic, Neofolk, DarkwaveПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121DC57D9A39A2D47C013E1639C892E1FEC579EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

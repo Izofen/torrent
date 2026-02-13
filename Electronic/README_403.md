@@ -1,3 +1,32 @@
+###  Публикация: 1204117   (785384) от 04.02.2018
+
+Aelyn - Voice Of Suanda Vol. 5 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aelyn & Feel - If You Feel Love (Original Mix)
+02.Aelyn - Game Over (Ruslan Radriges Remix)
+03.Aelyn & Universal Sense - Be Where You Are (Vocal Mix)
+04.Aelyn - Water & Fire (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234A16E83E38ABC99EE3CD08C14C7FC54E194598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203899   (785386) от 04.02.2018
 
 VA - Deep House | Odyssey, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -713,35 +742,6 @@ VA - Spring Party Paradise (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:241C27F30EEC14A306F5CE2A215B9FAD2826344D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124863   (785665) от 12.04.2017
-
-VA - Electronic Wunderland Vol.2: 20 Chill out Master Pieces (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peewee Durante - Still Wait a Little - Original Mix
-02. Montefroid - Baby Lemonade - Original Mix
-03. Blade - Masquenada - Original Mix
-04. D-Chill - Interlude - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFD5804C01351C600B64428AD3E36825619C0E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

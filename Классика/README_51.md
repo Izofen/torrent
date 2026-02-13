@@ -1,3 +1,38 @@
+###  Публикация: 616122   (974662) от 10.02.2013
+
+W.A.Mozart - Requiem/Symphony No.29: Karl Richter, MBO & Chor (1996) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Requiem for soloists, chorus, and orchestra, K. 626
+01. I. Introitus. Requiem aeternam
+02. II. Kyrie. Kyrie eleison
+03. III. Sequentia. Dies irae
+04. III. Sequentia. Tuba mirum
+05. III. Sequentia. Rex tremendae majestatis
+06. III. Sequentia. Recordare, Jesu pie
+07. III. Sequentia. Confutatis maledictis
+08. III. Sequentia. Lacrimosa dies illa
+09. IV. Offertorium. Domine Jesu Christe(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3B6A5D721C98B459C99976767D953C37C01ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615985   (974802) от 10.02.2013
 
 Jie Chen - Chinese Piano Favourites (2007) [FLAC|Lossless]<Classical Instrumental>
@@ -805,41 +840,6 @@ Concerto for Flute, Harp and Orchestra in C major KV.299 (297c) – 1778 г.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28633C3113E16ECC2F9F37AB4F4299BC0DA94A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610659   (989919) от 29.01.2013
-
-Pyotr Ilyich Tchaikovsky - The Seasons (2000) [MP3|320 кб/с]<Classic>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation, op.72 no.5
-02. Polka Peu Dansante, op.51 no.2
-03. Aveu Passione
-04. Tendres Peproches, op.72 no.3
-05. Berceuse, op.72 no.3
-
- Les Saisons, op.37a (The Seasons)
-
-06. At The Fireside (January)
-07. Carnival (February)(   Читать дальше...   )Жанр: ClassicПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEEF98E53F98279A73F7CB849015129D2838F90
 ```
 
 https://mybot314.ru/tekegram_catalog/

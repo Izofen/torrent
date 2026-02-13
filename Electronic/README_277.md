@@ -1,3 +1,32 @@
+###  Публикация: 1238864   (543780) от 02.08.2018
+
+Anosphere - 3 Studio Albums (2007-2011) CD [MP3|320 Kbps] <Electronic, Synth-pop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2007 - Field Of Mutants
+2007 - Timetraveller
+2011 - One And All(   Читать дальше...   )Жанр: Electronic, Synth-pop, SpacesynthПродолжительность: 03:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D222FA0153BA91B30D7ADA4A1A56EF8B8508FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049490   (543825) от 05.09.2016
 
 VA - Summer Time Vol. 4 (2016) [FLAC|Lossless|tracks] <Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Global Player Ibiza Vol 2 (2016) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF799757461DC907478AEFC898A811F8DD60097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238554   (546241) от 30.07.2018
-
-VA - House Clubhits Megamix 2018.2 [3CD] (2018) [MP3|320 Kbps] <House, Dance, Club, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546241.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Klaas - Love Your Life
-02. Tessa & Grimaldo - Kiss Me Awake (Fischer & Fritz Remix Edit)
-03. Marc Kiss & Sawo - Don't Go 2K18 (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Club, ProgressiveПродолжительность: 03:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B5354A34EFA557C0411854393723F629D1B201
 ```
 
 https://mybot314.ru/tekegram_catalog/

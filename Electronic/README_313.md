@@ -1,3 +1,32 @@
+###  Публикация: 1036590   (615746) от 23.07.2016
+
+VA - Future EDM Essentials Vol.01 (2016) [MP3|320 Kbps] <House, Electro House, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tieries Azzier -  Fires Of Maria (Original Mix) 5:41
+02. YoungHwan -  Moodang (Original Mix) 5:06
+03. Mpohj -  Fire Fuel (Original Mix) 5:10
+04. Hypster & Raff -  Candy Hearts (Tieries Azzier Remix) 5:49(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 01:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D703E2B968420012DEA15ED08FCE07FEE5AAE98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036601   (615747) от 23.07.2016
 
 VA - Back in Time  Best Progressive (2016) (2016) [MP3|320 Kbps] <House, Progressive House>
@@ -716,35 +745,6 @@ VA - Vargo Lounge - Summer Celebration 3 (2015) [FLAC|Lossless|WEB-DL]<Lounge, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E4822076F28008E0D6144AF594394EFE707B756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145603   (618224) от 27.06.2017
-
-VA - Barcelona Orange Urban (Music For Urban People) (Compiled by Marga Sol) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marga Sol - Amoralea (Original Mix)  5:58
-02.  Paulsen & Stryczek - Havana Postcard (Original Mix)  3:04
-03.  Leo de la Rosa - Desnudos Tu Y Yo (Original Mix)  3:23
-04.  Marco Bianchi feat. Franky Harper - Oye Como VA (Original Mix)  3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1113EF5F11B05DA5E09F3FFF2203536E262D21
 ```
 
 https://mybot314.ru/tekegram_catalog/

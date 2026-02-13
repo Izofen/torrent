@@ -1,3 +1,61 @@
+###  Публикация: 1571381   (433947) от 21.08.2022
+
+VA - Disco Chance Real Time: Mashup (2022) [MP3|192-320 Kbps] <Dance, Club, R&B, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Rihanna Vs Joel Corry, Raye & David Guetta - We Found Love In Bed (Discosid String) (Clean)
+02. Bleu Clair vs. Village People - Ymca Vs. Disco Tool (Dion Dobbe Mashup)
+03. Dave Earl Vs Stonebridge & Therese - Put Eivissa High (Discosid Mashup)
+04. 22 Lockdown Vs Pickle - Never Gonna Catch You (Discosid String) (Clean)(   Читать дальше...   )Жанр: Dance, Club, R&B, Indie DanceПродолжительность: 02:09:59 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:854181FB37E22D57A88EA94790F0CA0FC3092F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571392   (433948) от 21.08.2022
+
+VA - Funky Collector Nostalgie (2022) [MP3|320 Kbps] <Dance, Rhythm & Blues, Rock, Funk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barry White - Let The Music Play (Single Version)
+02. The Temptations - Treat Her Like A Lady
+03. Carl Carlton - She's A Bad Mama Jama (She's Built, She's Stacked)
+04. Womack & Womack - Teardrops(   Читать дальше...   )Жанр: Dance, Rhythm & Blues, Rock, FunkПродолжительность: 01:40:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5932E0CBB98673215B53D9F7613FC1715B5A026A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063135   (434017) от 16.10.2016
 
 VA - Дискотека 80-90 годов по-новому (Зарубежный выпуск - 40) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
@@ -717,64 +775,6 @@ VA - Легче Лёгкого Авторская Лирика (2015) [MP3|256 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D03CA927273B28515642286E3A61FD370270E47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945330   (435993) от 09.10.2015
-
-VA - Trance Desire Volume 56 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two & One feat. Eskova - I Say Goodbye (Frainbreeze Remix) (06:55)
-02. Rocking J feat. Alexandra Badoi - Lumina (Original Mix) (06:32)
-03. Paul Van Dyk feat. Sue McLaren - Lights (Original Mix) (06:21)
-04. Nathia Kate Feat. Carina - Skyline (Denis Sender Remix) (04:26)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81A1F032CDCD69A891369DCB7BD9E5D4D4A1C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570681   (436058) от 20.08.2022
-
-Pino D'angio - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Questo Amote E Un Motore
-02. Tango
-03. Sono Latino
-04. Okay Okay(   Читать дальше...   )Жанр: PopПродолжительность: 01:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8567182B3F39A3838EF52082EB94BC7DE56EF3DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1350152   (1003687) от 04.01.2020
+
+Strozzi, Monteverdi, Kapsberger, Carissimi, Frescobaldi - Lamento (Romina Basso) (2014) [FLAC|Lossless|image + .cue] <Classical vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003687.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Johann Hieronymous Kapsberger - Toccata Seconda Arpeggiata - Lamento Della Regina De Svezia
+2. Giacomo Carissimi - Lamento in Morte Di Maria Stuarda
+3. Barbara Strozzi - Lagrime Mie
+4. Claudio Monteverdi - Capriccio Di Durezze - Lamento D'Arianna(   Читать дальше...   )Жанр: Classical vocalПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75F5FD109FB0DE20D6E30848EDDA785331C4C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486953   (1004323) от 02.08.2021
 
 Lola Astanova - The Popular Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Romantic>
@@ -712,35 +741,6 @@ Franz Schubert - Symphony No. 8 "Unfinished"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A40EF1CB39189A7D5C10C32D2789048649770EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455552   (1025620) от 19.03.2021
-
-Great conductors of the 20th century - Evgeny Mravinsky (2003) 2CD [FLAC|Lossless|image + .cue] <Orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Joseph Haydn - Symphony G-Dur
-01. Adagio - Allegro (6:59)
-02. Largo (5:26)
-03. Menuetto. Allegretto - Trio (4:20)(   Читать дальше...   )Жанр: OrchestralПродолжительность: 02:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA8CDA951DDC85C63EE5EE6E15A663D177D7DA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

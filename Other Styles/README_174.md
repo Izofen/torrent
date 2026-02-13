@@ -1,3 +1,32 @@
+###  Публикация: 1363466   (942325) от 28.02.2020
+
+Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942325.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:38| 01. Enter The Ride
+|03:17| 02. Neon Gray
+|03:31| 03. Time Capsule
+|01:42| 04. Reverse Part(   Читать дальше...   )Жанр: Soundtrack, Score, ElectronicПродолжительность: 01:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C754EA5C94D8A374ECB07A4C655ABD3A0F79802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361926   (942400) от 28.02.2020
 
 Paweі Bіaszczak - Dying Light Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
@@ -747,35 +776,6 @@ Justin E. Bell - The Outer Worlds (Original Soundtrack) (2019) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F95A7E862A005D3D1C8DADF2D203E34DE08100EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983059   (945389) от 05.02.2016
-
-VA - 60 Minutes Relaxing Music (Non Stop Mix) (2016) [MP3|320 кб/с] <Relaxation, Instrumental, Piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corrado Rossi - Distant Memories (05:00)
-02. Alessio De Franzoni - Nel Pozzo (05:08)
-03. Roberto Mazzanti - Winter Meadow (04:05)
-04. Raffaele Rinciari - Aria (04:51)(   Читать дальше...   )Жанр: Relaxation, Instrumental, Piano, New AgeПродолжительность: 01:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D1F48F5474166ED674650835981AFAA7C74778
 ```
 
 https://mybot314.ru/tekegram_catalog/

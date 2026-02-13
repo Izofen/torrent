@@ -1,3 +1,29 @@
+###  Публикация: 263267   (322575) от 28.11.2010
+
+Wolfgang Amadeus Mozart - The Great Piano Concertos (4CD) (1994) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 05:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A3459F38555649F1F575C74461D78DABEF10E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331508   (322645) от 16.10.2019
 
 Modern Sound[s] Orchestra - The Symphonic Album - Live! (2013) [FLAC|Lossless|image + .cue] <Classical>
@@ -716,32 +742,6 @@ RV 315 "Summer": III. Presto  (02:27)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2438DCD1D62B8D4168525CE1D2DB9AE7B0E13A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580478   (337434) от 27.11.2012
-
-J.S.Bach - The Authorised Recordings: Sviatoslav Richter (1994) 3CD [FLAC|Lossless]<Classical, Baroque Period, Suite>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Baroque Period, SuiteПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C25CDBC2D120F55894326F46533DC3A78B36B97
 ```
 
 https://mybot314.ru/tekegram_catalog/

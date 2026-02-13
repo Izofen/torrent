@@ -1,3 +1,32 @@
+###  Публикация: 1547841   (602025) от 30.04.2022
+
+VA - Spring Aromas: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Marie Therese - What Can I Say (4:13)
+02. The Soul Crusaders - In My Dreams (7:31)
+03. Beamy - Hope (5:09)
+04. Peter Pearson - Fire Me Up (5:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9719EE3E67D4CA084DEA7D52D5E48C877055C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298230   (602157) от 26.04.2019
 
 Dreaming Cooper - Exploring the Universe (2019) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
@@ -714,35 +743,6 @@ Lagowski - Ashita (1997) Side Effects [FLAC|Lossless|tracks+.cue] <Experimental,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C64B2136299EE806D54389106CE37278D8E41EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232187   (602772) от 22.06.2018
-
-VA - Soma Coma 7 (2018) Soma Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deepbass - Circa (Ambient Version) (06:50)
- 02. DeepChord - Roca 9 (04:38)
- 03. Slv - A Different Space (03:59)
- 04. Edit Select - Intra-Grain (04:10)(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C01EFF75AC22891A2312F7B161E1870EC2C9417
 ```
 
 https://mybot314.ru/tekegram_catalog/

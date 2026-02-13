@@ -1,3 +1,32 @@
+###  Публикация: 1404387   (483543) от 30.08.2020
+
+Podval Capella - Shaman (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entrance
+02. Wisdom
+03. Lyra
+04. September(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2DB365475D292A3B74AE354A600932782DFBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404382   (483545) от 30.08.2020
 
 Podval Capella - Resonance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
@@ -720,35 +749,6 @@ Pixelord - Human.exe (2016) [FLAC|Lossless|WEB-DL|tracks] <IDM, Trap, Experiment
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A1E86939815E0E0B20F9170736F796EBCD817D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937890   (486046) от 16.09.2015
-
-VA - Relax Zone Vol 1 (2015) [FLAC|tracks]<Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baffle - Inside Out... (03:22)
-02. Breex - Somewhere in My Dreams (04:57)
-03. Dave Harrigan - Sunset Avenue (04:22)
-04. CJ Ferrum - Free Flight (03:49)(   Читать дальше...   )Производство: Easy Summer LimitedЖанр: Downtempo, Lounge, Chill OutПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A968D29EF641911841342FF3354BF230689C7797
 ```
 
 https://mybot314.ru/tekegram_catalog/

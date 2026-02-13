@@ -1,3 +1,32 @@
+###  Публикация: 940409   (467021) от 25.09.2015
+
+Mozart - Symphony Nos. 38 & 39 (Alexander Schneider & Chamber Orchestra of Europe) (1986) [FLAC|image +.cue]<Classical, Orchestral, Classical Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 38 in D major ("Prague"), K. 504
+01. Adagio - Allegro (11:24)
+02. Andante (09:30)
+03. Presto (06:22)(   Читать дальше...   )Жанр: Classical, Orchestral, Classical Period, SymphonyПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63C7AD93217D4070CE1BD1BD0C92F026904D4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320523   (468897) от 19.08.2019
 
 VA - 300% Classic In Rock (1999) [MP3|320 Kbps] <Classical, Vocal, Rock, Trance>
@@ -728,42 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2465C4CBF6848360BDEC8DF14C6AC487476784A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544267   (488706) от 08.09.2012
-
-Luciano Pavarotti - 16 Альбомов (20 CD) (1977-2007) [MP3|320 кб/с]<Opera, Classical Music>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488706.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве Лучано больше всего любил ловить лягушек и ящериц, играть в футбол — ну и, конечно, петь. Впрочем, в Италии, как известно, поют все. Отец Лучано приносил домой пластинки знаменитых теноров — Джильи, Карузо, Мартинелли, и вместе с сыном они слушали их буквально до дыр. Лучано забирался на стол в кухне и голосил во все легкие "Сердце красавицы". В ответ на его истошное пение одновременно из 15 соседних квартир раздавались не менее истошные крики: "Баста! Да замолчи же ты, наконец!!!"
-Отмечают, что благодаря своему вокальному мастерству, характерной легкости звукоизвлечения, сочетающимся «с высокой индивидуальностью, излучающей тепло и жизнерадостность», Паваротти стал «одной из „суперзвезд“ оперной сцены 20 столетия». Его популярности способствовали также частые появления в прессе и трансляции выступлений Паваротти по телевидению.1. Nessun dorma! (2:59)
- 2. Libiamo ne'lieti calici (2:50)
- 3. O sole mio (3:21)
- 4. La donna e mobile (2:21)
- 5. Volare (4:33)
- 6. Panis Angelicus (4:01)
- 7. Caruso (5:20)
- 8. Non ti scordar di me (2:55)
- 9. Torna a Surriento (4:22)
- 10. Funiculi, funicula (2:40)(   Читать дальше...   )Жанр: Opera, Classical MusicПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1046849BCBAB69351569E1663C4DA4D33BF5D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

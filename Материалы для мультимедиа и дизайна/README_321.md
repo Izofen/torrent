@@ -1,3 +1,222 @@
+###  Публикация: 1017956   (759021) от 18.05.2016
+
+Экшены - GraphicRiver - Artisto - Photoshop Action - 12390526 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4941E46E554095D3E15E81B8967FC63AA3410DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106209   (759450) от 25.03.2018
+
+Шрифты NNM-Club - Astakhov First One Stripe - 1106209 [OTF, TTF, EOT, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное семейство шрифтов (в т.ч. OFL)
+Количество / Штук: 6
+Разработчик: D. Astakhov
+(   Читать дальше...   )Формат: OTF, TTF, EOT, WOFF, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C5641974C318B3D383CD2757D68FD035C2BEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215360   (759534) от 25.03.2018
+
+3D модели - Daz 3D - Sci-fi #2 [DUF, EXE]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - научная фантастика из категории Robots.Формат: DUF, EXE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17972042D7BD207999451BB24AE0E8392EABF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215426   (759714) от 25.03.2018
+
+Векторный клипарт - Certificate and vector diploma design template #56 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Шаблоны оформления сертификатов
+10 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7F4D59349222E4FE9E993AD5A92ADADE8A433C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215427   (759721) от 25.03.2018
+
+Векторный клипарт - Certificate and vector diploma design template #57 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Шаблоны оформления сертификатов
+11 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD05891B5C44D01B6A9A852BF3C3F413ABAA67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215430   (759957) от 25.03.2018
+
+Векторный клипарт - Happy Easter holiday with eggs and bunny #8 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С праздником Пасхи
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4232DA8BDD0913EA2778F8086EF61CB37B8257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215429   (759963) от 25.03.2018
+
+Векторный клипарт - Happy Easter holiday with eggs and bunny #13 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С праздником Пасхи
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48648019BC579312DB627405D7871AB46B23B27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394810   (759986) от 07.07.2020
+
+3D модели - ArtStation - Mega Pack KITBASH 320 DETAILS [FBX, MAX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мега пак 3D-элементов для ZBrush 320шт.Формат: FBX, MAX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D422ECA86C70C1E0148441EFEDA7623C677ED499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280580   (760048) от 03.02.2019
 
 Фоны и наложения - Creative Market - 100 Fireworks Overlays - 1608202 [JPG]
@@ -468,224 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C305E0BEEDE5141769AA957596A321BAA6F8DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214704   (763061) от 23.03.2018
-
-3D модели - Daz 3D - Wizard Magic Bundle - 50371 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магический набор волшебников для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941E50B48B76665D1FFA9AEFB076D8DB747C3453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214723   (763177) от 23.03.2018
-
-Векторный клипарт - Happy Easter holiday with eggs and bunny #14 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С праздником Пасхи
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9182E392A9BDA598C22571EDC68E5592B7DC2142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279983   (763207) от 01.02.2019
-
-3D модели - TurboSquid - CGAxis Models Volume 39 Christmas - 787973 [V-Ray|*.max, C4D, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763207.jpg" />
-</div>
-
-
-###  Подробнее
-
-GAxis Models Volume 39 - Christmas - коллекция, содержащая 30 высокодетализированных 3D-моделей рождественских украшений. Вы можете найти в нем: различные елки, рождественские венки, настольные украшения и многое другое. Модели из этой коллекции прекрасно подходят для придания вашим проектам визуализации интерьера особого праздничного настроения.Формат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2185E89D5E350FDBB6D47F7D3BAC618AA80ADFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214720   (763289) от 23.03.2018
-
-Векторный клипарт - Happy Easter holiday with eggs and bunny #9 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С праздником Пасхи
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C27C301557977089134C3137FFFF9180F438FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394474   (763500) от 05.07.2020
-
-Футажи - VideoHive - Islamic Calligraphies Motion Graphics Pack - 23477403 [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763500.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Islamic Calligraphies Motion Graphics Pack» - это идеальная коллекция стоковой графики движения, в которой представлены ценные слова в Исламе, выполненные красивыми золотыми штрихами. Пакет содержит следующие слова: “Allah”, “La Galibe Illallah”, “Mashallah”, “Bismillah ar-Rahman ar-Raheem”, “Blank Islamic Circle Frame”, “Mohammad” and Dervish (либо существуй таким, (   Читать дальше...   )Формат: MP4Разрешение файлов: UHD 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B789D3C45F521688CB5B51D781EA25291DE54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214693   (763904) от 22.03.2018
-
-3D модели - Daz 3D - Sci-Fi Pilot Outfit for Genesis 8 Female(s) - 51211 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sci-Fi Pilot Outfit for Genesis 8 Female - милитаризованный костюм в стиле "секси" с жилетом и доспехами. Он поставляется с 7-ю предустановленными текстурами от классических военных до блестящих аниме и полиции будущего. Для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCF8E037F236719D4200486B71653A5DC4D8C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214728   (763983) от 22.03.2018
-
-Векторный клипарт - Different Parrots Set [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Различные попугаи
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFE4D9C267B265DA852716F62A338B477405D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214503   (764000) от 22.03.2018
-
-Векторный клипарт - Happy Easter holiday with eggs and bunny #5 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С праздником Пасхи
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B16F8964E5CA5854F25C2310AB2CC25810E3CA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

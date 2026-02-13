@@ -1,3 +1,32 @@
+###  Публикация: 1005195   (832212) от 09.04.2016
+
+VA - Top 50 Most Popular Classical Piano (2014) [MP3|320 кб/с] <Classical, Piano>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liebestraume, S. 541 III. Oh Lieb, so lang du lieben kannst - Franz Liszt
+02. Lieder ohne Worte, Op. 19b I. Andante con moto - Felix Mendelssohn
+03. Nocturne in B-Flat Minor, Op. 9 No. 1 - Frederic Chopin
+04. 4 Impromptus, D. 935, Op. 142 III. Impromptu in B-Flat Major Rosamunde - Franz Schubert(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 03:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F27ACBB3C5621C7E8B955338EED3C35B2529F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005179   (832308) от 09.04.2016
 
 Audiomachine - Decimus (2015) [MP3|320 кб/с] <Classical Crossover, Soundtrack>
@@ -716,35 +745,6 @@ Antonio Vivaldi - 4 Seasons of Love (Il Tempio Armonico) (2010) [FLAC 2.0|96/24|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C16587DA15C22C5A6C6F342567F7DD26C7149F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001635   (846504) от 01.04.2016
-
-Franz Schubert - Complete Symphonies (Les Musiciens du Louvre, Grenoble, Marc Minkowski) (2012) [FLAC 2.0|48/24|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphonie No. 3 in D major, D 200
-  1  Adagio maestoso - Allegro con brio  9:06
-  2  Allegretto                          4:30
-  3  Menuetto. Vivace                    3:34(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111F1829F0CE4C3DDE9DF05126F47B23455DD764
 ```
 
 https://mybot314.ru/tekegram_catalog/

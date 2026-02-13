@@ -1,3 +1,32 @@
+###  Публикация: 1498765   (854533) от 28.09.2021
+
+Attila - About That Life (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Middle Fingers Up (2:37)
+ 02. Hellraiser (2:56)
+ 03. Rageaholics (3:00)
+ 04. Backtalk (3:04)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EE105AFC7F77367B771D17862BBD4695EC75B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376949   (857011) от 19.04.2020
 
 Gengahr - Sanctuary (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -786,41 +815,6 @@ Vanilla Ninja - 3 альбома (2004-2006) [FLAC|Lossless]<Pop rock, hard rock
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766143   (873494) от 13.03.2014
-
-311 - STER3OL1TH1C (Stereolithic) (2014) [FLAC|Lossless]<Alternative Rock, Reggae Rock, Rap Rock, Funk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ebb and Flow (3:24)
-02. Five of Everything (3:51)
-03. Showdown (3:48)
-04. Revelation of the Year (4:12)
-05. Sand Dollars (3:21)
-06. Boom Shanka (3:04)
-07. Make it Rough (3:23)
-08. The Great Divide (4:04)
-09. Friday Afternoon (4:12)
-10. Simple True (4:13)(   Читать дальше...   )Жанр: Alternative Rock, Reggae Rock, Rap Rock, Funk MetalПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744C45463253191CB29062CB79E57E0DDE88C3C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

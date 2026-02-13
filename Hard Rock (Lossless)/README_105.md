@@ -1,3 +1,72 @@
+###  Публикация: 753385   (936467) от 05.02.2014
+
+The Who - Who's Next (1971) Platinum SHM-CD /2013, Universal Music/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Baba O'Riley   (5:01)
+02.  Bargain   (5:34)
+03.  Love Ain't for Keeping   (2:11)
+04.  My Wife   (3:36)
+05.  Song is Over   (6:19)
+06.  Getting In Tune   (4:50)
+07.  Going Mobile   (3:44)
+08.  Behind Blue Eyes   (3:41)
+09.  Won't Get Fooled Again   (8:34)Жанр: Hard RockПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF22B638CFF7958236EA45B0ADE42DEDA5015162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753378   (936470) от 05.02.2014
+
+Kingdom Come - Kingdom Come (1988) SHM-CD /2013, Universal Music/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Living Out Of Touch   (4:17)
+02.  Pushin' Hard   (4:58)
+03.  What Love Can Be   (5:14)
+04.  17   (5:30)
+05.  The Shuffle   (3:40)
+06.  Get It On   (4:21)
+07.  Now Forever After   (5:36)
+08.  Hideaway   (5:38)
+09.  Loving You   (4:46)
+10.  Shout It Out   (3:38)Жанр: Hard RockПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687576F0C2DE31C8E375ABB51B5FF869DB71E9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 283218   (937208) от 19.01.2011
 
 Kiss - Ikons (2008) 4CD Box Set [FLAC|Lossless]<Glam Rock / Hard Rock>
@@ -733,70 +802,6 @@ Walk On Medley:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A7151BA872082567A608E711BE09472F4C01BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186478   (970505) от 22.01.2012
-
-Deep Purple - Machine Head (1972) HDCD Limited Edition /2010, Audio Fidelity/ [FLAC|Lossless]<Hard rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Highway Star :: 6:07
-02. Maybe I'm A Leo :: 4:52
-03. Pictures Of Home :: 5:06
-04. Never Before :: 4:04
-05. Smoke On The Water :: 5:43
-06. Lazy :: 7:23
-07. Space Truckin' :: 4:35Жанр: Hard rockПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 156624   (970703) от 22.01.2012
-
-Deep Purple - Who Do We Think We Are (1973/2005 Audio Fidelity 24KT+GOLD HDCD) [APE|lossless]<rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Woman From Tokyo
-2. Mary Long
-3. Super Trouper
-4. Smooth Dancer
-5. Rat Bat Blue
-6. Place In Line
-7. Our LadyЖанр: rockПродолжительность: 00:34:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

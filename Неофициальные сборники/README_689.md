@@ -1,3 +1,61 @@
+###  Публикация: 1849001   (1053157) от 20.01.2026
+
+VA - Music News For Forum vol.157 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Firaya - Отпустила (02:28)
+ 002. a.Ja & PANAMAN - Cold (03:14)
+ 003. Agunda - Тишина (02:24)
+ 004. Ahzee & Rosette - Eyes On Me (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4341CD5384C6FED9A42C2FCE06E17DB1F3C6E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848913   (1053202) от 19.01.2026
+
+VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053202.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:32] . 001-Би-2 - Я двигаюсь дальше
+[4:21] . 002-7б - Тост
+[3:00] . 003-Ночные снайперы - Дом стеной
+[3:13] . 004-Серьга - Батарейки сели(   Читать дальше...   )Жанр: rockПродолжительность: 9:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BF763C56CEA043F952F4ED880BA486857483E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848907   (1053322) от 20.01.2026
 
 VA - Euro Hits 2024 (2024) [MP3|320 Kbps] <pop,dance,electronic>
@@ -687,64 +745,6 @@ Frezee - Favorites Collection Part 6 (2026) [MP3|320 Kbps] <Swing Jazz, Nu Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65BADB35FD9EA13E7C6195F21BC626836D100C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851548   (1055436) от 
-
-Romantic Dreams - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Road You Choose
-02 - Cozy and Bright Christmas
-03 - I Missed You, My Angel
-04 - Sweet Dreams and Sunrise(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E01DF9D3ADEB28E6F9079FF71743FE20113640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851781   (1055457) от 
-
-VA - Music News For Forum vol.161 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. NONNA - Бриллианты (03:18)
- 002. 140 ударов в минуту - Увидеть сны (04:02)
- 003. 140 ударов в минуту - Холодный свет луны (02:42)
- 004. Ad Voca & PACANI - Day Dreaming (01:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5A4FBA0E2BE60B77CB113E07E861A0152121EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

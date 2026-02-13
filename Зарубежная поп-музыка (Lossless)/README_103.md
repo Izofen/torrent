@@ -114,3 +114,61 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852959   (1056220) от 
+
+Martina McBride - Emotion (1999) CD, HDCD, Album [FLAC|Lossless|tracks + .cue] <Pop Rock, World & Country, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do What You Do [0:03:26.02]
+02. Anything’s Better Than Feelin’ the Blues [0:03:01.63]
+03. I Love You [0:02:52.65]
+04. Make Me Believe [0:03:50.50](   Читать дальше...   )Жанр: Pop Rock, World & Country, Soft RockПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CFA6BCD7EBD52337F0791036CE767FD756A58AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852972   (1056221) от 
+
+Michael Bolton - This Is the Time: The Christmas Album (1996) [FLAC|Lossless|tracks + .cue] <Pop, Classical, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Night [0:04:05.68]
+02. Santa Claus Is Coming to Town [0:04:05.58]
+03. Have Yourself a Merry Little Christmas [0:04:01.70]
+04. Joy to the World [0:04:06.52](   Читать дальше...   )Жанр: Pop, Classical, RockПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB098D4444482C78C29B50868415A45CDFD58ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

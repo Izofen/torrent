@@ -1,3 +1,177 @@
+###  Публикация: 1203316   (565119) от 25.05.2019
+
+Маргарита Суханкина-Маруна - Неизданные песни (2002) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Остановиться (4:10)
+02. Не исчезай (4:14)
+03. Отелло (4:30)
+04. Слишком поздно (3:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC93CA59337CA0573D075F9AA7C1CF8601B3B32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304237   (565128) от 25.05.2019
+
+VA - Now That's What I Call Music! 69 (2019) USA Series [FLAC|Lossless|tracks + .cue] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - Breathin'  (3:13)
+02. Bastille & Marshmello - Happier  (3:32)
+03. DJ Snake, Selena Gomez & Ozuna feat. Cardi B. - Taki Taki  (3:31)
+04. The Chainsmokers feat. Kelsea Ballerini - This Feeling  (3:15)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE9C0B963F8516421CE6A183DBC82255CD72461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152685   (565162) от 23.07.2017
+
+Digital Emotion - Best Of (2015) Compilation [FLAC|Lossless|tracks + .cue] <Electro, Hi NRG, Disco, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up, Action
+02. Go Go Yellow Screen
+03. The Beauty & The Beast
+04. Don't Stop(   Читать дальше...   )Жанр: Electro, Hi NRG, Disco, EurodanceПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A2F098E8026273027D7559201B0D62492D6802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044629   (565338) от 20.08.2016
+
+Snoopy - Snoopy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's All In The Bible (3:11)
+02. Down The Bayou (3:06)
+03. Rain, Snow And Ice (2:47)
+04. Honolulu (3:04)(   Читать дальше...   )Жанр: Electronic, Disco, Reggae, PopПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE595CF1C068EF653FFE3C16CEC111838CF4E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304334   (565420) от 25.05.2019
+
+Benelux & Nancy Dee - Benelux & Nancy Dee (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Souvenirs (3:38)
+02. Do It (5:59)
+03. Save Your Life (3:00)
+04. Let Your Heart Beat (3:49)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F9C800D0CCF8B5F85887FDC889CAE4C04A4176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555803   (565477) от 06.06.2022
+
+Christina Aguilera - Aguilera (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ya Llegué [00:03:03]
+02 - Pa Mis Muchachas (feat. Nathy Peluso, Becky G, NICKI NICOLE) [00:03:36]
+03 - Somos Nada [00:03:01]
+04 - Santo (feat. Ozuna) [00:03:03](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BBFBA1EC23459B07518708CBF16FFEDF4CA02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304305   (565528) от 25.05.2019
 
 Diva Gray And Oyster - Hotel Paradise (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -571,180 +745,6 @@ Giorgio Scarpinelli Y Su Orquesta - Disc-O-Tango (1979) LP [MP3|320 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:791C14A00E0A59477455DFF3E78E9180B3113D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555761   (567357) от 05.06.2022
-
-Kiki Dee - 3 Albums (1977-1981) Reissue CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кики Ди (настоящее имя Полин Мэтьюс, Pauline Matthews; род. 6 марта 1947) - британская певица. Была первой белой блю-айд-соульной певицей, подписавшей контракт с мотауновским лейблом Tamla Records. За свою карьеру Кики Ди издала 40 синглов, 3 мини-альбома (EP) и 12 альбомов.Список альбомов:
-1977 - Kiki Dee
-1978 - Stay With Me
-1981 - Perfect Timing...Plus(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE1D0D31694CC3C7F9C27BF5455CF42346C51D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555708   (567483) от 05.06.2022
-
-J. C. Riffaud - Emotion Life And Happiness (1979) LP [MP3|320 Kbps] <Electronic, Jazz, Easy Listening, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder Storm (4:09)
-02. Air Ticket (3:32)
-03. The Song Of Little Bird (3:30)
-04. Blue Morning (2:54)(   Читать дальше...   )Жанр: Electronic, Jazz, Easy Listening, DiscoПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3090FA2AD2ECB22AEB66AEA5719808ED1FAEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234782   (567857) от 07.07.2018
-
-Ника - Это не мой секрет (1997) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это не мой секрет 03:09
-02. Не обещай 04:02
-03. С часу до пяти 03:01
-04. До луны пешком 04:26(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F78E9415209D7A6CA469510DDDBE971211F6DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234781   (567877) от 07.07.2018
-
-Кристиан Рэй & МФ3 - Жар (1997) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567877.jpg" />
-</div>
-
-
-###  Подробнее
-
-02. "О-Э-О" Ветер перемен
-03. Тихий вечер
-04. Дикая кошка
-05. Город (диалог с наркоманом)(   Читать дальше...   )Жанр: РорПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC7D780D5A8314AAEFBFAD8CE6D5581C82738F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234653   (567889) от 07.07.2018
-
-Валерий Юрин (ex-На - На - Жизнь моя грешная (1995) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здравствуй, девочка моя
-02. Жизнь моя грешная
-03. Я устал
-04. Ночь желаний(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA96D8359645D143B39BB79837D91A4C316AEE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234635   (567896) от 07.07.2018
-
-Ken Laszlo - Best Of 1990-1998 (Maxi Singles & More) (2018) Compilation, Limited Edition [MP3|320 Kbps] <Disco, Dance-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Hey Guy ‘94 (05:34)
-02. Mary Ann (Thats The Lovely Mix) (05:43)
-03. Baby Call Me (Ken Hit Mix) (07:23)
-04. Happy Song (Happy Mix) (06:10)(   Читать дальше...   )Жанр: Disco, Dance-popПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD2242656AB353B70AC54881B059A5F1EA74D21
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 981776   (951690) от 01.02.2016
+
+VA - Private Lounge Cafe, Vol. 4 (25 Delicious Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lind Variante - Costante - Original Mix (05:01)
+02. Spa - Come to Love - Original Mix (04:55)
+03. Leo & Roby Ruini - La Suite - Original Mix (05:25)
+04. Backroom Barn - Sweet Dream - Original Mix (03:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B5CF6FA6BEACD691DE2A3C93053414503B3ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089284   (951731) от 03.01.2017
+
+VA - Hit 200 Zaycev: Popular Dance Mix (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951731.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Onerepublic Feat. Peter Gabriel - A.I.
+002. Rochelle - All Night Long
+003. Dj James Yammouni - Live Forever
+004. Serpo & Dj Boor Feat. Женя Юдина - Небо Это Ты(   Читать дальше...   )Жанр: PopПродолжительность: 12:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45C5E29D20A741BC7FD1F47ABD01178D830E509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981482   (951739) от 01.02.2016
 
 VA - Exquisite Deephouse (2016) [MP3|320 кб/с] <Deep House>
@@ -687,64 +745,6 @@ VA - Новогодние песни (1945-2016) [MP3|256-320 Kbps] <Pop, Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EA3AA800E1FAE8133B761A882423FD55812970F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089020   (953523) от 02.01.2017
-
-VA - American Folk Blues (2017) [MP3|320 Kbps] <Folk Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953523.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Al Jones & His Band - Have You Ever Had The Blues 3:11
-002. John Lee Hooker - Lucille 6:07
-003. AJ & The Badcats - Get Used To It 4:51
-004. Blues Guitars United - The House Of The Rising Sun 3:52(   Читать дальше...   )Жанр: Folk Blues, Rock BluesПродолжительность: 07:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272518DF2FBBE5E04848B90CA92D2D67D09317B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088809   (953593) от 02.01.2017
-
-VA - УЛИ-ганские ПЕСНИ (2016) [MP3|96-320 Kbps] <Поп, Шансон, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953593.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Несчастный Случай - Песня без названия 4:24
-002. Катетер - Люда 3:32
-003. Ленинград - Геленджик 3:12
-004. Рабфак - Новая песня о правде 3:13(   Читать дальше...   )Жанр: Поп, Шансон, РокПродолжительность: 09:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10595B898F89F0747EDBDBF7A12D00D4C87B078
 ```
 
 https://mybot314.ru/tekegram_catalog/

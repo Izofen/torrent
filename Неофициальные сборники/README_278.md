@@ -1,3 +1,61 @@
+###  Публикация: 1058629   (465654) от 02.10.2016
+
+VA - Top 100 Deep House: September 2016 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Akora, Mike Stil, Yam Nor, Toly Braun - Eyes of Love (Toly Braun Remix) (05:01)
+002.Alex Kafer & Lera (Шура Cover) vs. Mathieu Koss, Boris Way - Ты не верь слезам 2016 (Andrey Kiselev Mashup) (04:09)
+003.al l bo - Around The World (Mike Cox Remix) (05:44)
+004.al l bo - supernow (original mix, feat. Andres NekrassoV) (05:22)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 09:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DBD1732488CBD214EAB7B7F1C2747CA33C22DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058632   (465661) от 02.10.2016
+
+VA - Club Dance Ambience Vol.88 (2016) [MP3|320 Kbps] <House, Electro House, Mash Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luca Debonaire - Loosin' Sleep (Original Mix)  6:10
+002. Michael Jackson - Jam (TheDjLawyer Bootleg Remix)  5:56
+003. Calvin Harris - My Way (Danny Dove Remix)  4:12
+004. David Guetta & Cedric Gervais Ft. Chris Willis - Would I Lie To You (Extended Mix)  4:48(   Читать дальше...   )Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 07:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1BC70C55C02DDFCD8281D3C8491E55B29D0EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058673   (465863) от 02.10.2016
 
 Pet Shop Boys - Mega Collection (2016) [MP3|320 Kbps] <Europop, Synthpop, Euro-Disco, Eurodance>
@@ -696,76 +754,6 @@ VA - The Official UK Top 40 Singles Chart 07.09.2018 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A6F0135A381131B18AB3C1C6B12FE26C4269473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548499   (467682) от 18.09.2012
-
-VA - Танцевальная АвтоДискотека. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467682.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJs From Mars & Fragma - Insane (In Da Brain) (DJ Ross & Alessandro Viale Radio Remix)
-002. Bingo Players - Rattle
-003. Jaycee Madoxx - Never Say Never (Marc Korn Hands Up Radio Mix)
-004. Michel Telo - Bara bara bere bere
-005. Linkin Park - Until It Breaks
-006. Greg Parys - The girl is mine
-007. Itaka - La danza de ibiza (Radio mix)
-008. Mike Posner - Looks Like Sex
-009. Aura Dione feat. Rock Mafia - Friends
-010. Britney Spears - Look Who's Talking Now(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFB9C22E17ABBF0251D14D1C6D1E9AE5A196291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386887   (467726) от 13.09.2011
-
-VA - Душа Шансона. Только лучшее (2011) [MP3|320 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467726.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алёна Скок - Пожинаю Что Посеяла
-002. Сергей Славянский - Алёнушка
-003. Вадим Южный - Старый Друг
-004. Сергей Волокамский - Четыре Года
-005. Александр Кирсс - Доченькам
-006. Боба Грек - Дружок
-007. Александр Туралин - Ментовской Беспредел
-008. Таня Тишинская и Эдуард Видный - Дым От Сигарет
-009. Анатолий Грабежов - Белое и Думы
-010. Игорь Кандур - Лестница В Небо(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 04:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010B0CEDAAC40B55C5C211B6C66133ABDA1FDFD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

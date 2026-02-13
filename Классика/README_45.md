@@ -1,3 +1,32 @@
+###  Публикация: 1103720   (885547) от 12.02.2017
+
+TCHAIKOVSKY - Francesca da Rimini • Symphony No.6 "Pathetique"  Moscow Radio Orchestra - G.Rozhdestvensky (1992) [FLAC|Lossless|image + .cue] <Orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885547.jpg" />
+</div>
+
+
+###  Подробнее
+
+П.И.Чайковский:
+[01] Франческа да Римини
+[02] Симфония №6: I. Adagio - Allegro non troppo
+[03] II. Allegro con grazia(   Читать дальше...   )Жанр: OrchestralПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BE209DEEE31417A6283EB46226531C0E5935C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103514   (885551) от 12.02.2017
 
 Luciano Pavarotti - Mamma (1984) [FLAC|Lossless|image + .cue] <Classical, Opera>
@@ -715,35 +744,6 @@ Leonid Kogan & Alexander Ivanov-Kramskoy - F.Gragnani, N.Paganini & M.Giuliani (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:472909E2BE49E4AED102FAF698D8A3D191B74353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371347   (891772) от 30.03.2020
-
-Andre Rieu - Happy Days (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андре Леон Мари Николя Рьё (нидерл. André Léon Marie Nicolas Rieu; род. 1 октября 1949, Маастрихт) - нидерландский дирижёр и скрипач, называемый в прессе Королём вальса вслед за Иоганном Штраусом-сыном. Сын дирижёра Андре Рьё-старшего.01. Second Waltz (3:54)
-02. Chit-Chat Polka, Op.214 (2:29)
-03. Griechischer Wein (4:11)
-04. Ob blond, ob braun (2:08)(   Читать дальше...   )Жанр: Classical, Classical CrossoverПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AFDDF62375F720450F3FD5F34923E70978E66E
 ```
 
 https://mybot314.ru/tekegram_catalog/

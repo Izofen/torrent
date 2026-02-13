@@ -1,3 +1,32 @@
+###  Публикация: 937730   (487329) от 15.09.2015
+
+Отава Ё - Лучшие песни 2006-2015 (2015) [MP3|320 кб/с]<Neo-Folk, Celtic-Slavic Folk, Post-Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник «Лучшие песни 2006-2015» - промежуточный итог творческой деятельности Отавы Ё, в который вошли не только песни со всех четырёх студийных альбомов, но и два новых, ранее не издававшихся трека. Это «Сумецкая», главный на сегодняшний день хит группы, а также кавер-версия песни «В роще», записанная в рамках готовящегося трибьюта проекту «Иван Купала».01. Про Ивана groove
+02. Сумецкая
+03. Дворник
+04. На речке, на речке(   Читать дальше...   )Жанр: Neo-Folk, Celtic-Slavic Folk, Post-FolkПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7584B39C019C4EE66E853BA90ACC209968C8AA08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158944   (487725) от 18.08.2017
 
 Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -734,41 +763,6 @@ Anthony Ventura And His Orchestra - 5 альбомов (1979-1993) [MP3|320 kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2CD5416FD3FB3D17EA01094EB4E84BA4EC7B06A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543054   (496086) от 05.09.2012
-
-WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<Parody, Country, Bluegrass, Western-and-Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Twist Again (3:04)
-02. Peppermint Twist (3:20)
-03. Blackbird (2:18)
-04. Jailhouse Rock (2:32)
-05. For You (3:17)
-06. Hello, Mary Lou (3:29)
-07. Heart of the Country (2:39)
-08. Bad Case of Lovin' You (Doctor, Doctor) (3:12)
-09. Baby Boy (3:12)
-10. AC/DC (3:25)(   Читать дальше...   )Жанр: Parody, Country, Bluegrass, Western-and-CountryПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
 ```
 
 https://mybot314.ru/tekegram_catalog/

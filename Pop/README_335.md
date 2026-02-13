@@ -1,3 +1,177 @@
+###  Публикация: 1358155   (969701) от 07.02.2020
+
+VA - 100 Greatest Summer Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969701.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bob Marley & The Wailers - One Love / People Get Ready
+002. Madonna - Holiday
+003. Pharrell Williams - Happy
+004. DJ Jazzy Jeff & The Fresh Prince - Summertime(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBDFB13BC6B0D8CC636D48EBD3A3944394D9C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976428   (969782) от 17.01.2016
+
+Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Lossless|image + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, The Divorces! [04:15]
+ 02. Long White Dress [03:53]
+ 03. Hormones [03:07]
+ 04. Kentish Town [03:29](   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97834C4BF5FD8E09DD2D8FA2D99CAAB906480457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358038   (970460) от 06.02.2020
+
+Modern Talking - The 1st Album (1985) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   You’re My Heart, You’re My Soul   [5:36]
+02.   You Can Win If You Want   [3:53]
+03.   There’s Too Much Blue in Missing You   [4:45]
+04.   Diamonds Never Made a Lady   [4:09](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07268526F9F6F87516A493383690B93BA0B594C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975992   (970760) от 16.01.2016
+
+VA - Disco Fever (2001) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KC & The Sunshine Band - That's The Way I Like It (3:05)
+02. Donna Summer - I Feel Love (Full Length Version) (5:52)
+03. Fatback Band, The - (Are You Ready) Do The Bus Stop (3:16)
+04. Detroit Emeralds - Feel The Need In Me (3:41)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D5BE0C29198F391EE54D2C1007019BE863E55C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975967   (970804) от 16.01.2016
+
+VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro-Cuban>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloria Estefan - No me dejes de querer (3:27)
+02. Chayanne - Boom boom (4:25)
+03. Ricky Martin - La diosa del carnaval (Spanish Eyes) (4:04)
+04. Azucar Moreno - Mamma mía (4:16)(   Читать дальше...   )Жанр: Latin, Merengue, Afro-Cuban, Europop, Salsa, BalladПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975970   (970818) от 16.01.2016
+
+Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Stupendo fino a qui (03:49)
+ 02. - La vita in un anno (03:28)
+ 03. - Avro cura di tutto (03:40)
+ 04. - Vivere a colori (04:20)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B016579EED58892A5A8A26C982C6693085B367E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615349   (971660) от 12.02.2013
 
 ВИА Веселые ребята - Антология 1969-1988 (6CD) (2010) [MP3|320 кб/с]<поп, ретро>
@@ -583,192 +757,6 @@ Julio Iglesias - Crazy (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, Chanson,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A035800CB88232DDBAA1B603AF6462CC6DB2F22D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975115   (973213) от 14.01.2016
-
-Julio Iglesias - La Carretera (1995) [FLAC|Lossless|tracks + .cue] <Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Carretera (4:42)
-02. Cosas De La Vida (3:55)
-03. Baila Morena (3:50)
-04. Derroche (3:37)(   Читать дальше...   )Жанр: BalladПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D909E52CBEF9BEA951870F33B5B1288D99D2AC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975069   (973297) от 14.01.2016
-
-Ronan Keating - Destination (2002) SACD [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I love it when we do (3:40)
-02. Love won't work (3:40)
-03. If tomorrow never comes (3:39)
-04. Come be my baby (3:50)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDA543A1BCF030E7D6ABE515B62821046CA92E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974852   (973357) от 14.01.2016
-
-Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpop, Electropop, Ska Revival>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detonator
-02. I Spy
-03. The Devil's Radio
-04. Nostalgia(   Читать дальше...   )Жанр: Britpop, Electropop, Ska RevivalПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616827   (973418) от 11.02.2013
-
-Gipsy Kings - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Pop, Rumba, Flamenco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973418.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:01. Escucha Me
-02. Passion
-03. Bem, Bem, Maria
-04. Volare
-05. Canastero
-06. Oh Eh Oh Eh
-07. Ternuras
-08. Come Siento Yo
-09. Petite Noya
-10. Trista Pena(   Читать дальше...   )Жанр: Pop, Rumba, FlamencoПродолжительность: 01:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1BE509804BEF7340766068776E1855FC43AA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616430   (973633) от 11.02.2013
-
-Talking System - In My Backstreet Heaven (2008) / 2009 [WavPack|Lossless]<Pop, Synth-pop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (In My) Backstreet Heaven [03:08]
-02. My Bed Is Too Big [03:24]
-03. Sexy Sexy Lover [03:39]
-04. Doctor Mabuse [04:52]
-05. Ready For The Victory [03:37]
-06. Lucifer [03:30]
-07. You Are Not Alone [03:43]
-08. Sorry Little Sarah [03:13]
-09. China In Her Eyes [03:46]
-10. Deja Vu [03:32]Жанр: Pop, Synth-pop, EurodanceПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357388   (974266) от 03.02.2020
-
-Mike Mareen - Let's Start Now (Deluxe Edition) (2017) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974266.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Don't Talk To The Snake 8:02
-2 Let's Start Now 7:32
-3 Africa 5:37
-4 Agent Of Liberty 4:22(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568360224F016BADFC091115FDFEB831AC6ED644
 ```
 
 https://mybot314.ru/tekegram_catalog/

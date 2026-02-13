@@ -1,3 +1,38 @@
+###  Публикация: 221675   (612882) от 25.07.2010
+
+VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_612882.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:52) 01. Jonas Assarsson - Calm Breeze
+(4:42) 02. Bindu - The Natural Flow
+(6:33) 03. Skovbye/Brander - Friendship part 2
+(4:47) 04. Egil Fylling - So many to make time for
+(4:13) 05. Steen Hansen - The Beach
+(4:40) 06. Jan Skogvaard Petersen - The first Wave
+(3:53) 07. Pushkar - Manamalei
+(6:09) 08. Gabrielle - Blind Mary
+(4:59) 09. Carsten Rosenlund - She Moved Through the Fair
+(4:46) 10. Peter Bastian & Stig Moller - Just Be(   Читать дальше...   )Жанр: Relax, ChilloutПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545678   (613030) от 20.04.2022
 
 Giovanni Marradi - Piano Poetry (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
@@ -740,35 +775,6 @@ Bill Justis - More Instrumental Hits By Bill Justis (1965) [MP3|320 кб/с]<Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57F543AE8B3CAF6FB17A2ADC0339CA6C339FA1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144577   (618093) от 27.06.2017
-
-Samuel Kjell Smith - Vision Quest (2011) [MP3|320 Kbps] <Psychedelic, Meditative, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abundant Harvest 06:58
-02. Bubble of Peace 06:35
-03. Frequency of Clouds 06:53
-04. Cave Painting 05:38(   Читать дальше...   )Жанр: Psychedelic, Meditative, AmbientПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97ACF4AA24FBF0C9B7EF0149399531867FE2D9FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,37 @@
+###  Публикация: 511588   (667164) от 16.06.2012
+
+Esmerine - 3 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Experimental, Neoclassical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_667164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dog River (03:28)
+02. Walking Through Mist (03:34)
+03. Last Waltz (05:50)
+04. Trampolin (04:42)
+05. Snow Day For Lhasa (05:15)
+06. Sprouts (07:35)
+07. Little Streams Make Big Rivers (03:32)
+08. Au Crépuscule, Sans Laisse (03:04)
+09. Fish On Land (06:46)2003-2011Жанр: Post-Rock, Instrumental, Experimental, NeoclassicalПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 59067   (667432) от 16.03.2022
 
 Йозеф Гайдн (Joseph Haydn) Полное собрание симфоний (1-104) [Classic, FLAC (tracks)]
@@ -720,34 +754,6 @@ The New London Chorale - The Young Tchaikovsky (1993) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5650DD687FF72BB21A46672B5C3B97E9B3E24CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288502   (686475) от 16.03.2019
-
-Rondo Di Milano - Pop Opera (1998) [FLAC|Lossless|image + .cue] <Pop, Classical Crossover, cover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Mattinata , Questa O Quella ,Marcia Trionfale, La Donna É Mobile,la Calunnia, Un Bel Di Vedremo, Di Quella Pira ,che Gelida Manina, Corao A Bocca C (16:25)
-
-02. Croce E Delizia, Toréador,Amami Alfredo, Largo Al Factotum,Brindisi-Bibiam Né Lieti Calici,una Furtiva Lacrima,di Provenza El Mar E ,Celeste Adia, Va Prnsiero Sull'Ali Dorate (16:24)Жанр: Pop, Classical Crossover, CoverПродолжительность: 00:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987524CFDDB7AD0092519B660C61F3E83242EF67
 ```
 
 https://mybot314.ru/tekegram_catalog/

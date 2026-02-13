@@ -1,3 +1,32 @@
+###  Публикация: 1507603   (798294) от 05.11.2021
+
+Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07) [MP3|320 Kbps] <Electro House, Big Room, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - The Business (SWACQ Remix)
+02. FETISH - The Door
+03. Kriss Reeve & Repiet - Anybody
+04. Keanu Silva - King Of My Castle (Don Diablo Edit)(   Читать дальше...   )Жанр: Electro House, Big Room, Bass HouseПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506091   (798437) от 04.11.2021
 
 Dead Or Alive - Fan the Flame (Pt. 1) (1990) Invincible Edition, 2021,  Demon Music Group Ltd. [FLAC 2.0|44.1/24|WEB-DL|tracks] <Electronic, Synth-pop>
@@ -711,35 +740,6 @@ VA - A Day to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7655D6EBA24E057F8F188AA17E29E9C13FA942DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506270   (799132) от 02.11.2021
-
-Tiësto - Musical Freedom Radio October (2021-10-16) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto & Karol G - Don't Be Shy
-02. Kiko Franco & Bruno Be - Friday Night (It's Not Right)
-03. Mr. Belt & Wezol ft. Yasmin Jane - Broken Moonlight
-04. KREAM & Millean. ft. Bemende - What You've Done To Me(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FEBD48A557495DA48C3DF79955608130343C1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1281939   (748058) от 10.02.2019
+
+Yuki Murata - Films (2009) Ricco Label, RE. [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (4:59)
+ 02. The Hill Named Air (3:27)
+ 03. Capricious (0:59)
+ 04. Under The Deep Sea (2:44)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98340C0925E1C68E2E1DCAC46A3FF8958A091436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019393   (749758) от 23.05.2016
 
 Yoshida Brothers - Hishou (2007) [FLAC|Lossless|tracks + .cue] <Folk, World, Instrumental>
@@ -759,35 +788,6 @@ int.Records — Acid Travel (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1B3803698DBF10EDD01410FAEE1D249EC0C45E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008070   (817307) от 17.04.2016
-
-Gus Dharma - Bali Meets China (2016) [MP3|320 кб/с] <World Music, Relax, Ethnic Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon a Time in China
-02. China Doll
-03. Long Road to China
-04. Rise and Fall(   Читать дальше...   )Жанр: World Music, Relax, Ethnic InstrumentalПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BD110F648C6894C7F03F8437F1CC2E4BC75AB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

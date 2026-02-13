@@ -1,3 +1,32 @@
+###  Публикация: 1134512   (687345) от 16.05.2017
+
+VA - Los clasicos argentinos - Tango - Vol.18 - Horacio Salgan: La magia de un creador (1996) [MP3|128 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raul Garello y su Orquesta - Buen amigo
+02. Miguel Calo y su Orquesta - Yuyo verde
+03. Alberto Marino y su Orquesta - Mano cruel
+04. Sexteto Mayor - Kicho(   Читать дальше...   )Жанр: TangoПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719A77F031D273B5A355BB12F9820E32B2C76EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134553   (687429) от 16.05.2017
 
 Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original National Geographic Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -714,35 +743,6 @@ Patty Griffin - Patty Griffin (2019) [FLAC|Lossless|tracks + .cue] <Folk, Countr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40A8F1D4A01213F0E1D55AE954CA457902E6A360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289028   (690225) от 14.03.2019
-
-Montgomery Gentry - Here's To You (2018) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shotgun Wedding (03:21)
-2. Better Me (03:26)
-3. Needing a Beer (03:44)
-4. What’cha Say We Don’t (03:40)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC778595E97BC036E41EBB4003CCAA2E06F4A9C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

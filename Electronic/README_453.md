@@ -1,3 +1,32 @@
+###  Публикация: 1228499   (872267) от 10.04.2020
+
+VA - Sonica Recordings presents: Compilations Collection - 11 Releases (2005-2020) [MP3|320 Kbps] <Psy-Trance, Progressive Trance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872267.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005 - Sonica
+2007 - Healing Lights (A Compilation by DJane Gaby)
+2010 - Sonica • Vol. II (Compiled by DJ Gino)
+2012 - Healing Lights 2 (Compiled by DJane Gaby)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Trance, Goa TranceПродолжительность: 13:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B1F2594FDC3974A989A8C52942A027B6E3EB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374520   (872327) от 10.04.2020
 
 Scooter - I Want You To Stream! (Live) (2020) [MP3|320 Kbps] <Techno, Trance, Hardcore>
@@ -714,35 +743,6 @@ Tantra Masters - Tantra Massage Sex Lounge - Chill Out Moaning Sounds Sexy Music
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC0EE45F5A58B12A5E9B793DEE0EB33DE0712CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997380   (875736) от 16.03.2016
-
-VA - Soft House Miami 2016 (15.03.2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shivana Faction - Somebody [06:03]
-02. Counting Clouds - Like the Wind [04:04]
-03. Mykel Mars - White Beach (Crystal Blue Sea Mix) [06:01]
-04. Ron Ractive - Science Fiction (Chillhouse Mix) [07:50](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C7EB7DF099BB3700E4B7F3C807A93C3863914D
 ```
 
 https://mybot314.ru/tekegram_catalog/

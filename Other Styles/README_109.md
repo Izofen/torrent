@@ -1,3 +1,32 @@
+###  Публикация: 1137617   (666500) от 27.05.2017
+
+Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты Карибского моря - Мертвецы не рассказывают сказки (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks] ...
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geoff Zanelli - Dead Men Tell No Tales (01:51)
+02. Geoff Zanelli - Salazar (04:27)
+03. Geoff Zanelli - No Woman Has Ever Handled My Herschel (03:59)
+04. Geoff Zanelli - You Speak of the Trident (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30ECAB3E35C25C7EA84BA441ECF73F4141272742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137616   (666501) от 27.05.2017
 
 Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты Карибского моря - Мертвецы не рассказывают сказки (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -729,35 +758,6 @@ Royal Philharmonic Orchestra - Rock Dreams 2 (1994) Box Set, 3CD, Compilation [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A7E8CADDA5DC99C075FC12585343C8274096BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291301   (670575) от 24.03.2019
-
-Balaklava Blues - Fly (2019) [MP3|320 Kbps] <NewAge & Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Be Like This
-02 – Green
-03 – Alive
-04 – Boom Boom(   Читать дальше...   )Жанр: NewAge & MeditativeПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755A0329E5807C0D227101D15F830D0792AF1676
 ```
 
 https://mybot314.ru/tekegram_catalog/

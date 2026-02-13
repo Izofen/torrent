@@ -1,3 +1,32 @@
+###  Публикация: 1279743   (765409) от 30.01.2019
+
+Spacehawk - Laser Squad (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:24)
+02. Zeratul's Return (3:55)
+03. Cosmic Expedition (4:28)
+04. Laser Squad (3:53)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68219AC1EC5CFD04EEC6C03B776C8BFC259DB6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394161   (765433) от 03.07.2020
 
 VA - Sunny Day Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -716,35 +745,6 @@ VA - Space Holidays Vol. 11 (2019) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79D4953BAF726044955E05F2A2597CE52A9171F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126198   (766279) от 17.04.2017
-
-Vanderson - Beyond Time Structure (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Berlin School, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children Of Andromeda (11:08)
-02. Outer Space (08:05)
-03. Reality (07:19)
-04. Underwater World (13:46)(   Читать дальше...   )Жанр: Psybient, Berlin School, Progressive TranceПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD94D935E251AD5217B2150236CF3117ADD4D3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

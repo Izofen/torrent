@@ -1,3 +1,32 @@
+###  Публикация: 992851   (899081) от 03.03.2016
+
+VA - Intense - Logical Progression Level 3 (1998) [FLAC|Lossless|tracks + .cue] <Drum n Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blu Mar Ten - She Moves Through (07:39)
+ 02. Blame - Alpha:7 (08:17)
+ 03. Tayla - Resolution (07:58)
+ 04. Big Bud - Freedom (08:56)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Drum n Bass |Продолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7762DB5E5C6B9A7673C95E570808C9104A74E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100537   (899528) от 04.02.2017
 
 VA - Kontor Festival Sounds 2017.01 The Beginning (2017) [FLAC|Lossless|tracks] <House, Trance, Progressive>
@@ -716,35 +745,6 @@ VA - EDM World Vol 10 (2020) [MP3|320 Kbps] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76B001980D352D930F09CD25C7EDBE7F9BD11D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369720   (902112) от 24.03.2020
-
-VA - Bangin' Future House, Vol. 2 (2018) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Lex - Ready for Tonight (Alex East Edit) [03:23]
-02. Arom Side - Makes Me Move (Radio Edit) [03:24]
-03. Coco Fay - Paradise (Radio Edit) [03:28]
-04. Crew 7 - Strike It Up (Radio Edit) [02:49](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148594DCC5D12687738BB4942EFF9FEC122AF4EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

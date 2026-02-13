@@ -1,3 +1,32 @@
+###  Публикация: 1470972   (1015476) от 18.05.2021
+
+Felix Raphael - Innersense (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Raphael; Stéphane Salerno; Seasoul - Foreword
+02. Felix Raphael - The Way
+03. Felix Raphael; Allies for Everyone - Safe
+04. Felix Raphael; Yannek Maunz - Won't Miss(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1D1C2BA5B5BF4A1A3FCD0F426AE01E6164F227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 876148   (1015585) от 17.05.2021
 
 Disclosure - Settle (Special Edition) (2014) [FLAC|Lossless|WEB-DL]<House>
@@ -715,35 +744,6 @@ Worms Of The Earth - Discography 10 Releases (2006-2021) Disease Foundry, Indust
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:535C154E3B1C9F3094132AA0B84A1CBB2A977D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467056   (1018094) от 02.05.2021
-
-New Canyons - Heavy Water (2021) [FLAC|Lossless|WEB-DL|tracks] <shoegaze, synthpop, synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Times [00:00:46]
-02. Post Nothing [00:04:03]
-03. Blackest [00:03:11]
-04. No Shame [00:03:58](   Читать дальше...   )Жанр: shoegaze, synthpop, synthwaveПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409C4E292E83D6069C2D43B84B926E23F8B17BE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

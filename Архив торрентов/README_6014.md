@@ -1,474 +1,26 @@
-###  Публикация: 598455   (1000068) от 04.01.2013
+###  Публикация: 599189   (999452) от 06.01.2013
 
-Skober - Mutual Respekt 075 (2012) [MP3|256 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Dehnert - Refillable (Delsin Records)
-02. Alan Fitzpatrick - Skeksis (Drumcode)
-03. Timmo - Panic (Fone Audio)
-04. Skober - Dynamik (Respekt)
-05. Skober - Turn It Louder (Remain)
-06. Skober - Catacomb (Organism)
-07. Mark Reeve - Phobia (Soma Records)
-08. James Mile - Crumbles (8 Sided Dice)
-09. Skober - Uniminor (Speca)
-10. Sutter Cane - chemtrails (Phobiq)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70B83F51B424BC03095B69A9FE79AEAC44E4A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598448   (1000069) от 04.01.2013
-
-Tom Hades - Mutual Respekt 073 (2012) [MP3|320 кб/с]<Techno>
+All I Could Bleed - Burying the Past (2011) [WavPack|Lossless]<Modern Melodic Death Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marco Faraone & Luca Agnelli - Floor Attack (Truesoul)
-02. Ruben Mandolini - Broke Jane (Coyu Edit) (Suara)
-03. Hans Bouffmyhre - Stress Control (Par Grindvik In The Fall Remix) (Sleaze)
-04. Frankyeffe - Grain (Justin Berkovi Remix) (Spark Music)
-05. Spektre & Tom Hades - Respekt The Rhythm (Analytic Trail)
-06. Luigi Madonna - City Liner (Excentric Muzik)
-07. Nicole Moudaber - The Road To Transformation (Drumcode)
-08. Axel Karakasis - Sealed (Remain)
-09. Tom Hades - Act Of Passion (Respekt)
-10. The Advent & A.Paul - Heron (LK Remix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F279D6F2B8D34C4084B23F4EBCB85EE36CDD9C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598432   (1000070) от 04.01.2013
-
-Redhead - Mutual Respekt 047 (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Bailey & RedHead - Start and Play (MB Elektronics)
-02. Exercise One - Top Score (Cocoon)
-03. Marco Bailey and Tom Hades - Realm
-04. Marco Bailey - Intense Substance (Gary Beck Remix) (MB Elektronics)
-05. Snello - Evergreen (Kalden Bess Remix) (Phobiq)
-06. Lorenzo D'Ianni - Random
-07. Mikael Jonasson - PranksterЖанр: TechnoПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFE2BB4FF33944B94B83B7EED5F9330A9EE3223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597684   (1000071) от 04.01.2013
-
-Grain - Dive In Sound (2012) [MP3|320 kbps]<Sludge Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Way Of Sun [05:41]
- 02. Bite The Bullet [06:06]
- 03. Dive In Sound [05:37]
- 04. Dirty Breeze [05:36]
- 05. Davidian (Machine Head cover) [05:47]
- 06. Vote With A Bullet (Corrosion [03:23]Жанр: Sludge MetalПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4F31ACB22C3B8B99612BFBC061C3AD5123D892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598048   (1000072) от 04.01.2013
-
-M.PRAVDA - Live in Motion 115 (29.09.2012) Best of September [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Chicane and Ferry Corsten - One Thousand Suns
-2. Velvetine - The Great Divide
-3. Markus Schulz feat. Seri - Love Rain Down (Myon and Shane 54 Summer of Love Mix)
-4. Paul Webster feat. Angelic Amanda - Time (Marlo Dub remix)
-5. Space Rockerz and Ellie Lawson -Under the same sky (Beat Service Remix)
-6. Store n Forward - Sugar
-7. Stoneface & Terminal and Cathy Burton - Go The Distance (Club Mix)
-8. Armin Van Buuren feat. Ana Criado - I'll Listen
-9. Simon Patterson feat. Sarah Howells - Here and Now
-10. Ascension - Someone (Signum vocal mix)Жанр: Progressive Trance, TranceПродолжительность: 01:02:415
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0610167FBB009FF1D863A5B20146E381277A97F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598429   (1000073) от 04.01.2013
-
-Steve Mulder - Mutual Respekt 045 (2012) [MP3|320 кб/с]<Techno, Tech House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel D'Or & Bordoy - Insane Areas (Pornographic)
-02. Andrea Mattioli & Stefano Kosa - Countdown (Elio Riso Remix)
-03. Carl Cox - The Player (Steve Mulder Remix)
-04. Steve Mulder - Avenger (Respekt)
-05. Nonnus - Thumping (Tomy DeClerque Remix)
-06. Spektre feat. Mara - Give Yourself To Me (Ticon Remix)
-07. Piatto - Head Shock (Ivan Pica Remix) (Sabotage)
-08. Umex - Mumps (Jonno Brien Remix)
-09. Alex Di Stefano - Everybody (Binary404)
-10. Gabriel D'Or & Bordoy - Monoacoustic(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B847DF4D161B102275B181A3B8FE05D3EA87CACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598055   (1000074) от 04.01.2013
-
-M.PRAVDA - Live in Motion 114 (22.09.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Talamanca and Velden feat. Isa Bell - One Embrace (Pierre in the air remix)
-2. Tritonal feat. Cristina Soto - Still with me (Stoneface and Terminal remix)
-3. Stonevalley feat. Shannon Hurley - Something to say (Johan Malmgren remix)
-4. Genix - Destinations
-5. Norin and Rad - Five Finger Death Punch
-6. Aligator feat. Daniel Kandi - The Perfect Match (Dennis Pedersen remix)
-7. Paul Webster feat. Angelic Amanda - Time (Marlo Dub remix)
-8. Store n Forward - Sugar
-9. Dart Rayne - Four Steps to Eternity (Extended mix)
-10. Jorn van Deynhoven - Headliner(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D998464F5B3B249A50DE33808A9ED9042626D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598434   (1000075) от 04.01.2013
-
-Snello - Mutual Respekt 051 (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Snello - Darkside (Tom Laws Remix) (Patterns)
-02. Snello - Evergreen (Markantonio Remix (Phobiq)
-03. Snello - Steel (Axel Karakasis Remix) (Remain)
-04. Snello - Steel (Remain)
-05. Roman Gertz - Big Hook (Analytic Trail)
-06. Sasha Carassi & Mikael Jonasson - Void (Phobiq)
-07. Snello - Brightside (Patterns)
-08. Bodyscrub - Another Level (Phobiq)
-09. Sin Sin - Frozen Feedback (Ground Factory)
-10. Johan Dresser & Juan DDD - Columbia (Snello Remix) (Baptism)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596C831AB89536640F1214C7D0D5242435451899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598440   (1000076) от 04.01.2013
-
-Madutec - Mutual Respekt 060 (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Mr.Bizz - Underline (Respekt)
-02. Madutec - Pressure Drop (Respekt)
-03. Skober - Full Steam Ahead (Phobiq)
-04. Marco Bailey & Redhead - Start And Play (MB Elektronic)
-05. Steve Mulder - Lockdown (Respekt)
-06. Peter Bailey - Bring You Up (Local Music)
-07. Filterheadz - Abstract (MB Elektronic)
-08. Mona Vision Just A Gigolo (Sian vs Mr.Bizz Saint efisio mix) (Octopus)
-09. Miguel Bastida & Florian Kaltst - Crises (BluFin)
-10. Madutec - Virgo(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37AA31413C39D0B47949D416207A76D06D22D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598056   (1000077) от 04.01.2013
-
-M.PRAVDA - Live in Motion 113 (15.09.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Willem De Roo - Index
-2. Arty - Gentle Touch (Juventa Club Mix)
-3. Genix - Moments
-4. Markus Schulz feat. Seri - Love Rain Down (Myon and Shane 54 Summer of Love Mix)
-5. Sequentia and Jaco - Crossfire
-6. Armin Van Buuren feat. Ana Criado - I'll Listen
-7. Simon Patterson feat. Sarah Howells - Here and Now
-8. Ascension - Someone (Signum vocal mix)
-9. Richard Durand feat. Protoculture - Pleasure
-10. Snatt and Vix Ft. Neev Kennedy - At The End Of The Day (Suncatcher Remix)Жанр: Progressive Trance, TranceПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72EA1E67678C803B5F44126A9881DB7B1B77892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598433   (1000078) от 04.01.2013
-
-Dataminions - Mutual Respekt 049 (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Citizen Kain & Phuture Traxx - Acid Love (Neverending Records)
-02. Axel Karakasis - Conclusion (Remain)
-03. Dataminions - Big
-04. Spektre - Turbine (Toolroom Records)
-05. Dataminions - Pounce (1605 Music Therapy)
-06. Mikael Jonasson - Prankster (Spektre Remix) (Respekt)
-07. Dataminions - Glod
-08. DJ Rush & Robin Hirte - Evil (Elbodrop Remix) (Truth Tracks)
-09. Dataminions - Park (Respekt)
-10. Alex Di Stefano - Try Again(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B75B6EA462AEBC8AD7543A7BEF17FCB03F35C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597954   (1000093) от 03.01.2013
-
-Эмулятор Nintendo GameCube и Wii "Dolphin" [Multi24/+] (L/3.5-124) 2013
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dolphin является открытым исходным кодом Nintendo GameCube и Wii эмулятор для Microsoft Windows и операционные системы Linux. В последней версии, многие игры для GC & Wii могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.Язык интерфейса: Русский / Английский / Арабский / Каталонский / Китайский (Упрощенный) / Китайский (Традиционный) / Чешский / Голландский / Фарси / Французский / Греческий / Германский / Еврейский / Венгерский / Итальянский / Японский / Корейский / Норвежский / Польский / Португальский / Португальский (Бразильский) / Сербский / Испанский / Турецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3683D676AE318CCBCC100EFE1BD16657E62D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596762   (1000095) от 03.01.2013
-
-Двенадцать бедствий на Рождество / The 12 Disasters of Christmas (2012) SАТRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Появление таинственной рождественской звезды предвещает конец света. Но что если одна девочка-подросток сможет предотвратить всемирную катастрофу?Жанр: ФантастикаРежиссер: Стивен Р. МонроПродюсер: Джон Принц, Том Берри, Лиза М. ХансенАктеры: Эд Куинн, Магда Апанович, Холли Элисса, Райан Грантхэм, Кай-Эрик Эриксен, Роарк Критчлоу, Эндрю Эйрлай, Грег Кин, Доннелли Роудс, Бренна О'БрайенПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: SyfyПродолжительность: 01:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066C15BB11415B596A82B655AB5B1321373F4741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597983   (1000096) от 03.01.2013
-
-Новый Камеди Клаб / Комеди Клаб / Comedy Club/ Выпуск №351 (01.01.2013) WEBRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000096.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из КВН. 23 апреля 2005 года «Comedy Club» впервые вышел в эфир телеканала ТНТ. Рейтинги программы стали бить все рекорды и это приносило программе большие доходы, на которые они стали делать другие проекты. Впоследствии они создали свою продюсерскую компанию «Comedy Club Production». 15 апреля 2007 года на ТНТ был показан сотый выпуск программы. Регулярно выходят новые выпуски и другие проекты - например спецвыпуски на Первом канале, юмористические фестивали и продюсирование участниками «Comedy Club» проекты других телепередач. 23 апреля 2010 года «Comedy Club» вышло с новой музыкой и обновлённым оформлением. Также «Comedy Club» выходит на каналах ICTV, (   Читать дальше...   )В выпуске: Продолжительность: ~ 00:46:53Жанр: Телепередача
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A474BE9E722E7A3179A847783DEC638C5C4A1D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597465   (1000104) от 03.01.2013
-
-Заложница 2 / Taken 2 (2012) [1080p] BDRip [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Брайану Миллсу придется расхлебывать последствия своих действий. Спасая свою дочь, он убил главаря банды, у которого — сюрприз! — есть отец по имени Мурад. Мурад жаждет отмщения и описывается как человек, отдающий приказы, но сам никогда никому не подчиняющийся. Мурад берет в заложники Миллса с супругой, и тут уже Ким Миллс нужно будет спасать своих родителей.Жанр: Боевик, Триллер, КриминалРежиссер: Оливье МегатонАктеры: Лиам Нисон, Мэгги Грэйс, Фамке Янссен, Лиленд Орсер, Джон Грайз, Д.Б. Суини, Люк Граймс, Раде Шербеджия, Кеворк Маликян, Ален ФиглажПеревод: ДублированныйЯзык субтитров: Английские (Full, SDH)Продолжительность: 01:32:40
+01. Eclipse [01:12]
+02. Private Hell [04:22]
+03. Burying The Past [04:33]
+04. Plague [05:04]
+05. Under The Moon [05:50]
+06. Into The Black Clouds [04:10]
+07. Follow Me [03:46]
+08. Valhalla [06:52]
+09. Farewell [01:29]Жанр: Modern Melodic Death MetalПродолжительность: 00:37:22
 
 ## Скачать торент
 ```bash
@@ -480,25 +32,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597955   (1000105) от 03.01.2013
+###  Публикация: 599663   (999453) от 06.01.2013
 
-Эмулятор Sony Playstation 2 "Pcsx2" [Multi20/+] (L/v.1.1.0 SVN r5495) 2013
+VA - Force Carriers (2012) [MP3|320 кб/с]<Techno>
 
 >>Архив торрентов
->>Архив Игр
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000105.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Это официальная стабильная версия PCSX2. PCSX2 это эмулятор Sony PlayStation 2 (PS2) для операционных систем Microsoft Windows и Linux. В последней версии, многие игры для PS2 могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.(   Читать дальше...   )Язык интерфейса: Русский / Английский / Чешский / Китайский (Упрощенный) / Китайский (Традиционный) / Финский / Французский / Немецкий / Венгерский / Индонезийский / Итальянский / Японский / Корейский / Малайский / Малайский (Малайзия) / Польский / Португальский (Бразилия) / Испанский (Современный) / Шведский / Турецкий / Тайский
+01. Pavel Ambiont - While She Sleeps (parts 1 & 2) (09:42)
+02. S4DS - Space Trip (alexei sfourds rmx) (04:00)
+03. S4DS - Space Trip (pavel ambiont rmx) (04:51)
+04. Pavel Ambiont - Ufobeats (05:12)
+05. Nieviadomy Artyst - Effervescence (04:55)
+06. Nieviadomy Artyst - Tephra (forest version) (06:24)
+07. Nieviadomy Artyst - Tephra (04:41)
+08. Pavel Ambiont - Solar Pulse (05:42)
+09. Alexei Sfourds - To All Astronauts (03:58)
+10. Alexei Sfourds - Inspiration (04:15)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:04:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C94C8BF40086E1C8AC3FC5515D36E550FAA0E573
+magnet:?xt=urn:btih:8711C2DCB167E8ABC7EB38D19F21613D1F55ACF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,23 +67,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598161   (1000112) от 03.01.2013
+###  Публикация: 599177   (999454) от 06.01.2013
 
-Nokia Suite 3.7.22 Final [MULTi / Русский]
+Avian - Ashes and Madness (2009) [WavPack|Lossless]<Power / Heavy Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000112.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Nokia Suite - набор программ для работы с мобильными телефонами Nokia, являющийся дальнейшим развитием Nokia PC Suite. С помощью приложения Nokia Ovi Suite вы можете без усилий приводить в порядок данные и передавать их с устройства Nokia на компьютер и обратно. Это приложение, предназначенное для работы на персональном компьютере, было полностью переработано. Оно стало проще, мощнее, быстрее, и теперь важная информация всегда будет у вас под рукой...
-
-(   Читать дальше...   )Название программы: Nokia SuiteЯзык интерфейса: MULTi / Русский
+01. Ashes And Madness [07:31]
+02. The Lost And Forsaken [05:08]
+03. Into The Other Side [04:38]
+04. Esoteric Lies [05:16]
+05. Fall From Grace (Instrumental) [01:10]
+06. Beyond The Hallowed Gates [04:59]
+07. Thundersoul [05:02]
+08. All The King's Horses [05:10]
+09. Never Fade From Me [05:24]
+10. Time And Space Part Ii:  Unlock The Mystery [10:14]Жанр: Power / Heavy MetalПродолжительность: 00:54:37
 
 ## Скачать торент
 ```bash
@@ -534,12 +102,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598025   (1000117) от 03.01.2013
+###  Публикация: 598763   (999455) от 06.01.2013
 
-Star Trek: The Next Generation: Klingon Honor Guard [En] (L) 1998
+Attacker - The second coming (1988) [MP3|320 kbps]<Trash Metal>
 
 >>Архив торрентов
->>Архив Игр
+>>Архив Музыки
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -548,12 +116,20 @@ Star Trek: The Next Generation: Klingon Honor Guard [En] (L) 1998
 
 ###  Подробнее
 
-Зверский FPS по мотивам сериала The Next Generation про этих милейших воителей - Клингонов.
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+01. Lords Of Thunder [02:57]
+ 02. Zero Hour [03:23]
+ 03. Captivities Of Babylon [03:25]
+ 04. Octragon [01:55]
+ 05. The Madness [03:38]
+ 06. Desecration [04:12]
+ 07. Emanon [03:30]
+ 08. Revelations Of Evil [05:28]
+ 09. Lords Of Thunder (Demo) [03:13]
+ 10. Zero Hour (Demo) [03:45](   Читать дальше...   )Жанр: Trash MetalПродолжительность: 00:39:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AE5E20C6BDD43AED38C99181B37196BAE3170D0
+magnet:?xt=urn:btih:7B1FAE95356CA31E0B767D7C63C55E15BEF05834
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,38 +137,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597881   (1000118) от 03.01.2013
+###  Публикация: 598620   (999456) от 06.01.2013
 
-Новый Ералаш (2013.01.02) SATRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский юмористический киножурнал об историях, которые случаются с ребятами в школе и дома,во дворах и на улице. Поучительные кинозарисовки прививают молодому поколению любовь и уважение к сверстникам и окружающим.Жанр: ЮморПродолжительность: ~ 00:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9485719AF0687E2E58D6BC8AE87DB47DB86EBF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598229   (1000120) от 03.01.2013
-
-Slax 7.0.3 [i486 + x86-64] (4xCD)
+M.PRAVDA - Live in Motion 100 Юбилейный Выпуск (09.06.2012) National Sound Exclusive [MP3|320 кб/с]<Progressive Trance, Trance>
 
 >>Архив торрентов
->>Архив *Nix
+>>Архив Музыки
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -601,11 +151,49 @@ Slax 7.0.3 [i486 + x86-64] (4xCD)
 
 ###  Подробнее
 
-Slax 7 - это очередная новая версия дистрибутива, разработка которого была возобновлена некоторое время назад и в начале декабря вышел его релиз.
-
-В свою очередь, Slax 7.0.3 - очередной bug-fix дистрибутив, в который однако внесены все изменения базовых пакетов, например, обновлены ядро до 3.6.11 и некоторые другие компоненты.Кроме того включена полная поддержка PEX.
-
-Slax linux - это миниатюрный, не требующий инсталляции дистрибутив, базирующийся на Slackware. При всей своей легкости - система свободно умещается на обычный cd-диск или flash-карту, потенциал slax'a огромен, ведь функционал системы очень легко расширяется при помощи специальных модулей - уже готовых программ.
+1. Platinum Monkeys - I Remember
+2. Platinum Monkeys feat. Ange - Why
+3. M.Pravda - Hocus Pocus (John Dubs Remix)
+4. Platinum Monkeys - Return (Igor Voevodin Remix)
+5. John Dubs - No Ice (Original Mix)
+6. A.Galchenko - She Autumn (Original)
+7. Max Fishler - Ghost Planet (Original)
+8. Danny Ocean - Next To You (Original)
+9. M.Pravda - Hocus Pocus (Radio Edit)
+10. Souldanny - Lost Connection (Original)(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3C60DE22C72F3FADFB340EE606F9603815CDD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599225   (999457) от 06.01.2013
+
+Blaze Of Sorrow - Echi (2012) [WavPack|Lossless]<Atmospheric Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All'Ignoto [06:43]
+02. Empatia [08:27]
+03. In Memoria [05:10]
+04. Il Soffio Del Sole [08:18]
+05. Alberi [03:25]
+06. Echi [06:35]
+07. Ma Il Vento Ricordo Il Mio Nome [07:40]
+08. Aspettando Il Tempo [06:14]Жанр: Atmospheric Black MetalПродолжительность: 52:36
 
 ## Скачать торент
 ```bash
@@ -617,25 +205,59 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597953   (1000122) от 03.01.2013
+###  Публикация: 599168   (999458) от 06.01.2013
 
-Светлана Ермакова, Леонид Жаров | Я просто Ванька [2006] [MP3]
+Axehammer - Lord of the Realm (1987) /Sentinel Steel Reissue, 1998/[WavPack|Lossless]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Princess [04:24]
+02. Lord Of The Realm [03:46]
+03. Sands Of Time [03:29]
+04. Break Down The Walls [04:37]
+05. Axehammer [05:34]
+06. (Radio Commercial) [01:06]
+07. Wings Of Fire [02:52]
+08. Sword And Shield [04:03]
+09. Axehammer '84 [05:17]Жанр: Heavy MetalПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599541   (999459) от 06.01.2013
+
+Журнал | Большой спорт №12 [декабрь 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000122.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если хотите узнать детскую душу - Вам сюда, в эту книгу. Книга для душевного чтения и разговора с родителями. Авторы писали ее вместе с сыном Ваней, он просто диктовал многие главы - в каждой строчке непридуманное детство. Это повод к длинному, умному разговору.Жанр: публицистика, ликбез
+«Большой спорт» – самое популярное ежемесячное спортивное издание России. Согласно исследованию TNS Gallup Media, полугодовая общефедеральная аудитории журнала составляет 691 000 человек. По этому показателю журнал значительно превосходит ведущие премиальные издания России мужской, автомобильной и спортивной тематик, в том числе – Esquire, GQ, Автопилот и PROспорт.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34FAEF60FA5E7FBE07EA2AA207B32D081A0477F7
+magnet:?xt=urn:btih:8D2A228672A509398B4956E0158F905E4E37D456
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,9 +265,44 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598064   (1000128) от 03.01.2013
+###  Публикация: 599406   (999461) от 06.01.2013
 
-Би-2 - Spirit (Без слов... IV) (2013) [MP3|320 kbps] <Rock>
+Agressor - Medieval Rites (1999) [WavPack|Lossless]<Death / Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medieval Rites (06:21)
+02. Bloodshed (03:13)
+03. The Woodguy Vs. The Black Beast (01:44)
+04. The Sorcerer (04:07)
+05. (I Am The) Spirit Of Evil (02:12)
+06. Wondering Soul (04:22)
+07. Tye-Melane Melda (01:13)
+08. God From The Sky (03:17)
+09. Welcome Home (King Diamond) (04:20)
+10. On Dolinde (01:22)(   Читать дальше...   )Жанр: Death / Thrash MetalПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598882   (999462) от 06.01.2013
+
+M.PRAVDA - Live in Motion 094 (28.04.2012) Best of April  [MP3|320 кб/с]<Progressive Trance, Trance>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -657,20 +314,20 @@ https://mybot314.ru/tekegram_catalog/
 
 ###  Подробнее
 
-01. Девушки (03:42)
-02. Оптимист (05:19)
-03. Заноза (04:00)
-04. Любовь и Ненависть (06:11)
-05. Безвоздушная Тревога (05:12)
-06. Блеф (04:14)
-07. Блюз (05:02)
-08. 1000 Миль (04:20)
-09. Гонка За Жизнь (03:56)
-10. Северная Лень (03:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:38
+1. Paul van Dyk and Arty - The Ocean
+2. Cosmic Gate and Jes - Flying Blind (Extended mix)
+3. Moonbeam feat. Avis Vox - Disappearance (Aerofeel5 Remix)
+4. Orjan Nilsen - Amsterdam
+5. Lele Troniq - Under the Spotlight
+6. Markus Schulz & Dennis Sheperd - Go!
+7. Protoculture - Cobalt
+8. Second Way - Around the Earth
+9. Suncatcher and Mihai M pres Starshifters - Driveby
+10. Solarstone and Clare Stagg - The Spell (Pulser club Dub)Жанр: Progressive Trance, TranceПродолжительность: 01:03:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4B3C20EE40C4F7E76EBD67373C9946CEECB0EDC
+magnet:?xt=urn:btih:2499A230723BC7064FEB4DCDB934B7FD4D7E4C8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,9 +335,262 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597942   (1000130) от 03.01.2013
+###  Публикация: 598879   (999463) от 06.01.2013
 
-Идеальный голос / Pitch Perfect (2012) [1080p] BDRip
+M.PRAVDA - Live in Motion 095 (05.05.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Karanda - Cloud Nine (Juventa Remix)
+2. Arnej - We Unite (Club Mix)
+3. Super8 - Alba (Maor Levi remix)
+4. Beat Service feat. Ben Hague - Why Me (Dub mix)
+5. Bartlett Bros - Sweet Child (Lele Troniq Remix)
+6. Andy Tau - Passport (Store n'Forward Remix)
+7. Emma Hewitt - Miss You Paradise (Shogun Remix)
+8. Shogun - Amplify
+9. Broning - Reinspired
+10. Tritonal - RetakeЖанр: Progressive Trance, TranceПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58776CB98DE71CD58D33EC430CB84CF11806DC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598617   (999464) от 06.01.2013
+
+M.PRAVDA - Live in Motion 101 (16.07.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. ARS - Wonderwork (LTN Remix)
+2. Basil O'Glue - Dropout
+3. Alex Pich, Shinobi, Julius Beat - Satisfaction Love (Willem De Roo Remix)
+4. Johnny Yono - Break These Chains
+5. Neev Kennedy - A Bridge (DNS Project remix)
+6. Maarten De Jong - Raw
+7. Redstar - The Problem (Mike Shiver Remix)
+8. Alan Morris and Sequentia - Blind
+9. Mr.Pit - River of Hearts (Ben Gold remix)
+10. Andrew Rayel - Aeon of RevengeЖанр: Progressive Trance, TranceПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97563897FCE19DEB6D1289594D5F46DDB34E00EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598609   (999465) от 06.01.2013
+
+M.PRAVDA - Live in Motion 103 (30.06.2012) Best of June [MP3|320 кб/с]<Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Paul Todd & Scott Lowe - Life As We Know It (Florin Silviu Remix)
+2. Aimoon feat. Eva Kade - I'm Out For You
+3. Andrew StetS - Robot Temptation
+4. M.Pravda - Hocus Pocus
+5. Mr.Pit - River of Hearts (Ben Gold Remix)
+6. Maarten de Jong - Raw (Shato and Paul Rockseek Remix)
+7. Dark Matters & Jess Morgan - I Don't Believe In Miracles feat. Jess Morgan (Shogun Remix)
+8. Neev Kennedy - A Bridge (DNS Project Remix)
+9. Abstract Vision and Elite Electronic - Kinetic
+10. Behind the Sunset - Chameleon(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB51D13B43B2AC93862115EA17DBA5ECCC07C51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598612   (999466) от 06.01.2013
+
+M.PRAVDA - Live in Motion 102 (23.06.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Feu dOr - Singapore (Martin Roth Remix)
+2. Andain - Promises (Rrichard Durand Remix)
+3. Paul Todd & Scott Lowe - Life As We Know It (Florin Silviu Remix)
+4. Vast Vision feat. Fisher - Hurricane (Stonevalley Remix)
+5. Digital X - Moonglow
+6. Aimoon feat. Eva Kade - I'm Out For You
+7. JPS - Tuned In
+8. Astuni & Shamano - The Brotherhood (Lence & Pluton Remix)
+9. Tiesto & Mark Knight feat Dino - Beautiful World (Michael Woods Remix)
+10. Behind the Sunset - Chameleon(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1816B648870D4875509C183165C9B384E2A471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596897   (999472) от 05.01.2013
+
+БЕЛOFF DVD [WPI] 2013.0 Screensavers
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник Заставок-Скринсейверов (Хранители Экрана) распределенных по категориям, с автоматической установкой.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561671   (999487) от 05.01.2013
+
+Doom 3 BFG Edition [Ru/En] (RePack/upd1) 2012 | R.G. Catalyst
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В издание Doom 3 BFG Edition войдет обновленная версия культового шутера Doom 3, а также дополнение к нему под названием Ressurection of Evil. Помимо знакомой игрокам истории войны на марсианской станции поклонников Doom ждут совершенно новые эпизоды – семь уровней под общим заголовком The Lost Mission.
+
+Наконец, в качестве особого бонуса для самых верных фанатов серии Doom 3 BFG Edition содержит также оригинальную дилогию Doom.
+(   Читать дальше...   )Тип издания: RePackРазработчик: id SoftwareЖанр: Action (Shooter) / 3D / 1st Person / CompilationЯзык озвучки: АнглийскийЯзык субтитров: -/-Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B7B5F4C97C43645B556E3EE09881566A531B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598584   (999497) от 05.01.2013
+
+Удача напрокат (2012) SATRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999497.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни Кристины все прекрасно: жених - красавец, богатый наследник Николай, отличная работа в одном из самых крупных банков страны. Через пару месяцев Кристине исполнится тридцать. Кристина ждет дня рождения с особым трепетом: когда-то старая гадалка сказала ей, что если она встретит свое 30-летие успешной, то и дальше ей будет сопутствовать удача, а если нет, то ходить Кристине одинокой и бедной до конца своих дней. На память гадалка дала девушке медальон, который должен был охранять ее от невзгод. Но по роковому стечению обстоятельств, коллега Кристины, неудачник Сергей, разбивает ее счастливый медальон. И сказочная жизнь Кристины превращается в ад: она заваливает проект, и застает жениха с другой женщиной. Кристине предстоит пройти через массу неприятностей, чтобы понять, что главное в жизни не мистические предсказания и волшебные амулеты, а близкие люди, которые ее окружают.Жанр: Комедия, мелодрамаРежиссер: Дмитрий СорокинАктеры: Ирина Медведева, Дмитрий Богданов, Юрий Ваксман, Оксана Скакун, Ирина Пулина, Константин Третьяков, Максим Пинскер, Константин Новиков (II)Продолжительность: 01:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94583A13064DE1D889F9ED807A7C2C52D8821B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599046   (999498) от 05.01.2013
+
+Connectify Dispatch 4.0.0.25875 (Includes Connectify Hotspot PRO) [Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Connectify, известная своей программной точкой доступа для Windows 7,
+объявила об официальном выпуске своего нового продукта под названием Connectify Dispatch.
+Если первый продукт Connectify превращал ПК в точку доступа, то проект Dispatch решает
+своего рода обратную задачу – превращение всех доступных подключений к Интернету
+в единый высокоскоростной канал.
+
+(   Читать дальше...   )Название программы: Connectify Dispatch (Includes Connectify Hotspot PRO)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599239   (999513) от 05.01.2013
+
+Заложница 2 / Taken 2 [UNRATED] (2012) [1080p] BDRip [Line]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
@@ -692,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ###  Подробнее
 
-Картина основывается на книге Мики Рэпкина «Пой идеально: Погоня за славной вокалиста а капелла», в которой рассказывается о студентке, внезапно обнаружившей в себе страсть к пению а капелла, то есть, без музыкального сопровождения.Жанр: Kомедия, MузыкаРежиссер: Джейсон МурАктеры: Элизабет Бэнкс, Ребел Уилсон, Анна Кендрик, Бриттани Сноу, Алексис Кнапп, Кристофер Минц-Плассе, Адам ДиВайн, Анна Кэмп, Джон Майкл Хиггинс, Фредди Строма, Джад Лорманд, Эстер Дин, Бриттни Алгер, Эрик Хенниг, Скайлар ЭстинПеревод: Aвторский одноголосый (А. Дасевич) + любительский одноголосый (zamez)Язык субтитров: Русский, Английский, Французкий, ИспанскийПродолжительность: 01:52:07
+Брайану Миллсу придется расхлебывать последствия своих действий. Спасая свою дочь, он убил главаря банды, у которого — сюрприз! — есть отец по имени Мурад. Мурад жаждет отмщения и описывается как человек, отдающий приказы, но сам никогда никому не подчиняющийся. Мурад берет в заложники Миллса с супругой, и тут уже Ким Миллс нужно будет спасать своих родителей.Жанр: Боевик, Триллер, КриминалРежиссер: Оливье МегатонВ ролях: Лиам Нисон, Мэгги Грэйс, Фамке Янссен, Лиленд Орсер, Джон Грайз, Д.Б. Суини, Люк Граймс, Раде Шербеджия, Кеворк Маликян, Ален ФиглажПеревод: ДублированныйПродолжительность: 01:38:18
 
 ## Скачать торент
 ```bash
@@ -704,21 +614,47 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598147   (1000134) от 03.01.2013
+###  Публикация: 598621   (999520) от 05.01.2013
 
-Извлечение / Extracted (2012) [1080p] BDRemux
+Случайные знакомые (2012) SATRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главный герой Томас Джейкобс изобретает способ проникать в память людей и просматривать их воспоминания «своими глазами». Так он может возвращаться в собственные воспоминания и снова переживать счастливые моменты своей жизни. Но однажды Том вынужден действовать в разрез своим моральным принципам и использовать своё изобретение, чтобы войти в воспоминания одного наркомана и в буквальном смысле слова увидеть, совершал ли он преступление, в котором его обвиняют. Однако по причине повреждённости сознания преступника наркотиками, Том оказывается пойман в ловушке внутри его головы. Теперь ему предстоит прожить в памяти наркомана почти четыре года, до тех пор, пока он не обнаружит долгожданную возможность побега.Жанр: Фантастика, ДрамаРежиссер: Нир ПанириПродюсер: Гэбриел Кауэн, Джон Суитц, Керри Джонсон Бэйли, ...Актеры: Саша Ройз, Дженни Моллен, Доминик Богарт, Ричард Риле, Ник Джеймисон, Родни Истман, Фрэнк Эшмор, Брэд Калвер, Тай Симпкинс, Сара ТомкоПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: Датские, Финские, Норвежские, ШведскиеПродолжительность: 01:28:53
+Они встретились в суде. Успешный бизнесмен Александр, оказавшийся расчетливым дельцом, отбирал помещение у санатория для стариков, в котором работала симпатичная девушка Вера. После суда она, не испытывающая по отношению к предпринимателю ничего кроме неприязни, решилась на отчаянный шаг и похитила его портфель с документами на землю. Судьба занесла этих людей в заброшенную деревню, откуда невозможно было выбраться в преддверии Нового года...Жанр: Мелодрама, КомедияРежиссер: Вера Глаголева, Александр Франскевич-ЛайеАктеры: Виктория Толстоганова, Кирилл Сафонов, Светлана Некипелова, Александр Брухацкий, Тамара Муженко, Тамара Миронова, Зинаида ЗубковаПеревод: Не требуется (Русский)Продолжительность: 01:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021B24DAD436E82140956ECFED3409D9267BCFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599067   (999532) от 05.01.2013
+
+Заложница 2 / Taken 2 [UNRATED] (2012) [720p] BDRip [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брайану Миллсу придется расхлебывать последствия своих действий. Спасая свою дочь, он убил главаря банды, у которого — сюрприз! — есть отец по имени Мурад. Мурад жаждет отмщения и описывается как человек, отдающий приказы, но сам никогда никому не подчиняющийся. Мурад берет в заложники Миллса с супругой, и тут уже Ким Миллс нужно будет спасать своих родителей.Жанр: Боевик, Триллер, КриминалРежиссер: Оливье МегатонАктеры: Лиам Нисон, Мэгги Грэйс, Фамке Янссен, Лиленд Орсер, Джон Грайз, Д.Б. Суини, Люк Граймс, Раде Шербеджия, Кеворк Маликян, Ален ФиглажПеревод: ДублированныйЯзык субтитров: Русский (SRT), Английский (SRT, PGS)Продолжительность: 01:38:19
 
 ## Скачать торент
 ```bash
@@ -730,12 +666,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597911   (1000136) от 03.01.2013
+###  Публикация: 597327   (999536) от 05.01.2013
 
-Actual Window Manager 7.4.1 Final [Multi/Rus]
+AnekdotMobi / 32000 анекдотов v1.0.4 RU (01.01.2013) <Ru>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -744,11 +680,7 @@ Actual Window Manager 7.4.1 Final [Multi/Rus]
 
 ###  Подробнее
 
-Перед вами целый программный пакет, который содержит в себе свыше пятидесяти продвинутых инструментов, все они направлены на то, чтобы организовать ваш Рабочий стол. Делает это программа за счет того, что вы сможете более удобно пользоваться всеми запущенными приложениями Windows, каждый параметр настраивается отдельно, а значит вы сможете добиться максимальной отдачи от представленной программы.
-
-Программа после того как вы ее установите, будет работать в фоновом режиме не мешая вам совершенно, но при этом будет выполнять все необходимые задачи. Actual Window Manager может сворачивать окна при запуске или деактивации, может разворачивать их при запуске, закрывать, изменять размер под нужный именно вам, изменять расположение даже если это невозможно, также есть возможность зафиксировать окно в выбранной области без возможности его перемещения по экрану.
-
-Actual Window Manager дополнительно предлагает вам выделить доступ к скрытым возможностям системы Windows, например можно свернуть любое окно в область уведомления, (   Читать дальше...   )Название программы: Actual Window ManagerЯзык интерфейса: Multi/Rus
+Смешные свежие анекдоты для вашего андроид устройства. Огромная коллекция лучших анекдотов, приложение работает без Интернета. Ничего лишнего, все самое необходимое. Запустил и читай. В программе собраны анекдоты на любые темы.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -760,25 +692,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598203   (1000137) от 03.01.2013
+###  Публикация: 598835   (999537) от 05.01.2013
 
-DU Meter 6.05 Build 3768 [Eng/Rus] RePack by D!akov
+Татьяна Соломатина, Андрей Шляхов, Владимир Величко | Акушер-Ха! (25 книг) [2010-2012] [FB2]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000137.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DU Meter - программа для подсчета реального входящего и исходящего сетевого трафика. Возможности: полностью настраиваемые объем трафика и предупреждения о времени модемного соединения; настраиваемая ежедневная, еженедельная и ежемесячная статистика (как по трафику, так и по времени соединения) с возможностью экспортировать данные в форматы Excel, Word, HTML, Text и др.; выключение компьютера при понижении трафика ниже заданного минимума. Одна из особенностей - показ прогнозируемого трафика на следующие неделю или месяц на основе имеющихся данных.Название программы: DU MeterЯзык интерфейса: Eng/Rus
+Серия Акушер-Ха! началась с одноименной книги Татьяны Соломатиной и вначале состояла только из книг этой талантливой писательницы. Потом сюда стали добавляться и другие авторы...
+Подавляющее число книг серии посвящено медицине. Медицинские рассказы весьма своеобразны, а медицинский юмор сродни "черному".
+Кстати, подобные произведения встречаются у многих знаменитостей и даже у классиков (Чехов, Булгаков, Вересаев, Веллер). Сварить голову трупа на кухне в коммуналке (чтобы получить череп) - это круто, особенно, если в кастрюлю сунет нос любопытная соседка. Или оторвать бедному крестьянину вместе с зубом кусок челюсти...Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C783CC8EE6656F7BB51126994256390B407E56D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598008   (999538) от 05.01.2013
+
+YouWave for Android Home 4.0.2 [Английский]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999538.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouWave for Android - полезный и легкий в использовании инструмент, с помощью которого можно быстро и легко запускать на ПК под управлением Windows различные Android-приложения и игры, причем для этого не требуется наличие установленного эмулятора мобильной платформы Android SDK. Также кроме возможности запуска приложений с локального диска, присутствует возможность их загрузки с бесплатных источников, например Android AppStore и Amazon AppStore.
+
+(   Читать дальше...   )Название программы: YouWave for Android HomeЯзык интерфейса: Английский (в 4.0 ICS русский присутствует)
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598827   (999539) от 05.01.2013
+
+David Vinson's Super Rays for Shine 1.0.1 [английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999539.jpg" />
+</div>
+
+
+###  Подробнее
+
+50 пресетов анимаций лучей света  для текста, титров и переходов.
+Позвольте работе Дэвида дополнить Ваш творческий потенциал сиянием.  Эта новая коллекция 50 пресетов для Trapcode Shine включает эффекты световых  лучей, лазерной указки, падающего конфетти, зноя пустыни, электрической дуги и др.  Ваши буквы будут сверкать, Ваши эмблемы будут потрескивать с электричеством и Ваши надписи будут излучать сияние. Эффекты просты в применении, их можно использовать "как есть" или настроить для полного соответствия Вашему проекту.Название программы: David Vinson's Super Rays for ShineЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597712   (999540) от 05.01.2013
+
+VA - Самые Новогодние песни к празднику (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 07:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D5AB916C2ED201BEB28DA878A9FB33A6B218A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

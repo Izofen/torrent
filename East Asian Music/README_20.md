@@ -1,3 +1,38 @@
+###  Публикация: 761082   (891918) от 02.03.2014
+
+Cho Yong - Crystal Chanting (2007) [MP3|320 кб/с]<Folk, Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(4:27) 01. Love
+(4:47) 02. Free
+(5:28) 03. Kuan Yin Inspired Song
+(5:15) 04. Listen
+(4:15) 05. Asked Love
+(3:40) 06. Great Auspicious Day
+(4:04) 07. Home
+(3:55) 08. Wu
+(4:53) 09. Comfortable
+(6:10) 10. Prajna Paramita Heart Sutra(   Читать дальше...   )Жанр: Folk, EthnicПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89AD11E3902BB54E3FC7B5AC13567C9208287A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101821   (892527) от 08.02.2017
 
 Onmyo-Za - Karyo-Binga (2016) [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -753,32 +788,6 @@ https://mybot314.ru/tekegram_catalog/
 5. "Pretty Boy" (Park Teddy, Kush) - 3:28
 6. "Stay Together" (Park Teddy, Kush) - 3:46
 7. "Lollipop" (feat. Big Bang) (Bonus Track) - 3:07Жанр: K-pop, dance, hip-hop
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 117613   (939267) от 03.02.2014
-
-Kazuki Tomokawa - Дискография (1975-2008) [MP3|128-256]<Acid Folk>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acid-FolkПродолжительность: 22:48:32
 
 ## Скачать торент
 ```bash

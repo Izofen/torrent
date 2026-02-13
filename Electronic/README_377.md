@@ -1,3 +1,32 @@
+###  Публикация: 1216068   (752828) от 29.03.2018
+
+VA - Erotica Vol. 3 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - Into The Light
+02. Brazil Beat - Fragile
+03. Andrea Cardillo - Nuages (feat. Gabrielle Chiararo)
+04. Brazil Beat - Ain't No Sunshine(   Читать дальше...   )Жанр: Balearic, LoungeПродолжительность: 01:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839FBC8427DF9F92C6F44396EB65D8F92B9B9FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216064   (752840) от 29.03.2018
 
 VA - Erotica Vol. 2 (Most Erotic Lounge And Chillout Tunes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
@@ -714,35 +743,6 @@ Boris Budarin - Moda Chillout 1-2 (2005-2006) [MP3|320 Kbps] <Lounge, Chillout, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C57FB48F66EB55B723D655FB487F0A49AA16F985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395399   (755571) от 10.07.2020
-
-The Reels - Beautiful (1982) LP [MP3|320 Kbps] <Electronic, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Guy's In Love (With You) (4:34)
-02. Where Is The Love? (2:03)
-03. La Mer (3:18)
-04. Cry (3:16)(   Читать дальше...   )Жанр: Electronic, New WaveПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87696516C57CC427181FFEB7CD2E3E514BEB7526
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,143 @@
+###  Публикация: 863139   (927517) от 25.01.2015
+
+Escapist - Hidden Memories (2014) Japanese Edition [FLAC|Lossless]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Hunter
+02. Eternal Life
+03. Where the Rainbow Ends
+04. Desires and Mistakes
+05. Angels Never Gone
+06. Knife
+07. Shine No More
+08. Disappear
+09. The Little Warrior
+10. Hero's Name(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA19854F7C4A275C73809BBFD72D4623B2E6067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863099   (927526) от 25.01.2015
+
+Neonfly - Strangers In Paradise (2014) [FLAC|Lossless]<Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Whispered Dreams [04:02]
+02. Highways To Nowhere [03:37]
+03. Better Angels [03:42]
+04. Rose In Bloom [04:17]
+05. Heart Of The Sun [04:33]
+06. Aztec Gold [03:06]
+07. Fierce Battalions [04:04]
+08. Sons Of Liberty [04:08]
+09. Chasing The Night [06:21]
+10. Falling Star [03:47]Жанр: Melodic Power MetalПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDBDF485F04B8CE7E8AF72C4188F40F731C87CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863096   (927567) от 25.01.2015
+
+Serious Black - As Daylight Breaks (2015) Limited Edition [FLAC|Lossless]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I Seek No Other Life (3:13)
+02.High And Low (3:38)
+03. Sealing My Fate (4:29)
+04. Temple Of The Sun (1:14)
+05. Akhenaton (4:20)
+06. My Mystic Mind (4:16)
+07. Trail Of Murder (2:52)
+08. As Daylights Breaks (4:30)
+09. Someone Else’S Life (3:51)
+10. Setting Fire To The Earth (4:22)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B851A2AA942D4C1A7E93F75B39F94C1AECF5DA4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863118   (927572) от 25.01.2015
+
+D.A.M - Tales Of The Mad King & Possessed (2014) Japanese Edition 2CD [FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Tales of the Mad King
+
+01. Beyond the Mist
+02. Avalon
+03. Lost Kingdom
+04. Battlefield
+05. Crusader's Quest
+06. Path to Victory
+07. Excaliburn
+08. The Oath of Death(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A284D41E08CF0EBBA4E0BB4C1C74607C38718D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 863129   (927576) от 25.01.2015
 
 Air Raid - Point Of Impact (2014) Japanese Edition [FLAC|Lossless]<Heavy Metal>
@@ -678,135 +818,6 @@ Baldrs Draumar - Aldgillissoan (2015) [FLAC|Lossless|image + .cue] <Folk, Viking
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01D49948D2FA61DA5F9B1D1448202032EAF44821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986344   (931079) от 14.02.2016
-
-Mitochondrion - Parasignosis (2011) [APE|Lossless|image + .cue] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plague Evockation (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part I),
-02. Lex Ego Exitium (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part II)
-03. Tetravirulence (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part III)
-04. Trials(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5545D9670EF6519FDC8226A8257834CC5903C1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861833   (931618) от 22.01.2015
-
-Accept - Classics, Rocks 'n' Ballads (2000) Compilation [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Mistreated (Single version) 04:45
-2. Drifting Away 03:04 instrumental
-3. All or Nothing (Single version) 03:26
-5. Just By My Own 03:31
-6. Generation Clash 06:26
-7. It's Hard to Find a Way 04:19
-8. Walking in the Shadow 04:28
-9. Guardian of the Night 04:26
-10. Winter Dreams 04:46
-11. Run Through the Night 03:22(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F9D5797C37A761FF3C821FE3F0A0283C61B93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754482   (931668) от 08.02.2014
-
-Ring Of Fire - Battle Of Leningrad (2014) [FLAC|Lossless]<Progressive, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Mother Russia   (5:12)
-02.  They're Calling Your Name   (4:06)
-03.  Empire   (5:42)
-04.  Land Of Frozen Tears   (4:39)
-05.  Firewind   (7:43)
-06.  Where Angels Play   (4:55)
-07.  Battle Of Leningrad   (6:15)
-08.  No Way Out   (5:13)
-09.  Our World   (4:14)
-10.  Rain   (4:27)Жанр: Progressive, Power MetalПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BB9BBCEC844A4F3E4CAFEAACDA13A1C16FD09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861890   (931759) от 22.01.2015
-
-Eisbrecher - Schock (2015) [FLAC|Lossless]<NDH / Gothic Metal / Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Volle Kraft Voraus
-02. 1000 Narben
-03. Schock
-04. Zwischen Uns
-05. Rot Wie Die Liebe(   Читать дальше...   )Жанр: NDH / Gothic Metal / Industrial MetalПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1CBE6EF2055FDCB37AD3202561F5B8C90A873A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1043460   (572986) от 16.08.2016
+
+VA - Beatport Trance Pack (15.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Tyas  -  Turbo (Original Mix)  7:19
+02. Feel And Two K  -  The End Is Near (Original Mix)  4:52
+03. Sebastian Montano  -  Mare Nostrum (Rework)  8:49
+04. Jean Clemence And Programmer  -  Till the End  7:10(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 03:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457BBA8CF44BAADFB6CDC99D28058C8F8715B95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043279   (572988) от 16.08.2016
+
+VA - Festival Ultra Hits & Anthems (2016) [MP3|320 Kbps] <House, Trance, Progressive, Dutch, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572988.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren, W&W  -  If It Ain't Dutch (Extended Mix)  4:21
+002. Dimitri Vegas & Like Mike vs. Ummet Ozcan  -  The Hum (Original Mix)  5:56
+003. Bassjackers & Thomas Newson  -  Wave Your Hands (Original Mix)  4:08
+004. DJ Dean & Danny Fervent  -  Headcrash (Club Mix)  5:10(   Читать дальше...   )Жанр: House, Trance, Progressive, Dutch, Future HouseПродолжительность: 09:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188CDC3DD31F625582868A7927737DD8BE398500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043427   (572991) от 16.08.2016
 
 VA - Ibiza House Hits Island Stars (2016) [MP3|320 Kbps] <House, Progressive, Club>
@@ -690,64 +748,6 @@ VA - Mystic Adventures: Balearic Downtempo (2016) [MP3|320 кб/с] <Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0977E41BDD0AC872200CFF776419CF7E0654D403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151337   (574179) от 18.07.2017
-
-VA - Vocal Trance Collection Vol.3 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ej - One More Night (Extended Mix)
-02. Radion6 & Katty Heath - Beautiful Nothing (Radio Edit)
-03. Mark Sherry & Dark Fusion Feat. Jan Johnston - Deja Vu (James Dymond Extended Remix)
-04. Mike Shiver & Shannon Hurley - A Little Rain (Allen & Envy Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 10:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010EFBCB0A5042E9BB048BA064D099F739BB9FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151269   (574190) от 18.07.2017
-
-VA - Italo Disco Hits Vol.13 (2017) [MP3|320 Kbps] <Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  D.White feat. Soulya ID - Walking  6:26
-02.  Tony Costa - You're My Life (2017 Up Mix) (feat. Ryan Paris)  8:23
-03.  The Sweeps - Facing The Night (Extended Remix)  8:14
-04.  Boy Blue - One Day (Radio Version)  4:12(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 08:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAC360D559CAA8B5688CF73222944C36F72F92C
 ```
 
 https://mybot314.ru/tekegram_catalog/

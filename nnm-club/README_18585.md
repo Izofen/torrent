@@ -1,23 +1,25 @@
-###  Публикация: 1219941   (710049) от 16.04.2018
+###  Публикация: 1220164   (706091) от 18.04.2018
 
-Итоги дня (16.04.2018) SATRip
+Tax The Heat - Change Your Position (2018) [FLAC|Lossless|tracks] <Classic Rock, Blues Rock, Hard Rock>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710049.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что произошло? Как это было? Кто виноват и в чем причина? Кому это нужно и чего это стоило?
-Ответы на главные вопросы — в новой информационной программе «Итоги дня» — по будням в 23:00 на НТВ.Телекомпания: НТВЖанр: НовостиПродолжительность: 00:23:34
+01. Money In The Bank
+02. Change Your Position
+03. Playing With Fire
+04. All That Medicine(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 00:41:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBC3F283AF99CE66B5F32F24A0048F35FDAFC9A0
+magnet:?xt=urn:btih:E8A464446791AF31734B6F65DB8ED2185959BD70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +27,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219848   (710050) от 16.04.2018
+###  Публикация: 1220217   (706092) от 18.04.2018
 
-VA - Deep House Ladies Night (2018) [MP3|320 Kbps] <Deep House>
+NGW: Первая тройка самых опасных животных. Маленькие убийцы / World's deadliest. Little killers (2013) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706092.jpg" />
+</div>
+
+
+###  Подробнее
+
+От горностаев и красных собак до синекольчатых осьминогов - эти небольшие хищники убивают животных во много раз превосходящих их по размеру.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс БитонПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4FFEF02DD1884858FA788A60D045F74056B1E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220341   (706093) от 18.04.2018
+
+The Blues Mystery - Soul Memories (2018) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 25 degress below zero (03:47)
+02. Sit down (04:14)
+03. Has humankind lost its soul (04:27)
+04. I'm afraid of the next blues (03:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AB3E761339FD714468EBF06972F49BADD8487F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220268   (706094) от 18.04.2018
+
+VA - Deep House Session (Vol. 2) (2018) [MP3|320 Kbps] <Deep House, Electronic>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710050.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Agatino Romero feat. Duncan Townsend - All I Wanna Do  (Original Mix)
-002. Zeni N - Moonlight (Original Mix)
-003. Airbas - After Hours  (Petros Odin Nightwalking Remix)
-004. Tough Art, Zukk - Homeless (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:19:09
+01. Dophamean - Sunrise
+02. Styline & Stravy ft. Hoody Time - Now We Go Deep (Original Mix)
+03. Claptone Ft. Nathan Nicholson - Under The Moon
+04. Pink Noisy feat. Barrice - Orlando Dawn (Extended Mix)(   Читать дальше...   )Жанр: Deep House, ElectronicПродолжительность: 03:33:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:811B45DEDC84ACFAC3A2FF0F0DE19F8233525BD2
+magnet:?xt=urn:btih:C98FD613FEDBFA613211EF163EF845EF002719AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,463 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219623   (710051) от 16.04.2018
+###  Публикация: 1220360   (706095) от 18.04.2018
 
-Ю. Жадовская и др. | Бабушкина книжка (1915) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник стихов для детей младшего возраста.Жанр: Детская проза, СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173410CFA6082AD344CB39A4C9B52D41EDBC8FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219883   (710052) от 16.04.2018
-
-Maria Schafer - To Know Love... (2018) Marsch Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Don't Know What Love Is [04:30]
-02. The More I See You [05:21]
-03. Estrada Branca [03:49]
-04. I Fall in Love Too Easily [05:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F55AC14C3395033203B5F9682E8869805F3ACB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219902   (710053) от 16.04.2018
-
-Clayton Brothers - Siblingity (2000) Warner [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work Song/Blues On Parade [07:46]
-02. Runway [04:58]
-03. Filthy McNasty/Silver Worth Gold [07:41]
-04. Entrez Vous [05:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01661C512C1B3E27E42C01ECFF71D76D67D6467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329616   (710072) от 29.04.2011
-
-Мячик и мальчик (1971) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Кукольный, ДетскийРежиссер: Владимир ДанилевичПродолжительность: 00:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287538563A7C18F8FF4784ADA655E9758028D149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792208   (710084) от 02.06.2014
-
-Огги и тараканы / Oggy et les cafards / Oggy and the Cockroaches (1998) DVD9 (Сезон 1, Серии 78 из 78)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Толстый добродушный обыватель, кот Огги хочет только одного: чтобы никто не мешал ему со вкусом наслаждаться спокойной и размеренной жизнью, с ее невинными радостями — вкусной едой, телевизором, мягким пуфом, на котором так уютно спится…
-
-Но бедного кота одолевают несносные соседи: три вредных таракана (Джой, Марки и Ди-Ди) постоянно отравляют ему жизнь жестокими (   Читать дальше...   )Жанр: Рисованная анимация, Комедия, ДетскийРежиссер: Оливье Жан МариПерсонажи: Коты Огги и Джек, тараканы Джои, Ди Ди, МаркиПеревод: Без слов / НемойСубтитры: ОтсутствуютПродолжительность: 78 серий ~ 00:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D966DDD7FA02A264F5C0340DF32AA82EFEED0DA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792235   (710087) от 02.06.2014
-
-Wallpapers - Ultra Mixed HD Wallpapers Pack (01.06.14) [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рад представить вам новый выпуск обоев, в котором собраны: спортивные автомобили, потрясающие пейзажи, удивительные животные и необычные креативные кадры. Все это и множество нового ждет вас в очередной солянке высококачественных обоев для вашего настроения и обновления пейзажа на рабочих столах всех ваших мультимедийных устройств.Разрешение файлов: 1680x1050 - 2560x1600Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C0D6CEC16F6672C91D86266A4A7A26B80C7AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791851   (710091) от 02.06.2014
-
-К востоку от рая / East of Eden (1955) BDRemux [1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта картина по праву считается классикой Голливуда и главным фильмом Джеймса Дина — блестящего актера, бунтаря и знаменитости своего времени. Его, еще до окончания съемок, уже прозвали вторым Брандо.
-«К востоку от рая» — экранизация знаменитого романа Стейнбека, романа о семейной драме юноши, который ревнует и страдает, видя как его отец отдает незаслуженное предпочтение (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: ДрамаРежиссер: Элиа Казан / Elia KazanАктеры: Джули Харрис, Джеймс Дин, Рэймонд Мэсси, Берл Айвз, Ричард Давалос, Джо Ван Флит, Альберт Деккер, Лоис Смит, Гарольд Гордон, Ник ДэннисПеревод: Многоголосый закадровый (профессиональный), Двухголосый закадровый (профессиональный), Одноголосый закадровый (авторский)Язык субтитров: Русский (форс. на непереведенные места аудио #3), английский (SDH)Продолжительность: 01:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B008D6214C78B4DF34558A54CB86BA7901485D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025204   (710094) от 12.06.2016
-
-Spirit Nation - Spirit Nation (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Breaks, Trip Hop, Tribal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Wankatakiya
-02	Celebration
-03	Earth Walk
-04	Spirit Path(   Читать дальше...   )Жанр: Electronic, Breaks, Trip Hop, TribalПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFF7A380E435B36C5D54008BC8E2BFAEFB79097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025729   (710095) от 12.06.2016
-
-День сенсационных материалов с Игорем Прокопенко. Напоите меня озверином (2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кровавый майдан, кто положил начало зверству. Выжить любой ценой – как начинается смертельная давка. Прямиком в бездну – как звук может вызвать панику. Все технологии зомбирования людей.Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CC185CA0F161775BEAEFD7D3098D4211699578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025686   (710096) от 12.06.2016
-
-TinkerTool System 4.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710096.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinkerTool System 4 -  утилита для управления скрытыми настройками операционной системы Mac OS X.
-Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 июня 2016Разработчик: Marcel BresinkПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17868AC3E5F1C8671BB0E6F4E772C3A5EEC1AF41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025451   (710097) от 12.06.2016
-
-Ex_Tension - Le Seuil De Tolerance (2012) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <Industrial, Tribal, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear (09:42)
-02. Even Dust (feat. KL) (04:37)
-03. Ausgang (05:50)
-04. Brume (09:33)(   Читать дальше...   )Жанр: Industrial, Tribal, AmbientПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD1907A2198221E62211AC770EA94EF6EE52599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025699   (710098) от 12.06.2016
-
-Paris Hilton - Paris (2006) [APE|Lossless|image + .cue] <Pop, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn It Up    [03:12]
-02. Fightin' Over MeЖанр: Pop, R'n'BПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1708C0BD6D4DF5A8622D365D3CC24266C91E16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025532   (710099) от 12.06.2016
-
-День сенсационных материалов с Игорем Прокопенко. На чем сидят звезды? (2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710099.jpg" />
-</div>
-
-
-###  Подробнее
-
-О пластической хирургии.Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0105EB76DA6A648ED52A83E4216A07DF506155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025663   (710100) от 12.06.2016
-
-День сенсационных материалов с Игорем Прокопенко. Что ждет нашу Землю? (2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сенсационный прогноз сделали недавно американские ученые проанализировав темпы таяния арктических льдов они пришли к выводу – Если все будет и дальше таять также стремительно уже в течении ближайшего десятилетия опасность может угрожать миллиардам жителей земли.Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EBD666E51F8319F1DD0358536F6773EFC294C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025671   (710101) от 12.06.2016
-
-Nouvelle Phenomene - Glory of Romance (2013) [FLAC|Lossless|tracks] <Electronic, Synth-pop, New Wave>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Au Fond De Mon Coeur    04:24
-02. Secret    04:01
-03. Cruel Game    04:59
-04. All Away    04:24(   Читать дальше...   )Жанр: Electronic, Synth-pop, New WaveПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F350E3D8570405786D8EE6EF70A59BB4A61C4D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025334   (710102) от 12.06.2016
-
-И. А. Крывелев | О «тайнах» религии (1981) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги - доктор философских наук, известный специалист в области антирелигиозной пропаганды И. А. Крывелев на основе большого фактического материала разоблачает религиозное мировоззрение как ложное и антинаучное. Школьники узнают о том, насколько несостоятельными оказываются церковные проповеди в свете критического анализа.
-
-Рассчитана на школьников среднего (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEA75A8F18F627B3BA246A10D745F4001436A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025458   (710103) от 12.06.2016
-
-ZD Soft Screen Recorder 9.7 [Multi/Ru]
+K-Lite Codec Pack Update 14.1.1 [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710103.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ZD Soft Screen Recorder - программа для создания снимком экрана и записи происходящих на экране событий в видео файлы. Авторы обещают благодаря собственному уникальному алгоритму записи высокое качество записываемого с экрана видео при небольшом размере итогового файла Возможна запись в выделенной области, в отдельном окне и в полноэкранном режиме.Язык интерфейса: Русский, Английский, Украинский
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F93D8FEFFCF2BD0E6FBD01877C3549A121BED21
+magnet:?xt=urn:btih:00D40DE53DB5DF6710DD7FD86688D1CACE49756A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +137,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025556   (710104) от 12.06.2016
+###  Публикация: 1220167   (706096) от 18.04.2018
 
-VA - Clubfete 2016.02 - Summer Club & Party Hits (2016) [MP3|256 кб/с] <House, Club, Dance>
+Steve Oda & Ty Burhoe - Peace - Music For Life (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indian Classical>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raga Bageshri Kanara - Alap, Jor, Jhala
+02. Raga Bageshri Kanara - Tintal
+03. Raga Piloo - RupaktalЖанр: Folk, Indian ClassicalПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9048337AC54F13FA23AB78D51F2214E2BC63DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220210   (706097) от 18.04.2018
+
+VA - Deep House Collection vol.166 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706097.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aero Manyelo & Fluida - Man to Many (Original Mix)
+002. Ahmet Kural  - Haydar Haydar  (Cover Munircan Demirtas Remix)
+003. al l bo - Deep In My Soul (Mr Wu Remix)
+004. Alexey Talano & Elliaz х Sevenn  - Colors Of The Rainbow  (Bootleg)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CF92D97BCDEF33D250AEB71EA84C9086163EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220261   (706098) от 18.04.2018
+
+VA - Happy Easter Dance 2 (2018) [MP3|320 Kbps] <Dance, Hands Up, Dancecore>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710104.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sia, Sean Paul - Cheap Thrills (feat. Sean Paul) [03:43]
-02. Jason Derulo - If It Ain't Love [03:23]
-03. DNCE - Cake By The Ocean [03:38]
-04. Alan Walker - Faded [03:30](   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:06:05
+01. Danny Keegan - Let the Music Do the Job (NeoTune! Edit)
+02. Crazy - Pegasus (Radio Edit)
+03. Some Tunes feat. Bad Drums - Imagination (Radio Mix)
+04. Rabih - You and I (Commercial Club Crew Remix Edit)(   Читать дальше...   )Жанр: Dance, Hands Up, DancecoreПродолжительность: 02:56:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E89FD3B039511F4DFDC08F552034B0C1E39BDA7
+magnet:?xt=urn:btih:83153348C3A5FBF9B615C1C4359586A4B6F69BCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,21 +223,278 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025165   (710105) от 12.06.2016
+###  Публикация: 792353   (706121) от 04.06.2014
 
-Создано устройство, превращающее в электричество одновременно энергию ветра и энергию солнечных лучей
+Футбол. Чемпионат Европы 2008. 1/4 финала. Голландия - Россия (2008) HDTVRip [H264/720p-LQ] 50 fps
 
->>Поговорим
->>DailyTechInfo
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_710105.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Устройство, которое может преобразовывать в электрическую энергию одновременно энергию солнечных лучей и энергию ветра, может стать источником энергоснабжения "умных городов" будущего, которые при помощи компьютеров и электроники сами контролируют и управляют собственной инфраструктурой, предоставляемыми населению услугами и т.п. В идеальном варианте все (   Читать дальше...   )
+Жанр: СпортПродолжительность: 02:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4832D12E8B8E53328E0D861425B827C7ABCB49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026150   (706133) от 14.06.2016
+
+Контрабанда.com.ua - Dreamer (2015) [MP3|320 кб/с] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Boy (03:17)
+02. Marie (03:08)
+03. Heaven Can Wait (02:22)
+04. Angel (03:53)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6AF6EF826EF7B58067470F926B3964A8338425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026180   (706135) от 14.06.2016
+
+UFO - The Visitor (2009) [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saving Me (5:08)
+02. On the Waterfront (3:50)
+03. Hell Driver (4:26)
+04. Stop Beaking Down (4:55)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2909F40291821BE7D304273836F0CFF602D0FC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026039   (706136) от 14.06.2016
+
+Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Island [00:10:29]
+02. Sparkling Light [00:20:26]
+03. Temple Shrine [00:20:34]Жанр: New AgeПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF5C16C32A9EA87C0B62A71EB6C4202D994BF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 792931   (706137) от 04.06.2014
+
+IQ - The Road of Bones (2014) [FLAC|Lossless]<Neo Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706137.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. From The Outside In (7:25)
+02. The Road Of Bones (8:32)
+03. Without Walls (19:16)(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 00:53:08+00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC51ED7934E405CA644781A840E9A56B10566CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026128   (706138) от 14.06.2016
+
+Forcefield - Forcefield (1987) 1990, Polydor [WavPack|Lossless|image + .cue] <Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke On The Water (7:10)
+02. Set Me Free (3:52)
+03. Runaway (4:18)
+04. Sunshine Of Your Love (4:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F397F8D6DE68FD94E6C3E78E11D964F44E5563E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026320   (706140) от 14.06.2016
+
+VA - Ibiza Trance Volume One (2016) [MP3|320 кб/с] <Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tritonal - Gamma Gamma (Ferry Corsten Radio Fix) (3:03)
+02. Rodrigo Deem & Las Salinas feat. Emily Harder - Anything (Radio Edit) (3:10)
+03. Breathe Carolina & Shanahan feat. Haliene - Stars & Moon (LTN Radio Edit) (3:21)
+04. Axis - Spirals (Radio Edit) (3:42)(   Читать дальше...   )Производство: Enhanced MusicЖанр: Trance, Progressive HouseПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B92CE7231F3D7322BE92296C2B4E0594039698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026186   (706142) от 14.06.2016
+
+Blue Pilots Project - Reboot (2009) [FLAC|Lossless|image + .cue] <Ambient, Chillout, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706142.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:17] 01. Main Crisis
+[04:55] 02. Reboot
+[06:39] 03. Mamouth
+[04:33] 04. Hallelujah(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1647E6E31FB4FFC378955CC831B2B8C203F0A04F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026305   (706144) от 14.06.2016
+
+Виктор Еремин | Крымские «армагеддоны» Иосифа Сталина (2016) [FB2, RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706144.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: В этом документальном исследовании популярно рассказана: полная история попыток создания еврейского государства в Крыму (а не в Палестине); история возникновения, обострения и разрешения конфликта между сталинской властью и советскими евреями в целом; история прометеистов – лидеров мусульманских националистов, вынудивших Сталина репрессировать их народы (   Читать дальше...   )Жанр: Публицистика. ИсторияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02AF1BC8F4143DA800C5107BD3DA802DBF9B0536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026205   (706146) от 14.06.2016
+
+ИРИ организует третейский суд над пиратами
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_706146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для голодающего населения будет создан суд из фермеров
+и агропромышленников, чтобы ускорить наказание огородных воров.
+Распашка целины, субсидий и повышение урожайности
+и доступности еды не планируется.(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -573,28 +506,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025302   (710106) от 12.06.2016
+###  Публикация: 1026236   (706147) от 14.06.2016
 
-группа Мишки на Севере - Нет пристанища у вора (2000) [FLAC|Lossless|image + .cue] <Chanson>
+О. В. Губарева | Божия Матерь в Её иконах [Опыт художественно-богословского анализа] (2008) [PDF, DJVU]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710106.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 12 лет
-02 Цыганочка
-03 Алданский снег
-04 Нет пристанища у вора(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:46:26
+Книга петербургского искусствоведа Оксаны Губаревой посвящена истории и иконографии наиболее известных чудотворных образов Божией Матери. Анализ конкретных икон предваряется введением, которое посвящено почитанию Божией Матери, общим вопросам иконографии, композиции богородичных икон. Подход О. Губаревой к этим проблемам можно назвать художественно-богословским. (   Читать дальше...   )Жанр: ИконографияФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1E73BC9B587C56929F0078AAC5DB3B8A0A1ECFF
+magnet:?xt=urn:btih:2D6D04A7C23133DAF45FCC9F237D428663886D0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,28 +532,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025591   (710107) от 12.06.2016
+###  Публикация: 1026153   (706148) от 14.06.2016
 
-Vale Of Pnath - Vale Of Pnath II (2016) [MP3|320 кб/с] <Melodic Death Metal>
+Together 3.5.12 [En]
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710107.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blacker Than
-02. A Nightmare Phantasm
-03. Klendathu
-04. The Horror In Clay(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:49
+Together - Программа для хранения и организации файлов.
+Благодаря поддержке функции drag-and-drop, Together позволяет собирать изображения, текст, закладки и другие файлы, и хранить их в порядке. Все файлы можно делить на группы и папки, добавлять теги и ярлыки. А встроенная функция поиска поможет быстрой найти нужный файл.
+
+Приложение может хранить в своей базе (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 июня 2016Разработчик: ReinventedSoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B3B7F5078B9DD24E4A13114C2F30337CDD3E14B
+magnet:?xt=urn:btih:87EE50D71277336D59F45E0439539B9296EA6D81
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,28 +561,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025541   (710108) от 12.06.2016
+###  Публикация: 1026152   (706149) от 14.06.2016
 
-VA - Daybreak Sessions 2016 By Tomorrowland (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+Forecast Bar 2.6 [En]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710108.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Mix - Daybreak Sessions 2016 (Continuous Mix 1) [1:12:57]
-02. DJ Mix - Daybreak Sessions 2016 (Continuous Mix 2) [1:16:02]
-03. Lopezhouse feat. Angela - Crosses and Angels [7:49]
-04. G Club Presents Banda Sonora - Guitarra G (Martijn Ten Velden 2015 Mix) [8:24](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 05:40:49
+Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
+
+Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
+- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 июня 2016Разработчик: Real Casual Games, LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+* показания прогноза погоды можно сделать на русском (в настройках программы)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E55517FFE07CC5A0AD94BC294EB6EC2B3896AC8
+magnet:?xt=urn:btih:1C3224A4C2BD59959A84587189FBDB495B27AA0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,28 +591,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025560   (710109) от 12.06.2016
+###  Публикация: 1026241   (706150) от 14.06.2016
 
-Martha High - Singing for the Good Times (2016) [MP3|320 кб/с] <Soul, Funk, R&B>
+Т. И. Афанасьева | Литургии Иоанна Златоуста и Василия Великого в славянской традиции (по служебникам XI-XV вв.) (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена филологическому и историко-литургическому исследованию славянского перевода литургий Иоанна Златоуста и Василия Великого по рукописным служебникам древнейшего периода. В книге излагается методика исследования литургического текста, изучается состав последования и язык перевода в древнерусской и южнославянской письменности, а также дается исторический (   Читать дальше...   )Жанр: ЛитургикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98F7B5F0C0FA5AC0706C4C1A1A2A8699E8310A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026260   (706151) от 14.06.2016
+
+Василий Ванюшев (сост.) | Дедушкин родник (1981) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы и сказки удмуртских писателей.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F0CA88D12E0EC26291550A378586B55BECBBD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026288   (706152) от 14.06.2016
+
+Herbie Hancock Trio with Ron Carter + Tony Williams - Trio '81 (1981) Remaster, 1996, Sony Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710109.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Always Worth the Pain (04:27)
-02. I Am a Woman (03:57)
-03. I Can’t Hold On (03:42)
-04. Fire Shut in My Bones (03:46)(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:40:54
+01.Stablemates [11:06]
+ 02.Dolphin Dance [10:19]
+ 03.A Slight Smile [09:04]
+ 04.That Old Black Magic [08:34](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:45:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA08E98E845F086681A8498825DFE2C9DDB9071C
+magnet:?xt=urn:btih:9C9A5319E6E773546D644701CB85888C0637A3E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,28 +672,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025583   (710110) от 12.06.2016
+###  Публикация: 1026219   (706153) от 14.06.2016
 
-VA - Electric for Life - Ibiza (Mixed by Gareth Emery) (2016) [MP3|320 кб/с] <Progressive House, Trance>
+The Super Premium Band - Sounds of New York (2011) Happinet Corporation[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Electronic
->>House
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710110.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Noah Neiman & Meredith Call - You Are [5:12]
-02. Lyar Ft. Laura Luppino - Trigger (Summer Edit) [3:04]
-03. Jus Jack - Stargazing [3:09]
-04. Lane 8 - Sunlight (Jody Wisternoff Remix) [4:17](   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 06:31:21
+01.Take The 'A' Train [03:35]
+ 02.Stompin' At The Savoy [06:49]
+ 03.Moon River [06:22]
+ 04.Autumn In New York [05:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B5984BFB249939890011517C4B213B0FB57566B
+magnet:?xt=urn:btih:6753455A94209C62FF848B0CDC7A0B301274543C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026173   (706154) от 14.06.2016
+
+Wanda De Sah - Softly! (1965) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ho Ba La La [02:31]
+ 02.Sweet Happy Life (Samba De Orfeu) [02:36]
+ 03.Quiet Nights (Corcovado) [02:06]
+ 04.Aruanda [01:55](   Читать дальше...   )Жанр: Latin Jazz, Vocal JazzПродолжительность: 00:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7349F603C122C689AA0127B0A434FD09DDB8177E
 ```
 
 https://mybot314.ru/tekegram_catalog/

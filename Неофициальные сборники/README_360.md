@@ -1,3 +1,58 @@
+###  Публикация: 1548211   (597900) от 03.05.2022
+
+VA - Dancing Pops (Vol.01) (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597900.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот весенний теплый день, когда снег давно уже сошёл с земли, а тепло наступает раньше назначенного срока, хотелось бы послушать такую музыку, которая была бы полной заряжена позитивом весеннего солнца. Именно такая музыка представляется вашему вниманию в позитивном сборнике под названием "Dancing Pops".001. Sam Feldt & Sam Fischer - Pick Me Up
+002. Kylie Minogue - Wow
+003. Don Diablo - Too Much To Ask
+004. Stephan Fya-Ya - U & Me(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B0383FB8706973DBE14D3C641D4A765220B4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914331   (597993) от 02.07.2015
+
+VA - (OST - Score) Sonic Adventure 2 (2001) [MP3|320 кб/с]
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип собранный из Lossless качестваЖанр: Electronic / RockПродолжительность: 03:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A21FEB7A6ADAD561A671A78FC9121471EA78C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548307   (598018) от 03.05.2022
 
 VA - The Atmosphere Harmony: Ambient Antistress Collection (2022) [MP3|320 Kbps] <Ambient, Relax, Meditation>
@@ -723,64 +778,6 @@ VA - Package Complete Expand Future House (2016) [MP3|320 Kbps] <House, Future H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F5C83CA4E1C806082E7E4A202CB5B6E0577556E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039073   (599666) от 30.07.2016
-
-VA - Dance Fitness Playlist (2016) [MP3|320 Kbps] <House, Progressive, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599666.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arnold Palmer Feat. Antoine Montana -  Keep On Movin' (Scotty Mix) 5:36
-002. Fedde Le Grand -  So Much Love (Original Club Mix) 7:45
-003. Avicii -  Addicted To You (Avicii By Avicii) 5:32
-004. John Dahlback & Benny Benassi -  Blink Again (John Dahlback Radio Edit) 3:00(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 09:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1007304814AF2D0A8CD05BC71AB80536CB08F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039047   (599674) от 30.07.2016
-
-VA - Uplifting Trance Collection Episode Third (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599674.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kamaya Painters -  Endless Wave (Ucast Remix) 7:19
-002. Matt Bukovski & Andy Elliass -  Sphinx 6:40
-003. Sneijder & Giuseppe Ottaviani -  Nero (Solarstone Retouch Extended Mix) 7:50
-004. Craig Connelly Ft. Tricia Mcteague & Rory Ogrady -  Meet At The End 6:41(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 09:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A4EB2E305F13B4FD8CCBAD469CE3A91724807F
 ```
 
 https://mybot314.ru/tekegram_catalog/

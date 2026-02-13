@@ -1,3 +1,189 @@
+###  Публикация: 1159414   (484162) от 20.08.2017
+
+The Runaway Club - Apollo (2016) [MP3|320 Kbps] <80's Electronic Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We Were Kids
+02. I Don't Care
+03. So Damn Good
+04. Shooting at the Moon(   Читать дальше...   )Жанр: 80's Electronic PopПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FD1E233854A1B4C3DC3A33C0DDB2272440F909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244164   (484186) от 31.08.2018
+
+Sertab Erener - Kirik Kalpler Albumu (2016) [MP3|320 Kbps] <Turkish Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acilis
+02. Ask Beni
+03. Olsun
+04. Karbeyaz(   Читать дальше...   )Жанр: Turkish Pop, Pop RockПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD391155D1CC4CC4FDBBAEFE838726BBAF64C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 237496   (484605) от 19.09.2010
+
+Ольга Зарубина - Звёзды советской эстрады/Хиты 80-90х (2009) [MP3|320 kbps]<retro, pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484605.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. А мне покоя нет
+2. Возьми меня с собой
+3. Признание
+4. Так не должно быть (с Михаилом Боярским)
+5. Я к тебе приеду (с ВИА "Музыка")
+6. Жду
+7. Наша любовь (с ВИА "Метроном")
+8. Крылатая песня
+9. Реченька (с Олегом Ухналёвым)
+10. Если мириться - значит встречаться(   Читать дальше...   )Жанр: retro, popПродолжительность: 03:41:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384025   (484768) от 05.09.2011
+
+Балаган Лимитед - Welcome to Russia (2006) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Welcome To Russia 
+02.  А Я Выла На Луну 
+03.  Шуба 
+04.  Мама Не Велит 
+05.  Чирибом 
+06.  Дождь,Дождь 
+07.  На Закате 
+08.  Там,За Околицей 
+09.  Семь Сорок 
+10.  Тум-Балалайка (   Читать дальше...   )Жанр: PopПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405301   (485179) от 29.08.2020
+
+Ryan Paris - Ryan Sings the 80s… and More, Episode 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Paris & George Aaron - Can Delight (5:40)
+02. Ryan Paris - I Like Chopin (6:17)
+03. Ryan Paris - Always On My Mind (3:36)
+04. Ryan Paris - Mad Desire (6:16)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32520744919BDF88484B1247175AE8AA78B7467C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937996   (485288) от 16.09.2015
+
+Lana Del Rey - Honeymoon (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeymoon
+02. Music To Watch Boys To
+03. Terrence Loves You
+04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79FE3836C03868CE0294482DAE4E8997F9C9695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405190   (485308) от 29.08.2020
 
 Dua Lipa & The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [MP3|320 Kbps] <Pop, Electronic, Dance>
@@ -578,181 +764,6 @@ VA - Disco Futuro by Fred Ventura (2019) 2хCD, Compilation [MP3|320 Kbps] <Ital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4031385DECA7F672D043495CD14018F5CC590BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319189   (486819) от 10.08.2019
-
-Stella Donnelly ‎ - Beware Of The Dogs (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Man (03:33)
-02. Mosquito (03:11)
-03. Season’s Greetings (02:49)
-04. Allergies (02:55)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8745631B30BF2DE7C97FD5B3E756F98F426E2030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404987   (487269) от 28.08.2020
-
-Side Walk - No Stop Hit Mix (1989) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487269.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Tragedy
-2.	I'm Alive
-3.	I Close My Eyes And Count To Ten
-4.	I Heard It Through The Grapevine(   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A3351C870CD636292F1FD02934A5444449637B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936811   (487454) от 15.09.2015
-
-Новые Самоцветы и Инна Маликова - Вся жизнь впереди (2014) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Вся жизнь впереди
-03. Не повторяется такое никогда
-04. В последний раз(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745927FB1C08BAD49ECDAE57B3339E72E1850E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821631   (487775) от 14.09.2014
-
-Abba - 40/40 The Best Selection (2014) 2CD /SHM-CD/ [APE|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487775.jpg" />
-</div>
-
-
-###  Подробнее
-
-"40/40 The Best Selection" - Сборник из 40 песен выпущенный в Японии к 40-летнему юбилею легендарного квартета.
-Выбор песен вошедших в издание был проведен путем опроса более 9000 японских фанатов группы.Disc 1:
-01. Dancing Queen (1976)
-02. That’s Me (1976)
-03. Take A Chance On Me (1977)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12612285E47BEC70EC2CEF94B16584131D26BD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937747   (488106) от 15.09.2015
-
-VA - Party Fun Summer (2015) [FLAC|track+.cue]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488106.jpg" />
-</div>
-
-
-###  Подробнее
-
-С небольшим опозданием (релиз вышел 22 июня 2015 года), представляем вашему вниманию сборник популярной музыки от Fun Radio. И не даром у него есть подзаголовок "Tous les nouveaux tubes dancefloor de l'ete - Все новые звуки танцпола, появившиеся летом" - это те звуки, которые вы может быть слышали на танцполах летом этого года. Жаркое лето продолжается!CD1:
-01. Kygo Feat.Conrad - Firestone  (3:24)
-02. Lost Frequencies Feat.Janieck Devy - Reality  (2:39)
-03. Omi - Cheerleader (Felix Jaehn Remix Radio Edit) (3:01)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB80FF493CF9EDE059F5BED5F891668DDB8BD11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055518   (488356) от 22.09.2016
-
-Ultimate - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркие представители "Евро-диско" на студии "Casablanca" в составе: Barbara Hernandez, Deborah McGriff, Rita Saunders.01. Medley: Love is the Ultimate / Dancing In the Night / Touch Me Baby (14:26)
-02. Ritmo De Brazil (4:49)
-03. Music In My Heart (6:23)
-04. Take Me to Chinatown (5:05)(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CC40090682755B1209B3CF196C7700DE1D02C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

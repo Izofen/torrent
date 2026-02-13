@@ -1,3 +1,32 @@
+###  Публикация: 1555922   (565310) от 06.06.2022
+
+VA - Summer Megamix 2022 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaas - Shine A Light 2:59
+02. Micha Moor - Obsession 2:35
+03. Calmani & Grey, Alexandra Prince - Superstar 2:59
+04. The Disco Boys - Around The World (Dazz Remix) 2:39(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D4F1A7CE4A001259F482DD8ABCB22AE73AD626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044582   (565359) от 20.08.2016
 
 VA - John Digweed Live In Montreal (2016) 6CD [FLAC|Lossless|image + .cue] <Progressive House, Deep House>
@@ -717,33 +746,6 @@ Com Truise - Persuasion System (2019) [FLAC|Lossless|tracks + .cue] <Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF9725313F5A17976848C17EC59C8A1583077E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303717   (567449) от 24.05.2019
-
-MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SKURM - Baa (Long Away) (MRUKS Remix)
-02. SKURM - VIT16 (MRUKS Remix)Жанр: Funky, RetrowaveПродолжительность: 00:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CA597B385026B2585231EF1E6B1995B8ADDE7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

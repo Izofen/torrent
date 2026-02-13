@@ -1,3 +1,67 @@
+###  Публикация: 568697   (392675) от 02.11.2012
+
+VA - Новое Радио - 100 хитов Нового Радио. выпуск 2 (2012) [MP3|256 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392675.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aura Dione - Geronimo (3:13)
+2. Adam Lambert - Never Close Our Eyes (4:03)
+3. Avicii - Levels (3:55)
+4. Michel Telo - Ai Se Eu Te Pego (2:43)
+5. Dev feat. Enrique Iglesias - Naked (3:51)
+6. Pitbull feat. Marc Anthony - Rain Over Me (3:34)
+7. Zedd feat. Matthew Koma - Spectrum (3:57)
+8. Tim Berg - Bromance (The Love You Seek) (3:06)
+9. Example - Changed The Way You Kiss Me (3:09)
+10. 5'sta Family - Вместе мы (3:32)(   Читать дальше...   )Жанр: popПродолжительность: 05:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9008286E24F00D9DDD4B0769F8A80509DDC44C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172559   (392826) от 08.10.2017
+
+VA - Beatport Top 100 Downloads September (2017) [MP3|320 Kbps] <Electro, Indie, Nu Disco и другие>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Chapman - La Fiesta (Original Mix)
+02. CamelPhat, Elderbrook - Cola (Original Mix)
+03. Jamie Jones - Kooky Chords (Original Mix)
+04. Roberto Capuano, Luigi Madonna - Midfield (Original Mix)(   Читать дальше...   )Жанр: Electro, Indie, Nu Disco и другиеПродолжительность: 11:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956EA05CF9DBE34C3212CA395D82254C16C1BAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568913   (392965) от 02.11.2012
 
 VA - Золотой Граммофон Осенний Выпуск (2012) [MP3|128 кб/с]<Pop>
@@ -759,76 +823,6 @@ VA - Magic House (2017) [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85234B9E9092813F88FB5CD093BD3955985AFB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566989   (394997) от 31.10.2012
-
-VA - Музыкальный Топ Интернета (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394997.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Linkin Park - Lost In The Echo
-002. Эльдар Далгатов - Без Тебя Я Не Могу
-003. Тимати - Давай, До Свидания!
-004. Armin Van Buuren - We Are Here To Make Some Noise (Extended Mix)
-005. ЗэБосы - и Dj Адам - и Dj Адам - Загорелая Попка (Remix)
-006. Инфинити - А Он Такой
-007. Dj Sandro Escobar - Давай, До Свидания!
-008. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
-009. Gary Caos vs. Rico Bernasconi feat. Edita Piekha - Party People (Nash Sosed) (Rico Bernasconi Club Mix)
-010. Пропаганда & MC Джимми - Хабиби(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723605FF3B5F3A41310A3BBDA95D082E0F0E8507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567956   (395157) от 31.10.2012
-
-VA - Зажигай С Осенними Хитами (2012) [MP3|256 кб/с]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395157.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Жека Баянист - Bara Bara Bere Bere (Russian Version Club Mix)
-002. Qwote Feat. Mr Worldwide - Letting Go (Cry Just A Little) (Radio Edit)
-003. DJ Boyko & DJ Noiz feat. Katy Queen - Между Нами (Radio Mix)
-004. Soul Bros. - Tonight (Brisby & Jingles Edit)
-005. Sasha Dith & Steve Modana feat. Nadya - Улечу (UniSelf Radio Edit)
-006. Xonia - Remember (Radio Edit)
-007. Sasha Prozet & DJ Andy First - Ради Тебя (Radio Edit)
-008. Laselva Feat. Angel - Your Life (Video Edit)
-009. Данко - Московская ночь (Alex Grand and Glazunov Remix)
-010. Mia Martina - Burning (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 6:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92DB5CE6EC1AF36E0209BFA86D18CDB9B17D800
 ```
 
 https://mybot314.ru/tekegram_catalog/

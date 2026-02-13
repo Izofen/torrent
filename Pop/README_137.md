@@ -1,3 +1,61 @@
+###  Публикация: 957498   (327322) от 17.11.2015
+
+МакSим - Хорошо (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовь алого цвета
+02. Золотыми рыбками
+03. Иди
+04. В лето(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E86090CD7455E4C1C66044212C05199B48DE0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957304   (327428) от 17.11.2015
+
+VA - Радуга (1 пластинка) (1980) [MP3|320 кб/с]<Instrumental, Pop, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестр Макса Грегера - Хелло, Долли (Дж.Герман)
+MAX GREGGER ORCHESTRA - Hello Dolly (Jerry Herman) ©197?
+02. Джо Дассен - Если в мире нет тебя (Паллавичини - Лемеси)
+JOE DASSIN - Et si Tu N’Existais pas (Salvatore Cutugno - Vito Pallavicini - Pasquale Losito - Claude Lemesle) ©1969(   Читать дальше...   )Жанр: Instrumental, Pop, RetroПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9881D8F8681A3A2D75AB8DC3C9D58E306418382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957420   (327442) от 17.11.2015
 
 One Direction - Made In The A.M. (2015) Deluxe Edition [FLAC|Lossless|image + .cue]<Pop>
@@ -403,6 +461,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 261307   (328843) от 22.11.2010
+
+Latin Lover - Casanova Action (2007 (1985-87)) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_328843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casanova Action (Long & Hot-Version)
+02. Laser Light (Original Version)
+03. Dr.Love (Passion Mix)
+04. Laser Dance
+05. Laser Light (Remix '87)
+06. Casanova Action ('87 Re-Edit)
+07. Dr.Love (Dub Mix)
+08. Casanova's Dance (Insrtrumental)
+09. Megamix
+10. Laser Light (Chernobyl Mix)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580742   (329691) от 02.10.2022
 
 Владимир Мигуля и группа "Земляне" - Песни В. Мигули (1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
@@ -606,6 +699,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259604   (330517) от 20.11.2010
+
+Tom Jones - Дискография [1964-2010] [MP3|192-320] <Pop/Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_330517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/RockФормат: MP3Продолжительность: 32:40:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580508   (330609) от 01.10.2022
 
 Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [FLAC|Lossless|tracks + .cue] <Disco>
@@ -628,122 +747,6 @@ Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:185EE91DE06C35666C98888E8C80358EA09B27A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580517   (330617) от 01.10.2022
-
-Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Daddy Cool (00:03:28)
-02 - Sunny (00:03:58)
-03 - Rivers Of Babylon (00:04:17)
-04 - El Lute (00:04:00)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59767BF69946B10772363BB2EA449F366BAAD9E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580525   (330714) от 01.10.2022
-
-Leo Rojas - Colours of Nature (2022) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лео Рохаса называют "поп-звездой панфлейты". Colors of Nature - уже шестой альбом Рохаса. Он был выпущен 6 мая 2022 года. Juan Leonardo Santilla Rojas родился 18 октября 1984 года в небольшом городке Otavalo, Ecuador. Он эмигрировал в Испанию в 2000 году, а сейчас живет в Берлине вместе со своей женой-полькой. Leo Rojas стал одним из самых узнаваемых лиц (   Читать дальше...   )01. Blinding Lights (3:29)
-02. Bad Habits (3:52)
-03. Wellerman (2:03)
-04. Cold Heart (3:24)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555A3144DF2EEB55F97FCC41BACFA763C10B65C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580458   (330726) от 01.10.2022
-
-Richard Marx - Songwriter (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same Heartbreak Different Day
-02. Only A Memory
-03. Anything
-04. Moscow Calling(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E25C2EFF2C713CFF5AFA5F9EDEFE0AB7230AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580378   (330801) от 01.10.2022
-
-VA - Keep It Disco Vol. 04 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Garas - Whatcha Gonna Do (Original Mix)
-02. Noil Rago - Disco Think (Original Mix)
-03. Alexny - Dear Miss (Original Mix)
-04. Corrado Alunni - This Is Disco (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:27:24 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A9EBF5816BFF0C2822CB3A42F124AA431FF092
 ```
 
 https://mybot314.ru/tekegram_catalog/

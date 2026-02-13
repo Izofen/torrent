@@ -1,3 +1,38 @@
+###  Публикация: 531989   (540045) от 06.08.2012
+
+VA-Enigma Lounge - By The Essence (2004) [MP3|320 кб/с]<New age , Enigmatic, Chillout, Lounge, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540045.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wholeness Of The Essence
+2. True Sensuality
+3. Essence
+4. La Vie Rouge
+5. Deep Desire
+6. Serene Harmony
+7. Rivers Of Lust
+8. Blue Heaven
+9. Open Windows
+10. Love Dream(   Читать дальше...   )Жанр: New age , Enigmatic, Chillout, Lounge, DowntempoПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E93F3A84B91ACEE64E6CD3679617B859DD9C273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311251   (540053) от 30.06.2019
 
 Andrei Denisov - Easy to Fly (1996) [MP3|320 Kbps] <New Age>
@@ -737,35 +772,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDEC78E89A467A0CF269761A806EC609E9FCE4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049164   (544784) от 04.09.2016
-
-Medwyn Goodall - Kissed by the Sun (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Shadow of the Mountains
-02. Sinking Sun
-03. Peace of Mind
-04. Day in the Sun(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4016CF4ABDB4B1A8A92795F341E7C662002B99A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

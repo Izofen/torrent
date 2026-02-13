@@ -1,3 +1,32 @@
+###  Публикация: 1397028   (742698) от 18.07.2020
+
+And Exile - From Oblivion (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Open Void (04:27)
+02. Before It Swallows Us All (06:50)
+03. Bermuda Swing (05:27)
+04. Mariana's Trench (05:11)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 00:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA36E6828FF8D169AF8DECA6607E526FF9918A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396975   (742700) от 18.07.2020
 
 Lydia - Landscape (2020) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Progressive Trance, Downtempo, Ambient>
@@ -713,35 +742,6 @@ VA - Meditation Music (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Meditation, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49869B4DD0474D7B10EF2494A7617838B80CE573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282368   (745329) от 12.02.2019
-
-VA - The Morning Light/Beautiful Relaxation Music To Start My Day (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Ambient, Meditation>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fabrizio Marioni - Viaggio Di Primavera (Original Mix) 2:58
-02. Marga Sol - The Lost Garden (Original Mix) 5:06
-03. Marga Sol - Golden Sunrise (Original Mix) 4:53
-04. Fabrizio Martini & Eric Buffat feat. Vittorio Giannelli Savastano - Purple 3:38(   Читать дальше...   )Жанр: Downtempo, ChillOut, Ambient, MeditationПродолжительность: 01:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D3B80480733DB8701F0FCBC0ABA975EDCD1D96
 ```
 
 https://mybot314.ru/tekegram_catalog/

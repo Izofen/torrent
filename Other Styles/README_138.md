@@ -1,3 +1,32 @@
+###  Публикация: 1200898   (793899) от 23.01.2018
+
+Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|CD|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandre Desplat - The Shape of Water (03:44)
+02. Renee Fleming - You'll Never Know (04:40)
+03. Alexandre Desplat - The Creature (01:48)
+04. Alexandre Desplat - Elisa's Theme (02:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF56C8910A627DE46B52FCC75451AB4C2CE840A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201085   (793954) от 23.01.2018
 
 VA - Quiet Nights Of Quiet Stars (The World's Most Beautiful Melodies) (1997) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening, Vocal>
@@ -719,35 +748,6 @@ David Wilson (22.09.1945) - американский скрипач и музы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E743EDCD306FD7A40051A6D88750F3754A5F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122371   (798814) от 05.04.2017
-
-Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television Series) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samuel Sim - Hourglass (The Halcyon Main Title Theme) (03:17)
-02. Beverley Knight - Marvellous Party (03:46)
-03. Jamie Cullum - Forever (02:57)
-04. Kara Tointon / Chris Egan & The Sonny Sullivan Band - Mr. Heartache (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD4C6087B1DFB671FD77D3C3149DCF68C102555
 ```
 
 https://mybot314.ru/tekegram_catalog/

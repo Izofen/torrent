@@ -1,3 +1,177 @@
+###  Публикация: 1325872   (407422) от 18.09.2019
+
+Uranium - 2 Singles (1979) [MP3|320 Kbps] <Electronic, Space Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme Some Lovin' (3:21)
+02. Danger Zone (3:21)
+03. Car Crash (bonus) (3:53)
+04. Eleanor Rigby(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FCC2CA2E67F3E1AA479F3F15FAB7E6E6F082AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326126   (407425) от 18.09.2019
+
+Flamenco Group - The House Of The Rising Sun (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The House Of The Rising Sun (8:56)
+02. Gitano (5:44)
+03. Flamenco Go-Go (3:54)
+04. Andalucia (4:48)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5406EC895FF7DBB79EFC2A3A75D0DD1C3B3D5E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574172   (407507) от 03.09.2022
+
+Caro - 2 Albums (1980, 1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanderlust (3:16)
+02. My Boy (3:37)
+03. Be Somebody (3:46)
+04. Don't Knock The Rock (2:45)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Disco, New WaveПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9288FFA2D66E326F026A42A40B83FFADF880AF89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574112   (407513) от 03.09.2022
+
+Blue System - Deja Vu (1991) [OGG Vorbis|485 Kbps] <Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Déjà Vu	3:39
+02. It's All Over  3:37
+03. New York - Berlin - Paris	3:50
+04. Mrs. Jones	4:05(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7520DE0C519A18612C6865EBCF85751F2C600B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574076   (407536) от 03.09.2022
+
+Hot Bush - Hot Bush (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get In The Groove (4:21)
+02. Flight ''69'' (5:13)
+03. Tell Me What You Will (5:56)
+04. L.O.V.E. F.U.S.E. (5:07)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD78A6A644E5AA625400B22508029D1DB6BF09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252783   (407656) от 06.10.2018
+
+C. C. Catch - Greatest Hits (2018) [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407656.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cause You Are Young
+2. Heaven and Hell
+3. Heartbreak Hotel
+4. I Can Lose My Heart Tonight(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716C07DF1DD18B36E9062D91058C8ABDB0262DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252752   (407968) от 06.10.2018
 
 Frederic Mirage - Atlantic (1979) LP [MP3|320 Kbps] <Electronic, Space-Disco>
@@ -569,180 +743,6 @@ VA - Italian Lover Sexual Hits (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A5F183A3D86D0938A8CDB0887510F343B52012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252176   (409096) от 05.10.2018
-
-VA - 101 Hits - Long Hot Summer (2018) 5CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409096.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Sergio Mendes Feat. The Black Eyed Peas - Mas Que Nada
-02. Shaft - (Mucho Mambo) Sway(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAA7A74B4BBA4E74224D1DC400E51D990B83974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252200   (409183) от 05.10.2018
-
-Алёна Апина - Ты мне не снишься (2001) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Электричка
-02. Узелки
-03. Соперница
-04. Теплоход(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D47304806AB2804289B06286B92D2FA0378AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252343   (409318) от 05.10.2018
-
-Carol Lloyd - Score (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Score (4:11)
-02. Sundown To Sunrise (4:32)
-03. Plans For Tomorrow (6:52)
-04. Shake Me Wake Me (3:51)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F576A66C4EED2946D1B59D48D832733CE477D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066850   (409528) от 27.10.2016
-
-VA - The Best Of Christmas Hits (2016) [MP3|320 Kbps] <Pop, Jazz, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fifth Harmony - All I Want for Christmas Is You 3:49
-02. Britney Spears - My Only Wish (This Year) 4:14
-03. Hall & Oates - Jingle Bell Rock 2:03
-04. Michael Bolton - Santa Claus Is Coming to Town 4:04(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67AC8C96AA68A78423EDE4DEC8A957DCF43419B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413372   (409575) от 03.10.2020
-
-Mariah Carey - The Rarities (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409575.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Here We Go Around Again (1990)
-2. Can You Hear Me (1991)
-3. Do You Think of Me (1993)
-4. Everything Fades Away (1993)(   Читать дальше...   )Жанр: PopПродолжительность: 02:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD0606918B96482B686C626B93C251E160206C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066678   (409617) от 27.10.2016
-
-VA - Ibiza Megamix Best Of 2016 (2016) [MP3|320 Kbps] <Bigroom, Future House, Club>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz Ft J.U.D.G.E. - Show Me Love 02:12
-02. Felix Leiter - Just Can't Dance No More 02:00
-03. Calippo - I Just Go Crazy 01:09
-04. Falko Niestolik & Oni Sky - Together 01:16(   Читать дальше...   )Жанр: Bigroom, Future House, ClubПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28330D435E61BFBF62522C904379AF6C89C1FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

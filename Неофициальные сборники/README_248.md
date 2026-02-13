@@ -1,3 +1,61 @@
+###  Публикация: 1325306   (414327) от 14.09.2019
+
+VA - New Electro Swing: Jazz Review (2019) [MP3|320 Kbps] <Jazz, Swing Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arthur Pochon - Catch The Groove
+02. Big Papa And The Tcb - Get Yo Self Together
+03. Caravan Palace - Lone Digger
+04. Lyre Le Temps - The Mask(   Читать дальше...   )Жанр: Jazz, Swing JazzПродолжительность: 03:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F9903F83BEC7D891C15424B6E97BED1C90C538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573158   (414366) от 30.08.2022
+
+VA - Running To The 80s (2022) CD, Compilation [MP3|320 Kbps] <Dance, Hi NRG, Europop, Soft Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pet Shop Boys - Heart
+02. Duran Duran - Rio (Single Version)
+03. Spandau Ballet - Gold
+04. New Order - True Faith (2015 Remaster)(   Читать дальше...   )Жанр: Dance, Hi NRG, Europop, Soft RockПродолжительность: 01:51:48 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52298E950010AA6897226D64C9638BD1897D2715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167669   (414378) от 21.09.2017
 
 Chris Rea - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Blues Rock>
@@ -693,64 +751,6 @@ VA - Kamasutra Cafe Chillout (2015) [MP3|320 кб/с]<Easy Listening, Lounge, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97D118F033181428251E32A9D96D3B5729F886DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947919   (415850) от 18.10.2015
-
-VA - Музыкальное свежье русский выпуск 3 (2015) [MP3|320 кб/с]<Pop, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ChipaChip & AlexKoch - Нет Счёта (03:50)
-02. DJ Jedy feat. Олеся Май - Рано Или Поздно (05:16)
-03. Алеся Висич - Не Отдам (03:11)
-04. Андрей Леницкий feat. Hann - Будь Со Мной (03:05)(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 01:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E355C8E0F0F94E9F5B607167C3AE791E58E27514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325055   (415902) от 13.09.2019
-
-VA - Melodic Deep House (2019) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415902.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Willie Graff - La Sirena
-002. Bonetti - Deep Flavour
-003. John Tejada - Hollow Hemispheres
-004. Patrik Ford - Oklahoma (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6165CE4847CD05BACD4470C29D1171FB65F71B
 ```
 
 https://mybot314.ru/tekegram_catalog/

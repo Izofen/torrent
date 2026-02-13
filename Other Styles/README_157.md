@@ -1,3 +1,32 @@
+###  Публикация: 1372840   (876875) от 08.04.2020
+
+Slow Leaves - Beauty Is So Common (2014) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Wants to Be in Love [03:54]
+02. Nostalgia | Nostalgia [02:53]
+03. Life of a Better Man [03:08]
+04. Dreamer [02:31](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE4962E8A909350FAB19ADC4C134ED8BE08696C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372805   (876883) от 08.04.2020
 
 Slow Leaves - Shelf Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
@@ -780,38 +809,6 @@ Gary Girouard - The Naked Piano. Elements (2014) [MP3|320 кб/с]<New Age, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F10C54CF9E9925CB4B652603187CCFFC5BECEED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764281   (879998) от 09.03.2014
-
-Sacred Earth - Breathing Space (2014) [MP3|320 кб/с]<New ega, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(09:31) 1. Grounded
-(07:25) 2. Bliss
-(08:06) 3. Breathing Space
-(08:55) 4. Jai
-(05:11) 5. Beautiful
-(05:14) 6. Nature Alone
-(10:09) 7. StillnessЖанр: New ega, MeditativeПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD383D5CC8D84BBA7687AE152106CD1F538B08E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

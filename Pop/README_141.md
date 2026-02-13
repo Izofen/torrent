@@ -1,3 +1,174 @@
+###  Публикация: 1330553   (338978) от 11.10.2019
+
+VA - W9 Hits 2020 (2019) 4CD [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, RockПродолжительность: 04:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E949035B382CCC215C8CA89E4A07FAC419CA6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330691   (338987) от 11.10.2019
+
+Oblivion - Voyage To Discovery (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Spacesynth>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fasten Seat Belts (Intro) (01:07)
+02. A Voice Of The Universe (06:46)
+03. Dreams Come True (05:42)
+04. Into Another Galaxy (04:34)(   Читать дальше...   )Жанр: Disco, SpacesynthПродолжительность: 01:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD5530CB1BC6FB94B3A13D032794874DF7A76DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330634   (339098) от 11.10.2019
+
+VA - Yo También Bailaba con Súper Pop, Vol. 1 + Vol. 2 (2019) 4CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol.1, CD1:
+01. Michael Jackson - Thriller (Single Version)
+02. Whitney Houston - I Wanna Dance with Somebody (Single Version)
+03. Leif Garrett - I Was Made for Dancin'(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AD20075F6E339EB4079E7D535DE7728312CCFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330747   (339100) от 11.10.2019
+
+Dominique Guiot - L'Univers De La Mer (1978) LP [MP3|320 Kbps] <Electronic, Leftfield, Synthpop, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Surf Ballad (2:24)
+02. La Danse Des Meduses (2:39)
+03. Une Ballade Pour Une Goelette (1:19)
+04. Les Deux Poissons (2:58)(   Читать дальше...   )Жанр: Electronic, Leftfield, Synthpop, AmbientПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06503F703070551276573944413D0374BC2894A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 101190   (339217) от 28.10.2020
+
+Джо Дассен (Joe Dassin) - Gold (1995) 2CD [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339217.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01-Bip-Bip
+02-L'Amerique
+03-L'ete Indien(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F0E31BBEDCD7616A31D7523AC5ECF8F4B24DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954779   (339246) от 08.11.2015
+
+Boney M - Greatest Hits (2008) [MP3|320 кб/с]<Pop, Disco, Retro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339246.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Nightflight to Venus (04:47)
+02. Rasputin (05:51)
+03. Sunny (04:02)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 02:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6C526FDF9A6488B7174EF0A37B7B3B7DF3FE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954677   (339466) от 08.11.2015
 
 Secret Service - Disco Collection (2001) [MP3|320 кб/с]<Synthpop, Disco>
@@ -568,180 +739,6 @@ VA - Radio Mania Vol. 1-2 (2016) [MP3|320 Kbps] <EuroDance, EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD061C69B33E8E87FEA641EB2012BC3FC7F7E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214855   (340423) от 28.10.2018
-
-МакSим - 5 Альбомов (2006 - 2015) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любовь алого цвета
-02. Золотыми рыбками
-03. Иди
-04. В лето(   Читать дальше...   )Жанр: PopПродолжительность: 03:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA4B987378A17F180728F14617A6B6C06BA5A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578595   (340798) от 25.09.2022
-
-VA - Golden Pop Ballads '97 Volume 1 (1997) [FLAC|Lossless|image + .cue] <Pop, Ballads>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Braxton - Un-Break My Hear [4:34]
-02. No Doubt - Don't Speak [4:25}
-03. Spice Girls - 2 Become 1 [4:04]
-04. East Seventeen - Hey Child [4:34](   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55557D7D885EF4146383C050CE11D4335A8DD81E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258022   (340903) от 28.10.2018
-
-Татьяна Снежина - Я не могу без тебя (2017) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой старый дом
-02. На далёкой станции
-03. Ночь пришла
-04. Млечного пути мостик(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93455A50053B4F01586D9466BF8D88954A2B57AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330511   (341000) от 10.10.2019
-
-ВИА «Синяя птица» - Белый теплоход (1995) Compilation [FLAC|Lossless|image + .cue] <Ретро, Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Белый теплоход (Ю. Антонов - В. Дюнин)[3:41]
- 02 - В семь часов у Никитских ворот (Т. Ефимов - М. Любезнов)[3:54]
- 03 - Я иду тебе навстречу (Ю. Антонов - В. Дюнин)[4:17]
- 04 - В море ходят пароходы (И. Крутой - И. Шаферан)[3:39](   Читать дальше...   )Жанр: Ретро, Советская эстрадаПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA9AB51BF96B66B0A1E9750784C6FA1D1CDF7FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330498   (341010) от 10.10.2019
-
-Ани Лорак - За мечтой (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341010.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мы нарушаем
-2. Небо
-3. Я тебя ждала
-4. Запомни эту любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204EE21CAEA7B620EE7A08D9C10F12B12EA6644F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257954   (341065) от 28.10.2018
-
-VA - New Italo Disco Top 25 Compilation, Vol.10 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Momento - Forever (Short Remix)
-02. Naomi - Domani (Tomorrow) (Short Mix)
-03. Solitario - Leave Me Alone (Short Fly Mix)
-04. Momento - Never Too Late (Short Remix)(   Читать дальше...   )Жанр: Italo-Disco, NuDisco, HiNRG, DanceПродолжительность: 01:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78999D63DF733B7D70CD09F3642E71066998F21A
 ```
 
 https://mybot314.ru/tekegram_catalog/

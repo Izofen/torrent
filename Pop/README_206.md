@@ -1,3 +1,175 @@
+###  Публикация: 921414   (575382) от 25.07.2015
+
+Alcazar - Disco Defenders (2015) [MP3|320 кб/с]<Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Guns (Go For It)
+02. Feel 4 YouЖанр: Europop, DiscoПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A684172F704631D3251B013A66BACFB6E28E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554239   (575756) от 31.05.2022
+
+Sparks - The Seduction of Ingmar Bergman (2009) Deluxe Edition, 2022, BMG [FLAC|Lossless|tracks] <Pop, Rock, Synth-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1956 Cannes Film Festival [00:01:55]
+02. "I Am Ingmar Bergman [00:03:09]
+03. Limo Driver (Welcome to Hollywood) [00:03:08]
+04. "Here He Is Now" [00:01:18](   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8E2F8688D7F34BEE9C7AE02F103725C519935A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554232   (575776) от 31.05.2022
+
+Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [MP3|320 Kbps] <Pop, Rock, Synth-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Good Morning
+03. Strange Animal
+04. I Can't Believe That You Would Fall for All the Crap in This Song(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BAC0F6039FF34A3154DBC023AFC2FA8A5F7890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303273   (575996) от 19.05.2019
+
+VA - From Disco to Disco 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GusGus - Add This Song (Patrick Chardronnet Mix Remix) (7:54)
+02. Gui Boratto & Nathan Berger - The Phoenix (4:00)
+03. Matt Sassari - Dope Safari (Natch & Dothen Remix) (6:15)
+04. Superpitcher - Disko ! (You Don't Care) (7:17)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D324EF886E225BAEAF419569513FA9D4E03B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303158   (575999) от 19.05.2019
+
+VA – Мой адрес-море (2005) [FLAC|Lossless|image + .cue]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эдуард Хиль - Мой адрес-море
+02. Леонид Утёсов - Родная морская
+03. Юрий Гуляев	- Усталая подлодка
+04. Жан Татлян - Корабли(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F117B9F140F8A0C3F7505DE1B4A67FE64D4D01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303103   (576164) от 19.05.2019
+
+Various Artists - Eurovision Song Contest Tel Aviv 2019 - Dare To Dream (2019) Compilation [FLAC|Lossless|tracks] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576164.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jonida Maliqi - Ktheju tokës (3:07)
+02. Srbuk - Walking Out (2:58)
+03. Paenda - Limits (3:02)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB4C6EB22B1A865057A7753AE8AF51BC6532C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233711   (576185) от 02.07.2018
 
 Виктория Дайнеко - Смайлы (2018) [MP3|320 Kbps] <Pop>
@@ -604,180 +776,6 @@ Tamar Kaprelian - 3 альбома и 1 сингл (2009-2015) Дискогра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C7E03142F7C8416F91DA54B2CF0EEA69EF99D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920741   (578770) от 23.07.2015
-
-VA - NRJ Total Hits 2015 (2CD)[FLAC|track+.cue]<Pop, Hip Hop, Eurodance, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578770.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом году уже были на трекере два диска NRJ (см. ссылку внизу раздачи). Теперь к лету подоспело ещё два свежих. Один из них представляю Вашему вниманию.CD1:
-01. Major Lazer Feat. MO DJ Snake - Lean On  (2:57)
-02. Kygo Feat. Conrad - Firestone  (3:24)
-03. Black M - Foutue Melodie  (3:45)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC93371FF8CE22AF4D47DA381A10AD8BD2321444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920510   (578782) от 23.07.2015
-
-VA - Songs Sunny Italy (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riccardo Folgi - Storie Di Tutti i Giorni 03:53
-02. Toto Cutugno - Autre chanson 03:36
-03. Adriano Celentano - Il Ragazzo della via Gluck 04:15
-04. Claudia Mori & Adriano Celentano - Non Succedera Piu 04:15(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6BCF7152937B4AE7CC050869C0287972C44006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554240   (578799) от 29.05.2022
-
-VA - Bravo Hits 117 (2022) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более полугода не было новеньких релизов от Bravo Hits. И вот представляем свежий (от 29 апреля) релиз. Что про него можно сказать. Начинается он достаточно бодро с нескольких свежих вещичек. Потом (на мой взгляд) темп немножко падает и начинают попадаться известные (в том числе по предыдущим выпускам Bravo Hits) треки. Однако общее впечатление это не портит и, думается, (   Читать дальше...   )CD1:
-01. Shawn Mendes - When You're Gone  (2:53)
-02. OneRepublic - West Coast  (3:13)
-03. Mabel X Jax Jones X Galantis - Good Luck  (3:55)(   Читать дальше...   )Тип издания: Box Set, 2 CDРелиз состоялся: 29 апреля 2022 годаЖанр: Pop, Rock, DanceПродолжительность: 02:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB034EE4EE275B66C0C8689FC83F3DA88C24FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302746   (579135) от 17.05.2019
-
-MONATIK (Монатик) - LOVE IT ритм (2019) [MP3|320 Kbps] <Dance-Pop, R&B, Funky>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INTRO
-02. То, от чего без ума
-03. Красиво (Feat. alyona alyona)
-04. Цей день (Feat. Ніна Матвієнко)(   Читать дальше...   )Жанр: Dance-Pop, R&B, FunkyПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E70C1861F6CC96BBEA2ACFE4C1CB7BDE7E5C2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302694   (579319) от 17.05.2019
-
-VA - Italo Disco Party, Vol. 1 (2019) [MP3|320 Kbps] <Italo-Disco, Europop, Eurobeat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time - Can't You Feel It (Vocal Version) 5:36
-02. Change & Jim Burgess - A Lover's Holiday (Full Length Album Mix) 6:25
-03. Styloo - Pretty Face (Original 12 Inch Version) 6:08
-04. Presence - Help Me Mama (Original 12 Inch Version) 5:39(   Читать дальше...   )Жанр: Italo-Disco, Europop, EurobeatПродолжительность: 01:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0420CB406B86BCAB36B62EA059B2B2242CABC6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302765   (579325) от 17.05.2019
-
-Carly Rae Jepsen - Dedicated (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julien
-02. No Drug Like Me
-03. Now That I Found You
-04. Want You in My Room(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A31C32E41B8420D2F9391F76D0F637DCD47DD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

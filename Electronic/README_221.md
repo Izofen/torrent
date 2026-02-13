@@ -1,3 +1,32 @@
+###  Публикация: 1175200   (379080) от 18.10.2017
+
+Dave C. & Goyes - The Soul Brothers (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave C. - Melodic Chaos
+02. Goyes - Happylepsia
+03. Dave C. - No Backup
+04. Goyes - Deep DownЖанр: Progressive HouseПродолжительность: 00:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C9A871883142582FDBD80CD5B4852E9D7ACCC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574787   (379227) от 08.09.2022
 
 Blondie - Against The Odds 1974-1982 (2022) 8CD Box Set, Deluxe Edition [FLAC|Lossless|tracks] <New Wave, Punk, Synth-pop>
@@ -718,35 +747,6 @@ Emika - Falling In Love With Sadness (2018) [MP3|320 Kbps] <Dubstep, Trip-Hop, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F89C7F2A85ED103C6E8215B4C8A10C695D3733FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574792   (381540) от 07.09.2022
-
-George Fitzgerald - Stellar Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Deep House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Further and Further [00:02:02]
-02. Passed Tense [00:04:01]
-03. Rainbows and Dreams [00:04:41]
-04. Cold [00:04:42](   Читать дальше...   )Жанр: Downtempo, Deep House, ElectronicПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD59E837C9B8969A8935CA2F224DEEF52122C590
 ```
 
 https://mybot314.ru/tekegram_catalog/

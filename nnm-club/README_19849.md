@@ -1,21 +1,128 @@
-###  Публикация: 1393826   (766371) от 02.07.2020
+###  Публикация: 1214691   (763982) от 22.03.2018
 
-VA - Beatport Trance: Electro Sound Pack #119 (2020) [MP3|320 Kbps] <Trance>
+Газета | Наша кухня. Выпечка №2 (4) (февраль 2018) [PDF]
 
->>
->>
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_766371.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Adip Kiyoi - Addicted
-002. Sheridan Grout - Under Water
-003. Sndwv - Tucana (Original Mix)
-004. Andres Cuartas - Kabbalah(   Читать дальше...   )Жанр: TranceПродолжительность: 09:51:15
+Новинка от Издательского дома "Толока"!
+В номере: домашние мясные, рыбные и молочные деликатесы, красивая нарезка и подача, всевозможные начинки для фаршированных закусок и намазки для бутербродов, словом, все! Или почти все...Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3D168BBA09A8A2C1492753613398D2BEBDCEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214728   (763983) от 22.03.2018
+
+Векторный клипарт - Different Parrots Set [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Различные попугаи
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFE4D9C267B265DA852716F62A338B477405D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214673   (763984) от 22.03.2018
+
+Журнал | Forbes [Россия] №4 (169) (апрель 2018) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763984.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Forbes" - ведущий деловой журнал в мире. Миссия журнала – обеспечивать читателей информацией, гарантирующей им успех. Журнал Forbes - независимое бизнес-издание. Forbes не публикует информацию, которая уже вышла в других СМИ. Каждый материал в журнале - эксклюзивный. В журнале: статьи экономистов и политиков специально для Forbes, экономические новости, (   Читать дальше...   )Жанр: Деловой журнал, Бизнес и ПолитикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDDBF7B6652E2BBFB627547B9AE094CA5FC22C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214554   (763985) от 22.03.2018
+
+App Uninstaller 4.9.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763985.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Uninstaller - превосходный и возможно лучший деинсталлятор приложений!
+App Uninstaller- лучший способ удаления приложений на Мак ОС X! Полная и безопасная очистка.
+Эта программа позволяет вам правильно, полностью и безопасно удалить нежелательные приложения со всеми их «хвостами» с вашео компьютера! Эти "нежелательные" программы, как правило оставляют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: NektonyПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C744A58144AEFADADAF619E683462206234CFC30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214647   (763986) от 22.03.2018
+
+Журнал | Автомир [Россия] №13 (март 2018) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_763986.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -27,25 +134,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393889   (766372) от 02.07.2020
+###  Публикация: 1214585   (763987) от 22.03.2018
 
-Наталья Акулова | Горсть спелой земляники (2020) [EPUB]
+Alestorm - Captain Morgan's Revenge: 10th Anniversary Edition (Japanese Edition) 2CD (2018) [FLAC|Lossless|image + .cue] <Scottish Pirate Metal>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_766372.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказы Натальи Акуловой – волшебная дверца в мир детства, который пахнет земляникой и луговыми травами. Время, когда лето не кончается, и каждый день нас ждут настоящие приключения! Вместе с непоседливой девочкой Саней и ее друзьями вас ждут настоящие приключения в деревне. Вы узнаете, что будет, если заблудиться в лесу, как подоить корову, что получится, если (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейФормат: EPUB
+Alestorm — фолк/пауэр-метал-группа из города Перт (Шотландия). Песни Alestorm посвящены пиратам, и свою музыку они называют «Настоящий шотландский пиратский метал» (англ. True scottish pirate metal). Возникла под названием Battleheart в 2004 году. После выпуска двух EP (мини-альбомов), они, в 2007 году, присоединились к Napalm Records и переименовали себя в Alestorm. (   Читать дальше...   )Жанр: Scottish Pirate MetalПродолжительность: 01:28:10
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E5948445B64EE4AD9AB000BE325BB41657380F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,26 +160,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393886   (766373) от 02.07.2020
+###  Публикация: 1214553   (763988) от 22.03.2018
 
-Леви Хенриксен | Ангел с Чёртова острова (2019) [EPUB]
+VA - NRJ Future Hits (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
 
->>
->>
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_766373.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда Астрид Барос исполнилось десять, она решила, что не желает взрослеть: «Люди растут, а сердца у них сжимаются, и места там становится меньше». У мамы теперь новый друг, у папы – новая подруга, а Астрид вынуждена жить на два дома, как вахтовик в Северном море. Родители стали совсем чужими и как будто перестали слышать ее.
-Астрид, которая играет роль Пеппи Длинныйчулок (   Читать дальше...   )Жанр: Детективы, Приключения для детейПеревод: Анастасия НаумоваФормат: EPUB
+CD1:
+01.  Maitre Gims & Super Sako feat. Hayko  -  Mi Gna (Maitre Gims Remix)  3:35
+02.  Luis Fonsi & Demi Lovato  -  Echame La Culpa  2:54
+03.  Madame Monsieur  -  Mercy  3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:32
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C4625D88457D4C534438FAC45945C8179EE4F8C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,26 +189,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393882   (766374) от 02.07.2020
+###  Публикация: 1214506   (763989) от 22.03.2018
 
-Шибел Паундер | Вести глубин (2020) [EPUB]
+VA - Best Vocal Trance 2018 Vol.1 (2018) [MP3|320 Kbps] <Vocal Trance>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766374.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Вести глубин» – первая книга серии «Русалки» английской писательни-цы Шибел Паундер, автора полюбившейся серии «Ведьмочки Гламбурга».
-Русалочки Битти, Мими и Зельда проводят каникулы на суше и вдруг по-лучают таинственную крабограмму. Оказывается, королева русалок Арабел-ла Скар в опасности, а в Тайной Лагуне всюду шныряют пираньи. Подругам предстоит всех спасти! (   Читать дальше...   )Жанр: Фантастика, Приключения для детейПеревод: Надежда КончаФормат: EPUB
+01.  Sam Laxton feat. Noire Lee  -  Thunderstorm (Extended Mix)  5:30
+02.  Nitrous Oxide feat. Jess Morgan  -  Golden Horizon (Extended Mix)  7:01
+03.  A.R.D.I. & Anna Lee feat. Natalie Gioia  -  We Are Believers (Original Mix)  6:04
+04.  Craig Connelly feat. Kate Miles  -  Lost Without You (Extended Mix)  6:54(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:12:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14F75D43C949BFA3C6FAA9E79CA1309C0857AEF9
+magnet:?xt=urn:btih:02636FECFFE5BC24C127FCA2D9F6A5F16A6E88C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,28 +218,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126385   (766375) от 17.04.2017
+###  Публикация: 1214699   (763990) от 22.03.2018
 
-Lillian Boutte & Christian Willisohn - Lipstick Traces: A New Orlean RnB Session (1991) [FLAC|Lossless|tracks + .cue] <Piano Blues, New Orlean Blues>
+Журнал | Рецепты на ура [Украина] №1 (2018) [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766375.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lipstick Traces (3:07)
-02. Why Don't You Do Right? (4:24)
-03. One for the Highway (3:24)
-04. Music is My Life (4:56)(   Читать дальше...   )Жанр: Piano Blues, New Orlean BluesПродолжительность: 00:52:59
+Замечательный журнал, предлагающий шедевры кулинарии от читателей. Ежемесячно на страницах журнала — более 300 коронных блюд, которые многократно проверены опытными хозяйками и
+которые можно смело брать в свою коллекцию рецептов тем, кто любит баловать родных и удивлять гостей. С помощью журнала можно запросто составить меню на каждый день и для праздничного
+стола.Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB8A6D1AECE529039892320AC4A1B0F8CE29BE50
+magnet:?xt=urn:btih:E99FC50E000163D6F535E4F06ECF086B9E38BC85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,43 +246,96 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126328   (766376) от 17.04.2017
+###  Публикация: 1214712   (763991) от 22.03.2018
 
-File Juicer 4.56 [Multi/Ru]
+Обои - Сборник разнообразных обоев 3840x2160 #092 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка картинок на различную тематику.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE3D19E71A5BA45EFF46BDD96AA5B44959280FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214610   (763992) от 22.03.2018
+
+The Crown - Cobra Speed Venom (2018) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763992.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Destroyed By Madness
+2. Iron Crown
+3. In The Name Of Death
+4. We Avenge!(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357ACA16C0257ABAC181FAD42C9E36854A342637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214566   (763993) от 22.03.2018
+
+Люди Икс: Начало. Росомаха / X-Men Origins: Wolverine (2009) HDRip [H.264] [MP4|1280x546]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о неистовом и романтичном прошлом Росомахи, его сложных отношениях с Виктором Кридом и о зловещей программе Оружие Х. При этом Росомаха встречается со многими мутантами, уже знакомыми и новыми, и узнает несколько легенд о мире Людей Икс.Производство: США, ВеликобританияЖанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Гэвин ХудАктеры: Хью Джекман, Лив Шрайбер, Дэнни Хьюстон, Уилл Ай Эм, Линн Коллинс, Кевин Дюран, Доминик Монахэн, Тейлор Китч, Дэниэл Хэнни, Райан Рейнольдс, Тим Пакок, Джулия Блейк, Макс Каллен, Аарон Джеффри, Майкл-Джеймс Олсен, Питер О’Брайэн, Трой Сиван, Элис Паркинсон, Филип А. Паттерсон, Стефен АндертонПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), Английские (полные)Продолжительность: 01:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A235488F36C5DD9240D2EE545AF8CADBAE7488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214550   (763994) от 22.03.2018
+
+Mellel 4.1.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766376.jpg" />
-</div>
-
-
-###  Подробнее
-
-File Juicer - уникальная программа, позволяющая извлекать мультимедийные документы, вложенные в другие файлы.  Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF,, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
-
-File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17 апреля 2017Разработчик: Echo OneПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F675309D4FCDE3C06D93BFE7A51091329275374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126227   (766377) от 17.04.2017
-
-Mellel 3.5.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766377.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763994.jpg" />
 </div>
 
 
@@ -180,11 +343,11 @@ Mellel 3.5.2 [Multi/Ru]
 
 Mellel – продвинутый мультилингвистический текстовый редактор, созданный специально для студентов, писателей, журналистов и всех, кто хочет комфортно набирать текст.
 
-Mellel предлагает специальные инструменты для написания и оформления длинных документов. Mellel отличный выбор для работы с документами на арабском, персидском, иврите и сирийском языках. Но даже если (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: ноябрь 2016Разработчик: Ori RedlerПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский и др.
+Mellel предлагает специальные инструменты для написания и оформления длинных документов. Mellel отличный выбор для работы с документами на арабском, персидском, иврите и сирийском языках. Но даже если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2018Разработчик: RedleXПоддерживаемая ОС: OS X 10.6 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63F1EC4F8DEC1AFA945C902E71E651AEA31E13E6
+magnet:?xt=urn:btih:C078C7F1468B5C493FFBE4BFD3E047E7E6040D7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,28 +355,192 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125923   (766378) от 17.04.2017
+###  Публикация: 1214709   (763995) от 22.03.2018
 
-Akoma - Revangels (2017) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic, Gothic Metal>
+Обои - Desktop Wallpapers Full HD. Part (160) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA9209A2227B0A05D75602048A83C02CAC8ACC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214713   (763996) от 22.03.2018
+
+Обои - Сборник разнообразных обоев 3840x2160 #091 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763996.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE021F7B882D0748A6356CDB0F4ACDE5130DF08E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214464   (763997) от 22.03.2018
+
+VA - Best Club Hits of February (2018) [MP3|320 Kbps] <Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Active Surfers - Everyday In My Lie (Original Mix)
+02. Froidz - Easy Lover (Danny Dove Remix)
+03. Newclaess - Be The One (Extended Mix)
+04. Luis Fonsi & Demi Lovato - Echame La Culpa (Nejtrino & Baur Remix)(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 04:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6EBCA16C92B30BDDD2B3B519F47B1CD11E2279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214510   (763998) от 22.03.2018
+
+VA - Best Vocal Trance 2018 Vol.2 (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Phil Dinner  -  Playing With Your Heart (Extended Mix)  7:04
+02.  Maes-tro & Christine Tran  -  Ocean Tides (Giuseppe Ottaviani Remix)  6:33
+03.  Aly & Fila with Sue McLaren  -  Surrender (Extended Mix)  7:29
+04.  Costa feat. Veronica K  -  The Missing Piece (Extended Mix)  7:00(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB880286EA599228E10090159E8633762827AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214721   (763999) от 22.03.2018
+
+Журнал | Моя прекрасная дача №5 (март 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92AEB9EEEC4C5FF5D91154305325BFB9FD8DEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214503   (764000) от 22.03.2018
+
+Векторный клипарт - Happy Easter holiday with eggs and bunny #5 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С праздником Пасхи
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B16F8964E5CA5854F25C2310AB2CC25810E3CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214572   (764001) от 22.03.2018
+
+Millennium - Awakening (Japanese Edition) (2018) [FLAC|lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766378.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enticing Desire (4:34)
-02. Revangels (feat. Liv Kristine) (4:36)
-03. Change Of Propensity (5:29)
-04. Mesopotamia (4:37)(   Читать дальше...   )Жанр: Symphonic, Gothic MetalПродолжительность: 00:45:24
+01. False Reality (04:39)
+02. Rise Above (03:53)
+03. Searching (05:32)
+04. The Spell (00:45)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D18B5FB8067005CFA3676A6654B69508FFEB6DE
+magnet:?xt=urn:btih:30FBDE5272EBD017A8C42A7E4056BE91C581F78D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,84 +548,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126357   (766379) от 17.04.2017
+###  Публикация: 1214515   (764002) от 22.03.2018
 
-Freddy Cole - He Was The King (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy To Remember (6:01)
-02. Exactly Like You (4:30)
-03. Funny (Not Much) (6:05)
-04. That's My Girl (3:06)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFA70E6D7083EDC595C59162B95E4C15FF56714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126383   (766380) от 17.04.2017
-
-Jocelyn & Chris Arndt - Go (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Footprints On The Moon  (03:43) 
-02. Ready Steady Go  (03:08) 
-03. Home  (03:38) 
-04. Bad Business  (04:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3EB4B4683D8CC212CEEA4E762BE3A9E36A6B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126135   (766381) от 17.04.2017
-
-Fantastical 2 - Calendar and Reminders 2.3.6 [Multi]
+Ontal - Amass (2017) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Rhythmic Noise>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766381.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fantastical 2 — продвинутый календарь-органайзер для Mac OS X
-Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.  Основным отличием от аналогичных программ такого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28 марта 2017Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11.5 +Язык интерфейса: Английский, Испанский, Итальянский и др.
+01. First Sign (06:32)
+02. Improvidence (05:48)
+03. M134 (06:21)
+04. Defeated Obstacles (04:27)(   Читать дальше...   )Жанр: Techno, Industrial, Rhythmic NoiseПродолжительность: 01:03:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A482765516C72AA77F44DFE141A4E2AA779AB6D
+magnet:?xt=urn:btih:F7677DC8B227863DBA592201A5BF6DEB8AEBCC85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,27 +577,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126151   (766382) от 17.04.2017
+###  Публикация: 1214500   (764003) от 22.03.2018
 
-Формула 1. Гран-при Бахрейна 2017. 3-й Этап. Гонка (16.04.2017) WEB-DL [H.264/720p-LQ] [UKR]
+Векторный клипарт - Happy Easter holiday with eggs and bunny #10 [EPS]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766382.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 апреля 2017 года, воскресенье. 18:00 (за Киевом).
-Гран-при Бахрейна – относительно молодой этап, появившийся в календаре Формулы-1 в 2004-м году.
-Гонка проводится вечером, при искусственном освещении, когда температура воздуха и асфальта начинают снижаться.Жанр: СпортЯзык озвучки: УкраинскийСубтитры: отсутствуютПродолжительность: 01:55:47
+Векторный клипарт для дизайна.
+С праздником Пасхи
+9 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2295937CD33CF2864BE1A3E7DB49FF55C07BD36F
+magnet:?xt=urn:btih:C5BE24F192602003B4EA35780A70E934B19D873B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,28 +605,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126248   (766383) от 17.04.2017
+###  Публикация: 1214498   (764004) от 22.03.2018
 
-VA - Vocal House Maniacs, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
+Векторный клипарт - Happy Easter holiday with eggs and bunny #6 [EPS]
 
->>Electronic
->>House
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766383.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Midnight Express - Freedom (feat Sabrina Johnston - Midnight Express Dream mix) 05:46
-02. Robbie Act - I Want You 03:53
-03. Niko Deejay - Black Queen Black Machine (feat Janet Gray - Funky version - Piano Chic) 06:11
-04. Blade/Masquenada Family - Private Life (feat Noel McCalla - Frank Dancers Demosphere remix) 05:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:02:51
+Векторный клипарт для дизайна.
+С праздником Пасхи
+9 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDD22F335462A39A5E18921EF1BDF20B0CBC49FF
+magnet:?xt=urn:btih:D51C38A58DFBEFDBAF3C85C09513D0C1DA838406
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,28 +633,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126221   (766384) от 17.04.2017
+###  Публикация: 1315778   (764005) от 03.01.2022
 
-VA - Ambient Chill. Alternative Relaxing Background (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Graph Messenger (ex. Telegraph) T8.4.2-P9.6-2527x Mod [Ru/Multi] - неофициальный клиент Telegram (обновляемая)
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766384.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drew Cox - Lake in Autumn
-02. Lord Kobe - You are the Light
-03. Toni Verde - Reminiscences
-04. Under Zero - Live Your Dreams(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:16
+Неофициальное приложение для обмена сообщениями, которое использует API Telegram. На сегодня наверное самый функциональный клиент Telegram из всех. Кастомизация всего и вся. Поддержка https прокси. Изменение голоса. Теперь и все фишки от Telegram 5.x. В модификации от Alex.Strannik полностью удалена реклама,  заблокирована аналитика, встроено два актуальных перевода (   Читать дальше...   )Тип издания: Mod (перевод, нет рекламы и т.п.)Релиз состоялся: 24.12.2021Разработчик: ILMILIПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ABD69FEEF509A393A79F24C0517A1B23034F6AB
+magnet:?xt=urn:btih:03848BC58830335813618461C86FE376868A54DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,28 +659,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126203   (766385) от 17.04.2017
+###  Публикация: 1463209   (764006) от 03.01.2022
 
-iLock v2.3.3 [Multi/Ru]
+КВН-2021. Высшая лига (2022.01.02) SATRip
 
->>Архив торрентов
->>Архив 4Apple
+>>След.
+>>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766385.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iLock - защита паролем любого приложения
-iLock - небольшая утилита, которая защищает любое приложение Mac OS X от несанкционированного доступа (в том числе системное), не внося никаких изменений, как в настройки собственно приложения, так и в настроки системы.
-
-iLock очень проста в использовании. Выберите любое приложение, которое вы хотите защитить от drag'n'drop. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.04.2017Разработчик: osxbytesПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский и т.д.
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморПродолжительность: 01:56:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D68D5D0F181B6E58D222F4C1AD446677686B297A
+magnet:?xt=urn:btih:B2816B6EB5463E26E5E1CF7C726EB4CC326CD383
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,307 +685,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126310   (766386) от 17.04.2017
+###  Публикация: 1521283   (764007) от 03.01.2022
 
-Memphis Slim - World's Foremost Blues Singer (1961) LP, Remastered, 2016 [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Гарри Поттер 20 лет спустя: Возвращение в Хогвартс / Harry Potter 20th Anniversary: Return to Hogwarts (2022) WEB-DL [H.264/1080p] [MVO]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766386.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lonesome  (02:31) 
-02. Cold Blooded Woman  (03:42) 
-03. One Man's Mad  (02:54) 
-04. Good TIme Roll Creole  (02:39) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:53
+Дэниэл Рэдклифф, Руперт Гринт и Эмма Уотсон встретятся со своими коллегами и впервые за долгие годы окажутся в стенах Хогвартса.Производство: США, Великобритания / Casey Patterson Entertainment, Pulse, Pulse Films, Warner Bros. Television, Warner Horizon Television, Warner Horizon Uned TelevisionЖанр: документальный, семейныйРежиссер: Эрен Криви, Джо Перлман, Джорджо ТестиАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Джейсон Айзекс, Рэйф Файнс, Хелена Бонем Картер, Гари Олдман, Альфред Энок, Бонни Райт, Эванна Линч, Робби Колтрейн, Том Фелтон, Крис Коламбус, Мэттью Льюис, Имелда СтонтонПеревод: Профессиональный, многоголосый (Amedia)Субтитры: АнглийскиеПродолжительность: 01:42:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B85A6B66DC68146A2999EE287DA5B2439EE3EF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125931   (766387) от 17.04.2017
-
-Макс Эллар Фартушный - Gamers Soundtracks Vol. 2 (2017) Авторская раздача [OGG|~320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В перекрестье прицела [1:58]
-02. Эхо битвы [1:36]
-03. Призыв в бой [1:43]
-04. Фраг мой [2:57](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA8C0707154760955874F6D757761C070094A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126116   (766388) от 17.04.2017
-
-VA - The Best Of Trance Vol.53 (2017) [MP3|320 Kbps] <Trance,  Uplifting, Tech Trance, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Talla 2XLC & Allen Watts - Helix (Extended Mix)  6:01
-02.  James Dymond & Chris Schweizer - Spectrum (Extended Mix)  7:34
-03.  Allen Watts & Katty Heath - Break Without The Pain (Dub)  6:21
-04.  Mhammed El Alami - Memories (Ahmed Romel Remix)  6:52(   Читать дальше...   )Жанр: Trance,  Uplifting, Tech Trance, Emotional, Blissful, HarmonicПродолжительность: 02:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8225ED8D1DE3A7FE492DE829C8E79EF09E8916CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126128   (766389) от 17.04.2017
-
-VA - The Best Of Trance Vol.54 (2017) [MP3|320 Kbps] <Trance, Uplifting, Tech Trance, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alan Morris - Digital Eye (Extended Mix)  7:12
-02.  Omniks - Faceless (Victor Tayne Remix)  7:10
-03.  NoMosk - Journey (Original Mix)  6:31
-04.  Sam Laxton - Local Anaesthetic (Extended Mix)  6:13(   Читать дальше...   )Жанр: Trance, Uplifting, Tech Trance, Emotional, Blissful, HarmonicПродолжительность: 03:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2295AA83414577A41A858DAEF566177750400D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126245   (766390) от 17.04.2017
-
-Юмэдзи / Yumeji (1991) BDRip [H.264] [MP4|964x576]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — поэт и художник Юмэдзи Такехиса. Фильм — сюрреалистическая фантазия по мотивам творчества и личной жизни художника, в которой нашлось место и призракам, и легкой детективной интриге, и рефлексии на тему поиска идеала красоты…Производство: Япония, Genjiro Amato PicturesЖанр: ужасы, драмаРежиссер: Сэйдзюн СудзукиАктеры: Кэндзи Савада, Томоко Мария, Масуми Миязаки, Тамасабуро Бандо, Ёсио Харада, Кадзухико Хасегава, Реона Хирота, Акадзи МароПеревод: Одноголосый закадровый (den904)Субтитры: Русские (full), Английские (full)Продолжительность: 02:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649C78AA5936038A0A5A21FABE24C6784188D8E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126206   (766391) от 17.04.2017
-
-Hurricane Ruth - 2 Album (2015 - 2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766391.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 - Winds of Change (EP)
-2017 - Ain't Ready for the GraveЖанр: Blues-RockПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BF263D803AC53F7CAF33ECAAD2E9D00FE0BC75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125720   (766392) от 17.04.2017
-
-Формула 1. Сезон 2017. Гран-при Австралии. 1-й Этап (2017) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766392.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 марта 2017 года - 26 марта 2017 года
-Формула 1. Сезон 2017. Гран-при Австралии. Этап 1. Мельбурн (Австралия)
-1. Свободная практика 1
-2. Свободная практика 2(   Читать дальше...   )Телекомпания: Холдинг "Матч ТВ"Жанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:07:20 - 01:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3154C0C593C2C6AF1019BAF6723302C3637A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125946   (766393) от 17.04.2017
-
-VA - Transmission Express Vol.2 - Electro House (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  George Morillo - Bass Boobing  7:26
-02.  Cass & Mangan - Bible Belt (Cass & Mangan Play Early)  7:24
-03.  Daniel Forbes & DJ Mogwai - Underground Technology (Quinten de Rozario Tek Remix)  7:06
-04.  Adrian Davis - Burning Boy (Ztarbuc Remix)  6:54(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52F298DA4CA4BE5600F0CA9EBE4C99221DCC1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126273   (766394) от 17.04.2017
-
-Doo - Get Things Done 2.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Списки дел и напоминания.
-*** Отмеченный Apple, как одно из лучших новых приложений для  iOS **
-
-ФУНКЦИИ(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 апреля 2017Разработчик: Ciarlo Software, LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC4C75B338DD30FC72A72B88CCEF2D52C329EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 202627   (766402) от 21.05.2010
-
-"Авария" - дочь мента (1989) DVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДрамаРежиссер: Михаил ТуманишвилиАктеры: Оксана Арбузова, Владимир Ильин, Анастасия Вознесенская, Николай Пастухов, Любовь Соколова, Александр Потапов, Игорь Нефедов, Мария Виноградова, Алиса Признякова, Валентина Березуцкая, Ян Пузыревский, Борис Романов, Олег Царев, Юрий КоротковПродолжительность: 01:33:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 201751   (766409) от 21.05.2010
-
-Время бешеных псов / Mad Dog Time (1996) DVD-9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владелец роскошного ресторана Вик на самом деле является главарем преступного мира по прозвищу «Бешеный пес». В соперничестве с другим крупным мафиози Мики Холлидеем он пытается установить полный контроль в клубном и игорном бизнесе. Для достижения этой цели используются все средства: от «девушек на ночь» до «русской рулетки».Жанр: Комедия, Драма, КриминалРежиссер: Ларри БишопАктеры: Эллен Баркин, Гэбриел Бирн, Ричард Дрейфусс, Джефф Голдблюм, Дайан Лэйн, Берт Рейнолдс, Ларри Бишоп, Джои Бишоп, Кайл МакЛоклен, Энджи Эверхарт и др.Перевод: Многоголосый закадровый + Оригинальный английскийЯзык субтитров: РусскиеПродолжительность: 01:32:07
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:7BE9BD910DFEF1FBB2C1F252F04953FB4A5BD3F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

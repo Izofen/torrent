@@ -1,3 +1,174 @@
+###  Публикация: 775372   (823617) от 09.04.2014
+
+VA - Pure... Love (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляю вашему вниманию очередной боксет от Sony Music (остальные части серии по ссылке ниже). Добавить к названию можно только то, что весной, конечно, найдутся у этого сборника благодарные слушатели. Ну и на здоровье!CD1:
+Продoлжитeльность: 01:06:38
+ 01. Whitney Houston - Greatest Love Of All (Remastered 2000) (4:50)
+02. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life  (4:50)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 04:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A003FEAF672D7028F928380C45A8C44422AD70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196324   (823884) от 02.01.2018
+
+VA - Сборник советских песен Мой Мотив (2007) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Москва майская - А. Соколов, Е. Кибкало
+02. Песня о Родине - И. Петров
+03. Гляжу в озёра синие - Е. Шаврина
+04. С чего начинается Родина - М. Бернес(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB701A92FFB8E5CD9FAE6BA5A92211A07DC2AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839122   (824150) от 27.11.2025
+
+VA - Echoes of the 1980s (2025) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arthur's Theme (Best That You Can Do) - Christopher Cross  - (03:54)
+ 02. Take On Me - A-Ha  - (03:49)
+ 03. St. Elmo's Fire (Man in Motion) - John Parr  - (04:12)
+ 04. Into the Groove - Madonna  - (04:45)(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 04:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F5024FB44561948BC63400611541C858B53CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116424   (824429) от 19.03.2017
+
+VA - 12 Inch Dance: 80s Remix (2017) [FLAC|Lossless|WEB|tracks] <Pop, Synthpop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Hungry Like The Wolf (Night version) 00:05:13
+02. Spandau Ballet - Chant No 1/I Don't Need This Pressure On (Remix) 2010 Remastered Version 00:08:04
+03. Howard Jones - Pearl In The Shell (12" Version) 00:08:57
+04. Blancmange - Don't Tell Me (Dance Remix) 00:06:51(   Читать дальше...   )Жанр: Pop, Synthpop, EurodanceПродолжительность: 03:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66497F42D254B320A46739731BE1DB6C01FCD48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116429   (824450) от 19.03.2017
+
+VA - 12 Inch Dance: 80s Remix (2017) [MP3|320 Kbps] <Pop, Synthpop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Hungry Like The Wolf (Night version) 00:05:13
+02. Spandau Ballet - Chant No 1/I Don't Need This Pressure On (Remix) 2010 Remastered Version 00:08:04
+03. Howard Jones - Pearl In The Shell (12" Version) 00:08:57
+04. Blancmange - Don't Tell Me (Dance Remix) 00:06:51(   Читать дальше...   )Жанр: Pop, Synthpop, EurodanceПродолжительность: 03:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14B56450C3CA1E3019B06E8D88599F0DD35DD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381786   (824463) от 08.05.2020
+
+Little Big - Hypnodancer (2020) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824463.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. HypnodancerЖанр: PopПродолжительность: 00:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CC525BE4F025237434FBF4F87CB53A0C5C6D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381788   (824476) от 08.05.2020
 
 Анита Цой - Нации победителей посвящается... (2020) [MP3|320 Kbps] <Pop>
@@ -572,180 +743,6 @@ Black Soul - Black Soul (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B68E98C3A337307CC5977D69E717A45C21BC594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381568   (826251) от 07.05.2020
-
-Dream Express - A Million In 1, 2, 3 (1977) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Million In 1,2,3 (3:03)
-02. Spinning Top (2:42)
-03. Stop The Things You're Doing (3:44)
-04. If You Feel The Way I Do (4:03)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B246E208C45DAB7B8F59ED11F77055A5B8B285AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115370   (826259) от 18.03.2017
-
-Студия-80 - Лабиринты снов (2017) [WavPack|Lossless|image + .cue] <Pop, Disco>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление (00:25)
-02. Алло (04:18)
-03. Солнце на ладони (04:28)
-04. Слезы на стекле (04:32)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AB7B7F8AE38322AEE7ED7A1048F76691FA414C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115626   (826343) от 18.03.2017
-
-НеИгрушки - Сто дней до приказа (1999) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ай-яй-яй
-02. Сто дней до приказа
-03. Ты один, я одна
-04. Я забуду тебя (Не первая любовь)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BCBF299774CF8C0EB09759CF31C53F553850C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115538   (826443) от 18.03.2017
-
-VA - Nu Disco Vol. 1 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin - Devil In My Head 06:25
-02. Ffunk - About You 03:48
-03. Nekliff & Mary Sk - First Dot (Tosel & Hale Remix) 05:58
-04. Tunnelvision - Popping Candy (Monrabeatz & Black Birdz Remix) 05:50(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 04:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D377A527A39C2CE51C84B751E318AD525E2D5FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115643   (826454) от 18.03.2017
-
-Шериф - Джулия (2002) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Джулия
-02. Не уходи
-03. Натали
-04. Скорый поезд(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208E0F5B8B7B5B2FC0A57A63B3B6F2029C8C3E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115422   (826643) от 18.03.2017
-
-Stevie B. - City Jungle (1980) LP [MP3|320 Kbps] <Funk-Soul, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ex-участник из O.R.S. (Orlando Riva Sound).01. City Jungle (5:16)
-02. Livin' In Shame (3:10)
-03. Evil You (4:01)
-04. No Remedy (3:50)(   Читать дальше...   )Жанр: Funk-Soul, Pop-RockПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC1986A273E11E98C30B3E0D3748A065C7498B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

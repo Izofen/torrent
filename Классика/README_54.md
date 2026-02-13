@@ -1,3 +1,32 @@
+###  Публикация: 1455552   (1025620) от 19.03.2021
+
+Great conductors of the 20th century - Evgeny Mravinsky (2003) 2CD [FLAC|Lossless|image + .cue] <Orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joseph Haydn - Symphony G-Dur
+01. Adagio - Allegro (6:59)
+02. Largo (5:26)
+03. Menuetto. Allegretto - Trio (4:20)(   Читать дальше...   )Жанр: OrchestralПродолжительность: 02:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA8CDA951DDC85C63EE5EE6E15A663D177D7DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455574   (1025624) от 19.03.2021
 
 French composers conduct - Henri Tomasi, Florent Schmitt, Philippe Gaubert, Maurice Ravel (2009) [FLAC|Lossless|image + .cue] <Orchestral>
@@ -721,35 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:682047CBB32775DDD1B93989EF7A3C0705C68DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437110   (1042242) от 04.01.2021
-
-VA - Relaxing 2021 [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042242.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Claude Debussy, Arturo Benedetti Michelangeli. Preludes Book 1, L. 117 8. La fille aux cheveux de lin (2:50)
-002. Frederic Chopin, Maria Joao Pires. Nocturne No. 1 in B-Flat Minor, Op. 9, No. 1 (5:36)
-003. Frederic Chopin, Maria Joao Pires. Nocturne No. 2 in E-Flat, Op. 9, No. 2 (4:29)
-004. Claude Debussy, Alexis Weissenberg. Suite bergamasque, L. 75 III. Clair (   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43CF3FA0A6501D28C0AFCABF86AE822688AB87DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

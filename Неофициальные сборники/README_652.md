@@ -1,3 +1,61 @@
+###  Публикация: 1484309   (1006116) от 19.07.2021
+
+VA - Record Super Chart 17.07.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (3:20)
+02. Markul, Джарахов - Я в моменте (2:06)
+03. Nessa Barrett feat. jxdn - la di die (3:15)
+04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C5BEA4B54B02613927134D0B6F79DCF4B62167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483744   (1006598) от 15.07.2021
+
+VA - Громкие новинки Июля (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. StaFFорд63, Яна Вайновская - Лебединая (2:52)
+02. Kane Brown, blackbear - Memory (2:33)
+03. Justin Bieber, The Kid LAROI. - Stay (2:21)
+04. DAVA - ОДИНОКИЙ ДЭНС (2:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE96EFC43E4831CBE434C8004A76A348321CF6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483456   (1006778) от 14.07.2021
 
 VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
@@ -687,64 +745,6 @@ VA - Exotic Ethnic House (2021) [MP3|320 Kbps] <Ethnic house, electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C871E80209A70DBF0035A4BFF409F3D6514C0AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482077   (1007777) от 07.07.2021
-
-VA - Beatport Funky House: Sound Pack #312 (2021) [MP3|320 Kbps] <Funky, Disco House, Jackin House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007777.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elektromekanik - Over You
-002. Jonk & Spook - Get Down
-003. True2life - Bomb Jack 3
-004. Paul Parsons - We Know The Groove(   Читать дальше...   )Жанр: Funky, Disco House, Jackin HouseПродолжительность: 08:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AEAFBA5EA62BD166998274B66311B38703BE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482081   (1007786) от 07.07.2021
-
-VA - Beatport Tech House: Sound Pack #313 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007786.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Julian Iannone - Eclipse
-002. Greg Delon - Cezar
-003. Rex The Dog - Crasher
-004. Roc - Vocalicious(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5AE8A85813AE54232847688DBDE4348C5EC767
 ```
 
 https://mybot314.ru/tekegram_catalog/

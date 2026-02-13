@@ -1,3 +1,32 @@
+###  Публикация: 1119132   (809276) от 27.03.2017
+
+VA - Ibiza Deep House 2017 Opening (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Performative Mode - Path of Motions 07:22
+02. Kenny Laakkinen - With the Lights Out - Extended Mix 04:57
+03. Vykvet - Balance Rhodes - Fake Bear Deepfried Remix 05:42
+04. Nolan - Song for JT 05:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 07:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6C5936D9E557AD49218BCF666E774A569D75A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119139   (809296) от 27.03.2017
 
 VA - Just Chilling Effects (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -713,35 +742,6 @@ Moby - All Visible Objects (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45DF55518D8F5C17A894CD357D75D870597C33DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383379   (811578) от 15.05.2020
-
-VA - Progressive Fullon Trance 2020 Top 40 Chart Hits, Vol. 3 DJ Mix 3Hr (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811578.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Goa Doc; psytrance; Psychedelic Trance - Progressive Fullon Trance 2020 Top 40 Chart Hits, Vol. 3 (3Hr DJ Mix) (3:00:00)
-2. Predators - Planet X (Progressive Fullon Trance 2020 Vol 3 DJ Remixed) (5:57)
-3. Ananda Shanti - Krishna Is The Original Source (Progressive Fullon Trance 2020 Vol 3 DJ Mixed) (6:38)
-4. Biocycle - Infinite Atoms (Progressive Fullon Trance (   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 06:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E9112CD6BB0EA29CC2F2027072104CB2080FC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,189 @@
+###  Публикация: 975115   (973213) от 14.01.2016
+
+Julio Iglesias - La Carretera (1995) [FLAC|Lossless|tracks + .cue] <Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Carretera (4:42)
+02. Cosas De La Vida (3:55)
+03. Baila Morena (3:50)
+04. Derroche (3:37)(   Читать дальше...   )Жанр: BalladПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D909E52CBEF9BEA951870F33B5B1288D99D2AC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975069   (973297) от 14.01.2016
+
+Ronan Keating - Destination (2002) SACD [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I love it when we do (3:40)
+02. Love won't work (3:40)
+03. If tomorrow never comes (3:39)
+04. Come be my baby (3:50)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDA543A1BCF030E7D6ABE515B62821046CA92E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974852   (973357) от 14.01.2016
+
+Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpop, Electropop, Ska Revival>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detonator
+02. I Spy
+03. The Devil's Radio
+04. Nostalgia(   Читать дальше...   )Жанр: Britpop, Electropop, Ska RevivalПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616827   (973418) от 11.02.2013
+
+Gipsy Kings - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Pop, Rumba, Flamenco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973418.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:01. Escucha Me
+02. Passion
+03. Bem, Bem, Maria
+04. Volare
+05. Canastero
+06. Oh Eh Oh Eh
+07. Ternuras
+08. Come Siento Yo
+09. Petite Noya
+10. Trista Pena(   Читать дальше...   )Жанр: Pop, Rumba, FlamencoПродолжительность: 01:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1BE509804BEF7340766068776E1855FC43AA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616430   (973633) от 11.02.2013
+
+Talking System - In My Backstreet Heaven (2008) / 2009 [WavPack|Lossless]<Pop, Synth-pop, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (In My) Backstreet Heaven [03:08]
+02. My Bed Is Too Big [03:24]
+03. Sexy Sexy Lover [03:39]
+04. Doctor Mabuse [04:52]
+05. Ready For The Victory [03:37]
+06. Lucifer [03:30]
+07. You Are Not Alone [03:43]
+08. Sorry Little Sarah [03:13]
+09. China In Her Eyes [03:46]
+10. Deja Vu [03:32]Жанр: Pop, Synth-pop, EurodanceПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357388   (974266) от 03.02.2020
+
+Mike Mareen - Let's Start Now (Deluxe Edition) (2017) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974266.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Don't Talk To The Snake 8:02
+2 Let's Start Now 7:32
+3 Africa 5:37
+4 Agent Of Liberty 4:22(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568360224F016BADFC091115FDFEB831AC6ED644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357381   (974328) от 03.02.2020
 
 Okay - Bang! (2011) [FLAC|Lossless|image + .cue] <Synth-pop, New Beat>
@@ -637,176 +823,6 @@ Liz Mitchell (Ex-Boney M) - Let It Be (2004) [MP3|320 кб/с]<Pop,Disco,Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF87158B6D041B9A491153E1234F04889AEEC352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356671   (977737) от 31.01.2020
-
-Savage - 2 Сингла (2019, 2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синглы:
-Magic Carillon - 2019
-I Love You - 2020Жанр: Italo-Disco |Продолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7E2B0F9777673545EAAFBC560C83B781B53CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356507   (977848) от 31.01.2020
-
-VA - From Disco to Disco 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whomadewho - The Divorce (4:36)
-02. No Gods - Purpose (6:08)
-03. Enzo Elia - Volpinata (7:31)
-04. Roter & Lewis - Better Days (5:52)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B634B29233CBC31889D061EA04ED7E1E4343A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356637   (977948) от 31.01.2020
-
-Гречка - Из доброго в злое (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977948.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Героев
-2. В моей квартире
-3. Русская тоска
-4. Гранжстайл, Ч. 2(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535DF46A56EE40DBB50DD3C09BC0F912789528B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437412   (977956) от 17.01.2012
-
-Mirko Hirsch - Obsession (2011) [MP3|320 kbps]<Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DiscoПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB8411123B228ECB43C94446952B2AD00CC706E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973764   (978186) от 10.01.2016
-
-VA - 3am Collection: Grooves, Hits, Party (2004) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kool & The Gang – Celebration
-02 The Buggles – Video Killed The Radio Star
-03 The Jackson 5 – ABC
-04 Diana Ross – I'm Coming Out(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D3627DC0F95458DD18716293E7611D643C23B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138619   (978445) от 30.01.2020
-
-VA - Школьные годы (2002-2003) [MP3|2 CD] <Детские, школьные песни>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Светлана Крючкова - Черное и белое [2:23]
-02. Эдуард Хиль - Чему учат в школе [1:50]
-03. Пламя - Детства последний звонок [3:58]
-04. Детская хоровая студия "Дружба" - Звени, звонок [3:40](   Читать дальше...   )Жанр: Детские, школьные песниПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70E6C3A5CD6E1D2A6FBAE0DD60B61492EAAC3D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

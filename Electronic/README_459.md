@@ -1,3 +1,32 @@
+###  Публикация: 1494687   (887852) от 08.09.2021
+
+VA - Luminosity Beach Festival, Netherlands (2021) [MP3|128-320 Kbps] <Trance, Progressive House, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Activa @ Beachclub Bronze, Luminosity Beach Festival, Netherlands 2021-08-20(128Kbps):
+01. Activa - The Lost Language (Original Mix)
+02. Orkidea & Activa - Z21 (Activa’s ‘Origins’ Remix)
+03. Alex Daf - Back To Life (Activa Rework)(   Читать дальше...   )Жанр: Trance, Progressive House, Hard DanceПродолжительность: 17:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB29DB2BBB7ACDCCBCDC8057B03BB6DC103778C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103025   (887894) от 11.02.2017
 
 VA - Cr2 Live & Direct Presents: Secondcity (2017) [FLAC|Lossless|Web-DL|tracks+image] <Deep House>
@@ -713,35 +742,6 @@ VA - Mystic Traveller Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CACFD3DF9B9F3411AF40A4093289E91B3C904CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994430   (889623) от 08.03.2016
-
-VA - Die Hit-Giganten: Pop and Wave Hits Der 80er (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <SynthPop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. a-ha - The Sun Always Shine on TV (5:05)
-02. ABC - The Look of Love (3:29)
-03. Level 42 - Lessons in Love (4:01)
-04. Gazebo - I Like Chopin (4:50)(   Читать дальше...   )Жанр: SynthPop, New WaveПродолжительность: 02:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54A8E5DCFEE57BABBC1624F183BEB9B4C072EB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

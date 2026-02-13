@@ -1,3 +1,221 @@
+###  Публикация: 1259317   (320852) от 03.11.2018
+
+Экшены - Newspaper Print Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Newspaper Print - превратит ваши изображения в стильную композицию из слов, печатных оттисков и обрывков газеты. Печать и эскиз впечатляющих работ со множеством элементов и вариантов для настройки и улучшения.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD7EDF9B0D67F4C077775CE2A8D25A575E9CB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958768   (321237) от 22.11.2015
+
+Векторный клипарт - Vintage Labels Vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторные шаблоны для дизайна.
+Набор этикеток в винтажном стиле.
+2 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3D720A66B318F9F80BF95CF1748454D7CD0175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958853   (321242) от 22.11.2015
+
+Векторный клипарт - Christmas background with gold magic stars [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторные шаблоны для дизайна.
+Рождественский фон с золотыми звездами.
+2 AI | 10 EPS | + JPG PreviewФормат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D188679CE1629DC7A7F433ED1F1EC058C32BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958881   (321249) от 22.11.2015
+
+Векторный клипарт - Vector Christmas decorations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декоративные шаблоны для дизайна.
+Векторные новогодние декорации.
+10 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56010FAF408D30EECE10E614C083A83E60F7C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181961   (321303) от 08.11.2017
+
+Шаблоны - Creative Market - Future CD Cover Artwork [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шаблона обложки компакт-диска предназначен для создания собственного неповторимого альбома.Формат: PSDРазрешение файлов: 1441x1441-1847x1469
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8395C4BBAF0DF7ACB53F5C98A87F840042351BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181800   (321312) от 08.11.2017
+
+Векторный клипарт - Certificate vector template luxury [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Сертификаты - стильные векторные шаблоны
+16 files EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321E8D51D5C17FA9D911E4023B1114EBD7E6CCFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181954   (321313) от 08.11.2017
+
+Шаблоны - Creative Market - CASSETTE MOCK UP 2 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кассетный макет для фотошопа.Формат: PSDРазрешение файлов: 3500x2800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F451A7206336D18C69A189847A5434021DDD5A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181805   (321315) от 08.11.2017
+
+Фоны - Christmas backgrounds - Christmas composition [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодние фоны
+Новогодние композиции
+12 JPGФормат: JPG, PNGРазрешение файлов: 2700x737-5000x5008
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40024A9542B893598DEB892AB2C22C982356815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181947   (321317) от 08.11.2017
 
 Шаблоны - Creative Market - 6 Cap Mock-up [PSD]
@@ -474,216 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88AF996FDADFF20D57ACC28BDC7166A305C1A91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261952   (322201) от 28.11.2010
-
-3D Модели - DOSCH 3D Transport 2010 [.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей авто от DOSCH 3D. 20 детализированных с текстурами моделей грузовых авто, легкого коммерческого транспорта и прицепов различных типов.
-
-примеры моделей http://www.dosch3d.com/pdfoverviews/D3D-TRP2010_pdf.pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CDBBBC939A1C7E7577616517B99F267E279921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075110   (322283) от 21.11.2016
-
-Скрипты - VideoHive - Particle Graphy Studio [JSXBIN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Particle Graphy Studio - это сценарий для After Effects на основе футажей и картинок с альфа-каналом. Это первая выпущенная версия скрипта.Формат: JSXBIN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BB5DD05B6ACE27B89E0E011E2DDF2B03D1960F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074969   (322494) от 21.11.2016
-
-Шаблоны - GraphicRiver - Logo 3D Mockup [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logo 3D Mockup - шаблон презентационного проекта 3D логотипа компании.Формат: PSDРазрешение файлов: 3000x2000 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE1F25ED84499F4C0A80D3D2AB99828DE8C3228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075223   (322608) от 21.11.2016
-
-Экшены - GraphicRiver - Urban Sketch - Photoshop Actions - 17968440 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Urban Sketch - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0BF4FE6FD6A7215EB3345D6E3089D28A69C88D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075035   (322609) от 21.11.2016
-
-Шаблоны - GraphicRiver - DJ - Flyer Template [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322609.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ - Flyer Template - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3579x2551 и 2551х3579 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E0018FA4BAAE37DDBADC9977665D756C9F72AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074950   (322631) от 21.11.2016
-
-Экшены - Summerana - Celestial Bokeh - Photoshop Action and Brush Collection [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celestial Bokeh Brush - экшен с эффектом боке для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45643E2906B911E00E9FC1CE335E4D878BEED0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074807   (322773) от 21.11.2016
-
-Шаблоны - GraphicRiver - Barber Shop Flyer [PSD, AI]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Barber Shop Flyer - шаблон для Вашего творчества.Формат: PSD, AIРазрешение файлов: 2551х3579 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2989A17F817508C12D4D629ED25786B27102B874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074991   (322823) от 21.11.2016
-
-Экшены - Summerana - Colorosity Lights - Photoshop Action Collection [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Colorosity Lights - Одним щелчком мыши легко наложит действие, которое добавит дополнительный шарм в любой образ!Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB75D2763DB4266F22B3910986B7ADAAE8B2715
 ```
 
 https://mybot314.ru/tekegram_catalog/

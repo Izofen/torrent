@@ -1,3 +1,32 @@
+###  Публикация: 1024730   (716126) от 09.06.2016
+
+Midori - Mellow - Relaxation Piano (2014) [FLAC|Lossless|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clarity [00:08:22]
+ 02. A Promise of Love [00:05:08]
+ 03. Love Is All We Need [00:06:20]
+ 04. Peace [00:06:36](   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45EB9B8D0CECCAC04381966207FF7F7B93FF69F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023598   (716127) от 09.06.2016
 
 Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
@@ -712,35 +741,6 @@ Scotch On The Rocks - The Songs Of Anfield Road (2002) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2035890401F2CFA411BE311B28BF8787FC466EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285486   (718929) от 27.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 6 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight Of The Bumble Bee / Hungarian Dance No. 5 / Light Cavalry Carmen
-02. Blue Moon
-03. Holy Halls
-04. Here, There and Everywhere/ Hey Jude(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43C24CC7767FC64943BB14D2807763F45A5639F
 ```
 
 https://mybot314.ru/tekegram_catalog/

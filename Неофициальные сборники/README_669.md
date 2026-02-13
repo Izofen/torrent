@@ -1,3 +1,61 @@
+###  Публикация: 1454109   (1026604) от 13.03.2021
+
+VA - Music News vol.81 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estradarada feat. Danny Wheels - Ради Тебя (04:02)
+ 02. Adam Maniac - Vitamins (02:40)
+ 03. Au5 feat. HALIENE - Was It You (04:46)
+ 04. Banchi - Не Держи (02:29)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CCF2FF9587F48D4FD73C169260B743D7D24257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453996   (1026617) от 13.03.2021
+
+VA - German Top 100 Single Charts 12.03.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
+02. Bausa & Apache 207 - Madonna
+03. Luciano - PEPPERMINT
+04. Capital Bra - Aventador (feat. Jamule)(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF239CCE235BEF43A995FBF4BF89555E8BEFBCC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453874   (1026741) от 12.03.2021
 
 VA - ЕвроХит Топ 40 Europa Plus 12.03.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -684,64 +742,6 @@ VA - 8 марта: Золотые хиты (2021) [MP3|~245 Kbps (V0)] <Pop, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E35BE00A19C2947777693126867C46472DC541D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452151   (1027897) от 05.03.2021
-
-VA - Новички в попсе Vol 7 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GAVRILINA - Ближе к звёздам (1:55)
-02. Свят - Меняли нас (2:00)
-03. Шейх Мансур - Мы сияли (2:02)
-04. Real girl - Пару минут (2:12)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9AA537BA2C49368ADCAE5B3898CF64A3326A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452266   (1027913) от 05.03.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 05.03.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta, Sia - Let's Love (3:20)
-02. Dotan - Numb (3:38)
-03. Tiesto - The Business (2:43)
-04. Meduza & Dermot Kennedy - Paradise (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4536676966E51870ADAB714121F2044E1E383562
 ```
 
 https://mybot314.ru/tekegram_catalog/

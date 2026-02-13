@@ -1,3 +1,32 @@
+###  Публикация: 1101608   (894785) от 07.02.2017
+
+VA - Apres Ski Vocal House (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Mode - Never Stop (Club Remix) 04:31
+02. Istanbul Disco Mafia - Be Yourself (Feat. Funky C) 03:27
+03. Melih Aydogan - Stay 03:45
+04. Viktor Martini - Real Love (Feat. Black Ruby) 05:28(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, ProgressiveПродолжительность: 02:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A251213A5FD0576F4D5D63670129E1468E7386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101319   (894792) от 07.02.2017
 
 VA - Look Back To See The Future (2017) [MP3|320 Kbps] <House>
@@ -721,35 +750,6 @@ Igorrr - Spirituality and Distortion (2020) Metal Blade Records [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E247B81CA3FE6D32B9E4AC3B41562AA8D9ACFAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370336   (896907) от 27.03.2020
-
-VA - Awareness of Progressive, Vol. 1-4 (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Symphonix - Crystal Black (5:48)
-2. GHOST RIDER - Majesty (7:02)
-3. Ranji; Jilax - Away (7:21)
-4. Metronome - Journey Inside Yourself (Symphonix Remix) (6:07)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 04:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6199DD14B4A77A5CAAE4FD451AB87A3168B43BEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

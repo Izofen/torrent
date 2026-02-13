@@ -1,3 +1,32 @@
+###  Публикация: 1282368   (745329) от 12.02.2019
+
+VA - The Morning Light/Beautiful Relaxation Music To Start My Day (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Ambient, Meditation>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabrizio Marioni - Viaggio Di Primavera (Original Mix) 2:58
+02. Marga Sol - The Lost Garden (Original Mix) 5:06
+03. Marga Sol - Golden Sunrise (Original Mix) 4:53
+04. Fabrizio Martini & Eric Buffat feat. Vittorio Giannelli Savastano - Purple 3:38(   Читать дальше...   )Жанр: Downtempo, ChillOut, Ambient, MeditationПродолжительность: 01:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D3B80480733DB8701F0FCBC0ABA975EDCD1D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282462   (745331) от 12.02.2019
 
 Noraus - Noraus (2019) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
@@ -704,35 +733,6 @@ VA - Good Old Days Vol 3: Disco House Sounds (2019) [MP3|320 Kbps] <Disco, Nu-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8A5388C33F3967DCCA8757FB56BF0B3A91A63F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396410   (746764) от 15.07.2020
-
-GMS - The G.M.S. Experiment (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746764.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GMS; Infected Mushroom - Arabian Knights on Mescaline (2020 Remaster) (6:37)
-2. Copycat (RMX 2020 Remaster) (6:37)
-3. GMS; Space Cat - Snorkel Blaster (Riktam Remix 2020 Remaster) (7:34)
-4. Juice (2020 Remaster) (6:23)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF316E8DA07D32636F1265363839E9D01798AFC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

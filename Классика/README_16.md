@@ -1,3 +1,29 @@
+###  Публикация: 580478   (337434) от 27.11.2012
+
+J.S.Bach - The Authorised Recordings: Sviatoslav Richter (1994) 3CD [FLAC|Lossless]<Classical, Baroque Period, Suite>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Baroque Period, SuiteПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C25CDBC2D120F55894326F46533DC3A78B36B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580535   (337715) от 27.11.2012
 
 Scriabin, Prokofiev, Shostakovich - The Authorised Recordings: Sviatoslav Richter (1994) 2CD [FLAC|Lossless]<Classical, Sonata>
@@ -727,35 +753,6 @@ Jordi Savall, Hesperion XXI - BAL·KAN Miel et Sang - Honey and Blood [3CD] (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B485B6E9737A11F3D4EBDE861D5B9AAE64AF3AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256927   (349862) от 24.10.2018
-
-Joep Beving - Conatus (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Neo-Classical, Modern>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349862.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Joep Beving - Prelude
-2. Joep Beving - For Steven (Eefje de Visser Rework)
-3. Colin Benders - Hanging D (Colin Benders Rework)
-4. Joep Beving - A Heartfelt Silence (Andrea Belfi Rework)(   Читать дальше...   )Жанр: Contemporary, Neo-Classical, ModernПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E484499FEB3BFB1DA60F4015FC2A02BD4F337CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

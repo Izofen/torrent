@@ -1,25 +1,24 @@
-###  Публикация: 1528045   (735413) от 31.01.2022
+###  Публикация: 1283869   (731939) от 18.02.2019
 
-VA - Chillaxing Time, Vol. 07 (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
+Векторный клипарт - Motorcycles - Vector Graphics [EPS]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735413.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marc Hartman - Anything I'll Do (Original Mix) (4:23)
-02. Weathertunes - La jolie (Original Mix) (4:54)
-03. VAN - Evening by the Fire (Original Mix) (7:06)
-04. Openzone Bar - Cafe Brulot (Original Mix) (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:20:58
+Векторный клипарт для дизайна.
+Мотоциклы
+26 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E74DE3B870A39012E9C0023C85A2F60047304F3
+magnet:?xt=urn:btih:53BA3EDA54668EB710D0CB8147C45BFAC5FF168E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528049   (735414) от 31.01.2022
+###  Публикация: 1283278   (731940) от 18.02.2019
 
-VA - Chillaxing Time, Vol. 10 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+Yann Tiersen - ALL (2019) Mute Artists Ltd. [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Ambient, Contemporary>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735414.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tapelapse - Daydreaming (2:10)
-02. Weathertunes - Long Beach (Original Mix) (5:22)
-03. Minus Blue - Ocean Sky (Original Version) (5:23)
-04. Tapelapse - Benztown Lo-Fi (3:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:03
+01. Tempelhof (6:09)
+ 02. Koad (6:01)
+ 03. Erc’h (9:21)
+ 04. Usal Road (2:59)(   Читать дальше...   )Жанр: Neoclassical, Ambient, ContemporaryПродолжительность: 01:02:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44AC2E13F134ADBA53E585EF29B23436355C2108
+magnet:?xt=urn:btih:72D1B2854CD40FAF3BB02464304F526F034E8ABF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +55,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528089   (735415) от 31.01.2022
+###  Публикация: 1283833   (731941) от 18.02.2019
 
-MUUI - No Man Is an Island (2022) [AAC|~335 Kbps] <Deep House, Progressive House, Downtempo>
+Обои - Ultra HD 3840x2160 Wallpaper Pack 371 [JPG]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735415.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afirmación De Energía (5:23)
-02. Archipelago (7:21)
-03. Beyond the Physical (8:10)
-04. Beyond the Physical I (8:09)(   Читать дальше...   )Жанр: Deep House, Progressive House, DowntempoПродолжительность: 06:17:09
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D73DD3349BC63E67122C067A7A8A48598E6B86D
+magnet:?xt=urn:btih:95D27DAA5BA3E67F858587CA60A317491B328F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +81,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528016   (735416) от 31.01.2022
+###  Публикация: 1283848   (731942) от 18.02.2019
 
-VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 1 (2019) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+Картинки - Wallpaper pack - Abstraction 37 [JPG]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Графика, Арт, Разное
+>>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735416.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock - Speak Of The Mind (Original Mix) (4:12)
-02. Marc Hartman - Troubles So Hard (Original Mix) (5:04)
-03. Music Of The Earth - Spectrum (Instrumental Mix) (4:22)
-04. Svendaq - El Mundo Groove (Original Mix) (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:23
+Подборка обоев на тему абстрактная графикаФормат: JPGРазрешение файлов: 1920x1080-6000x4500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:046CE148BE58893AB754AC8FCD484B372BAEB721
+magnet:?xt=urn:btih:501324D3D12924D4C45888D604219AC7FBC17110
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,25 +107,323 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528163   (735417) от 31.01.2022
+###  Публикация: 1283749   (731943) от 18.02.2019
 
-CheckBook Pro 2.7.4 [En]
+Дикие сердцем / Wild at Heart (1990) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сейлор и Лула спасаются от безжалостной команды наемных убийц, нанятых безумной матерью Лулы Мариэттой. В погоню за беглецами вначале пускается дружок Мариэтты, частный детектив Джонни, а когда Джонни возвращается ни с чем, Мариэтта призывает на помощь своего бывшего любовника, гангстера Сантоса…Производство: США / PolyGram Filmed Entertainment, Propaganda FilmsЖанр: Триллер, Драма, Комедия, КриминалРежиссер: Дэвид ЛинчАктеры: Николас Кейдж, Лора Дерн, Уиллем Дефо, Дж.Э. Фримен, Криспин Гловер, Дайан Лэдд, Кэлвин Локхарт, Изабелла Росселлини, Гарри Дин Стэнтон, Грейс Забриски, Шерилин ФеннПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: ОтсутствуютПродолжительность: 02:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F211D166CF8AD3195D0C1CCE2110B50D748561A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283044   (731944) от 18.02.2019
+
+Станислав Бабицкий | Без пяти лет апокалипсис (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир будущего. У которого нет будущего. Есть только славное прошлое и машина времени, чтобы нырять в те века, где/когда люди жили долго и счастливо. Правда, заплатить за путешествие в прошлое придётся по очень завышенному тарифу. На первый взгляд эта сделка покажется не слишком выгодной. Но не забывайте, будущего у вас … тоже нет.Жанр: Научная фантастикаПродолжительность: 05:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1C7141FDC533CD40915C50726755ABD2F60C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283837   (731945) от 18.02.2019
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (217) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0F86965A92259BE8094E534353E257AB49DC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282486   (731947) от 18.02.2019
+
+Жизнь: первые шаги / Life: First Steps (2018) HDTVRip (серии 1-3) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые дни, недели и месяцы жизни каждого животного - самые напряженные. Им предстоит научиться сложным вещам тогда, когда они наиболее уязвимы. Однако природа создала множество стратегий, позволяющих малышам дожить до взросления, несмотря ни на что. Мы увидим, как наши крошечные герои сражаются в битве, каждый шаг которой приводит их всё ближе к успеху.Производство: Великобритания, Offspring Films, Sky TelevisionЖанр: Документальный, природа, флора, фаунаРежиссер: Дэн ПероунПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C6C13DFCA39570DF4EAC205D90B2C6108C7225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283786   (731948) от 18.02.2019
+
+VA - Cleopatra Records presents: Industrial Music For Fitness (2009) [MP3|320 Kbps] <Industrial, Aggrotech, EBM>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noise Unit - Corroded Decay
+02. Razed In Black - A Drug Against War
+03. Burning Retna - Why
+04. Pitbull Daycare - You Make Me Feel So Dead (As Heard In Saw)(   Читать дальше...   )Жанр: Industrial, Aggrotech, EBMПродолжительность: 03:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BE9FA2029D4063AEC3AFAED1DEAF2032DD478C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283228   (731949) от 18.02.2019
+
+Артур Хейли | Клиника: анатомия жизни (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Хейли — классик современной американской литературы. Его произведения — это своеобразные «куски жизни». Аэропорт, отель, больница, Уолл-стрит — всякий раз замкнутое пространство, в котором переплетаются страсти, амбиции и — судьбы. Такова жизнь. Таковы и романы Хейли.
+Больница.
+Здесь лечат и спасают людей.
+Вот единственное, по сути, отличие больницы от любого (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 16:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC219A63F8EFF39D2BDB06AF62A8856D365DA03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283741   (731950) от 18.02.2019
+
+VA - Car Songs: The 70s (2019) 4CD [MP3|320 Kbps] <Pop Rock, Disco, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731950.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. McFadden & Whitehead - Ain't No Stoppin' Us Now
+02. Earth, Wind & Fire - September
+03. Heatwave - Boogie Nights(   Читать дальше...   )Жанр: Pop Rock, Disco, JazzПродолжительность: 04:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3D668C2C472E4F7F5F8BE091328F5B28EAA16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283840   (731951) от 18.02.2019
+
+Обои - Desktop Wallpapers Full HD. Part (384) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9340CD048845BBB6B11D76B91E0CB9E4C5154D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283841   (731952) от 18.02.2019
+
+Обои - Desktop Wallpapers Full HD. Part (385) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C476DD5A224C4029C3593BCEFEEA8CEE1017C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283323   (731953) от 18.02.2019
+
+Julien Marchal - INSIGHT IV (2019) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insight XXXIV (3:31)
+ 02. Insight XXXV (3:20)
+ 03. Insight XXXVI (2:04)
+ 04. Insight XXXVII (3:27)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA87ABC711FA207FC5FF62BBD9EF2BFA6FF5A32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283843   (731955) от 18.02.2019
+
+Обои - Desktop Wallpapers Full HD. Part (386) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DB8C5B52D2EA6C50A5E50A7092A7FD3A087010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283750   (731956) от 18.02.2019
+
+VueScan Pro 9.6.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735417.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2002-2022 Splasm Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E63CE2CA400FDA921DC2A242DF6B9227238AA9B
+magnet:?xt=urn:btih:B24356D533519767F7ED6012C292245083B39B85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +431,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528047   (735418) от 31.01.2022
+###  Публикация: 1127463   (731957) от 21.04.2017
 
-VA - Chillaxing Time, Vol. 08 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+Топ Гир / Top Gear (2017) HDTVRip [H.264/720p-LQ] (сезон 24, серия 6) Jetvis Studio & RG.paravozik
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735418.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marc Hartman - Whistle (Original Mix) (4:49)
-02. Weathertunes - People Love (Original Mix) (4:47)
-03. Tapelapse - Sunday Morning Vibes (2:07)
-04. Weber & Weber - Time Keeps Its Own Time (Original Mix) (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:28:59
+Новый сезон с новыми ведущими после ухода знаменитой троицы. Top Gear (англ. Top Gear) — популярная английская телепередача, посвящённая автомобилям. Первые выпуски передачи появились в 1977 году. Эта передача была просто пересказ журнала, в течение долгого времени формат передачи не менялся. Но в 2002 году, произошел перезапуск цикла, и вместо сухого пересказа, (   Читать дальше...   )Телекомпания: BBCЖанр: Телепередача, автошоуПеревод: Профессиональный (многоголосый закадровый) - Jetvis Studio & RG.paravozikСубтитры: ОтсутствуютПродолжительность: ~ 00:58:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71D8D851C7F5DF865E95F30D35A744B78CCB6A20
+magnet:?xt=urn:btih:FAE5F50B9494F03871FFCAE5AEA1A0575B503F04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +457,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528020   (735419) от 31.01.2022
+###  Публикация: 1127365   (731958) от 21.04.2017
 
-VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 4 (2019) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+Ю. Г. Круглов (сост.) | Жили-были: Русские народные сказки о боге, черте, и попе, и хитроване мужике (1985) [DJVU, PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735419.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - Just To See Your Face (Original Mix) (5:00)
-02. Matthew Daniel, Lina Loi - Joy (Original Mix) (4:57)
-03. Ntracks - Bob's Delay (Original Mix) (3:30)
-04. Dub Mars - John Dope (Original Mix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:17
+Сказка — основной вид. устного народного поэтического творчества. В ней выражались мечты человека о будущем, его отношение к действительности, его эстетические идеалы и мировоззрение, в частности антицерковные, антиклерикальные начала, которые были сильны в русском народе.
+
+В настоящем сборнике представлены сказки из классических собраний русских народных сказок (   Читать дальше...   )Жанр: История, поэзия, литературоведение, фольклор, эстетика, искусство, религиоведениеФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17CC6B81A2EC4369ACE059FDB7328AE16BE55E66
+magnet:?xt=urn:btih:08CCDC564A961A090CF859DD429DEA339CF453A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +485,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528109   (735420) от 31.01.2022
+###  Публикация: 1127516   (731959) от 21.04.2017
 
-Bhakta - Open Transmission (2002) [AAC|~327 Kbps] <Tribal, Downtempo, Trance>
+Журнал | Вязание ваше хобби №5 (2017) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735420.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Third Eye (6:37)
-02. Open Transmission (a. Seduced Again, b. That Sha-Sha Groove, c. Let's Whirl) (14:41)
-03. Khidr (a. Another World, b. Rain, c. Khidr) (8:28)
-04. In-Between Moments (4:22)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:50:03
+«Вязание - ваше хобби» - ежемесячный журнал по вязанию на спицах и крючком. В каждом номере суперхиты вязаной моды для каждого сезона - самых модных, самых элегантных, самых экстравагантных, из новых видов пряжи, с эксклюзивным декором. Наряду со сложными в исполнении моделями, требующими мастерства и терпения, есть модели для начинающих рукодельниц.Жанр: ВязаниеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:257F1A2620F412DE35B2BC1F983B8380C14D0921
+magnet:?xt=urn:btih:735C09FA8486D7425B238288B67B03A46796D000
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,475 +511,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528044   (735421) от 31.01.2022
+###  Публикация: 1127555   (731960) от 21.04.2017
 
-VA - Chillaxing Time, Vol. 06 (2020) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock, Ivan M-sax - Wavedrops (Original Mix) (4:16)
-02. Florent Campana - Et dieu pour tous (Original Mix) (3:55)
-03. Weathertunes - Into a Dream (Original Mix) (3:43)
-04. VAN - Pink Flamingo (Original Mix) (8:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBA7D8C1A5270624BFE8E67FE3BD42DE7E815F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528026   (735422) от 31.01.2022
-
-VA - Lounge Weekend - Chillout Beats for Relaxation (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chill 2 U - Nightwalker (4:53)
-02. Ryan Pearce - Open All Night (Ibiza Guitar Lounge Mix) (4:19)
-03. Lady Tut - Sleeping in My Bed (Instrumental) (5:46)
-04. Terrace Chillerz - Breathing (Ibiza Beachclub Vocal Mix) (4:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F6855E6D6F6F83255B103A2D10483304FFDB120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528017   (735423) от 31.01.2022
-
-VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 2 (2019) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Wavedrops (MichaelE Remix) (5:13)
-02. Bob Zopp - Dubby Day (Original Mix) (5:58)
-03. Peter Pearson - That Pass In The Night (Original Mix) (4:51)
-04. Svendaq - Space Dimension (Original Mix) (4:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF14AFE3C6B45862FBDAC25ECCDA223AE808A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528036   (735425) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 02 (2019) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jens Buchert - Nanotime (2:28)
-02. Taburet - Blue Fire (5:35)
-03. Placid Larry - Mountain Run (3:38)
-04. Anemine - White Series 256 (7:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BA3A33C194EE9A38E715B976C5267C1F50739A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528024   (735426) от 31.01.2022
-
-VA - Downtempo Lounge & Chillwave, Vol. 3 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthya - Orchidea (3:53)
-02. Sin Plomo - For Jesus (In the Sky Mix) (4:36)
-03. Project Blue Sun - Carpe Diem (3:43)
-04. Guenter Haas - Without You (5:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4726DE3E37290B25A5BA753B600B1A0C8AA37AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528037   (735427) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 03 (2020) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jasmon - Cuchama (Original Mix) (4:47)
-02. Openzone Bar - Mint Julep (Original Mix) (5:13)
-03. Weathertunes - Dimanche Matin (Original Mix) (4:38)
-04. Corrado Saija, Florent Campana - Amanda (Original Mix) (4:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8960C8BA24C3B19658CBAAFB70FD8F58310E375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528038   (735428) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 04 (2020) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamhunter - Moment to Relax (Original Mix) (3:56)
-02. VAN - Evening by the Fire (Original Mix) (7:06)
-03. Lazy Hammock - Tears of El Nino (Original Mix) (4:33)
-04. Weathertunes - Into a Dream (Original Mix) (3:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F15C36866505659DF4CAA9D3F18506B0C09E29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528042   (735429) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 05 (2020) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Tears of El Nino (Original Mix) (4:33)
-02. VAN - Musician (Original Mix) (3:20)
-03. Weathertunes - La jolie (Original Mix) (4:54)
-04. VAN - Old Story (Original Mix) (6:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3029362C573E9540E9823B81DEB54E0005A909D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528035   (735431) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 01 (2013) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Bitz, Trox - Missing You (Acidrain Remix) (4:12)
-02. Roy Bebop - Addicted to Minor (4:37)
-03. Pnfa - Concho (7:22)
-04. Mas Flores - Skywalker (Original Deep Mix) (8:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0277A92791BA83B30ACB4CF962168721F88B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528023   (735432) от 31.01.2022
-
-VA - Downtempo Lounge & Chillwave, Vol. 2 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Blue Sun - Art of Love (3:44)
-02. Sunset Boulevard Project - Fly Like an Eagle (4:08)
-03. Marco Moli - This Natural Groove (4:00)
-04. Guenter Haas - Black Rose (3:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FAF216F52AB81EE1B80549BC410ED0DF8296E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528025   (735433) от 31.01.2022
-
-VA - Downtempo Lounge & Chillwave, Vol. 4 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefano Negrini, Anthya, Alaera - Love Has Gone (Anthya Chill Mix) (4:56)
-02. York, Nathan Red, Kim Sanders - How Did I Fall in Love (R.I.B. Remix) (4:16)
-03. 351 Lake Shore Drive - Nylon (10:02)
-04. Project Blue Sun - All I Wanna Be (6:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765C5129D2A8C3D237A12BFBDBDD8FDC1FC039D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705209   (735434) от 19.05.2014
-
-Элементарно / Elementary (2013-2014) WEB-DLRip (Сезон 2, серии 1–24 из 24) (LostFilm)
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная версия приключений знаменитого сыщика Шерлока Холмса. Герой сэра Артура Конан Дойла переедет из Лондона в НьюЙорк, променяв викторианскую Англию на современную Америку.
-«Элементарно» — современная криминальная драма о дуэте детектива Шерлока Холмса и доктора Джоан Ватсон, которые решают самые запутанные дела в полицейском департаменте Нью-Йорка.Жанр: Драма, ДетективРежиссер: Джон Полсон, Джерри Ливайн, Майкл Прессман, Эндрю Бернштейн, Санаа Хамри, Кристин Мур, Гай Ферленд, Аарон Липстадт, Ларри Тенг, Хелен Шейвер, Жан Де Сегонзак, Сет Манн, Майкл Словис, Люси ЛьюПеревод: Многоголосый закадровый, профессиональный — LostFilmПродолжительность: 24  ~00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E80D478AB4CCD3910EA5F4121029A247163BFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705358   (735435) от 19.05.2014
-
-Элементарно / Elementary (2013-2014) WEB-DLRip (Сезон-2 / Серии 1-24 из 24) NewStudio
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая интерпретация классического произведения Артура Конана Дойла о Шерлоке Холмсе. Но сюжет сериала будет развиваться не по классическому сценарию, главный герой поменяет не только прописку, он переедет из Лондона в Нью-Йорк, но и эпоху, сюжет будет разворачиваться в наше время. Также зрителей ждет еще один сюрприз, теперь у Шерлока будет не помощник в лице Доктора (   Читать дальше...   )Жанр: драма, криминал, детективРежиссер: Джон Полсон, Эндрю Бернштейн, Сет МаннАктеры: Джонни Ли Миллер, Люси Лью, Эйдан Куинн, Джон Майкл Хилл, Натали Дормер, Ато Эссонда, Линда Эмонд, Майкл Ден Деккер, Винни Джонс, Эрик Дженсен и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioФормат: AVIПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5554132A01EC4BB59663E374E778479A8F68ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 704817   (735437) от 19.05.2014
-
-В поле зрения / Подозреваемый / Person of Interest (2013-2014) WEB-DLRip (Сезон 3, Серия 1-23 из 23) LostFilm
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предполагаемо погибший бывший агент ЦРУ Риз объединяется с таинственным миллионером чтобы предотвращать преступления. Подготовка Риза в проведении операций под прикрытием привлекает внимание миллионера Финча, гения-программиста, который изобрел программу, позволяющую предсказывать преступные склонности людей на базе анализа поведения. Используя последние достижения (   Читать дальше...   )Жанр: Триллер, ДрамаРежиссер: Ричард Дж. Льюис, Дэвид СемелАктеры: Джеймс Кэвизел, Майкл Эмерсон, Сара Шахи, Тараджи П. Хенсон, Кевин Чэпмен, Эми Экер, Пейдж Турко, Энни Пэрисс, Сол Рубинек, Кармин Мэнхейм, Лесли Одом мл. и др.Перевод: Многоголосый закадровый, профессиональный (LostFilm)Продолжительность: 23 серии по ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CCD133BAC040B5E0E1D80EBA128373031CABF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787894   (735439) от 19.05.2014
-
-Замороженные солдаты / Ice Soldiers (2013) HDRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученый в снегах Канады обнаруживает три тела русских военных, с генетическими изменениями. Он приводит их в чувство и зря — он разморозил смертельную опасность для общества.Производство: Канада | Bunk 11 Pictures, TAJJ Media, Hideaway PicturesЖанр: Фантастика, БоевикРежиссер: Стурла ГуннарссонАктеры: Доминик Пёрселл, Адам Бич, Майкл Айронсайд, Гэбриел Хоган, Бенц Антуан, Даина Барбо, Рауль Банеджа, Нику Бранзеа, Грег Стивен Браун, Майкл Клилэнд ...Перевод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0636967B64727DF912B25EC957F18FC7A1332E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755584   (735440) от 19.05.2014
-
-Элементарно / Elementary (2013-2014) WEB-DL [H.264/1080p-LQ] (Сезон 2, Серии 1-24 из 24) LostFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сериал от канала CBS - это криминально-детективная драма "Элементарно". Новая интерпретация классического произведения Артура Конана Дойла о Шерлоке Холмсе. Но сюжет сериала будет развиваться не по классическому сценарию, главный герой поменяет не только прописку, он переедет из Лондона в Нью-Йорк, но и эпоху, сюжет будет разворачиваться в наше время. (   Читать дальше...   )Жанр: Драма, Детектив, КриминалРежиссер: Джон Дэвид Коулз, Майкл Куэста, Род ХолкомбАктеры: Джонни Ли Миллер, Люси Лью, Эйдан Куинн, Джон Майкл Хилл, Даллас Робертс, Мэнни Перез, Джонатан Уолкер, Кристен Буш, Крэйг Уолкер, Майкл Натансон, Шерри Х. Арелл, Уорд Хортон, Дженнифер Феррин, Билл Хек, Кэйси Семашко, Роза Арредондо, Рей Лукас, Кен Маркс, Аса Сомерс, Пол Майкл Вэлли, Янси Ариас, Кейтлинн Бэйли, Эндрю Чемберлен, Майкл Кантримэн, Эрин ДиллиПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: LostFilmЯзык субтитров: АнглийскийПродолжительность: ~ 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624461C1F6B47A16E18F9F9D69841388B2D82105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707392   (735441) от 19.05.2014
-
-Древние / Первородные / The Originals (2013) WEB-DLRip [1 сезон, 1-22 из 22 серий] (BaibaKo)
+Юморина (2017.04.21) SATRip
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735441.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сила — в семье. Семья Древнейших дала зарок тысячу лет назад: они торжественно поклялись держаться друг друга, вместе и навсегда. И вот, сотни лет спустя семейные узы оказались разрушены. Время, трагедия и жажда власти отдалили членов Древнейшего семейства друг от друга. Когда Клаус Майклсон, древнейший гибрид вампира и вервульфа, получает загадочное предупреждение (   Читать дальше...   )Жанр: Фэнтези, Ужасы, ДрамаРежиссер: Брэд ТёрнерАктеры: Джозеф Морган, Дэниэл Гиллис, Чарльз Майкл Дэвис, Каллард Харрис, Александра Фикен, Даниэль Кэмпбелл, Эка Дарвилл, Клер Холт, Даниэлла Пинеда, Леа ПайпсПеревод: Многоголосый закадровый, профессиональный - БайбаКоОзвучка: Лира Грим, Татьяна Оболевич, Дмитрий Глебов и Артемий МиронПродолжительность: ~00:42:00 серия
+Только лучшие из лучших в главном юмористическом фестивале года "Юморина" на телеканале "Россия"!
+Сегодня только премьеры - новые пародии, миниатюры и монологи в исполнении любимых артистов.Телекомпания: РоссияЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:45:14Реклама: Присутствуют вставки текстовой рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1A77710C7781258EF7A6AB383E699F544A068D2
+magnet:?xt=urn:btih:1FEADAFE669CCC2C054C606B05FB8AF9E15E01AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,28 +538,165 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 787827   (735458) от 19.05.2014
+###  Публикация: 1126459   (731961) от 21.04.2017
 
-Mylene Farmer - Timeless 2013 Le Film (2014) Blu-Ray [1080i]
+John Mayall And The Bluesbreakers – Jammin' With The Blues Greats '1982 (1983) DVD5
 
->>След.
->>Концерты (HD, FHD, UHD, 3D)
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735458.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prologue
-02. Timeless Genesis
-03. A force de…
-04. Comme j’ai mal(   Читать дальше...   )Жанр: PopПродолжительность: 2:06:43
+Видеозапись совместного выступления John Mayall And The Bluesbreakers с легендами блюза,состоявшегося 18.06.1982г в Capitol Theatre, Passaic, New Jersey.
+The Bluesbreakers:
+Vocals, Harmonica, Keyboards – John Mayall
+Guitar – Mick Taylor(   Читать дальше...   )01. An Eye For An Eye
+02. Baby, What You Want Me To Do (feat. Etta James)
+03. Messin' With The Kid (feat. Buddy Guy & Junior Wells)
+04. Don't Start Me Talkin' (feat. Buddy Guy & Junior Wells)(   Читать дальше...   )Производство: Monarch Entertainment Bureau, Inc.Жанр: Chicago Blues, Electric BluesРежиссер: Len Dell'AmicoАктеры: John Mayall And The Bluesbreakers & GuestsПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:30:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:650E690F35B53BD1740D8A2AB63C81C068BE3896
+magnet:?xt=urn:btih:C87A4801DE72A951ED5865B16ADB056442623433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127451   (731962) от 21.04.2017
+
+Cacheman 10.10.0.11 Repack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cacheman — программа, созданная для оптимизации операционных систем Windows и настройки их на оптимальную работу. Скачав программу, вы получите целый пакет функций: утилита умеет оптимизировать дисковый кэш, кэш CD-приводов, Icon Cache, периодически очищает память, изменяет некоторые настройки операционной системы, отслеживает изменения важных параметров, отображает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480438CDD2B7C1B9492DC4CA9553C99A242BC65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127252   (731963) от 21.04.2017
+
+Incubus - 8 (2017) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Fun
+02. Nimble Bastard (New Mix)
+03. State Of The Art
+04. Glitterbomb(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479305223ACDDD60EBC9E26B8560CE7DA5E3F439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127390   (731964) от 21.04.2017
+
+Журнал | Авиация и космонавтика: вчера, сегодня, завтра №1 (январь 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2160E29AFB3F32809E973AF0CA3C4BE8CC5B96E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127227   (731965) от 21.04.2017
+
+Георгий  Иваничев | Мануальная медицина (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография рассчитана на восполнение пробела отечественной литературы в теории, практике и преподавании мануальной терапии. Состоит из двух частей. Первая часть представляет собой систематическое изложение теоретических аспектов мануальной медицины (мануальной терапии). Здесь рассмотрены барьерные функции звеньев локомоторной системы, основы организации движения. (   Читать дальше...   )Жанр: МедицинаПродолжительность: 23:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87054C691894C173A37AAEB4B7512B04961FBE2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127574   (731966) от 21.04.2017
+
+Кэрола Данн | Смерть в Вентуотер-Корте (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодние праздники 1923 года. Дэйзи Дэлримпл приезжает в старинное поместье Вентуотер-Корт, чтобы написать статью о нем для светского журнала. Там собирается изысканное общество: граф Вентуотер, его вторая жена – молодая красавица Аннабель, его дети от первого брака и самые близкие друзья.
+Однако праздник завершается трагедией – в проруби обнаруживают тело одного (   Читать дальше...   )Жанр: Зарубежные детективы, Исторические детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61D4A898A61AFE9882E5CB0570709C4E74A25C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

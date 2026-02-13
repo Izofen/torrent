@@ -1,3 +1,61 @@
+###  Публикация: 1617024   (1035554) от 05.03.2023
+
+VA - The Official UK Top 100 Singles Chart 09.03.2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miley Cyrus - Flowers
+02. PinkPantheress, Ice Spice - Boy's a liar Pt. 2
+03. SZA - Kill Bill
+04. The Weeknd, Ariana Grande - Die For You (Remix)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECBD3E9DA71D5A2D8E790D6C628C44BED1F3C7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443320   (1035721) от 28.01.2021
+
+VA - Music News vol.67 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035721.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Viu Viu - Виски (01:59)
+ 002. Aleks Ataman & Finik.Finya - Шашки По Казани (02:32)
+ 003. Anitta - Loco (02:37)
+ 004. ANUQRAM - Can't Let Go (Grum Remix Edit) (04:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40E2958B88C06DAA12F2E4FEFFA95AD4471A558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443288   (1035726) от 28.01.2021
 
 VA - pure Melodic house (2021) [MP3|320 Kbps] <Melodic house, Techno>
@@ -687,64 +745,6 @@ VA - The Four Season (2021) [MP3|320 Kbps] <Instrumental, Neoclassic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96A68FEC7733E9DB622647EB962C6FB447A8A5F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442554   (1036626) от 25.01.2021
-
-VA - Beatport Electro Dance: Sound Pack #225 (2021) [MP3|320 Kbps] <EDM, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микс-сборник танцевальной музыки 225-го релиза от Beatport, разбавит Ваши серые будни и принесет частицу праздника. Треки микс-сборника характеризуются нестандартным подходом к исполнению, глубокой палитрой звучания и отличным настроем.001. Kid Massive - Feel Love (Original Mix)
-002. Simon Fava - What It Is About
-003. Turbotronic - Party Day
-004. Ever Est - Red Zone(   Читать дальше...   )Жанр: EDM, Club, DanceПродолжительность: 07:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6ABAB61E959D44524F66F5EED1BFD3A10A93DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616191   (1036679) от 01.03.2023
-
-Stereophonic Space Sound Unlimited - Compilation (2023) [MP3|320 Kbps] <Instrumental Rock, Surf>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 35 Falcon Street
-02. Jo's Theme
-03. Lizard
-04. Sitar Jerk(   Читать дальше...   )Жанр: Instrumental Rock, SurfПродолжительность: 04:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E7D96CA914A6124C576E7FDBE387810C9B140D
 ```
 
 https://mybot314.ru/tekegram_catalog/

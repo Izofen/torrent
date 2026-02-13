@@ -1,3 +1,32 @@
+###  Публикация: 1336022   (278950) от 07.11.2019
+
+VA - Best Of 2018 (2019) [MP3|320 Kbps] <Psychedelic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panayota - H3 (Original Mix)
+02. Yohala - Electric Wave (Original Mix)
+03. Ztax - 890 Road (Original Mix)
+04. Illusion Tonic - World of View (Original Mix)(   Читать дальше...   )Жанр: PsychedelicПродолжительность: 06:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD67F806FE5A48632DF9018B7B50037BC565C096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336615   (278956) от 07.11.2019
 
 VSO ConvertXtoDVD 7.0.0.68 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -680,32 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E508474257470BCD0DEF1B87AEF8E3B3715599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082534   (279094) от 12.12.2016
-
-Qiyu Swordfish Browser 2.1.0.0 [En/Cn]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Qiyu Swordfish Browser - китайский браузер «Рыба-меч» на базе Chromium. Офсайт на китайском, однако сам браузер имеет и английский интерфейс. По заявлениям разработчиков обеспечивает высокоскоростной доступ в Интернет, используя новейшие скорости загрузки ядр-Chrome ??браузера, что влияет на скорость загрузки страницы в целом. Скорость подкреплена "свежим интерфейсом (   Читать дальше...   )Язык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9881BF0D25C4F841D31D2745CB375A269D99232B
 ```
 
 https://mybot314.ru/tekegram_catalog/

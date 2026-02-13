@@ -1,3 +1,32 @@
+###  Публикация: 992363   (902259) от 01.03.2016
+
+Прокофьев - Piano Concerto no. 3, piano pieces (Прокофьев, Coppola - London Symphony Orchestra) (2001) [OGG|256 кб/с] <Classical, Concerto, Классическая музыка>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto no. 3 in C major, op. 26
+01 (1) Andante - Allegro
+02 (2) Tema con variazioni (Andantino)
+03 (3) Allegro ma non troppo(   Читать дальше...   )Жанр: Classical, Concerto, Классическая музыкаПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CD331BBF217515B318416D26C4E1845C916702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992144   (902276) от 01.03.2016
 
 Прокофьев - Piano Sonatas nos. 2 & 9, Pieces (2012) (Святослав Рихтер) [OGG|224 кб/с] <Классическая музыка, Piano, Sonata>
@@ -723,35 +752,6 @@ VA - 100 Classical Music for Babies (2015) [MP3|320 кб/с]<Classic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B47FF4FBD3FA9BA2519A23039337BACD2680D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094982   (925955) от 20.01.2017
-
-Richard Wagner - Neuschwanstein (2001) [FLAC|Lossless|image + .cue] <Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ring der Nibelungen - The Ride of the Valkyries (04:37)
-02. The Ring der Nibelungen - Siegfried (10:18)
-03. The Ring der Nibelungen - Brunnhilde (04:02)
-04. The Ring der Nibelungen - Gotterdammerung (12:21)(   Читать дальше...   )Жанр: OperaПродолжительность: 01:12:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330532E10EC1D30BB6A8B076F111AD8105906912
 ```
 
 https://mybot314.ru/tekegram_catalog/

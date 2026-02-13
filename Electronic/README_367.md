@@ -1,3 +1,32 @@
+###  Публикация: 1284293   (730057) от 20.02.2019
+
+Feral - Court Of Light (2019) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Enchanter (07:16)
+02. Three Faced Queen (06:08)
+03. Court of Light (05:51)
+04. Jester (06:43)Жанр: TechnoПродолжительность: 00:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09595EAAF23BB1687BFA61910186FAD3C52857BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128160   (730077) от 23.04.2017
 
 VA - Big House Beats - Audio Luxury Remixes (2017) [MP3|320 Kbps] <Deep House>
@@ -714,35 +743,6 @@ VA - Cleopatra Records presents: Industrial Music For Fitness (2009) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81BE9FA2029D4063AEC3AFAED1DEAF2032DD478C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283759   (732046) от 18.02.2019
-
-Nouvelle Vague - Rarities (2019) Anthology [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizarre Love Triangle (02:48)
-02. Sorry for Laughing (03:11)
-03. Wishing (If I Had a Photograph of You) (02:43)
-04. Shack Up (03:46)(   Читать дальше...   )Жанр: Lounge, Downtempo, Easy ListeningПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FEA2185E20F115412DCD179FCEB63199F63E99
 ```
 
 https://mybot314.ru/tekegram_catalog/

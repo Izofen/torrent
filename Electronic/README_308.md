@@ -1,3 +1,32 @@
+###  Публикация: 1148314   (603913) от 06.07.2017
+
+VA - World Chill-Lounge Charts Vol 5 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exopilot - Nibiru
+02. Lunaland - Happy End (feat Marga Sol)
+03. Artenovum - Der Moment - Wellness Deluxe Version
+04. Aaron The Baron - Sweet Longing(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAC72ECC1ABA84C94683D2EB57F12A78D78035C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262038   (603995) от 22.04.2019
 
 Gëinst (Geinst) - Discography 5 Releases (2016-2019) Arts [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
@@ -734,35 +763,6 @@ Mahiane - Oxycanta III (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B9FA7F14387C136AFC52514F60C80E7A8469D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297106   (606684) от 20.04.2019
-
-Fishimself - Ambrosia (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Million & Gusk - Sub Strata (06:39)
- 02. Miktek - Light Tails (05:44)
- 03. One Arc Degree - Distant Industries (06:27)
- 04. Aes Dana - Principles Of Gravity (07:38)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D7D264F9F83DAB1DFC427D875D0F55CDFFFDFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

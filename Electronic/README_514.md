@@ -1,3 +1,32 @@
+###  Публикация: 1452452   (1027758) от 06.03.2021
+
+Kaskade - Reset (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive Trance, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaskade, Ella Vos - Miles To Go (03:18)
+02. Kaskade, Will K - Flip Reset (03:08)
+03. Kaskade - Closer (04:41)
+04. Kaskade - Solid Ground (03:20)Жанр: House, Progressive Trance, Progressive HouseПродолжительность: 00:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D88379D0C9A4874ED4718DB78293F659865040D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452314   (1027763) от 06.03.2021
 
 Bop - Perehod (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Downtempo>
@@ -713,35 +742,6 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 9 (2015) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB11C4712B28C8C93D755EBBC213B3141EE71998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451814   (1028094) от 04.03.2021
-
-VA - Warehouse Anthems: Drum & Bass, Vol. 3 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carbine - Reminence (Original Mix) (05:06)
-02. Bsm - In Hell (Original Mix) (05:46)
-03. Dan Guidance - Another Version (Original Mix) (07:44)
-04. DamianH - Cityscape (Original Mix) (05:17)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D39A7793387262AF45D857AED3044A2567E2C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

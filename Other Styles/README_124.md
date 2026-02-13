@@ -1,3 +1,32 @@
+###  Публикация: 1283973   (730045) от 20.02.2019
+
+DeVotchKa ‎ - This Night Falls Forever (2018) [FLAC|Lossless|tracks + .cue] <Folk-rock, Gypsy Punk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight Shot (05:22)
+02. Let Me Sleep (04:39)
+03. Lose You In the Crowd (04:41)
+04. Love Letters (04:25)(   Читать дальше...   )Жанр: Folk-rock, Gypsy PunkПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F96A47E36880F951A7002E0116062B0941EE433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127723   (730358) от 22.04.2017
 
 Дидюля & Chris Wonderful - Аквамарин (2017) [MP3|320 Kbps] <New Age>
@@ -713,35 +742,6 @@ Anais Mitchell (Anaïs Mitchell) - Anais Mitchell (Anaïs Mitchell) (2022) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F9835910F7B21D765902FD1AF28F2DB8BAAB751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837756   (736334) от 29.01.2022
-
-Fausto Papetti - Magic Sax (2012) 2CD [MP3|320 кб/с]<Instrumental, Saxophone, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736334.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. London Fever (4:10)
-2. Medley - Samba Pa Ti (3:59)
-3. Brivido Felino (3:56)(   Читать дальше...   )Жанр: Instrumental, Saxophone, Easy ListeningПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B774D1B7CD624CC283946AFFEE9583CAF968897C
 ```
 
 https://mybot314.ru/tekegram_catalog/

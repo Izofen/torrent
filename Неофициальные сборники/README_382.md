@@ -1,3 +1,67 @@
+###  Публикация: 1144008   (631352) от 20.06.2017
+
+Zucchero - Hybrid of Zucchero Sugar Fornaciari (2017) [MP3|192-320 CBR,VBR Kbps] <Rock, Pop Rock, Blues>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamante
+02. Va pensiero
+03. Menta E Rosmarino
+04. Cosi Celeste(   Читать дальше...   )Жанр: Rock, Pop Rock, BluesПродолжительность: 04:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA883292DE3457A42088335F8FC8E5C0CDB7D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520530   (631420) от 09.07.2012
+
+VA - Шальной блатной музон (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631420.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Евгений Дашин - Были Встречи (2:41)
+2. Михаил Пермский - Таксисты (3:28)
+3. А.Т.А.С. - Города (3:26)
+4. Владимир Асмолов - Сон Любви (4:09)
+5. Маргарита Орская - Загуляю (2:50)
+6. Александр Егоров - Отбой (2:56)
+7. Владимир Соболь - Водка, водочка (3:32)
+8. Грин Гарик и группа На Троих - Морошка (3:08)
+9. Валерий Лукашевский - Каприз (3:29)
+10. Николай Тимошенков - У камня (3:37)Жанр: ШансонПродолжительность: 06:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7492E3618D291673E144CF9BEB2646A09064F1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520529   (631431) от 09.07.2012
 
 VA - Top 100: Танцевальная летняя дискотека (2012) [MP3|256 кб/с]<Pop>
@@ -747,64 +811,6 @@ VA - Summer Dance (2015) [MP3|320 кб/с]<Dance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F4939B307B3D3CF48E56FD418D077ADC5B58D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908703   (632245) от 15.06.2015
-
-VA - Beatport Deep House Top 100 May (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enzo Siffredi - Sometimes
-02. Kollektiv Turmstrasse - Sorry I Am Late
-03. Gregory Porter - Liquid Spirit (Claptone Remix)
-04. Ten Walls - Sparta (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65483400E804CFA0CB8168AC7917A3AF2151D42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034903   (632365) от 14.07.2016
-
-VA - Disco Hits - Generation Two (2016) [MP3|306-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C.C. Catch - Strangers By Night [03:37]
-02. F.R. David - Words [02:29]
-03. Modern Talking - You're My Heart, You're My Soul [05:36]
-04. Laura Branigan - Self Control [04:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60DE91AA94217B476E8E75518EC5B5D395607BC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1535440   (686431) от 06.03.2022
+
+Kobra Force - The Future Is Love (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star Wanderers (3:26)
+02. The Future Is Love (3:37)
+03. Wasteland (5:51)
+04. Shiver (4:39)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836A8D92242519663649DF42C7293C17D67DA723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535129   (686432) от 06.03.2022
+
+VA - Electro Bass Exotic Style (2022) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep, Electro Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный арсенал под названием "Electro Bass Exotic Style", который поможет создать настоящее безумие на танцполе. Лонгплей содержит целых 150 потрясающих треков, предлагая все необходимое для создания плей-стрима в стиле Drumsound . Вы найдете здесь грохочущие бас-линии, пробивные ритм биты, ошеломляющие Jungle пресеты и многое другое.001. Feint - Silent Light
+002. Nick The Lot - After Party
+003. Audio - Sanctuary
+004. Change Of Pace - Methuselah(   Читать дальше...   )Жанр: Drum & Bass, Bassline, Dubstep, Electro Bass, JungleПродолжительность: 11:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94192E38CEB7909440E673E1E685593123B2436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289346   (686464) от 16.03.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 15.03.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -685,64 +743,6 @@ VA - Synthetic vol.4 - Futurepop Edition (2017) [MP3|320 Kbps] <Futurepop, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2007ACE30D1304DFD897E0F1BED7BB819556D10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134563   (687451) от 16.05.2017
-
-VA - Under The Influence New Trance Music (2017) [MP3|320 Kbps] <Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Delta - Back In My Life (DJ Osip Radio Edit)
-002. Jaren - Man On The Run
-003. Dave Pearce & Farius - Sundar (Original Mix)
-004. Illitheas - Last Forever (Original Mix)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 08:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455457A0F678282C0A857BC260B651676E3CA90D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222175   (687491) от 28.04.2018
-
-VA - Ibiza Kickoff (2018) [MP3|320 Kbps] <House, Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Jay - Your Own Way (feat. Sarah Brickel)
-02. Danceheat - I'll Be by Your Side (Extended Mix)
-03. Loungeside - No Longer Used (Alternative Mix)
-04. Tiziara - Save Me (Extended Mix)(   Читать дальше...   )Жанр: House, Funky, Club HouseПродолжительность: 04:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF281FE7A15E0C206460A325CD8BA419A70637B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 724036   (355320) от 18.11.2013
+
+Vincent Villuis (Aes Dana) - Asura (Ambient DJ Set) (2000) Mixed [FLAC|Lossless]<Psybient, Trance, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (71:10)Жанр: Psybient, Trance, AmbientПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423D71EEFCCE125C82A55B25D33C35F9BD339670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952225   (355567) от 01.11.2015
 
 Depeche Mode - Remixes for the Masses EP. by Techni-ka (2014) [FLAC|tracks|WEB-DL]<Synthpop>
@@ -714,35 +740,6 @@ Ulro - The Land Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C7C4159C05CCA2CDDBD2B6044C53C34ACDFE59D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952138   (358097) от 31.10.2015
-
-Muffler - Stone Cold (2015) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Breathe (feat. Sansa) (04:38)
- 02. Ranua  (feat. Keeno) (05:19)
- 03. Northern Lights (04:21)
- 04. Mountain Streams (05:20)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135766B07A4457CBCF88961BEA9034652963B522
 ```
 
 https://mybot314.ru/tekegram_catalog/

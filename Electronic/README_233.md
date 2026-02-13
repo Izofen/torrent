@@ -1,3 +1,31 @@
+###  Публикация: 1065763   (417047) от 24.10.2016
+
+Quivver - Response (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Response (Original Mix) (07:13)
+02. Call (Original Mix) (07:20)
+03. What Am I Dreaming (Original Mix) (06:28)Жанр: Deep House, Tech HouseПродолжительность: 00:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1703A9F8F846CAB0E8A3CFE0514EA57670A2C094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066103   (417053) от 24.10.2016
 
 VA - Chill Lounge del Mar Vol.4: Ibiza Beach Chilled Out Sessions (Mixed by Matthew Kramer) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -724,32 +752,6 @@ SubLab - Discography 65 Releases (2014-2020) UTM-Records, Sublab Music [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C781B88BC823282984A435D393561DE00C4FAE05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138492   (420149) от 28.09.2020
-
-Frore - Discography 12 Releases (2009-2018) Relaxed Machinery, Spotted Peccary, earthMantra [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tribal, Experimental, World, Dark Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Void Peripheral (57:26)Тип издания: WEBЖанр: Ambient, Tribal, Experimental, World, Dark Ambient, Drone •Продолжительность: 11:25:27 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86CCDE50E5878EC87EDDD336BD9C5B027B8CF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 915388   (592385) от 05.07.2015
+
+Blackwater - Earth Rhythms Spirit Of The Drum (2006) [MP3|320 кб/с]<Native American, World, Ethnic Fusion>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Of The Drum (5:31)
+02. Land Of Dreams (5:48)
+03. Awakening (4:23)
+04. Earth Dance (4:42)(   Читать дальше...   )Жанр: Native American, World, Ethnic Fusion, FolkПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15B4183D249E6C8220F50AF50A08DCC58351986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549169   (592637) от 09.05.2022
 
 Satyaa & Pari - New Year Celebrations (Live) (2020) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
@@ -743,41 +772,6 @@ Blue Medicine Music - Indian Groove (2005) [MP3|320 кб/с]<New Age, Native Ame
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2692E68222BD91D60820C1E3DC50472D2D71EE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525747   (599338) от 23.07.2012
-
-VA-Enigmatica - 50 Tracks (2005) [MP3|320 кб/с]<New age, Meditative, Relax, Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599338.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Antares - The Horses Go (4:38)
-2. Bayou Angels - Live With Me (4:04)
-3. C.J. - Bloom (5:27)
-4. D-Juice - 5-th Ocean (6:12)
-5. D-Juice - Fatique (5:25)
-6. DJ Kritoff feat. Reachy Style - The Snow (3:53)
-7. DJ Limiter - Navakho (6:15)
-8. DJ Limiter - The Clockwork Planet (5:16)
-9. DJ Murena - More, Than Anything (6:17)
-10. DJ Murena - N.Y.2001 (4:59)(   Читать дальше...   )Жанр: New age, Meditative, Relax, FlamencoПродолжительность: 04:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A2F2B12C840CA2CAB142EBBC474A594C3D89F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1290656   (674450) от 22.03.2019
+
+Silk Road Assassins - State of Ruin (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Grime>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Overgrown 	(2:54)
+02. 	Split Matter (Ft. Kuedo)  (3:49)
+03. 	Armament 	(3:33)
+04. 	Vessel 	(3:09)(   Читать дальше...   )Жанр: Electronic, GrimeПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC417DC8683B0BDB3014DAFCE3A28278400E88BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290657   (674451) от 22.03.2019
 
 Powder - Powder In Space (2019) [FLAC|Lossless|tracks + .cue] <Electronic, House>
@@ -719,35 +748,6 @@ Mixed by Talla 2XLC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEA2B4BAF9229BBF796802C7B8257B3B329D0239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135925   (677272) от 21.05.2017
-
-Lazy Hammock - Natural High (2012) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One of Those Days
-02. Which Way
-03. Closer to Me
-04. Speak to Me(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D3358951641806E2938BAD5A6016BC81574C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

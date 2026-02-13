@@ -1,3 +1,32 @@
+###  Публикация: 1294608   (628371) от 08.04.2019
+
+Örnatorpet (Ornatorpet) - Hymner Från Snökulla (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Dungeon Synth, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preludium - Gryning (05:05)
+02. Över Frusen Mark - I (04:59)
+03. Över Frusen Mark - II (07:16)
+04. När Gnistrande Snöflingor Falla - I (04:59)(   Читать дальше...   )Жанр: Electronic, Dungeon Synth, AmbientПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B51A85F295DD30A73C0853B3B8C104C5BA9A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294495   (628375) от 08.04.2019
 
 Chris Komus - Wheezing Corporeal Shell (2018) Shanti Planti [FLAC|Lossless|WEB-DL|tracks] <Psychill, Dubstep, Psydub, Ambient>
@@ -716,35 +745,6 @@ CD One:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1E55DD1324437A9F348663E6B4F43CC11E407F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144011   (631479) от 20.06.2017
-
-Com Truise - Iteration (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...Of Your Fake Dimension
-02. Ephemeron
-03. Dryswch
-04. Isostasy(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1354CA6C5894FA9B3E7814FC86D97D995B5A7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

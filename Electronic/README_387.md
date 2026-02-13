@@ -1,3 +1,32 @@
+###  Публикация: 1016181   (770537) от 14.05.2016
+
+VA - Ultimate Ibiza House 2016 Progressive Edition (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT - Flaming June (Ashley Wallbridge Radio Edit) 3:01
+02. BRKLYN - Steal Your Heart (Bougenvilla Radio Mix ft Lenachka) 2:53
+03. Matierro - Alive (Radio Edit) ft Max Landry) 3:13
+04. Ryos - Eclipse (Reez Remix ft Allisa Rose) 4:09(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC83024ED5F8FDB1C1587BBE4AA25D42F5B86775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016430   (770540) от 14.05.2016
 
 VA - Matura Party Mallorca (2016) [MP3|320 кб/с] <Club, House, Funky, Progressive>
@@ -704,35 +733,6 @@ LaserDance - Greatest Hits & Remixes (2015) 2CD [FLAC|Lossless|image + .cue] <Sp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AACBBA70BBE3E3F8E3BDA6D10021012B33546C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659967   (773111) от 24.05.2013
-
-KlubbHeads - 5 Albums , 12 Compilations (1996 - 2004) [FLAC|Lossless]<House, Pumping House, Dutch Klubb House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IttyBitty, BoozyWoozy & Greatski feat. MC Hughie Babe - Get Ready (Intro) (0:22)
- 02. Olav Basoki - Waterman (4:34)
- 03. Andrea Bertolini - Nasty Bass (2:32)
- 04. Benny Benassi pres. The Biz - Love Is Gonna Save Us (4:15)(   Читать дальше...   )Жанр: House, Pumping House, Dutch Klubb HouseПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

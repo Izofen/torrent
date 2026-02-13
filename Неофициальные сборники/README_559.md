@@ -1,3 +1,61 @@
+###  Публикация: 1111610   (846569) от 06.03.2017
+
+VA - Peace Acapella: Grand Hit Collection (2017) [MP3|224-320 Kbps] <RnB, Rap, Hip Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846569.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Swedish House Mafia And Knife Party X Apster And Nlw - Antidote Soundboy (Bonka Mashup) 3:01
+002. Cashis - 100 Racks 3:48
+003. Kalash - Aller Simple 4:13
+004. Alonzo - Binta 3:37(   Читать дальше...   )Жанр: RnB, Rap, Hip HopПродолжительность: 08:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40D5A3713891191A8DC556C3874F916DC5A3313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002683   (846595) от 01.04.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 28 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Mckeown - It's A Game (Extended Version) (5:15)
+02. Dazzle Dreams - Flash In The Night (Dj Ikonnikov E.X.C Version) (3:55)
+03. Fancy - Bolero (Hold Me In Your Arms Again) (12'' Version) (5:40)
+04. S3rl - Pretty Rave Girl (Hands Up Edit) (3:27)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72FC97CC658B9792D6745C9853C47F608944FD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378559   (846609) от 25.04.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 24.04.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -684,64 +742,6 @@ VA - Дискотека 80-90 х По-Новому Зарубежный выпу
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:231DE5F4656708DE0C49FFCE3B995F3B8CB61A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378083   (847954) от 24.04.2020
-
-Ronnie James Dio - 100% Dio (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dio - I Speed At Night
-02. Dio - Rainbow In The Dark
-03. Black Sabbath - Falling off the Edge of the World
-04. Ronnie James Dio - Love Is All(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 02:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA27566A2B21A26922D3FB61B63A9A5F8F1061F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499555   (847965) от 02.10.2021
-
-VA - Promo Only Express Audio DFF February Week 02 (2021) [MP3|320 Kbps] <Hip-Hop, Dance, Synthpop, Contemporary R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G-Eazy Feat. Chris Brown & Mark Morrison - Provide (PO Clean Single Edit)
-02. Daya - Bad Girl
-03. Joy Oladokun - breathe again
-04. Riton x Nightcrawlers Feat. Mufasa & Hypeman - Friday (Dopamine Re-Edit)(   Читать дальше...   )Жанр: Hip-Hop, Dance, Synthpop, Contemporary R&BПродолжительность: 01:25:02 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB41D223CFF24CA86C8DFD4CC12FFE10B8856762
 ```
 
 https://mybot314.ru/tekegram_catalog/

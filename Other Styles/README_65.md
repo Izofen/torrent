@@ -1,3 +1,32 @@
+###  Публикация: 1169978   (400505) от 30.09.2017
+
+Medwyn Goodall - Stepping Stones (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sovereign
+02. Dreamweaver
+03. Unbroken
+04. Daybreak(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51EDDB4FCF4153C873707FB5EDA37F804A1FDDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170058   (400521) от 30.09.2017
 
 Klaus Schonning - Kaleidoscope (2017) [MP3|320 Kbps] <New Age>
@@ -752,35 +781,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE0EA1D9AC58DCB102C4E2BE05B06BDF89FF6B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252330   (409313) от 05.10.2018
-
-Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Current
-02 Memories
-03 The Revolutions
-04 Optimistic Waves(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1EA071513857301A07846CE4E47F0645E91B6CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

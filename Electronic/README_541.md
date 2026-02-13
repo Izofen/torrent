@@ -1,3 +1,32 @@
+###  Публикация: 1848753   (1052895) от 18.01.2026
+
+VA - Winter Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Be My Lover (Radio Edit) (2:12)
+02. Cristian Ferrer - Careless Whisper (Radio Edit) (3:21)
+03. Dellahouse - It's a promise we will keep (3:39)
+04. Julian Runge - Let Me Go (3:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B50159C5EABDA377AB9ABFE279AC2F1561FD1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848588   (1052925) от 18.01.2026
 
 VA - Silent Shore Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
@@ -715,35 +744,6 @@ Jupiter Panic - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD8336293D66668A3A52060BA52320818CF6CF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850319   (1054155) от 
-
-VA - Uplifting Only Top 15: January 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kvaii - Tenderness In Dreams (Intro Mix) [5:42]
-02. Evebe & Danny Claire - Everything (Timo Pralle Extended Remix) [5:54]
-03. Alex Nomak & Yuri Melnikov - Endless Spring (Extended Mix) [6:59]
-04. Mhammed El Alami & NELLY TGM - We Are One (Extended Mix) [6:31](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F8B4970020A542195CE016CF35E00DF3C1D69D
 ```
 
 https://mybot314.ru/tekegram_catalog/

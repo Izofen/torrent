@@ -694,6 +694,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 160792   (334385) от 18.11.2011
+
+Various Artists - The Pianist OST (2002) [MP3|320 kbps]<Classical>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_334385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chopin - Nocturne In C-Sharp Minor (1830) (4:04)
+2. Chopin - Nocturne In E Minor, Op. 72, No. 1 (4:22)
+3. Chopin - Nocturne In C Minor, Op. 48 No. 1 (5:49)
+4. Chopin - Ballade No. 2 In F Major, Op. 38 (7:32)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331088   (334664) от 13.10.2019
 
 VA - 24 Golden Instrumental Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
@@ -716,35 +745,6 @@ VA - 24 Golden Instrumental Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB87A785EAFE0A1F02E77CFF0B07F61F2991FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331076   (334984) от 13.10.2019
-
-Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334984.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Dawn (2:35)
-2.Pianissimo (3:26)
-3.Alpine Meadow (3:20)
-4.Peaceful Stream (2:52)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 992717   (898796) от 03.03.2016
+
+Ravel, Debussy, Mussorgsky - Herbert von Karajan, Berliner Philharmoniker (1995) Reissue, 2015 [FLAC 2.0|96/24|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Claude Debussy (1862-1918)
+La Mer, L.109
+01. 1. From Dawn Till Noon On The Sea (8:38)
+02. 2. Play Of The Waves (6:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236728D0E43F0A2450FC1A5486E3DAA997B7D011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100550   (898839) от 04.02.2017
 
 The Royal Philharmonic Orchestra - Symphonic Rock (2004) Box Set, 2CD [FLAC|Lossless|image + .cue] <Symphonic Rock, Modern Classical>
@@ -718,35 +747,6 @@ Mozart - Very Best Of Mozart (2005) 2CDs [FLAC|Lossless|image + .cue] <Classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:850C71C5F79BB18112821266393013E2668CB8E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992363   (902259) от 01.03.2016
-
-Прокофьев - Piano Concerto no. 3, piano pieces (Прокофьев, Coppola - London Symphony Orchestra) (2001) [OGG|256 кб/с] <Classical, Concerto, Классическая музыка>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto no. 3 in C major, op. 26
-01 (1) Andante - Allegro
-02 (2) Tema con variazioni (Andantino)
-03 (3) Allegro ma non troppo(   Читать дальше...   )Жанр: Classical, Concerto, Классическая музыкаПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CD331BBF217515B318416D26C4E1845C916702
 ```
 
 https://mybot314.ru/tekegram_catalog/

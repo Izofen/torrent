@@ -1,3 +1,38 @@
+###  Публикация: 538340   (503601) от 29.08.2012
+
+Jack Convery - Beatles On The Banjo (2009) [MP3|256 кб/с]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - If I Fell                                                          [02:27]
+ 02. - Winding Road                                               [03:45]
+ 03. - When I'm 64                                                 [02:38]
+ 04. - Yesterday                                                      [02:02]
+ 05. - And I Love Her                                              [02:36]
+ 06. - Ob-La-Di, Ob-La-Da                                       [03:13]
+ 07. - Here, There And Everywhere                         [02:33]
+ 08. - The Fool On The Hill                                       [02:53]
+ 09. - Michelle                                                          [03:04]
+ 10. - Blackbird                                                        [02:22](   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470BF2385BF6972C8C53B994BD9306650742AD11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934251   (503668) от 04.09.2015
 
 Kelly Andrew - Journey (2015) [MP3|320 кб/с]<New Age>
@@ -781,35 +816,6 @@ Luis Berra - Before Chaos (2019) [MP3|320 Kbps] <Instrumental, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A52F51A489DB00B6E035FF82B65C42486F9AF51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316079   (508825) от 23.07.2019
-
-Biffy Clyro ‎ - Balance, Not Symmetry (2019) Original Motion Picture Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score, Alternative Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balance, Not Symmetry
-02. All Singing And All Dancing
-03. Different Kind Of Love
-04. Sunrise(   Читать дальше...   )Жанр: Score, Alternative RockПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B178A9A365DEEA4B4CCFF1741971FA8B25200D3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

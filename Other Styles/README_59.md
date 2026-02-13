@@ -1,3 +1,32 @@
+###  Публикация: 1071680   (356968) от 11.11.2016
+
+VA - Los clasicos argentinos - Tango - Vol.12 - Ruben Juares: El bandoneon que canta (1996) [MP3|128 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Gardel - Callejera
+02. Hector Pacheco - Patotero sentimental
+03. Floreal Ruiz - Vieja amiga
+04. Mariano Mores y su conjunto - La guitarrita(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AD65BC3F58BAC07E62AD2B765ADC44009BB5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577621   (357789) от 19.11.2012
 
 Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
@@ -740,41 +769,6 @@ Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B187AD47F17F513E428D2E58A4D3CD86DE29F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573539   (363730) от 17.11.2012
-
-Stewart Dudley - 12 albums (2000-2012) [MP3|320 кб/с]<New age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363730.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:21) 01. Allure
-(4:08) 02. Summer In Sicily
-(3:39) 03. Mystery Of You
-(5:05) 04. Everything You Need
-(3:25) 05. Once It Was Home
-(2:45) 06. Souvenir
-(4:40) 07. Moonlit Colonades
-(4:24) 08. Her Face Remembered
-(3:52) 09. Yesterday Knows Why
-(3:47) 10. So Near So Far Away(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F515FAE816A11DAE3BE58DC48EC21CF98D12517
 ```
 
 https://mybot314.ru/tekegram_catalog/

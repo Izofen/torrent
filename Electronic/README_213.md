@@ -1,3 +1,32 @@
+###  Публикация: 1302520   (361208) от 01.10.2019
+
+Proxeeus - Celephaïs (Celephais) (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Midtempo, Goa Trance>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Celephaïs (06:55)
+2. Hypnos (08:46)
+3. Polaris (09:09)
+4. Dreamlands (11:27)(   Читать дальше...   )Жанр: Psybient, Midtempo, Goa TranceПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B14474AB0894045B1F719F53DD7BD57A3DB6B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255726   (361637) от 19.10.2018
 
 VA - Markus Schulz - Global DJ Broadcast: Top 20 October (2018) [MP3|320 Kbps] <Trance>
@@ -718,35 +747,6 @@ VA - Discover Dark 200 (Compiled & Mixed By Zach Zlov) (2019) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B4D2DAE8DCC769E0007EE124E931367E7B4F65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950927   (363659) от 29.10.2015
-
-VA - Chilling On The Couch 02 LP (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mav - A Journey Through Skylines (05:38)
-02. Mobility - Sunrays Through Rain (07:15)
-03. Naibu - Bird's Eye View (04:53)
-04. Oscillist - Mono (06:06)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F0DDA02DDCA7148A2D68ACACEDA9AB56CC00B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

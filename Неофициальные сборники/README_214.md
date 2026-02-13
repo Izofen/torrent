@@ -1,3 +1,73 @@
+###  Публикация: 577123   (361510) от 18.11.2012
+
+VA - Союз Хитовый - 5 (2012) [MP3|128 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлия Савичева feat. DJ Feel - Я С Тобой
+002. Сати Казанова и Батишта - Чувство легкости
+003. Потап и Настя - РуРуРу
+004. Ирина Билык - Как Же
+005. Слава Бодолика и Доминик Джокер - Фиеста
+006. Дима Билан - Все ускорилось
+007. Анжелика Агурбаш - До звезды
+008. DJ Smash feat. Вера Брежнева - Любовь на расстоянии
+009. Руки Вверх! - Я тебя люблю
+010. Оксана Краски - А девочке хочется(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A381CD61F05A61C1E652BDA5590471F7CC45F613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576885   (361538) от 18.11.2012
+
+VA - Топ-лист осенний 6. Лучшие из лучших (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. K.Melody - Зажигай Солнце
+002. Наталья Валевская - Счастливые часов не наблюдают
+003. 23:45 - Моя Любовь
+004. Корнелия Манго - Запретная Любовь
+005. Чи-Ли - Океан
+006. A-Dessa - Fire нет Wi-Fi
+007. 5sta Family - Вместе мы
+008. Лаурита - Новое поколение
+009. Градусы - Нефти
+010. Нюша - Воспоминание(   Читать дальше...   )Жанр: PopПродолжительность: 12:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B879053253E9AF97E52F8E7C08512CF9EBC5E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 406495   (361542) от 07.11.2011
 
 VA - Шансон Для Души Со Стасом Михайловым (2011) [MP3|320 kbps]<Шансон>
@@ -713,61 +783,6 @@ VA - Deep House Collection Vol.187 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3737CBDAE750C8742EED00F4312F4F784081EFCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255566   (362891) от 18.10.2018
-
-VA - Deep House Collection Vol.186 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ultra Nate - Free (George Gabieris & D. Tzere Remix) 4:51
-002. Саlvin Наrris & Sаm Smith - Prоmisеs (Denis First & Reznikov Remix) 4:31
-003. 2XM - Inept (Original Mix) 6:33
-004. Ace Of Base - Cruel Summer (Apollo Remix) 4:44(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07265F234AD47BDEEEC31D0165C1A4BADC106A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255415   (362892) от 18.10.2018
-
-Haddaway - What is Love (2011) Remix [MP3|192 Kbps] <Club, Dance, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362892.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. What is Love ★ Eat This Mix ★ RemixЖанр: Club, Dance, TechnoПродолжительность: 00:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC35A02828E3153F71EDB538FC4BFC3397DC118
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1236426   (554483) от 17.07.2018
+
+Tom Tom Club - 5 Studio Albums (1981-2000) CD [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1981 - Tom Tom Club
+1983 - Close To The Bone
+1988 - Boom Boom Chi Boom Boom(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 04:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D08C6608CAEC0583A4D758F8C4413BC27EBB46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236319   (554490) от 17.07.2018
+
+VA - Synthetic Memento (2009) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.C.D - Lovely (4:39)
+02. Keen K - From The Outside (4:13)
+03. Infinity Night - Split-Zero-Dimension-00 (5:05)
+04. Aldo Bergamachine - MedievalOrange (4:10)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-pop, DiscoПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2AA1F59DB2155D460FD25617A97F3D86A35B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307579   (554699) от 11.06.2019
+
+Fortuna Ehrenfeld - Helm Ab Zum Gebet (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heiliges Fernweh (02:51)
+02. Hör endlich auf zu jammern (03:43)
+03. Helm ab zum Gebet (02:48)
+04. Bad Hair Day (03:20)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB988732D338CCDC68383D0042608464543CC1A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236286   (554746) от 16.07.2018
+
+VA - Virgin Radio les 10 Ans! (2018) 4CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554746.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01: 
+01. Coldplay - Viva La Vida
+02. Muse - Uprising
+03. Christine and the Queens - Saint Claude (Domenico Torti Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF29A665C6B2E46F629BB6552AC3F9CFFCCDEFF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236285   (554748) от 16.07.2018
+
+VA - 100% NL Zomer Hits (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554748.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. BLØF - Zoutelande
+02. Sam Feldt - Summer On You (feat. Wulf)
+03. Ali B - Voy a Bailar (feat. Boef & Rolf Sanchez)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074994A851A2A81B3F23708D3D0FC07C8B1BD734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236212   (554750) от 16.07.2018
+
+Celi Bee & The Buzzy Bunch - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя - Celida Ines Camacho. "Сели Би" хотя и родилась в Нью-Йорке, но ребенком вернулась в Пуэрто-Рико с родителями и является американской певицей Пуэрто-Риканского происхождения, ставшей популярной во время расцвета Диско.01. Superman (5:08)
+02. Smile (4:02)
+03. It's Sad (3:58)
+04. Hurt Me, Hurt Me (3:06)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA2198B414A9B7F600AC5D03D651D1A73910F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236123   (554752) от 16.07.2018
 
 Anna Tatangelo - Ragazza di periferia (2007)  [FLAC|Lossless|tracks + .cue] <Pop>
@@ -571,178 +745,6 @@ VA - Первый танцевальный, Vol. 17 (Летний) (2019) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F692D01EE26783F2DA78912C5A768216E9741084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305831   (556179) от 01.06.2019
-
-Arirang Singers - Discorea (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Eyes (4:02)
-02. Troubles (3:26)
-03. Come And Join Us (4:15)
-04. Water Dance (3:37)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0B8717A6128C6B029C6950FC61801CD8B7BE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305772   (556189) от 01.06.2019
-
-VA - Clubfete 2019.2 (63 Summer Club & Party Hits) (2019) 3CD [MP3|320 Kbps] <Pop, House, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556189.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01.  Robin Schulz feat. Harlœ  -  All This Love
-02.  Mark Ronson  -  Nothing Breaks Like A Heart
-03.  Chic  -  Le Freak (Oliver Helden's Remix)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 03:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534159433B842744C6E6EB6595054CE8AF0E8C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305775   (556191) от 01.06.2019
-
-Amant - Amant (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If There's Love (14:37)
-02. Hazy Shades Of Love (13:35)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E12679731DBD83D75F26F332E1EC1DFB5AC68E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236175   (556245) от 15.07.2018
-
-VA - Первый дачный, Vol. 4 (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feduk - Закрывай глаза
-02. Слава - Мальчик мой
-03. Филипп Киркоров - Цвет настроения синий
-04. Nuteki - #Египетхит(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C99B1F24C5D8C8E9FCA238DC46972F584527083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236173   (556248) от 15.07.2018
-
-Dj Smash - The Best (Remastered) (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moscow Never Sleeps (Remastered)
-02. Lovers 2 Lovers (feat. Ridley) (Remastered)
-03. Волна (Remastered)
-04. Моя любовь 18 (Remastered)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B86E8571EB624BF9BF9086579DF5639CE0279C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556942   (556398) от 12.06.2022
-
-Vanessa Mai - No Hard Feelings (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Hard Feelings [00:02:38]
-02. Schwarze Herzen [00:02:24]
-03. Melatonin [00:02:19]
-04. Happy End [00:02:18](   Читать дальше...   )Жанр: PopПродолжительность: 00:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05E5D4E8B68A56E9CD3BA46F901A3963A2CB0B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

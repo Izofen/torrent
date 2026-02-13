@@ -1,3 +1,32 @@
+###  Публикация: 1457976   (1024254) от 27.03.2021
+
+David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro House, Progressive House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cardi B ft. Megan Thee Stallion - WAP (David Guetta Bootleg)
+02. Cloverdale - Open Up
+03. David Guetta & MORTEN - Kill Me Slow
+04. Danny Avila ft. Ruby Prophet & PollyAnna - My Blood(   Читать дальше...   )Жанр: Electro House, Progressive House, Big RoomПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E494584251F792C1455EDBED5FDE0C21DA3974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457980   (1024258) от 27.03.2021
 
 Blasterjaxx - Live @ Exclusive Water Tower Set (2021-03-25) [MP3|320 Kbps] <Hard Dance, Big Room>
@@ -711,35 +740,6 @@ VA - Future Symptoms Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C24E9A604F7BD35E4839C159E4CD1EEA81C91D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455466   (1025649) от 19.03.2021
-
-VA - Visions of Silence: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup - Missing U (Instrumental Mix) (05:09)
-02. Jero Nougues - Sol Y Mar (04:30)
-03. Finland & Aaskoven - The Waterfalls (04:50)
-04. Marga Sol - Calma (05:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5329F9F11B32332979372EEF077FFF39901A9788
 ```
 
 https://mybot314.ru/tekegram_catalog/

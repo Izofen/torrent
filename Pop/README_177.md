@@ -1,3 +1,177 @@
+###  Публикация: 1406226   (477225) от 02.09.2020
+
+Родион Газманов - Что такое любовь? (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477225.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Что такое любовь?
+2. Полюса
+3. Гравитация
+4. Шанс(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9943E7D99D468C4F072734F62A40FD39FF630A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056956   (477375) от 27.09.2016
+
+Skylar Grey - Natural Causes (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Wilderness
+02. Jump
+03. Lemonade
+04. Kill For You (feat. Eminem)(   Читать дальше...   )Жанр: Alternative Pop, ElectronicПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2AACF7EEBE50FAD0EA56E9487CD29A54C1572D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057056   (477380) от 27.09.2016
+
+Chris De Burgh - A Better World (2016) [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope In The Human Heart [0:55]
+02. Bethlehem [4:12]
+03. Once In A Lifetime [3:45]
+04. The Open Door [3:51](   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8674A99CABBBE971D51627F1469756A4E4445A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319915   (477458) от 15.08.2019
+
+Anitta - Kisses (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atención
+02. Banana (feat. Becky G)
+03. Onda diferente (feat. Ludmilla, Snoop Dogg & Papatinho)
+04. Sin miedo (feat. Dj Luian & Mambo Kingz)(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C1E6232EF3D071FC46316E646F3BD2F1F86760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319949   (477469) от 15.08.2019
+
+Chips - Having A Party (1982) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Having A Party (3:00)
+02. Get Him Out Of Your Mind (3:18)
+03. Our Love Is Over (4:04)
+04. Day After Day (2:53)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD72DF1DC4DED1BABF4B3A82059DF148E469F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319985   (477471) от 15.08.2019
+
+Judy Jackson - Electric Love (1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake-A-Belly (3:37)
+02. My Home Town (4:04)
+03. Electric Love (4:12)
+04. Feelings (4:12)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD25C8DD1FC8ADFE5D1E4EB60098D8A2AE2DCB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057010   (477601) от 27.09.2016
 
 Kristy Thirsk - Phoenix (2014) [MP3|320 Kbps] <Pop Rock>
@@ -586,186 +760,6 @@ Beyonce - Renaissance (2022) [MP3|320 Kbps] <R&B, Soul, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B6409F791B6FF40E66B403F91F3D2B1AD5CB5AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546223   (480307) от 12.09.2012
-
-VA - Pure 60's ... (2012) Collection BoxSet 4CD[MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody To Love - Jefferson Airplane [02:59]
-02. In The Year 2525 - Zager & Evans [03:17]
-03. Get Together - The Youngbloods [04:37]
-04. Do You Believe In Magic - The Lovin' Spoonful [02:07]
-05. Green Tambourine - The Lemon Pipers [02:28]
-06. Hush - Billy Joe Royal [02:31]
-07. Summertime - "Big Brother & The Holding Company - Janis Joplin" [04:00]
-08. Yellow Brick Road - Captain Beefheart & His Magic Band [02:29]
-09. Changes - Moby Grape [03:24]
-10. Undun - The Guess Who [03:26](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroФормат: 4CD Collection BoxSetПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8251262F1D18663EED73E67E21DEE8EF7513CC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 700690   (480319) от 16.09.2013
-
-ABBA - Gold: Greatest Hits (1992) Polydor D120679 [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (03:52)
-02. Knowing Me, Knowing You (04:02)
-03. Take A Chance On Me (04:04)
-04. Mamma Mia (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1DCDE3CE10D34B6CB21374ABDDD5E0671B5E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938607   (481301) от 18.09.2015
-
-Lana Del Rey - Honeymoon (2015) [FLAC|tracks+.cue]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeymoon
-02. Music To Watch Boys To
-03. Terrence Loves You
-04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E6F1D4935854F5E7A6A74860E7A0B7991498E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056074   (481394) от 25.09.2016
-
-Muslim Magomayev (Муслим Магомаев) - Arias From Operas (2015) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Figaro’s Cavatina From The Opera Il Barbiere Di Siviglia (4:41)
-02. Don Giovanni’s Aria From The Opera Don Giovanni (1:57)
-03. Figaro’s Aria From The Opera Le Nozze Di Figaro (3:53)
-04. Toreador Song From The Opera Carmen (Sung In Italian) (4:05)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52AAAF720EF6E611567E110411EC46DB97AAC06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056340   (481407) от 25.09.2016
-
-D.D. Sound - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья La Bionda, Carmelo и Michelangelo (Angelo), уроженцы Сицилии, были первыми итальянцами, добившимися успеха в производстве диско-музыки сразу с двумя проектами.  Первый, предлагаемый вашему вниманию, - "D.D. Sound" или "Disco Delivery Sound" специализировался исключительно на стиле диско и был не менее успешным чем второй - "La Bionda". (   Читать дальше...   )Список альбомов:
-1977 - 1-2-3-4... Gimme Some More!
-1977 - Disco Delivery
-1978 - Cafe(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 02:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E36639FE329B6BD4F513206838A73DC8E73D061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056556   (481568) от 25.09.2016
-
-Платья за 130 - Бывшие (2016) [MP3|320 Kbps] <Retro Pop, Comedy Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свадьба
-02. Бывшие
-03. Тусовка
-04. Ми-ми-ми(   Читать дальше...   )Жанр: Retro Pop, Comedy PopПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539EE251C5CF50438CB6809D25226F1B27F44F04
 ```
 
 https://mybot314.ru/tekegram_catalog/

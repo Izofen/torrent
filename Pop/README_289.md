@@ -1,3 +1,177 @@
+###  Публикация: 1386233   (795272) от 28.05.2020
+
+Elite - Premiere (1980) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys On Hollywood Blvd (8:00)
+02. Poppers (7:54)
+03. Reach For Me (Can't You See Lovin' Me) (8:42)
+04. Papa Was A Rolling Stone (10:22)Жанр: Electronic, DiscoПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5163A4D3AD417BF3EE9219EE1BA19995949315BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385817   (795273) от 28.05.2020
+
+VA - Dance Club 2020.02 (2020) Explicit [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ily (i love you baby) (feat. Emilee) - Surf Mesa
+02. Stupid Love - Lady Gaga
+03. Physical - Dua Lipa
+04. In Your Eyes (feat. Alida) - Robin Schulz(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C462ACF8CF1B7DAA8EEA51BEA519E2D6986A82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385925   (795277) от 28.05.2020
+
+Lapsley / Låpsley / - Through Water (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through Water (03:01)
+02. My Love Was Like the Rain (04:12)
+03. First (03:20)
+04. Ligne 3 (04:01)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93BCD38BBEC445164D7064131A4B45092790D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012060   (795464) от 29.04.2016
+
+Silver Pozzoli - The Original Maxi-Singles Collection (2015) [MP3|320 кб/с] <Italo-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Around My Dream (Vocal Version)
+02. Step By Step (Club Mix)
+03. From You To Me (Vocal Version)
+04. Pretty Baby (Vocal Version)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1D3AF518F5B7AC7FD26F6E7505ED48B0CD209C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200595   (795471) от 21.01.2018
+
+Кар-Мэн - Звездная коллекция (2001) [FLAC|Lossless|image + .cue]<Electro-Pop, Techno, Disco>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London, Good bye
+02. Бомбей буги
+03. Чио Чио Сан
+04. В Багдаде все спокойно(   Читать дальше...   )Жанр: Electro-Pop, Techno, DiscoПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E9B65FE61E424198A206859E4AC6877AA779CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509114   (795550) от 11.11.2021
+
+Pentatonix - Evergreen (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Been A Long, Long Time
+02. Wonderful Christmastime
+03. I Saw Three Ships
+04. Home For The Holidays(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6F4957F71887241727B9C56A22B46849406645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509266   (795551) от 11.11.2021
 
 VA - All The Hits Of Monster Disco Sound (1976) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
@@ -568,180 +742,6 @@ Charlotte Gainsbourg - IRM (2009) Limited Edition [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67CC754DD081866DD8C24A44597AFFDE111AA1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200101   (796972) от 19.01.2018
-
-Yumi Zouma - Willowbank (2017) [FLAC|Lossless|tracks] <Alternative Pop, Dream Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depths, Pt. I (02:50)
-02. Persephone (04:33)
-03. December (03:55)
-04. Half Hour (03:39)(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Indie Pop, Synth PopПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F449DC556E25F2723B6D63317C04C53D20B46D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011201   (796980) от 27.04.2016
-
-Penny McLean - 3 Albums (1975-1978) LP [MP3|320 кб/с] <Disco, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Penny McLean, наиболее известная как участница и прима вокалистка группы "Silver Convention", выпустила параллельно еще три, предлагаемых вашему вниманию, сольных альбома  в том-же, набирающем оборот, стиле "Диско". Родилась  в городе Клагенфурт, Австрия.Список альбомов:
-01. 1975 - Lady Bump
-02. 1977 - Penny
-03. 1978 - Midnight ExplosionЖанр: Disco, Funk, SoulПродолжительность: 01:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE21481CA01E02F26D130F930B98E44C7C8EE255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200169   (796986) от 19.01.2018
-
-Dilemmachine - No Selfies (2017) [MP3|320 Kbps] <Nu Disco, Synthwave, Retrowave>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dayshift
-02. Revive the Machine
-03. Rivets
-04. Dass Dope(   Читать дальше...   )Жанр: Nu Disco, Synthwave, RetrowaveПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E600F281CF54FC6DF099EBD5C1EF5F4543E5FD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385379   (797142) от 25.05.2020
-
-Ёлка - Past Perfect (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazzy Hip-Hop, R&B, Swing>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не такая, как вы! (3:58)
- 02. Синтетический мир (4:19)
- 03. Изоляция (0:22)
- 04. Красная роза (3:42)(   Читать дальше...   )Жанр: Pop, Jazzy Hip-Hop, R&B, SwingПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4446FF8C36F8331862B8BABF0D85E0931E07C34D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385589   (797159) от 25.05.2020
-
-VA - 90's Forgotten Pop Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown Singers - I Will Always Love You
-02. Lady Diva - Without You
-03. Movie Sounds Unlimited - Beauty And the Beast
-04. Orkamah - Book of Days(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04D4915E09BD89C4C8A1C19DDF2C917C51509CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507447   (797187) от 08.11.2021
-
-ABBA - Voyage (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Still Have Faith In You
-2. When You Danced With Me
-3. Little Things
-4. Don't Shut Me Down(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32568ECA64349CFEF3127232DF41A7EA7865F569
 ```
 
 https://mybot314.ru/tekegram_catalog/

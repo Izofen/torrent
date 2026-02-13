@@ -1,3 +1,32 @@
+###  Публикация: 1148904   (602475) от 09.07.2017
+
+New London Chamber Choir, James Wood - Secular Choral Music, Francis Poulenc -(2004) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Un soir de neige
+1. De grandes cuillers
+2. La bonne neige
+3. Bois meurtri(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6656BB9BF503D8458A2062D4F870B81A2E207A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297666   (603078) от 24.04.2019
 
 Ludovico Einaudi - Seven Days Walking (Day 1) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
@@ -723,35 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:992BBD2A171051B04E08ED2F76ECA3EBDF799ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295717   (616595) от 14.04.2019
-
-VA - Classical Chill Guitar (2019) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Withers - Myers-Cavatina (Arr. John Williams) (From 'The Deer Hunter') 3:12
-02. Grigoryan Brothers - Lovelady-Incantation No.2 5:02
-03. Slava Grigoryan & Leonard Grigoryan - J.S. Bach-Cantata BWV 156 - 1. Sinfonia (arr. Edward Grigoryan) 5:19
-04. Guitar Trek - Charlton-Dances for the Rainbow Serpent - 3. The Beauties of the World Are Revealed for the (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BF06944F21DB244CEC722C4A525A8CA7326D86
 ```
 
 https://mybot314.ru/tekegram_catalog/

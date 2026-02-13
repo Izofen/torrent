@@ -1,3 +1,178 @@
+###  Публикация: 1319189   (486819) от 10.08.2019
+
+Stella Donnelly ‎ - Beware Of The Dogs (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Man (03:33)
+02. Mosquito (03:11)
+03. Season’s Greetings (02:49)
+04. Allergies (02:55)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8745631B30BF2DE7C97FD5B3E756F98F426E2030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404987   (487269) от 28.08.2020
+
+Side Walk - No Stop Hit Mix (1989) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487269.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Tragedy
+2.	I'm Alive
+3.	I Close My Eyes And Count To Ten
+4.	I Heard It Through The Grapevine(   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A3351C870CD636292F1FD02934A5444449637B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936811   (487454) от 15.09.2015
+
+Новые Самоцветы и Инна Маликова - Вся жизнь впереди (2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Вся жизнь впереди
+03. Не повторяется такое никогда
+04. В последний раз(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745927FB1C08BAD49ECDAE57B3339E72E1850E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 821631   (487775) от 14.09.2014
+
+Abba - 40/40 The Best Selection (2014) 2CD /SHM-CD/ [APE|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487775.jpg" />
+</div>
+
+
+###  Подробнее
+
+"40/40 The Best Selection" - Сборник из 40 песен выпущенный в Японии к 40-летнему юбилею легендарного квартета.
+Выбор песен вошедших в издание был проведен путем опроса более 9000 японских фанатов группы.Disc 1:
+01. Dancing Queen (1976)
+02. That’s Me (1976)
+03. Take A Chance On Me (1977)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12612285E47BEC70EC2CEF94B16584131D26BD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937747   (488106) от 15.09.2015
+
+VA - Party Fun Summer (2015) [FLAC|track+.cue]<Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488106.jpg" />
+</div>
+
+
+###  Подробнее
+
+С небольшим опозданием (релиз вышел 22 июня 2015 года), представляем вашему вниманию сборник популярной музыки от Fun Radio. И не даром у него есть подзаголовок "Tous les nouveaux tubes dancefloor de l'ete - Все новые звуки танцпола, появившиеся летом" - это те звуки, которые вы может быть слышали на танцполах летом этого года. Жаркое лето продолжается!CD1:
+01. Kygo Feat.Conrad - Firestone  (3:24)
+02. Lost Frequencies Feat.Janieck Devy - Reality  (2:39)
+03. Omi - Cheerleader (Felix Jaehn Remix Radio Edit) (3:01)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB80FF493CF9EDE059F5BED5F891668DDB8BD11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055518   (488356) от 22.09.2016
+
+Ultimate - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркие представители "Евро-диско" на студии "Casablanca" в составе: Barbara Hernandez, Deborah McGriff, Rita Saunders.01. Medley: Love is the Ultimate / Dancing In the Night / Touch Me Baby (14:26)
+02. Ritmo De Brazil (4:49)
+03. Music In My Heart (6:23)
+04. Take Me to Chinatown (5:05)(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CC40090682755B1209B3CF196C7700DE1D02C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319019   (488543) от 09.08.2019
 
 VA - 80's Dance Story Original Italo Hits (2010) [MP3|320 Kbps] <Italo-Disco, Hi NRG>
@@ -582,175 +757,6 @@ Duran Duran - Paper Gods (2015) Deluxe Limited Edition [FLAC|image+.cue]<Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14757DEF091BF763BC5CA3FF0669E4E4977214C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243340   (492045) от 27.08.2018
-
-VA - La Maquina Del Tiempo (1993) vol 1, 2 [MP3|320 Kbps] <Electronic, Techno, Euro House, Italodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quique Tejada - Mix De La Maquina Del Tiempo (4:07)
-02. C.C. Peter - If You Leave Me Now (6:50)
-03. East Side Beat - Alive & Kicking (6:54)
-04. Country Girl - Wuthering Heights (5:18)(   Читать дальше...   )Жанр: Electronic, Techno, Euro House, ItalodanceПродолжительность: 02:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D05F64B63FD9F13D41C01B35F50311EA0FE4F25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243463   (492104) от 27.08.2018
-
-Mylene Farmer - City Of Love (2016) SDS, Single, [APE|Lossless|image + .cue] <Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492104.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. City Of Love (Version Single)                                                       (4:25)
-2. City Of Love (Martin's Remix) - (Featuring – ShaggyLyrics By)        (3:34)Жанр: Reggae, PopПродолжительность: 00:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC34C18256AB2B23DFC003C1294DBDAEA4222452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565656   (492187) от 24.07.2022
-
-Студия-80 - Сказка (2022) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лабиринт
-02. Метель
-03. Дом лунного света
-04. Элегия(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78BAE8895F14A0FC06CA69678D702A58A5260F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565464   (492188) от 24.07.2022
-
-Bad Boys Blue - 25-The Long Mixes (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A WomanЖанр: Disco, Dance, HouseПродолжительность: 02:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E063E7C36D66DC160A7FCDF2D34DFD2E45DD1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936967   (492372) от 13.09.2015
-
-Superhumanoids - Do You Feel OK? (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anxious In Venice (04:08)
-02. Oh Me I (04:21)
-03. Norwegian Black Metal (04:01)
-04. Touch Me (03:55)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C07E99B94833A0C9D134DBDA4CCF2312666510F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936987   (492473) от 13.09.2015
-
-Autumn Hill - Anchor (2015) [MP3|320 кб/с]<Country Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anchor (03:32)
-02. Return Policy (03:01)
-03. It Don't Get Better Than This (03:10)
-04. Blame (03:43)(   Читать дальше...   )Жанр: Country PopПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4C97387E2272B80061AD959A0A348B1E54BE3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

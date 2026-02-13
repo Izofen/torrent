@@ -1,3 +1,32 @@
+###  Публикация: 1003013   (845395) от 02.04.2016
+
+VA - Sunshine Live Vol.57 (2016) [MP3|320 кб/с] <House, Progressive, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Robin Schulz - Sugar 03:39
+02 Felix Jaehn - Eagle Eyes (Lucas & Steve Remix feat. Lost Frequencies & Linying) 03:19
+03 EDX - Revered 03:15
+04 DJ Antoine - Thank You (Paolo Ortelli & Luke Degree Radio Edit) 03:26(   Читать дальше...   )Жанр: House, Progressive, Electro HouseПродолжительность: 06:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBED05E1BFBB1E1D006452EBC37F29C3DDB6E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002922   (845398) от 02.04.2016
 
 VA - Sunshine Live Vol.56 (2016) [MP3|257-279 кб/с] <House, Progressive, Electro House>
@@ -713,35 +742,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D25CE27DA6B91DEF89B342149966ED722AD8E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111256   (848843) от 05.03.2017
-
-VA - Summer Bodies Are Made In Winter: Techno Edition (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hopeer – Open Water 06:34
-02. Morgenklang – Broken Flowers 06:58
-03. Lars Sommerfeld – Think It 09:30
-04. Holle64 – Clapton 07:08(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799542909CE8BCCFE006DBA291805752FCCC69AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

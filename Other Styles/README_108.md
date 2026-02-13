@@ -1,3 +1,38 @@
+###  Публикация: 514682   (657745) от 24.06.2012
+
+VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657745.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Allegro - Pepe Romero, Celin Romero, San Antonio Symphony Orchestra, Victor Alessandro, Antonio Vivaldi [03:44]
+2. Adagio in G minor - Dominic Miller, Budapest Film Orchestra, Nick Ingman, Tomaso Albinoni [05:08]
+3. Questa Notte - Craig Ogden, Ludovico Einaudi [05:07]
+4. Canario (Allegro ma non troppo) - Pepe Romero, The Academy of St. Martin in the Fields, Neville Marriner, Joaquin Rodrigo [04:42]
+5. Canarios - Heinz Wildhagen, Narciso Yepes, Guenther Dieckmann, Gaspar Sanz [03:10]
+6. Berceuse from Dolly Suite - Gabriel Faur? [03:17]
+7. Farewell to Stromness - Los Angeles Guitar Quartet, Peter Maxwell Davies [04:19]
+8. Spanish Dance, Op.37, No.10 - "Danza triste" - Pepe Romero, Celin Romero, Enrique Granados "[03:48]
+9. Romance No. 1 - Craig Ogden, John Brunning [02:57]
+10. Melodie - Pepe Romero, Robert Schumann [01:48](   Читать дальше...   )Жанр: Classical GuitarПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514455   (657968) от 24.06.2012
 
 Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990) [FLAC|Lossless]<Classical>
@@ -753,35 +788,6 @@ Sergio Santini - Коллекция (2017-2018) [FLAC|Lossless|WEB-DL|tracks] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:710A8283FE41FF8398AA23C9B585AF866DD4BC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137617   (666500) от 27.05.2017
-
-Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты Карибского моря - Мертвецы не рассказывают сказки (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks] ...
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geoff Zanelli - Dead Men Tell No Tales (01:51)
-02. Geoff Zanelli - Salazar (04:27)
-03. Geoff Zanelli - No Woman Has Ever Handled My Herschel (03:59)
-04. Geoff Zanelli - You Speak of the Trident (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30ECAB3E35C25C7EA84BA441ECF73F4141272742
 ```
 
 https://mybot314.ru/tekegram_catalog/

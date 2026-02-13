@@ -1,3 +1,175 @@
+###  Публикация: 1252614   (381614) от 10.10.2018
+
+Loreen - Ride (2017) [FLAC|Lossless|tracks] <Pop, Electronic, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. '71 Charger (4:12)
+02. Dreams (4:40)
+03. Jupiter Drive (5:25)
+04. Fire Blue (4:20)(   Читать дальше...   )Жанр: Pop, Electronic, RockПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5798B45B1C36A9BFF3EA407A5D3ACDAFFAEF3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253363   (381621) от 10.10.2018
+
+BZN - A Symphonic Night II (1998) [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Il Trovatore
+2.	Les Pêcheurs De PerlesЖанр: Pop, Classical, BalladПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5C3039238B9FD4C9EF7139A1F8E90EC0D222DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253355   (381689) от 10.10.2018
+
+BZN  - A Symphonic Night (1996) [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381689.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.		Sing Of Love And Faith
+2.		Lilly Marlene
+3.		La Paloma
+4.		Le Printemps(   Читать дальше...   )Жанр: Pop, Classical, BalladПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30AF07488DC70A2783ABE67259FEEC8221797EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253466   (381693) от 10.10.2018
+
+Sweetbox - Everything's Gonna Be Alrigh (1997) Maxi-Single [FLAC|Lossless|image + .cue] <Classical, RnB/Swing, Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381693.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Everything's Gonna Be Alright (Radio Version 85 Bpm)
+2.	Everything's Gonna Be Alright (Video Version 88 Bpm)
+3.	Everything's Gonna Be Alright (Geo's "E" Club Mix)
+4.	Everything's Gonna Be Alright (Classic Version)(   Читать дальше...   )Жанр: Classical, RnB/Swing, Hip HopПродолжительность: 00:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CE7FF30EC55D26C2B48EB8B2AFDC0813E99B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253373   (381698) от 10.10.2018
+
+Chi-Chi Favelas And The Black And White Band - Rock Solid (1978) LP [MP3|320 Kbps] <Electronic, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Solid (10:14)
+02. Cocaine Part One, Discocaine, Cocaine Part Two (7:48)
+03. Give It To Me (7:21)
+04. Voodoo Lady (7:48)Жанр: Electronic, Rock, DiscoПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D54409FD4328F2FE2B6EE8F4A385B63C73950416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068062   (382478) от 31.10.2016
+
+VA - NRJ 300% Hits 2016 (2016) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382478.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Coldplay - Adventure of a Lifetime
+02. Feder feat. Emmi - Blind
+03. Kendji Girac - Les yeux de la mama(   Читать дальше...   )Жанр: PopПродолжительность: 03:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F031ECA7DA5FE5E84CD3AE9C73812871EE709FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068096   (382499) от 31.10.2016
 
 Laban - Caught By Surprise (1985) Remastered, 2010, EMI [MP3|320 Kbps] <Italo-Disco, Synthpop>
@@ -574,180 +746,6 @@ Bee Gees - The Festival Albums Collection (1965-1967) 3CD /2013, Warner Music/  
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C498CC06C59EE0351844BD246788EEB4BD08399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574638   (383852) от 06.09.2022
-
-Milou - Sentimental Lover (1987) [OGG Vorbis|485 Kbps] <Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sentimental Lover	3:33
-02. Sentimental Lover (Instrumental)	3:35Жанр: ElectronicПродолжительность: 00:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF03E3561F2A51AAF4437B697254D7D04CA301BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 152306   (383897) от 12.11.2009
-
-Inna - Hot (2009) [FLAC|Lossless]<Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_383897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250314   (384333) от 26.10.2010
-
-A La Carte - Greatest Hits (2004) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_384333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doctor Doctor (Help Me Please)
-02. When The Boys Come Home
-03. Farewell Farewell To Caringford
-04. Ring Me Honey
-05. Red Indian Drums
-06. Jimmy Gimme Reggae
-07. River Blue
-08. Viva Torero
-09. Dong Dong Diki Diki Dong
-10. Wanted (Jean Le Voleur)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067724   (384765) от 30.10.2016
-
-Sandra - Heaven Can Wait (1988) (CD, Maxi-Single) [FLAC|Lossless|image + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384765.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Heaven Can Wait (Extended Version) 7:38
-2 Heaven Can Wait (Dub Mix) 4:01
-3 Heaven Can Wait (Single Version) 4:05Жанр: Pop, ElectronicПродолжительность: 00:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706AC7E599022F670F6CEBE35A57BCA644D7FE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326368   (384816) от 20.09.2019
-
-Pupo - 17 Albums (1977-2016) 11LP+6CD [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pupo (Enzo Ghinazzi) родился в 1955 году итальянском городе Понтичино во Флоренции. Его карьера в качестве певца стартовала в 1975 году. Первый альбом «Как ты прекрасна» («Come sei bella») вышел в 1977 году. Большой успех приходит в 1978 году с песней «Привет» («Ciao»), а затем с «Шоколадное мороженое» («Gelato al cioccolato»). В 1980 году он занял 3-е место на фестивале (   Читать дальше...   )Список альбомов:
-1977 - Come Sei Bella (LP)
-1979 - Gelato Al Cioccolato (LP)
-1980 - Piu' Di Prima (LP)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 11:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA96EE1A401309F19F5BB24B7D777059A053388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326496   (384841) от 20.09.2019
-
-Андрей Державин и Сталкер - Песни о хорошем, Часть 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384841.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не плачь, Алиса!
-2. Ночной город
-3. Когда ты уйдёшь
-4. Звёзды(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2843D933D59D678D6CE768EC54CE9EA08270EBDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,176 @@
+###  Публикация: 1363509   (942312) от 28.02.2020
+
+Моя Мишель - Наивность. Часть 1 (2020) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942312.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Стюардесс
+2. Не обещала
+3. СозвездияЖанр: PopПродолжительность: 00:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D060104FA17E59396E48012EB52A16EEAF5F046C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363607   (942429) от 28.02.2020
+
+Лариса Черникова - Тайна (1997) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайна (3:59)
+02. Тайные желания (4:08)
+03. Первый поцелуй (3:39)
+04. Вкусом шоколада (3:39)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E9B2D71D7B1AB2FADC39E8BC08BF1A475F0629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363600   (942467) от 28.02.2020
+
+Лариса Черникова - Одинокий волк (1995) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокий волк (дубль №1) (4:01)
+02. О,боже мой (4:15)
+03. Подари мне ночь (4:07)
+04. Рука в руке (4:16)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF759D475FC8BEEA813D5C3B65B2E383218E032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363605   (942478) от 28.02.2020
+
+Лариса Черникова - Подари мне ночь (1996) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подари мне ночь (4:05)
+02. Замкнутый круг (4:09)
+03. Мой танец-любовь (4:35)
+04. Найди меня в радуге дня (3:20)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584D24BF1F358BC8357E5CEC586B5BF6E3514150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363458   (942642) от 28.02.2020
+
+Kevin Krauter - Full Hand (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:05)
+02. Opportunity (03:33)
+03. Patience (03:52)
+04. Surprise (03:43)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E1DADB268ED7E125B0B18F3DC61C6F011FBF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363481   (942679) от 28.02.2020
+
+Kevin Krauter - Toss Up (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cowboy Chloe
+02. Lonely Boogie
+03. Rollerskate
+04. Suddenly(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B4D7E065438D94835A365145556FCDB4EBBA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983561   (943621) от 06.02.2016
 
 Владимир Пресняков - Звездная серия (1999) [MP3|320 кб/с] <Pop>
@@ -562,177 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:272E896C65E9F4226176C8381E3A352E1C96F938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091081   (944398) от 08.01.2017
-
-Charlie Puth - Nine Track Mind (2016) Deluxe [MP3|320 Kbps] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Call Away (03:15)
-02. Dangerously (03:19)
-03. Marvin Gaye (feat. Meghan Trainor) (03:11)
-04. Losing My Mind (03:32)(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D565932AB96BE342B1A92F8BCD6DCE9D1F70E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090956   (944489) от 08.01.2017
-
-Ibiza Dance Party - Big Ibiza Dance Mix (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pon De Floor  02:59
-02.  Applause  02:52
-03.  Just Give Me A Reason  03:55
-04.  One More Time  03:34(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D264E3EB9A2C9881CE42575D367E7A0F49839DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091084   (944558) от 08.01.2017
-
-Rumer - The Magic of Sarah Joyce (2017) [MP3|320 Kbps] <Female vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Sebastian's Girl (03:52)
-02. Aretha (03:17)
-03. Welcome Back (03:36)
-04. Slow (03:36)(   Читать дальше...   )Жанр: Female vocal, Pop, Easy listening, Soul, Smooth JazzПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67842DCA458188110E60B13B127EC5E53D071FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 98717   (944935) от 26.02.2020
-
-Chilly - For Your Love(1978)-Come To L.A(1979)-Secret Lies(1982) [FLAC+Cue|940 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimension 5 (3:18)
-02. Secret Lies (3:11)
-03. Ten Million Dollar Baby (2:40)
-04. Brain Storming (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518B8467F9DEB7EE9AD5F832F96225986A162BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 88838   (944941) от 26.02.2020
-
-Chilly - Showbiz (1980) [FLAC|951 Kbps]<Pop/Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's No Business Like Showbusiness (0:20)
-02. Showbiz (1:39)
-03. Rock'N'Roll Sally (2:32)
-04. Taxman (3:17)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A79599E88E86ED8CF9BD08D4F2E4BCEEE78950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983122   (945221) от 05.02.2016
-
-Adele - When We Were Young (2016) Single [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When We Were Young (04:51)Жанр: PopПродолжительность: 00:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1441474AFB0306FE70C588D876D3F769E10B3B59
 ```
 
 https://mybot314.ru/tekegram_catalog/

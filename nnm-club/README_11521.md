@@ -1,392 +1,22 @@
-###  Публикация: 1170820   (398270) от 02.10.2017
+###  Публикация: 569527   (392280) от 03.11.2012
 
-Home Sweet Home (2017) [Ru/Multi] (1.0.1) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Тима кардинально изменилась с тех пор, как его жена таинственно исчезла. В одну ночь, после долгого страдания, он просыпается в незнакомом месте, не в своем доме. Но выбраться из этого места мешает призрак неизвестной женщины. Сможет ли Тим выжить? Действительно ли это место в его доме? Связано ли это с исчезновением его жены? Поэтому сначала придется выяснить, (   Читать дальше...   )Тип издания: RepackРазработчик: YGGDRAZIL GROUP CO.,LTDЖанр: Adventure (Horror), 3D, 1st PersonЯзык озвучки: Английский, ТайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BC039D58F2E1320E4D4AFE42C17223282FB9B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170606   (398271) от 02.10.2017
-
-CCleaner 5.35.6210 Business | Professional | Technician Edition RePack (& Portable) by D!akov (1.10.2017)  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398271.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A35C5DF23D09960663AC01509D82BC1619A4B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170499   (398272) от 02.10.2017
-
-Tails 3.2 [анонимный доступ в сети] [amd64] 1xDVD
-
->>След.
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398272.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сайте размещен очередной релиз Tails 3.2. Дистрибутив предназначен для обеспечения максимально возможной анонимности при работе в сети Интернет.  Включена поддержка UEFI boot, которая позволяет загружаться на новых компьютерах, а также на компьютерах Apple.
-
-Tails выполнен в виде Live-системы, позволяющей из коробки обеспечить максимальный уровень анонимности и (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE36B3841E24EBE27E00D7EAA534B3066F3AE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159036   (398273) от 02.10.2017
-
-Discovery: Аляска: Семья из леса / Alaskan Bush People (2017) HDTVRip  [H.264/720p-LQ] (Сезон 5, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди лесов Аляски живет семья, которой чужды прелести цивилизации и которая предпочитает глушь и уединение. Билли Браун, его жена Эми и их семеро детей, пять мальчиков и две девочки, поселились так далеко, что других людей они видят не чаще, чем раз в полгода. Члены этой семьи называют себя «волчьей стаей».Производство: США, Park Slope ProductionsЖанр: Документальный, выживание, историяРежиссер: Т.Дж. Шанкс, Джейсон Берман, Эзра ЭпвеллПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C53EC92C5B0CF03AA36DDD794405BDD211C2ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170810   (398274) от 02.10.2017
-
-2pac: Легенда / All Eyez on Me (2017) BDRemux [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестная, скрытая за газетными заголовками и вспышками фотоаппаратов история человека, ставшего рэп-легендой и погибшего в свои 25. Правда о том, как чернокожий выходец из гетто, участник криминальных разборок, неоднократно привлекавшийся к суду и развязавший смертельную войну рекорд-лейблов, становится настоящим голосом улиц и одним из самых влиятельных исполнителей (   Читать дальше...   )Производство: США, Code Black Entertainment, Morgan Creek Productions, Program Pictures, Voltage PicturesЖанр: Драма, биография, музыкаРежиссер: Бенни БумАктеры: Гари Викс, Кори Хардрикт, Доминик Сантана, Катерина Грэхэм, ДеРэй Дэвис, Аллен Феникс, Джамал Вулард, Крис Кларк, Харольд Хаус Мур, Грэйс Гибсон, Лорен Коэн, Брюс Дэвис, Джош ВентураПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: Вячеслав КотовСубтитры: Английские, испанскиеПродолжительность: 02:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2EC9EFF16DC68F9B46DDAA9BB95A45D4841F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170889   (398275) от 02.10.2017
-
-Футажи - VfxCentral - Eye Of The Storm [MOV]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_398275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eye Of The Storm - Эти цифровые штормовые эффекты были использованы в удостоенном наград музыкальном видео Garret Garfield 'Eye of the Storm'! Теперь они доступны для вас и ваших проектов! Этот пакет эффектов намного больше, чем создание эпических бурь. Благодаря освещению и облачным эффектам возможности ограничиваются только вашим воображением!Формат: MOVРазрешение файлов: 4096x1708
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170824   (398276) от 02.10.2017
-
-Стражи Галактики. Часть 2 / Guardians of the Galaxy Vol. 2 (2017) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [IMAX Edition]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все в сборе: землянин Питер Квилл (Звездный Лорд), молчаливый громила Дракс, зеленокожая наемница Гамора, живое дерево Грут и говорящий енот. Герои не изменяют себе и с завидной регулярностью продолжают попадать в немыслимые ситуации, выпутываясь из них почти без ущерба (а иногда даже с пользой) для окружающих. На этот раз им предстоит раскрыть одну из самых главных (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: фантастика, боевик, приключенияРежиссер: Джеймс ГаннАктеры: Крис Пратт, Зои Салдана, Дэйв Батиста, Вин Дизель, Брэдли Купер, Майкл Рукер, Карен Гиллан, Пом Клементьефф, Элизабет Дебики, Курт РасселПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские, Украинские, Английские (вшитые, внешние)Продолжительность: 02:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9481B6BF4C904CACA9D01FA4C3563A2AD8C192EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170716   (398277) от 02.10.2017
-
-Обитель зла / Resident Evil (2002) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398277.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гигантской подземной лаборатории на волю вырывается опаснейший вирус, мгновенно превращая своих жертв в прожорливых зомби. Достаточно одного их укуса или царапины страшных когтей, чтобы человек стал обезумевшим пожирателем живой плоти.
-Военные посылают в секретный комплекс, кишащий ужасными мутировавшими животными и голодными монстрами, группу спецназа, к которой (   Читать дальше...   )Производство: США, Constantin Film Produktion GmbH, Davis-Films, Impact Pictures, New LegacyЖанр: Ужасы, Боевик, ФантастикаРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Мишель Родригес, Эрик Мэбиас, Джеймс Пьюрфой, Мартин Крюз, Колин Сэлмон, Райан МакКласки, Оскар Пирс, Индра Ове, Анна БолтПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A39C029AE4BD9D7A25CFACF61FE2E2E6F312D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 399927   (398290) от 15.10.2011
-
-Сурганова и Оркестр / Концерт в Ялте (25.09.2011) <Rock> CamRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся 25 сентября 2011 года в Ялтинском театре имени А.П. Чехова. Первая часть концерта была посвящена презентации нового альбома группы «Увидимся скоро»001 Интро
- 002 Увидимся скоро
- 003 Хвала
- 004 SanctumSanctorum(   Читать дальше...   )Жанр: Rock / VIP-Punk-DecadenceПродолжительность: 01:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D9A9207AA2B257973B189F1582A00A00E0BECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400090   (398297) от 15.10.2011
-
-Жадный Кузя (1969) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Детский, КукольныйРежиссер: Михаил Каменецкий, Иван УфимцевПродолжительность: 00:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0A5FE7341A491A5B8BBE67E36F625B4DD1E6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566968   (398298) от 28.10.2012
-
-VA - Осенний вояж. Зарубежный сборник (2012) [MP3|256 кб/с]<pop, dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398298.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inna Marie - Ai Se Eu Te Pego
-002. Blaxy Girls - Mr & Mrs President
-003. Gym Class Heroes Ft. Ryan Tedder - The Fighter
-004. Danny D - Langa Tine (Radio Edit)
-005. Laura Broad Feat. Chris Brown - Nobody Can
-006. Akon - Ain't Saying Nothing
-007. Topmodelz - L Esperanza 2012 (Single Mix)
-008. Loreen - Euphoria
-009. R.I.O. Feat. U-Jean - Summer Jam
-010. Sasha Dith & Steve Modana - Radio Loves You(   Читать дальше...   )Жанр: pop, danceПродолжительность: 06:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D58D3BAC6117E142DC4ED65F426C4D9852EE532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566934   (398300) от 28.10.2012
-
-Skanskа Mоrd - Pаths Tо Chаron (2012) [MP3|320 кб/с]<Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Caves Of Our Mind 06:00
-02. Addicts 03:56
-03. A Black Day 05:40
-04. Lord Of Space And Time 06:51
-05. The Flood 05:35
-06. Laggasen 03:36
-07. The Ambassadeur 03:52
-08. Alien Encounter 04:05
-09. Rising 05:09Жанр: Stoner RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222D5623E6167796930F4DEB1918D52B7E7FEFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566962   (398302) от 28.10.2012
-
-VA - XXXL Party Non-Stop (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398302.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Favorite feat. Theory - Beautiful night
-002. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you
-003. Guy Sebastian - Gold
-004. Linkin Park - Until It Breaks
-005. Justin Bieber feat. Ludacris - All Around The World
-006. Far East Movement feat. Justin Bieber - Live my life
-007. Giga Dance vs. Rainy - Like an Angel (Deniz Rain radio mix)
-008. Loverush UK! feat. Bryan Adams - Tonight in babylon
-009. Avicii - Fade into darkness (Vocal radio edit)
-010. Bryce feat. Carlprit - Dance with me(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566372A34311B7B79E6EF5528EE13DB22CEAEC97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566568   (398305) от 28.10.2012
-
-Nature Wallpapers (27.10.12) [Wallpapers]
+HQ Wallpapers Perfect Women (02.11.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398305.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F9222A85CDD2AFA7E0639E54CC0DC5613C6F7C0
+magnet:?xt=urn:btih:45B07017B122C90299DD60B497EF08E6DCBFF59B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,34 +24,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566790   (398310) от 28.10.2012
+###  Публикация: 569986   (392281) от 03.11.2012
 
-VA - Global DJ Broadcast Top 20 October (2012) [MP3|~269 кб/с ]<Trance>
+[Wallpapers] Animals Wallpapers №3
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398310.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Markus Schulz vs Ferry Corsten - Loops & Tings (Extended Mix)
- 02. Susana & Dark Matters - Home (Mr. Pit Remix)
- 03. Nifra - Dark Harbour (Original Mix)
- 04. Elevation vs Grube & Hovsepian - City Of Angels (Beat Service Remix)
- 05. Fisherman & Hawkins - Nightshift (Original Mix)
- 06. Silvio Carrano - Virus (Cashy & Tebron Remix)
- 07. David Broaders - Somewhere Special (Terry Da Libra Remix)
- 08. Markus Schulz ft Adina Butar - Caught (Duderstadt Remix)
- 09. Richard Durand & Protoculture - Pleasure (Original Mix)
- 10. The Thrillseekers ft Stine Grove - Everything (Wellenrausch Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:50
+[Wallpapers] Animals Wallpapers №3
+Название: Animals Wallpapers №3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F07C9C4E45251E0FCE7BB7854768D14873826EE
+magnet:?xt=urn:btih:A3CCF5BD9F58D82922D4FA2D29B9113476C4FEA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,33 +54,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566931   (398313) от 28.10.2012
+###  Публикация: 569987   (392282) от 03.11.2012
 
-Glowsun - Eternal Season (2012) [MP3|320 кб/с]<Stoner Metal>
+[Wallpapers] Interior Desktop Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392282.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Interior Desktop Wallpapers Pack 1
+Название: Interior Desktop Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6421083D8F59243722001794B63F804E9EB4F45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569311   (392283) от 03.11.2012
+
+VA - Наша осень от Русского радио 4 (2012) [MP3|256 кб/с]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398313.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Death's Face 07:02
-02. Dragon Witch 06:42
-03. Lost Soul 04:41
-04. Reverse 04:37
-05. The Thing 05:55
-06. From The Sky 08:15
-07. Sleepwalker 08:40
-08. Monkey Time 06:04
-09. No! (Bonus Track) 02:59Жанр: Stoner MetalПродолжительность: 00:55:01
+001. Дима Билан - Всё Ускорилось
+002. Джиган (Geegun) - Держи Меня За Руку
+003. Натаника - Два Неба
+004. David - Раз, два, три
+005. Татьяна Котова (Kottova) - Хоп-хоп
+006.Оксана Казакова - Гипнотизирую
+007. Дискотека Авария - Салют, Вера!
+008. Глюкоза - Возьми Меня За Руку
+009. Ажур - Не надо искать
+010. Тимур Родригез - Я Верю В Твою Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A19FB7821C1E8D90F15144DC5289D8D405D57477
+magnet:?xt=urn:btih:0705390988E4655F66A54B7AEC3FEC727B56B0A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,25 +119,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566858   (398316) от 28.10.2012
+###  Публикация: 569990   (392285) от 03.11.2012
 
-Чистосердечное признание. Родня (2012.10.28) SATRip
+[Wallpapers] Desktop Wallpapers Pack 10
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398316.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа существует уже более 10 лет. Все это время в ней показывали только эксклюзивы — материалы, которые невозможно увидеть где-либо еще. Разнообразные темы и, конечно же, чистосердечные признания. Герои передачи доверяют зрителям самые сокровенные тайны. Корреспонденты и продюсеры программы — профессионалы, способные, оставаясь за кадром, заставить нас взглянуть на многие вещи и события под новым углом. Это документальная программа только о том, что действительно интересно. Здесь все реально, все эмоционально и обязательно актуально.В выпуске: Почему наши знаменитости не помнят родства? Из-за чего рэппер Децл поругался с богатым родителем? Почему Штирлицу так и не поставили памятник? О чем грустит тетя Билана? Почему Надя из «Виагры» забыла больного отца? Впервые – тайна болгарской родни короля российской эстрады Киркорова.Жанр: ДокументальныйПродолжительность: ~ 00:35:30
+[Wallpapers] Desktop Wallpapers Pack 10
+Название: Desktop Wallpapers Pack 10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD058D28649E9029072ACC6BCF67DC1E7F12144A
+magnet:?xt=urn:btih:E657693862F7A1D2FBA8E4AABCDC660F5452F88E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,25 +149,428 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 714327   (398323) от 24.10.2013
+###  Публикация: 569324   (392286) от 03.11.2012
 
-За гранью: Две души / Beyond: Two Souls (2013) [720p] GamePlayRip
+Sexy Girls Pack Wallpapers (02.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3504x2336
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3490FB8C7CABE853802049CB42710A1B389516A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569797   (392287) от 03.11.2012
+
+VA - Best of World Trance. October (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remy Le Duc, The EC Twins & Zen Freeman feat. Shakeh - In Motion
+ 02. Dreamy - Dragon's Paradise
+ 03. BT vs Norin & Rad - The Emergency Gift (Myon & Shne 54 Mashup)
+ 04. Andrew Rayel feat. Jano - How Do I Know (Armin van Buuren Intro)
+ 05. Rory Gallagher feat. Dawn - Remember Me (Dan Stone Breaks Remix)
+ 06. The Blizzard & Yuri Kane feat. Relyk - Everything About You
+ 07. Susana & Aurosonic - Shelter
+ 08. Deadmau5 – Closer
+ 09. Aruna - Save The Day (Myon and Shane 54 Remix)
+ 10. Orjan Nilsen - Copperfield(   Читать дальше...   )Жанр: TranceПродолжительность: 03:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92EB895EFAE5F0EC34FBC5FA5B99310663231959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569756   (392288) от 03.11.2012
+
+Aurosonic - Etyology Sessions 131 (01-11-2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Catalin Anton & Sovve - Holding on to Us (intro mix) (Solaris)
+ 02.Eric Prydz - Every Day (Pryda)
+ 03.Sargas - Stay With Me (Nano Beats)
+ 04.Joel Gershom - Monsoon (Perceptive Deep)
+ 05.Sasha Wind feat. Igor Degtyarev - Goodbye (Alexandr Frost rmx) (People Revolt)
+ 06.Cosmic Gate & Emma Hewitt - Calm Down (Black Hole)
+ 07.Ben Gold Feat. The Glass Child - Fall With Me (Garuda)
+ 08.Andrew Rayel feat. Jano - How Do I Know (club mix) (Armind)
+ 09.Araya - Cloudburst (Manuel Rocca rmx) (Silent Shore)
+ 10.Kayan Code - Roadkill (Crystal Source)Жанр: TranceПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4ACBE264C54BC6ADE07E50CF8C5733515C9693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569765   (392291) от 03.11.2012
+
+Andrew Lu - Club Universe Radioshow 048 (01.11.2012) [MP3|320 кб/с]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392291.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kabool & Hether - Heartjam (Original Mix) (CD-R)
+2. EDX - Touched (Original Club Mix) (Toolroom Records)
+3. Harry Square - Here To Stay (Original Mix) (Interstate Recordings)
+4. Cerf, Mitiska & Jaren - Give Me A Sound (Brad & Victor H Remix) (S107 Recordings (Armada))
+5. Speed Limits - Here We Are (Original Mix) (Enhanced Progressive)
+6. Eloquentia & Vast Vision - Toes In The Sand (Gal Abutbul Remix) (Alter Ego Records)
+7. Maison & Dragen - Hour Of The Wolf (Original Mix) (Zouk Recordings (Armada Music))
+8. Joe Hander - Amazing (Muthanna M Remix) (Lohit)
+9. Ellie Lawson with Adrian&Raz - A New Moon (Dart Rayne & Yura Moonlight Remix) (Adrian & Raz (AdrianRazRecordings))
+10. Witness45 - iPlanet (Elev8 Remix) (Melancholy Records)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C40ABCCFCEB07D8ACDEC06BECB9DE77F78ACB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569697   (392292) от 03.11.2012
+
+VA - Trance Universe Vol.8 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivica Vanevski - Irriversibility (7:44)
+ 02. Esprit Fort - Rise - Club Mix (7:24)
+ 03. Arman Bas - The Lonely Shepherd (7:25)
+ 04. Vol Deeman - Purple Rain (7:26)
+ 05. Matt Pincer - One Night in July (8:43)
+ 06. Corn Flakes 3D - All in One (6:29)
+ 07. Rene Ablaze - Destination Daylight (Feat. Stine Grove) - Rene Ablaze Remix (8:11)
+ 08. M.C.K. - Relax (8:55)
+ 09. Mindsurfer - Hidden Secrets (5:23)
+ 10. Sivan Khan - As Time Shifts (7:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0B2D641E80145FF3D260A64C1BEE75DDEED7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569319   (392293) от 03.11.2012
+
+Sexy Girls Pack Wallpapers (01.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5950x4250
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8343DCFB84D41C53B8568108D5389E40A364707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569633   (392294) от 03.11.2012
+
+Murder Construct - Results (2012) [MP3|320 кб/с]<Death Metal / Grindcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red All Over (2:02)
+ 02. Under The Weight Of The Wood (1:57)
+ 03. No Question, No Comment (1:55)
+ 04. Gold Digger (2:11)
+ 05. Compelled By Mediocrity (2:44)
+ 06. The Next Life (3:33)
+ 07. The Dead Hope (2:00)
+ 08. Feign Ignorance (1:58)
+ 09. Mercy, Mercy (2:17)
+ 10. Malicious Guilt (1:56)(   Читать дальше...   )Жанр: Death Metal / GrindcoreПродолжительность: 00:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7E2973D16DE23DA1DA981AFB9E35746F1C0535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569320   (392295) от 03.11.2012
+
+Wallpapers Sexy Girls Pack (01.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3180x2120
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C6A4D1C8F1D201FBABDFB4E8C26C8728C58B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 402353   (392301) от 21.10.2011
+
+Журнал | Playboy [Spain]. Lenceria Fuego Interior [2000] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испанская версия специального выпуска Playboy.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A193D65BC653EF233111C8C3A730106474A2D158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 402561   (392304) от 21.10.2011
+
+Журнал | GQ [Россия] №11 (124) (ноябрь 2011) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392304.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЖурналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C26D00CDD0A9134311B941E304979568AF2A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569370   (392317) от 03.11.2012
+
+Sinate - To The Death (2012) [MP3|320 кб/с]<Death Groove Thrash>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curse Of The Blood Eagle 04:07
+02. Premonition Of The Wicked 05:04
+03. Submit Your Blood 06:08
+04. The Black Death 04:25
+05. Order Of The Dragon 03:52
+06. Return To Scars 04:46
+07. Seizure 04:11
+08. Godless World 04:09
+09. The Pain 03:17
+10. Seperatist 03:23Жанр: Death Groove ThrashПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914C98D9488F9B7064C6A6DC59BC5192D5A9DDE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569637   (392320) от 03.11.2012
+
+Nordor - Erga Omnes (2012) [MP3|320 кб/с]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5a 01:56
+ 02. Memories From The Future 03:51
+ 03. Misanthropic Κaleidoscope 04:26
+ 04. Salvation From The Stench 03:05
+ 05. Thelisis 02:05
+ 06. Iscariots Fireshower A Hymn To Traitors 02:45
+ 07. Lycan 02:29
+ 08. The Child Of Mandragora 03:11
+ 09. Vow 02:56
+ 10. Bow To Me 02:53(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A639A8FDF6788700BF9B3881A55D7875E28FD1D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569049   (392361) от 02.11.2012
+
+Автономный KMS Server for Windows 8 [Русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_392361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автономный, независимый от системы, локальный KMS сервер для активации Windows 8 Professional и Windows 8 Enterprise версий. Текущий счетчик = 50, при необходимости скрипт его "накрутит"
+
+(   Читать дальше...   )Название программы: Автономный KMS Server for Windows 8Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569282   (392362) от 02.11.2012
+
+Храбрая сердцем / Brave (2012) [1080p] BDRip
 
 >>След.
->>Игровое видео
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398323.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392362.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главной героиней Beyond является девушка Джоди Холмс, которая обладает уникальным даром — она может общаться с потусторонним миром.Производство: Quantic DreamЖанр: Психологически триллерРежиссер: Дэвид КейджАктеры: Эллен Пейдж, Уиллем Дефо, Эрик Винтер, Кадим ХардисонПеревод: ДублированныйПродолжительность: 05:48:36
+Испокон веков мифы и легенды окутывают загадочной пеленой живописные отроги Шотландских гор. Искусной лучнице Мериде приходится выбирать свой путь в жизни самостоятельно, и однажды она отказывается следовать древним традициям королевства, бросая вызов могущественным шотландским кланам и их предводителям: нескладному лорду МакГаффину, угрюмому лорду Макинтошу и сварливому (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйПеревод: Полный дубляж, вкл. песни (НТВ+)Язык субтитров: Английский, Английский (Комментарий) (PGS)Продолжительность: 01:33:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFBA11945F58AF42513332AB4796AE51145369FD
+magnet:?xt=urn:btih:010C1964AC3E99E7E1C26ACD932FD5EB749FD868
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,25 +578,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170013   (398328) от 02.10.2017
+###  Публикация: 568803   (392363) от 02.11.2012
 
-Осенний марафон (1979) WEB-DL [H.264/1080p-LQ]
+Прошивка 6.60 PROMOD-C Installer v2.0 [PSP] [RUS] (2012)
 
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398328.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У талантливого педагога и переводчика Бузыкина нерешительный характер. Он не может оставить жену и уйти к любимой женщине, не может отказать эксплуатирующей его талант сокурснице, терпит посещения доморощенного философа-алкаша, а когда, наконец, решается на смелый шаг — терпит фиаско, так как по природе мягок и податлив, как воск.Производство: СССР, МосфильмЖанр: Комедия, МелодрамаРежиссер: Георгий ДанелияАктеры: Олег Басилашвили, Наталья Гундарева, Марина Неелова, Евгений Леонов, Норберт Кухинке, Николай Крючков, Галина Волчек, Борислав Брондуков, Владимир Грамматиков, Никита ПодгорныйПродолжительность: 01:28:45
+прошивкаЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D3DC9E16B2DF53ACC75E3383EB0B6846D58C32E
+magnet:?xt=urn:btih:56D5ADC70792E48DC0DA360290EA578992ABBE6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,25 +604,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170819   (398330) от 02.10.2017
+###  Публикация: 569057   (392364) от 02.11.2012
 
-Стражи Галактики. Часть 2 / Guardians of the Galaxy Vol. 2 (2017) Blu-ray 3D [H.264/1080p] [ISO] [IMAX Edition]
+Need For Speed: Most Wanted [Xbox 360] [FullRUS] (Pal) (LT+3.0/15574) [+Kinect] (2012)
 
->>
->>
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_398330.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все в сборе: землянин Питер Квилл (Звездный Лорд), молчаливый громила Дракс, зеленокожая наемница Гамора, живое дерево Грут и говорящий енот. Герои не изменяют себе и с завидной регулярностью продолжают попадать в немыслимые ситуации, выпутываясь из них почти без ущерба (а иногда даже с пользой) для окружающих. На этот раз им предстоит раскрыть одну из самых главных (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: фантастика, боевик, приключенияРежиссер: Джеймс ГаннАктеры: Крис Пратт, Зои Салдана, Дэйв Батиста, Вин Дизель, Брэдли Купер, Майкл Рукер, Карен Гиллан, Пом Клементьефф, Элизабет Дебики, Курт РасселПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские, английские, казахские, чешские, польскиеПродолжительность: 02:15:46
+Уходите от полиции и опережайте соперников - только так можно добиться успеха в Need for Speed Most Wanted!
+
+Думайте быстро, чтобы оставить полицейских с носом. Используйте возможности открытого мира, чтобы скрываться, и зарабатывайте новые машины, чтобы всегда быть впереди.
+
+Как принято в играх Criterion Games, в центре внимания находитесь вы и ваши друзья. Нет ни лобби, ни меню, и вы можете в любой миг бросить вызов друзьям в различных многопользовательских режимах. Помните: для победы в Most Wanted все средства хороши!Тип издания: ЛицензияРазработчик: Criterion GamesЖанр: RacingЯзык интерфейса: FullRUS
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:3C3F5B040B33588E1FB686BE6F6F5A26FF91EBF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,25 +634,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170795   (398332) от 02.10.2017
+###  Публикация: 568055   (392365) от 02.11.2012
 
-Другой мир: Пробуждение / Underworld: Awakening (2012) BDRip [H.264/720p]
+Специалист | iPhone и iPad. Уровень 1. Разработка мобильных приложений под IOS [2012] PCRec
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398332.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Человечество обнаружило существование вампиров и ликанов и начинает войну, чтобы уничтожить эти расы. Селин прорывается к пирсу, где её ждет Майкл для того чтобы вместе отплыть на корабле и скрыться ото всех. Но у пирса их ждет засада. Взрыв гранаты разбрасывает Селин и Майкла в разные стороны. 12 лет спустя Селин просыпается от криогенного сна в лаборатории и узнает (   Читать дальше...   )Производство: США / Lakeshore Entertainment, Saturn Films, Screen Gems, Sketch Films, UW4 ProductionsЖанр: Ужасы, Фэнтези, БоевикРежиссер: Монс Морлинд, Бьёрн СтейнАктеры: Кейт Бекинсейл, Стивен Ри, Майкл Или, Тео Джеймс, Индиа Айсли, Чарльз Дэнс и др.Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:28:35
+Все большую популярность получает разработка мобильных приложений, в особенности для флагмана этого рынка - устройств на базе iOS. Успешно окончив данный курс, Вы научитесь работать с мобильной платформой от Apple, узнаете ее особенности и внутреннее устройство. Вы познакомитесь с жизненным циклом приложения под iOS и особенностями управления памятью. Отдельная часть курса рассматривает все доступные разработчику элементы управления –  слайдеры, текстовые поля, кнопки и прочее, а так же способы получения данных о множественных нажатиях multi-touch. В рамках курса рассматривается синтаксис и основные конструкции языка программирования Objective-C, что позволит Вам незамедлительно начать самостоятельную разработку приложений. Вы получите знания об устройстве AppStore со стороны разработчика, а также о правилах и способах публикации приложений.Жанр: ПрограммированиеПродолжительность: 20:16:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBFF0CF898F836D3E1145CD351F92F426D34B256
+magnet:?xt=urn:btih:130B871B998B8120555B3ECEE71A1EB60D835DBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,49 +660,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170933   (398334) от 02.10.2017
+###  Публикация: 536098   (392370) от 02.11.2012
 
-jv16 PowerTools 2017 4.1.0.1758 Final RePack (& Portable) by elchupacabra [Ru/En]
+Sleeping Dogs - Limited Edition [Ru/En] (1.7/Steam-Rip/16 DLC) 2012 l R.G. Origins
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398334.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_392370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-jv16 PowerTools - программа, представляющей собой набор утилит для комплексной работы с реестром (очистка, правка, автозагрузка, установка/удаление, мониторинг системного реестра, поиск - замена), файлами (поиск дубликатов, органайзер файлов), очистка дисков и управление компьютерами в локальной сети. В отличие от более ранних версии в новой улучшен интерфейс, произведены (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73BCBB374C6AE7B1F88A184CBC7D7A0A651B78F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170692   (398336) от 02.10.2017
-
-Футажи - VideoHive - 33 Summer Leaks Pack [MOV]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_398336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из 33 футажей с эффектом световых утечек.
-Используются в любой программе композитинга и нелинейного монтажа.
-Просто импортируйте их, и выберите режим смешивания.Формат: MOVРазрешение файлов: 1920x1080
+Sleeping Dogs рассказывает историю детектива Вэй Шена, который был внедрен в один из преступных синдикатов гонконгской Триады. Ему предстоит сделать все возможное, чтобы остаться незамеченным и выжить, постоянно совершая моральный выбор.
+В Sleeping Dogs вас ждут погони, перестрелки и сражения с использованием различных боевых стилей, а также множество миссий и свобода выбора .(   Читать дальше...   )Тип издания: ЛицензияРазработчик: United Front GamesЖанр: Action, Open worldЯзык озвучки: Английский, КитайскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -647,26 +687,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 714596   (398337) от 24.10.2013
+###  Публикация: 567353   (392372) от 02.11.2012
 
-Человек из стали / Man of Steel (2013) BDRip [1080p] 3D [Вертикальная стереопара] [Hand Made 16:9]
+3D материалы - SIGERSHADERS V-Ray Material Presets Pro v.2.5.1.0
 
->>Остальное
->>hand made * video
+>>След.
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398337.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_392372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кларк Кент/Кал-Эл — молодой человек, который чувствует себя чужаком из-за своей невероятной силы. Много лет назад он был отправлен на Землю с развитой планеты Криптон, и теперь задается вопросом: зачем?
-Воспитанный приемными родителями Мартой и Джонатаном Кентами, Кларк знает: обладать сверхспособностями — значит принимать сложные решения. Но когда человечество более (   Читать дальше...   )Производство: США, Канада, Великобритания / Legendary PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Зак СнайдерАктеры: Генри Кавилл, Эми Адамс, Майкл Шеннон, Рассел Кроу, Дайан Лэйн, Кевин Костнер, Антье Трауэ, Лоренс Фишбёрн, Кристофер Мелони, Гарри Дж. ЛенниксПеревод: Дублированный (Blu-Ray EUR)Субтитры: ОтсутствуютПродолжительность: 02:23:03
+Мощный набор материалов для 3ds Max и V-Ray (Макроскрипт).
+Он включает в себя шейдеры: кожа, керамика, металл, стекло, жидкость, ткань, паркет, пластик и т.д.Язык интерфейса: English
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDC50DC035F9122CF116A164F9EF9EEBB2EE73AB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,51 +714,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170936   (398338) от 02.10.2017
+###  Публикация: 569405   (392374) от 02.11.2012
 
-Планета обезьян: Война / War for the Planet of the Apes (2017) WEBRip [AVO]
+Андрей Татауров | Устройство легкового автомобиля [2012] [unpacked]
+
+>>Автомобили
+>>Автомобильные мультимедийные материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Понимать принцип работы различных узлов автомобиля, правильно эксплуатировать свое транспортное средство, чтобы продлить срок его службы, самостоятельно определять и устранять неисправности, выполнять плановое обслуживание. Об этом и многом другом расскажет Андрей Татауров.
+ Его курс «Устройство легкового автомобиля» сделает из Вас действительно грамотного водителя и поможет сэкономить десятки тысяч рублей.
+ После изучения курса «Устройство легкового автомобиля» Вы будете понимать как работают механизмы двигателя внутреннего сгорания, узнаете о видах трансмиссии, познакомитесь с работой электрооборудования, ходовой части, рулевого управления, тормозной системы. Кроме того, научитесь выявлять и устранять неисправности всех узлов автомобиля.Жанр: Обучающий видеокурсФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ACA928023C4BC13C7A7D611B9E705E593868D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568867   (392376) от 02.11.2012
+
+Руби Спаркс / Ruby Sparks (2012) [H.264] BDRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398338.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Армию генетически модифицированных обезьян ожидает новый вызов: они вынуждены вступить в смертельную схватку с армией людей под руководством безжалостного полковника. После невообразимых потерь среди своих воинов вождь обезьян Цезарь начинает личную борьбу с темными инстинктами и собирается отомстить за весь свой вид. В конце концов он и полковник должны будут сойтись (   Читать дальше...   )Производство: США, Канада, Новая ЗеландияЖанр: Фантастика, Боевик, Триллер, Драма, ПриключенияРежиссер: Мэтт РивзАктеры: Энди Серкис, Вуди Харрельсон, Стив Зан, Карин Коновал, Амайя Миллер, Терри Нотари, Тай Олссон, Майкл Адамуэйт, Тоби Кеббелл, Гэбриел ЧаварриаПеревод: Одноголосый закадровый, А.Важенин (BadBajo), речь обезьян переведена и озвучена!Субтитры: Корейские (вшитые)Продолжительность: 02:18:50
+Молодой, но уже успешный писатель переживает творческие и душевные муки: новый роман никак не выходит, музы все нет, да и вообще с девушками как-то не клеится. И вот, призвав на помощь остатки своей фантазии, Кэлвин придумывает себе девушку по имени Руби Спаркс — умницу, красавицу, спортсменку, короче говоря, идеал, а спустя неделю… обнаруживает этот идеал из плоти и крови на своем собственном диване. Уходить Руби явно не собирается, но вот кем она окажется — Галатеей или Белочкой?..Жанр: Фэнтези, Мелодрама, КомедияРежиссер: Джонатан Дэйтон, Валери ФэрисАктеры: Пол Дано, Зои Казан, Антонио Бандерас, Аннетт Бенинг, Стив Куган, Эллиот Гулд, Крис Мессина, Аасиф Мандви, Тони Тракс, Дебора Энн УоллПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: KenumЯзык субтитров: Русский, АнглийскийПродолжительность: 01:44:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD50448FD4B6C0757CD32AA631D06378A5B1A075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170945   (398340) от 02.10.2017
-
-Футажи - Tolerated Cinematics - Blockbuster Blood Pack [MOV]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_398340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот уникальный пакет Blockbuster Blood позволит вам использовать брызги крови в ваших фильмах без особых усилий!Формат: MOVРазрешение файлов: 4096x2160
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:D99FB8A8AD814D49D58355402CB1B5C1F9FFBA82
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 720468   (376814) от 09.11.2013
+
+Frank Duval - 25 Best Songs (2012) [MP3|~245 кб/с (V0)]<Instrumental Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lord 1985
+02. Touch My Soul 1989
+03. Ways 1984
+04. Lovers Will Survive 1986(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 02:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A215A6AE0C41C8D48E0A636CA23344F3485CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253937   (376908) от 12.10.2018
+
+Пикник - Лучшие 100 песен за 35 лет (1982-2017) 6CD от DON Music [MP3|320 Kbps] <Goth Rock, Art Rock, Folk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376908.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ночь (1982)
+002. Вечер (1982)
+003. Опиумный дым (1982)
+004. Великан (1984)(   Читать дальше...   )Жанр: Goth Rock, Art Rock, Folk RockПродолжительность: 07:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0F47F8104530C0C3BD642C81A29D1505B073D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415380   (376983) от 12.10.2020
 
 VA - Beatport Goa Trance: Electro Sound Pack #184-1 (2020) [MP3|320 Kbps] <Goa, Psy Trance>
@@ -729,79 +787,6 @@ VA - Sidney Nights -The Deep House Beats Vol.1 (2016) [MP3|192-320 Kbps] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26E42FF0F7E0E838E8E6048EDBC2968DDDB29378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068843   (378451) от 02.11.2016
-
-VA - Dance Bigroom House (2016) [MP3|256-320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Freakbreak - Midnight Rain
-002. Luke Meyers - Play House (Vocal Edit)
-003. Mike Candys Feat. Clyde Taylor - Make It Home (Gino G Remix)
-004. Brothers - My Battle (Trvpers Mix) (feat. Ranieri)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 12:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCC6B3573FBE841AAED0CC4EA314DAC4C9AB7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573675   (378542) от 11.11.2012
-
-VA - The World Of Chillout Lounge Vol. 1-2 (2008, 2012) [MP3|320 кб/с]<Instrumental, Lounge, Chill Out>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378542.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Faro — Shape Of Sense
-02. Mirage Of Deep — Green Tea
-03. Tafubar + Eskadet — Paradise Reconquered (Feat. Airily)
-04. Jane Maximova — Illusions
-05. Newton Feat. Twila.Too — New Beautiful Life
-06. Mark Oakland — Sunny
-07. Moshang — Pagoda
-08. Kiwi Twist — Jazz Lady
-09. Banda Dalai Lam — Ya Tak Lublu(   Читать дальше...   )CD1
-01. Faro - Clouds [04:10]
-02. Hana - Ayume [05:23]
-03. Ielo - Ameya [05:08]
-04. Derrick - Divine Season [04:18]
-05. Jeftricks Ft. Adefunke - Love Hangover [05:50]
-06. Weathertunes - Ladies First [02:57]
-07. Jasmon - What You Want [05:02]
-08. Nana Wang - Can't You See In The Fever [03:28]
-09. Orbis - Feel So Good [05:20](   Читать дальше...   )Жанр: Instrumental, Lounge, Chill OutПродолжительность: 02:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5F4D2A90854F0C1C800EDB4A5A955F82EAA724
 ```
 
 https://mybot314.ru/tekegram_catalog/

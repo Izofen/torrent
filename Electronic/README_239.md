@@ -1,3 +1,32 @@
+###  Публикация: 1165359   (434426) от 12.09.2017
+
+Odesza - A Moment Apart (2017) [MP3|320 Kbps] <Chillout, Downtempo, Future Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:04)
+02. A Moment Apart (3:54)
+03. Higher Ground (feat. Naomi Wild) (3:35)
+04. Boy (3:04)(   Читать дальше...   )Жанр: Chillout, Downtempo, Future BassПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AF06C346AC3F0AB024E6A3ADC178988FD490B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165391   (434689) от 12.09.2017
 
 Mesh - Runway (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Coldwave>
@@ -723,36 +752,6 @@ Thomas Lemmer & Andreas Bach - Night Travellers (2019) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14D83F29F7D2CE96FB2EF935B49E4EDA6B54DD5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944861   (437902) от 08.10.2015
-
-VA - Buddha-Bar XVII (By Ravin) (2015) 2CD [FLAC (tracks+.cue)|Lossless]<Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437902.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Guembri - 01:17:19
-CD2 - Bendir - 01:18:45Треклист CD1:
-01. Mihai Toma Feat. Irene - Ena
-02. Soapkills - Marra Fi Ghnina
-03. Fuad Almuqtadir & Armeen Musa - Bhromor Koio Giya(   Читать дальше...   )Жанр: Lounge, Chillout |Продолжительность: 02:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF38A32AB57604BFF9E8C803EC32398A016DF94D
 ```
 
 https://mybot314.ru/tekegram_catalog/

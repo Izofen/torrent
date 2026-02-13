@@ -1,3 +1,61 @@
+###  Публикация: 932837   (508316) от 30.08.2015
+
+VA - Deep House Music - Sexy House Lounge (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jox Talay - SLS Pool
+02. Hoboken - Lampedusa Lounge
+03. Sonaya - Palma de Lounge
+04. Belloq - Bellini Groove(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B5C408465FC37FA4BFDD8C44CADAD4130EB84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932583   (508324) от 30.08.2015
+
+VA - LSD: Love, Sex & Diamonds (2015) [MP3|320 кб/с]<House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Las Vegas Boys - Living in a Fantasy (3:42)
+02. Plus 11 - Island Women - Ibiza Beach Mix (3:24)
+03. Teknologic - Totem Moment (3:40)
+04. Rhythm O' Tronik - Beautiful Brown - Vanguard Remix (3:21)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E94E7CC65CA54E21BCA31269A90312B5DC39E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932866   (508326) от 30.08.2015
 
 VA - Lounge At The Seashore 21 (2015) [MP3|320 кб/с]<Lounge, Electronic, Deep>
@@ -711,76 +769,6 @@ VA - A Chill House Affair Vol. 2 (2015) [MP3|320 кб/с]<Deep House, Chill Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DA778497E3036ADD9AD658BF91CC9CD2FC88343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537792   (510485) от 22.08.2012
-
-VA - Record Super Chart № 254 (18.08.2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knife Party - Bonfire (Original Mix)
-02. Fly Project – Musica
-03. Tonic feat. Tarantula Man – Big Fat (Original Mix)
-04. Depeche Mode Vs Tujamo, Plastik Funk & Oliver Shulz – Personal Jesus (Dj Nejtrino & Dj Baur Mashup)
-05. Skrillex Feat. Sirah – Bangarang (Original Mix)
-06. Alex Mica - Dalinda (Addictive Elements Official Remix)
-07. DJ Kuba & Ne!tan Feat. Flip Da Scrip – Party Hard (Funkwell Remix)
-08. TON!C feat. Erick Gold - Lead The Way
-09. Bodybangers feat. Victoria Kern – Gimme More (Extended Mix)
-10. Omnia & IRA - The Fusion (Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 02:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93165BA5951E83D4DD0A8C4E3B6E2277507E008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535131   (510488) от 22.08.2012
-
-VA - Любимой Женщине... (2CD) (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510488.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Любовь Успенская - Я - женщина (3:16)
- 2. Ильдар Южный - Будьте счастливы (2:44)
- 3. Джемма Халид - Девушка Из Нагасаки (3:26)
- 4. Андрей Бандера - Жемчужина (4:03)
- 5. Стас Михайлов - Живи И Знай (3:14)
- 6. Кабриолет - Парус (3:50)
- 7. Ирина Круг - Перелетная птица (4:07)
- 8. И.Круг и А.Брянцев - Привет Малыш (3:17)
- 9. Артур - Артур - Слезы любви (3:36)
- 10. Александр Ломинский - Ты Знала (4:08)(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F4BCC7097B2372270CA2049586310FC9530DB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

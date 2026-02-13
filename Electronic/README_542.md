@@ -1,3 +1,32 @@
+###  Публикация: 1850319   (1054155) от 
+
+VA - Uplifting Only Top 15: January 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kvaii - Tenderness In Dreams (Intro Mix) [5:42]
+02. Evebe & Danny Claire - Everything (Timo Pralle Extended Remix) [5:54]
+03. Alex Nomak & Yuri Melnikov - Endless Spring (Extended Mix) [6:59]
+04. Mhammed El Alami & NELLY TGM - We Are One (Extended Mix) [6:31](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F8B4970020A542195CE016CF35E00DF3C1D69D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850311   (1054208) от 
 
 VA - Dance Charge Of The Night (2026) [MP3|320 Kbps] <Club, Dance, House>
@@ -716,35 +745,6 @@ Enduser - Unquiet (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum'n'Bass, IDM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DD85EFD1DED582582DB00234CF0A0006FC2DBF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851556   (1055323) от 
-
-VA - Selected Trance Music 2026 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MeanBeatz - Weightless (Original Mix) [2:40]
-02. Inner Heart - See It Through (Original Mix) [6:39]
-03. Frederic Filemon - Stronger Νow (Original Mix) [5:04]
-04. Inner Heart - Just You And I Are One (Original Mix) [8:11](   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98FD3076EDE593AC300658AABEFD7106F7EA79F
 ```
 
 https://mybot314.ru/tekegram_catalog/

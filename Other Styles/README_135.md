@@ -1,3 +1,32 @@
+###  Публикация: 1123889   (786167) от 09.04.2017
+
+Hooman Rad - Quiet Dream of a Sweetbrier (2017) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Dream of a Sweetbrier (00:05:28)
+02. Italian Coffee (00:04:43)
+03. All of What There Is (00:05:19)
+04. Very Special Proud Man (00:05:41)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E63B6D50D3C6D4541AEA35ED75B8AF4B8EF4AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123653   (786182) от 09.04.2017
 
 Erwann Kermorvant, Axelle Renoir - 36 Quai des Orfevres (Original Soundtrack) (2004) [FLAC|Lossless|tracks] <Stage & Screen, OST>
@@ -715,35 +744,6 @@ Wellküren - Das Mensch: Traditionals (2003) [APE|Lossless|image + .cue] <Volksm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4DC4611B92DED6350E17B3A623910E153B53586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275753   (789859) от 12.01.2019
-
-Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethereal Whisper - 3:19
-02. Liquid Notice - 3:21
-03. Didgerido-It - 2:38
-04. A Seagull Chant - 2:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8154AA91BDCF72D5937F9967FE23AF083BF7613C
 ```
 
 https://mybot314.ru/tekegram_catalog/

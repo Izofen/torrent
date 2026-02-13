@@ -1,3 +1,66 @@
+###  Публикация: 875456   (858019) от 06.03.2015
+
+Company Of Wolves - Company Of Wolves (1990) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Call Of The Wild
+02. Hangin' By A Thread
+03. Jilted!
+04. The Distance
+05. Romance On The Rocks(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA6508F4294428808A5E14838B8E08B5D1DA421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646886   (858327) от 22.04.2013
+
+Geordie - Hope You Like It / Don't Be Fooled By The Name (1973 / 1974) [FLAC|Lossless]<Classic Rock & Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' Down (3:33)
+02. House Of The Rising Sun (4:57)
+03. So What (4:12)
+04. Mercenary Man (7:29)
+05. Ten Feet Tall (6:32)
+06. Got To Know (3:19)
+07. Little Boy (4:36)
+08. Look At Me (4:52)Жанр: Classic Rock & Hard RockПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000322   (859321) от 25.03.2016
 
 Dream Police - Dream Police (1990) Remastered, 1992, Epic, Japanese Edition [APE|Lossless|image + .cue] <Hard Rock>
@@ -708,76 +771,6 @@ Ten Eyed Man - From Beneath A Pallid Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:859398E8FA130D2A33C3A4FDD134C132D039B62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302718   (867068) от 01.03.2011
-
-Deep Purple - 30 The Very Best Of (1998) Special Edition 2CD [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Hush (30th Anniversary Remaster) (4:28)
-02. Mandrake Root (30th Anniversary Remaster) (6:12)
-03. Kentucky Woman (30th Anniversary Remaster) (4:43)
-04. Wring That Neck (30th Anniversary Remaster) (5:14)
-05. The Bird Has Flown (US Single Version) (2:55)
-06. Emmaretta (30th Anniversary Remaster) (3:01)
-07. Hallelujah (3:44)
-08. Black Night (Single Version Remaster) (3:29)
-09. Speed King (25th Anniversary Remaster) (5:53)
-10. Bloodsucker (25th Anniversary Remaster) (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:19:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767069   (867180) от 16.03.2014
-
-VA - The Many Faces Of Deep Purple (2014) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Kind Of Woman - Funky Junction (A.K.A.Thin Lizzy)
- 02. Rocky Road Blues - Fandango (Nicky Simper)
- 03. Black Night - Vargas, Bogert & Appice Feat. Paul Shortino
- 04. No Laughing In Heaven - Gillan (Ian Gillan)
- 05. Pictures Of Home - Jon Lord
- 06. Space Oddity - William Shatner, Ritchie Blackmore & Candice Night
- 07. Hoka-hay! - Energy (Tommy Bolin)
- 08. Speed King - Funky Junction (A.K.A.Thin Lizzy)
- 09. My Turn - Roger Glover
- 10. You Keep Me Hangin? On - Vanilla Fudge(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98286816BAF5413FA4010398E917035402DBD74C
 ```
 
 https://mybot314.ru/tekegram_catalog/

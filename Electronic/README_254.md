@@ -1,3 +1,32 @@
+###  Публикация: 1319840   (473270) от 17.08.2019
+
+VA - Sweet Love Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacob Gurevitsch - Affection (Original Mix) 4:11
+02. Giacomo Bondi & Gabrielle Chiararo - Don't Dream It's Over (Original Mix) 3:54
+03. Peter Pearson - Drifting Off (Original Mix) 4:10
+04. Ingo Herrmann - Enough Of You (Original Mix) 3:51(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC175FB9A01C563D39A20A91E10E56D340DB0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320270   (473274) от 17.08.2019
 
 Gym Chillout Music Zone - Powerful Gym Beats (2019) [MP3|320 Kbps] <Funky, Club House>
@@ -716,41 +745,6 @@ Trentemøller (Trentemoller) - Discography 56 Releases (2003-2019) In My Room [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30FD6B54514F08F4CC1D337F9F4D77FE65A5B416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547004   (474440) от 15.09.2012
-
-VA - Kiss FM Dance Radio Chart 3 (2005) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Morales with Lea Lorien - How Would U Feel (Rouhofer Radio Edit) [03:57]
-02. Stonebridge Vs. Ultra Nate - Freek On (Ferry Corsten Radio Edit) [03:26]
-03. Global Deejays - What A Feeling (Clubhouse Radio Version) [03:28]
-04. Sonique - Why (Radio Edit) [03:10]
-05. Dave Mcallen - Bitch (Radio Edit) [03:09]
-06. Tom Novy Feat. Lima - Take It (Video Edit) [03:31]
-07. DJ Sender - What You Need (Original Mix) [04:13]
-08. Bastian Bates - So Much Love (Short Club Mix) [03:27]
-09. Heiko & Meik(O) - Glucklich (French Cut) [03:05]
-10. Uniting Nations - You&Me (Radio Edit) [02:59](   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BA96458B3D23A678D0C2C094E105B23E8AE257
 ```
 
 https://mybot314.ru/tekegram_catalog/

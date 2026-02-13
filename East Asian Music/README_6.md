@@ -1,3 +1,38 @@
+###  Публикация: 580708   (337919) от 27.11.2012
+
+VA - Lovely String (1999) [MP3|320 кб/с]<Instrumental, Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337919.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:07) 01. Yu Die
+(4:25) 02. Ren Xiao Yao
+(4:57) 03. Tie Chuang
+(4:30) 04. Peng You
+(4:36) 05. My Heart Will Go On
+(3:39) 06. Nu Ren Hua
+(4:29) 07. Wo Bu Xiang Shuo
+(4:07) 08. Mei Hua San Nong
+(5:08) 09. Ming Ming Zhi Dao Xiang Si Ku
+(4:25) 10. Shang Xin Tai Ping YangЖанр: Instrumental, EthnicПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59E5D1F77E1A753C1C3D93B7B8040DFDB1D2419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 257917   (338946) от 15.11.2010
 
 Jang Yun-jeong - 6 album’s (2004-2008) [FLAC|Lossless]<Korean, trot, k-pop,k-dance, ballad, DJ's,female vocalists>
@@ -756,35 +791,6 @@ RAMPANT - 2 albums (2008-2010) [FLAC|Lossless]<Jrock,metalcore,alternative metal
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949016   (371002) от 05.11.2016
-
-SUPER EURO SMASH - 5 альбомов (2012-2013) /Doujin/ [FLAC|tracks] <Eurobeat>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2013.04.27 (ASES-0003) SUPER EURO SMASH Vol.3 (M3-31)
-2013.08.12 (ASES-0004) SUPER EURO SMASH Vol.4 (C82)
-2013.12.30 (ASES-0005) SUPER EURO SMASH Vol.5 (C83)Тип издания: DoujinЖанр: EurobeatПродолжительность: 00:04:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502AA61631CBAB6EE413F32381F674C56BED4ABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

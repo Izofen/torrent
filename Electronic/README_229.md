@@ -1,3 +1,32 @@
+###  Публикация: 1252576   (407990) от 06.10.2018
+
+Andrea Parker - Discography 18 Releases (1995-2011) Touchin' Bass, Mo Wax [FLAC|Lossless|tracks+.cue, tracks] <Electro, Abstract, Leftfield, IDM, Downtempo, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Parker / David Morley - After Dark (04:39)
+ 02. Andrea Parker - Empty Words (04:52)
+ 03. Clatterbox - Peripheral Vision (03:08)
+ 04. Two Sandwiches Short Of A Lunchbox - Too Good To Be Strange (01:14)(   Читать дальше...   )Жанр: Electro/IDM/ExperimentalПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312F56B6B2182CFE937787D98EFAFE3195220086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066957   (408022) от 28.10.2016
 
 Empire Of The Sun - Two Vines (2016) Deluxe Edition [MP3|320 Kbps] <Electropop, New Wave>
@@ -713,35 +742,6 @@ Sexy Chillout Music Cafe - Quickie: Sexual Chill Music Collection (2022) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6AF1F36380732C1C6F391F7449621597BC6DA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066920   (410193) от 27.10.2016
-
-Taff - Miracles (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3d Trip To Mars 05:34
-02. Invitation 04:44
-03. Doors 06:36
-04. Dream Chains 05:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687A5012283DB8FE4945AC2BD81629D782F0FB35
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1231576   (603201) от 21.06.2018
+
+Tobias Bernstrup - 4 Albums, 1 EP (2002-2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, EBM, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do Me Wrong (4:28)
+02. Trannies At Night (4:22)
+03. 27 (4:19)
+04. Videodrome (5:00)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, EBM, ElectroПродолжительность: 03:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606FB001D96B490DC9B5514CB28A1D4365C8D415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231526   (603241) от 21.06.2018
+
+Italoconnection - Metropoli (2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizon (5:00)
+02. Humanize (3:54)
+03. Sleeping (4:39)
+04. King Of The Night (3:38)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767E187BB28651F1366096A7B58A3CFCEA75B226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088318   (603308) от 27.04.2022
+
+VA - Golden Ballads Summer (2005) Unofficial Release [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Underdog Project - Summer Jam
+02. Despina Vandi - C'est La Vie (Simera)
+03. J-Five - Find A-Way
+04. Neneh Cherry feat. Youssou N'dour - Seven Seconds(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5E520BF63A4475BA6500FA68A01B700DF1F5E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547189   (603386) от 27.04.2022
+
+Chris Isaak - Forever Blue (1995) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forever Blue - пятый альбом американского музыканта Chris Isaak'а вышедший 23 мая 1995. 15 марта 1996 года альбом был сертифицирован RIAA как платиновый, в Австралии альбом стал трижды платиновым, а в Канаде получил золото. Forever Blue был номинирован на Grammy в категории Best Rock Album, а сингл Somebody's Crying получил номинацию Grammy в категории Best Male (   Читать дальше...   )01. Baby Did a Bad Bad Thing (2:54)
+02. Somebody's Crying (2:48)
+03. Graduation Day (3:10)
+04. Go Walking Down There (2:50)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773B995ECB4B70A249997263C4EF57E2304705C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547227   (603427) от 27.04.2022
+
+VA - DMC Dance Mixes 299 Ibiza (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic & Luke J West - Paradise (Extended)
+02. Burns - Talamanca (Robin Schulz Remix)
+03. Charli XCX Ft Rina Sawayama - Beg For You (Just Kiddin Remix)
+04. Dave Aude & Nicole Markson - It's Your Body (Until Dawn Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Bassline, VocalПродолжительность: 01:19:50 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AFA0F1729B248201C525B272A5957674AD4517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547221   (603434) от 27.04.2022
+
+VA - DMC Dance Mixes 298 (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alesso & Katy Perry - When I'm Gone (VIP Extended)
+02. Clean Bandit Ft. A7S - Everything But You (VIP Mix Extended)
+03. Deekline & Project 5 - Without You (Extended)
+04. Disco Fries - Family Affair (Hawk & Beyge Extended Remix)(   Читать дальше...   )Жанр: House, Breaks, Dance-pop, VocalПродолжительность: 01:18:14 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E1E58586C7095570386D0CAD64C5C97004A595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547225   (603436) от 27.04.2022
 
 VA - DMC Dance Mixes 299 (2022) [MP3|320 Kbps] <House, Tech House, Bassline, Vocal>
@@ -583,179 +757,6 @@ Adriano Celentano - Golden Hits (2013) 3CD [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18BFB20D3664E37D42A6E88E5572214640888EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297311   (604822) от 21.04.2019
-
-Alex Hepburn - Things I've Seen (2019) Explicit [MP3|320 Kbps] <Pop-Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Things I've Seen (03:24)
-02. When I'm Old (03:34)
-03. Take Home To Mama (03:18)
-04. Chasing Paradise (03:15)(   Читать дальше...   )Жанр: Pop-Rock, SoulПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3B514CD69166C52034B5BF09C0CB50E5A6E019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297306   (604831) от 21.04.2019
-
-Captain Torkive - Flying Saucers (1979) 7'' [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Saucers (4:11)
-02. Krypton (3:22)Жанр: Electronic, DiscoПродолжительность: 00:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EA9946DE7662E6F6459F809F9B0A4F280E8ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038599   (604912) от 29.07.2016
-
-THP Orchestra - 4 Albums (1976-1979) Remaster 2013 [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадская диско группа из Торонто. Однако продюсеры выбраны из Европы это -  Ian Guenther и Willi Morrison. Ивестность в России получили благодаря сборнику "Синдикат - 80".1976 - Early Riser
-1977 - Two Hot For Love
-1978 - Tender Is The Night
-1979 - Good To MeЖанр: Electronic, Disco, Funk-SoulПродолжительность: 04:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC91A37498ABEFAB27ECF1D17C4F471E1AE34D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038630   (604923) от 29.07.2016
-
-HONNE - Warm On A Cold Night (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Pop, Soul, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warm On A Cold Night (04:21)
-02. Til The Evening (04:40)
-03. Someone That Loves You (With Izzy Bizu) (04:04)
-04. All In The Value (03:42)(   Читать дальше...   )Жанр: Alternative Pop, Soul, ElectronicПродолжительность: 01:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DB29C4FD7E54681703FB61835129F924C91AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231463   (605081) от 18.06.2018
-
-VA - Top Of The Pops '1977 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодняшним релизом пополняется наша небольшая серия путешествий по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители (   Читать дальше...   )CD1:
-01. Donna Summer - I Feel Love  (5:46)
-02. Marvin Gaye - Got To Give It Up  (4:04)
-03. Harold Melvin & The Blue Notes - Don't Leave Me This Way  (3:27)(   Читать дальше...   )Жанр: 1970s, pop, rockПродолжительность: 02:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93984D9F75280929971DF822F6C550A879143AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913447   (605198) от 29.06.2015
-
-Gin Wigmore - Blood To Bone (2015) [MP3|320 кб/с]<Pop, Soul, Funk, Alternative>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Rush [03:52]
-02. Nothing To No One [03:49]
-03. This Old Heart [04:46]
-04. Black Parade [04:08](   Читать дальше...   )Жанр: Pop, Soul, Funk, AlternativeПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556FD5ADC89B8874601CE7DE4EC9583C254A147A
 ```
 
 https://mybot314.ru/tekegram_catalog/

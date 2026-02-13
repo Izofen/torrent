@@ -1,3 +1,32 @@
+###  Публикация: 1851556   (1055323) от 
+
+VA - Selected Trance Music 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MeanBeatz - Weightless (Original Mix) [2:40]
+02. Inner Heart - See It Through (Original Mix) [6:39]
+03. Frederic Filemon - Stronger Νow (Original Mix) [5:04]
+04. Inner Heart - Just You And I Are One (Original Mix) [8:11](   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98FD3076EDE593AC300658AABEFD7106F7EA79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851848   (1055347) от 
 
 VA - Suanda Future 2026-01 (2026) [MP3|320 Kbps] <Trance>
@@ -513,6 +542,180 @@ VA - Chill House Classics (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246424FFD2EE4CBBB8CFCAB046CC8650DE52DC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852968   (1056295) от 
+
+VA - Winter Dance Hits 2026 (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umut Torun - Rose (3:08)
+02. Kanette - Gates (3:17)
+03. Cristian Ferrer - Careless Whisper (Radio Edit) (3:21)
+04. Decibel Dreams - Heaven (3:18)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B40051A4166C04DBC30DA8E8A2F4711CDE2127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853157   (1056416) от 
+
+VA - Lounge Hits February 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faraón - With Her (3:55)
+02. Gorbunoff - Keep Falling In Love With You (2:09)
+03. Lino Tenerife - Tell Me Why (Extended Mix) (4:50)
+04. Micheletto - Love (Radio Edit) (3:23)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7779F188F2F79C814736A05E8822D67D03BDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853145   (1056432) от 
+
+VA - Coastal Vibrations: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V-Sta - Vibing (5:01)
+02. G.Pantelidis - Sun Bliss (3:52)
+03. Gian Delly - Chill Jam Session (4:15)
+04. Chillson - Slow Winter (4:49)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A64E136493E7FD341734417C9FABE70E7F704E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853021   (1056440) от 
+
+VA - DEEP Reflections: Winter Edition 2026 (2026) [MP3|320 Kbps] <Deep House, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deepofomin & M-Sol DEEP - Speedway (Original Mix) [8:09]
+02. Eigenart & M-Sol DEEP - Northern Lights (Original Mix) [5:41]
+03. Random Thoughts & M-Sol DEEP - Malt (Original Mix) [5:03]
+04. Chona (AR) & LX Música & M-Sol DEEP - Náufrago (Original Mix) [7:45](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAF637BF793F2D16F7212C5F86B566D6BF3CB69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852825   (1056441) от 
+
+VA - Ambient Sessions Compilation vol.3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Electronic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Summa - Space machine with the stars (part 1) 04:34
+02. DeepNorth - Eta Cancri 05:50
+03. Forest Dump – Ants 10:17
+04. Monophaze-Trees Behaviour 04:00(   Читать дальше...   )Жанр: Ambient, Downtempo, ElectronicПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3FCBF0D2157B5C07528FF6139D0822835E7893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853124   (1056442) от 
+
+VA - Winter Dance Hits 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umut Torun - Rose 03:08
+02. Kanette - Gates 03:17
+03. Cristian Ferrer - Careless Whisper (Radio Edit) 03:21
+04. Decibel Dreams - Heaven 03:18(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5A355FE70ADF635BFF0BA4935023AD8AC469A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

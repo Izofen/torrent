@@ -1,3 +1,32 @@
+###  Публикация: 1031843   (649827) от 05.07.2016
+
+Shastro - Bandole! (1994) [FLAC|Lossless|tracks] <New Age, Ambient, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bandole!    05:41
+02.  Summer Rain    05:23
+03.  Kinana's Lullaby    05:32
+04.  Talkin' Stories    04:06(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2AE16F223494509FF51E029F5A7F2A5B7E45F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227222   (650391) от 24.05.2018
 
 Raw Silk - Raw Silk (2018) [MP3|320 Kbps] <New Age>
@@ -742,41 +771,6 @@ Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CBBCCAC60E9B0D31DB8521A1E87CFC8C40FD0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514682   (657745) от 24.06.2012
-
-VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_657745.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Allegro - Pepe Romero, Celin Romero, San Antonio Symphony Orchestra, Victor Alessandro, Antonio Vivaldi [03:44]
-2. Adagio in G minor - Dominic Miller, Budapest Film Orchestra, Nick Ingman, Tomaso Albinoni [05:08]
-3. Questa Notte - Craig Ogden, Ludovico Einaudi [05:07]
-4. Canario (Allegro ma non troppo) - Pepe Romero, The Academy of St. Martin in the Fields, Neville Marriner, Joaquin Rodrigo [04:42]
-5. Canarios - Heinz Wildhagen, Narciso Yepes, Guenther Dieckmann, Gaspar Sanz [03:10]
-6. Berceuse from Dolly Suite - Gabriel Faur? [03:17]
-7. Farewell to Stromness - Los Angeles Guitar Quartet, Peter Maxwell Davies [04:19]
-8. Spanish Dance, Op.37, No.10 - "Danza triste" - Pepe Romero, Celin Romero, Enrique Granados "[03:48]
-9. Romance No. 1 - Craig Ogden, John Brunning [02:57]
-10. Melodie - Pepe Romero, Robert Schumann [01:48](   Читать дальше...   )Жанр: Classical GuitarПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

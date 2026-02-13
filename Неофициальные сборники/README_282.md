@@ -1,3 +1,61 @@
+###  Публикация: 1406742   (473064) от 04.09.2020
+
+VA - Music News vol.33 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473064.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ask & Nerak - Прости (03:08)
+ 002. 6ix9ine feat. Leftside - Nini (02:18)
+ 003. Addal - Blinding Lights (04:15)
+ 004. Alex Parker - Goodbye (02:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BA1D8D5C15B1C326D17AC643B35D5411D109F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057703   (473183) от 29.09.2016
+
+VA - The Best Of Miсrofunk [Compiled by Zebyte] (2016) [MP3|320-416 Kbps] <Miсrofunk>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bop & Synkro - Telescope [04:57]
+02. Keiss - Clinic On Your Mine [05:42]
+03. Nuage - Mirrors [05:18]
+04. Rockwell - Everything (& U) [06:26](   Читать дальше...   )Жанр: MiсrofunkПродолжительность: 03:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891E5F35CFD3735C810FB6FE30EFB7EE27570C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939497   (473208) от 22.09.2015
 
 Suzi Quatro - The best of the Best (2015) [MP3|320 кб/с]<Rock, Hard Rock, Glam Rock>
@@ -720,70 +778,6 @@ VA - Nothing But... Pure Dance Vol. 12 (2022) [MP3|320 Kbps] <Club, Dance, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6921CADD13366C02C1067010357B07B894BE7DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547533   (474438) от 15.09.2012
-
-VA - Billboard Hot 100 (08.09.2012) [MP3|219-298 кб/с]<House, Club, Funky, Dance, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - We Are Never Ever Getting Back Together [03:11]
- 02. Flo Rida - Whistle [03:45]
- 03. Ellie Goulding - Lights [03:31]
- 04. Maroon 5 - One More Night [03:39]
- 05. Fun - Some Nights [04:37]
- 06. Carly Rae Jepsen - Call Me Maybe [03:13]
- 07. Katy Perry - Wide Awake [03:41]
- 08. Maroon 5 ft. Wiz Khalifa - Payphone [03:51]
- 09. Owl City ft. Carly Rae Jepsen - Good Time [03:26]
- 10. Justin Bieber ft. Big Sean - As Long As You Love Me [03:49](   Читать дальше...   )Жанр: House, Club, Funky, Dance, VocalПродолжительность: 06:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B07B83537A3722B765D5D3B57186740CBC9C30FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057523   (474467) от 28.09.2016
-
-VA - Самые Лучшие Хиты 80-90-х В Современной Обработке (2016) [MP3|320 Kbps] <Disco, Eurodance, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version)
-02. Modern Talking - Arabian Gold ( Alexduxer Dance mix)
-03. Ane Brun - Big In Japan (DJ Brooklyn Edit)
-04. Modern Talking - Brother Louie (Andrey Po remix)(   Читать дальше...   )Жанр: Disco, Eurodance, Dance, PopПродолжительность: 09:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC2609302D04372867E0B0AB4A0B74198D3E486
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1361424   (955910) от 19.02.2020
+
+Marc Romboy - Voyage De La Planète (New Interpretations) (2020) Hyperharmonic [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tech House>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deuxieme Voyage De La Planete (Ben Lukas Boysen Rework) (06:47)
+ 02. Voyage De La Planete (Ocoeur Remix) (03:11)Жанр: Ambient, Tech HouseПродолжительность: 00:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41D2851077940560EC69B4DE26E5142F7E117C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980435   (956217) от 29.01.2016
 
 VA - Lounge Deluxe, Vol 2 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -704,35 +731,6 @@ VA - TECHNO (mixed by Dj Arseniy) (2002) [MP3|320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E33D050EF8F4643771883C1383AD37B9FFD76F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359686   (963204) от 13.02.2020
-
-VA - Erotic Lounge Selection (2020) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Sky - Speakeasy (Blue Chill Cut) (3:07)
-02. Dr. Drummer - Windparade (3:16)
-03. Underpiano - Piano D'ansia (3:02)
-04. Lounge Paradise - Davis Inside (3:03)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB874D76DED0F5AFDDCC4D0FA85E6743B5F9EC6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

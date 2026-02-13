@@ -1,3 +1,32 @@
+###  Публикация: 1163193   (452785) от 04.09.2017
+
+VA - Tech House Music Market (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Market Fish Project - Small Square (Original Mix) 07:03
+02. Thomas Ferry, Dot Comma - Have A Good Time (Grandoni & Cava Remix) 06:33
+03. Ang3lino - La Boda (Ti & Leia Remix) 05:03
+04. Klod Rights - Funk Sun (Club Mix) 07:50(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE3EE9832DEAC3891CD31D74107898D2382DD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551505   (452792) от 24.09.2012
 
 Various Artists - Hed Kandi: Nu Disco (2012) [MP3|320 кб/с]<House, Deep House, Lounge>
@@ -724,35 +753,6 @@ Delerium - Mythologie (2016) [MP3|320 Kbps] <Ambient, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA37F8E3091F8489F8CE6925FF39A3DF9C820B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060364   (455184) от 07.10.2016
-
-VA - Future Sound Of Egypt 450 (Mixed By Aly & Fila, Ferry Tayle & Dan Stone, Mohamed Ragab) (2016) [MP3|320 Kbps] <Trance , Uplifting Trance , Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila With Ahmed Romel - Kingdoms (3:30)
-02. Davey Asprey - The Rapture (3:09)
-03. Steve Dekay Ft. Crystal Blakk - Musa (3:20)
-04. Nick Callaghan - Live For Today (4:13)(   Читать дальше...   )Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 07:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8005A0162075D518E705EF170470AE00A77D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

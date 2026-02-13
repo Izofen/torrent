@@ -1,3 +1,61 @@
+###  Публикация: 1069033   (375965) от 03.11.2016
+
+VA - Beatport Top 100 02.11. (2016) [MP3|320 Kbps] <House, Tech House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375965.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cari Golden, Reinier Zonneveld - Things We Might Have Said (Original Mix)
+002. Solardo - Tribesmen (Original Mix)
+003. Groove Armada - Superstylin' (Riva Starr Edit)
+004. RUFUS - Innerbloom (Sasha Remix)(   Читать дальше...   )Жанр: House, Tech House, DanceПродолжительность: 10:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E33892460E13832E2B28233BAB93C72640D56B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069023   (376098) от 03.11.2016
+
+VA - Осенняя хит-атака на Europa Plus. Русский сборник (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376098.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dельфина - Привет От Одиноких
+002. Estradarada - Мне Нравится
+003. Дмитрий Климашенко - Будет День
+004. Свят - Почему Же Нет(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143AD3F48CC24F1A2BEC55E608B87DC87D1B7571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068790   (376109) от 03.11.2016
 
 VA - Musica Popular Brasileira (2016) [MP3|320 Kbps] <Latina, Pop, Popular Brasileira>
@@ -717,64 +775,6 @@ VA - The Best Of Trance 61 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:417DDA57D8EF8437BE88C43933DC3F5EB32CDE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 720468   (376814) от 09.11.2013
-
-Frank Duval - 25 Best Songs (2012) [MP3|~245 кб/с (V0)]<Instrumental Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lord 1985
-02. Touch My Soul 1989
-03. Ways 1984
-04. Lovers Will Survive 1986(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 02:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A215A6AE0C41C8D48E0A636CA23344F3485CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253937   (376908) от 12.10.2018
-
-Пикник - Лучшие 100 песен за 35 лет (1982-2017) 6CD от DON Music [MP3|320 Kbps] <Goth Rock, Art Rock, Folk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376908.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ночь (1982)
-002. Вечер (1982)
-003. Опиумный дым (1982)
-004. Великан (1984)(   Читать дальше...   )Жанр: Goth Rock, Art Rock, Folk RockПродолжительность: 07:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0F47F8104530C0C3BD642C81A29D1505B073D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

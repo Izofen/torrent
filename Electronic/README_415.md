@@ -1,3 +1,32 @@
+###  Публикация: 1274629   (793053) от 07.01.2019
+
+Umami - In Exchange For Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghostnote (5:40)
+ 02. Terra Mount feat. Monolink (7:34)
+ 03. Behind The Wheel (7:24)
+ 04. Number Of The Beast (4:58)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26554B75B0A9EE7D3F89CB596F76F223CAE710D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274566   (793056) от 07.01.2019
 
 Anthony Linell - A Sense Of Order (2018) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient>
@@ -716,35 +745,6 @@ Dreamtime - Innerstellar Jam (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Spacesynth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AD59EEDE739F0FED4D23BAFEF97960BDC18032D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274137   (794119) от 06.01.2019
-
-Dreamtime - Particles (2015) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantasm (5:24)
-02. Cosmoride II (4:42)
-03. Typhoon (6:17)
-04. Guru Meditation (4:24)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5B78D0937387DF7A0E014B751FF97ABDE3232D
 ```
 
 https://mybot314.ru/tekegram_catalog/

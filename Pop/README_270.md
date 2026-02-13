@@ -1,3 +1,177 @@
+###  Публикация: 1016397   (762943) от 16.05.2016
+
+Prince - 5 Albums (1978 - 2004) [APE|Lossless|image + .cue] <Pop, Soul, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musicology
+02. Illusion, Coma, Pimp & Circumstance
+03. A Million Days
+04. Life 'O' The Party(   Читать дальше...   )Жанр: Pop, Soul, Funk, DiscoПродолжительность: 03:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A357F012AEF9B9AB3EDC0F052E3CC1243FFF852B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214743   (762983) от 23.03.2018
+
+Рок-Острова - Летать, смеяться и плакать (2018) [MP3|320 Kbps] <Поп>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762983.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Дождь и ветер  3:38
+02.  А я пойду  3:44
+03.  В этот вечер  3:34(   Читать дальше...   )Жанр: ПопПродолжительность: 02:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F69071C81C1EB4E0D457B4B9CE89D44E14CAB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214896   (763065) от 23.03.2018
+
+Наталия Гулькина и Маргарита Суханкина - Просто мираж (2005) Enhanced [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Просто мираж (3:42)
+02. Ночь (3:38)
+03. Я не могу без тебя (3:23)
+04. Давлю на тормоза (3:16)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F28A6F298C9696094CE22FE12E11E87652D640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214716   (763181) от 23.03.2018
+
+VA - Fun Club (2018) [MP3|320 Kbps] <Reggae Fusion, Indie Dance, Groove, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763181.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Avicii - Lonely Together 3:02
+02. Dj Snake - A Different Way (Devault Remix) 3:36
+03. Kygo - Stargazing 3:57(   Читать дальше...   )Жанр: Reggae Fusion, Indie Dance, Groove, Nu-DiscoПродолжительность: 03:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EA29D79038FE42EE911B97585DC5D5D18348A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214696   (763293) от 23.03.2018
+
+Max Berlin - 2 Albums, 2 Singles & EPs (1978-1987) Vinyl [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он-же: M. Berlin's, Max, Max B, Max Berlin's и Jean-Pierre Cerrone. Является братом всем известного Jean-Marc Cerrone, выпустил на его студии Malligator первые синглы.Список альбомов:
+1978 - Dream Disco
+1979 - World Wide Party
+1980 - New Wave(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBEE61EB085C962F3ACAD4C03F1D3FD5E8A989E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214660   (763295) от 23.03.2018
+
+Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need Love (3:35)
+02. You Opened My Eyes (3:41)
+03. One Of A Kind (3:55)
+04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8537E2BE63DCC3877AD03E86B54EE10EA675448E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214651   (763302) от 23.03.2018
 
 Bosson - RockStar (2004) [MP3|320 Kbps] <Pop, Europop>
@@ -571,180 +745,6 @@ Bosson - One In A Million (2001) Exclusive [FLAC|Lossless|tracks + .cue] <Pop, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C8423497F63AB0E9182A67C1BE2AA30657554F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214293   (764964) от 21.03.2018
-
-Don Bernini - Telepatia (1979) [MP3|320 Kbps] <Electronic, Space Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snake-Dance (4:20)
-02. Ikebana (5:20)
-03. Huntsman Of Thought's (4:38)
-04. Richiamo (3:36)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E92835A5EF5AB473C77D13DEE512C77F83380A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214429   (764970) от 21.03.2018
-
-Bosson - One In A Million (2001) [MP3|320 Kbps] <Pop, Europop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One In A Million (3:34)
-02. I Believe (3:51)
-03. We Live (3:46)
-04. Where Are You? (4:06)(   Читать дальше...   )Жанр: Pop, Europop, Synth-popПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1F0F64EA1E21F78AA3EFB4A114BC724F9F0C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126598   (765184) от 18.04.2017
-
-ESTRADARADA - Дискотека Века (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дауншифт (5:12)
-02. Love Is (Асфальт) (3:30)
-03. Лайф из лайф (#Lifeislife) (2:59)
-04.Жанр: Pop, DanceПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81EA0C8E4B7378D4AE6D88E3F1190BBC02DADF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279590   (765253) от 30.01.2019
-
-Ottawan - The Very Best Of Ottawan (1992) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.I.S.C.O. 04:56
-02. You're Ok 05:09
-03. Hands Up 04:48
-04. Help, Get Me Some Help 04:25(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A5C39966FBE8FE988529319624F7141AD9FB7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279522   (765334) от 30.01.2019
-
-TOPAZ - High Society (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Dream Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entratura (01:43)
-02. I Don't Mind (04:04)
-03. Eyes Back On Your Face (04:21)
-04. Sacred Throne (04:43)(   Читать дальше...   )Жанр: Dream Pop, AlternativeПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B08A7492E3C89510EFCFDE7B3EA2AAB4C15CC8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394051   (765348) от 03.07.2020
-
-Григорий Лепс - Честь имею! Городской романс (Высоцкий) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Авторская песня>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765348.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Подумаешь, с женой не очень ладно
-2. В пику, а не в черву
-3. Попутчик
-4. Про соседа-завистника(   Читать дальше...   )Жанр: Pop, Авторская песняПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752A70E74AB80AB236CA1FBDD92CC72C30188BFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

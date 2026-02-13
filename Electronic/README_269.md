@@ -1,3 +1,32 @@
+###  Публикация: 1559756   (523488) от 26.06.2022
+
+VA - Summer In Space Vol. 5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spacehawk - Droids (4:52)
+02. Mind Vision - Legacy Time (6:55)
+03. Ultra Synergy - The Secret Of  Fight (5:42)
+04. Space Marine - The Flight To Mars (5:54)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E197F5692B3C337603E9E21F134DD4DCC3BDA19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559687   (523551) от 26.06.2022
 
 8Kays - Live @ Kharkiv Philharmonic, Ukraine (TIME:CODE) (2022-06-20) [MP3|320 Kbps] <Progressive House, Deep House>
@@ -712,35 +741,6 @@ VA - Ibiza House Party 2017 [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:988700FFA3D11C607139651F30F89F7B01B086B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157349   (525533) от 11.08.2017
-
-VA - Trance Hits Top 20: 2017-08 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia – Sun Comes Again (feat. Jonathan Mendelsohn) (Eximinds Remix) (03:26)
-02. Fisherman & Hawkins – Antidote (Dave Neven Remix) (03:30)
-03. Airscape – Be Who You Are (03:28)
-04. Robert Nickson – Euphorica (04:18)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E71006884438AFCC021BE680E9C9A0EBEFB03C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

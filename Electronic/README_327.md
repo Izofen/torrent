@@ -1,3 +1,32 @@
+###  Публикация: 1232465   (646556) от 29.03.2019
+
+Aesthetic Perfection - Discography 23 Releases (2005-2019) [MP3|320 Kbps] <EBM, Industrial, Future Pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646556.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005 - Close To Human
+2007 - Blood Spills Not Far From The Wound (Necessary Response)
+2008 - A Violent Emotion
+2009 - A Violent Emotion (Japanese Limited Edition)(   Читать дальше...   )Жанр: EBM, Industrial, Future PopПродолжительность: 13:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F508E5FFAF2303A47821468C307A2B6C9502B068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540687   (646649) от 02.04.2022
 
 Secret Service - MusicBox (2003) [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
@@ -719,35 +748,6 @@ Argus - Pure Love | Pure Chill​-​out Vol​.​1 (2019) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E20F732CA7071E9D8DB6E40385806C023827848E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290311   (648293) от 01.04.2022
-
-Steen Thottrup • ex resident of Cafe Del Mar - Discography 13 Releases (2009-2022) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648293.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009 - Sunset People (Reissue)
-2014 - Filmatica (Reissue)
-2015 - Filmatica (Remixed)
-2016 - Don't Tell Me No (Single)(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, Lounge, Deep House, Modern ClassicalПродолжительность: 07:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE5D72F1E2B13F802813E51FDAD429613C9BCEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

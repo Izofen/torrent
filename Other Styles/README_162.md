@@ -1,3 +1,32 @@
+###  Публикация: 993977   (893973) от 06.03.2016
+
+Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Go. Loslassen
+02. Mindfulness. Achtsamkeit
+03. Serenity. Gelassenheit
+04. Inner Freedom. Innere Freiheit(   Читать дальше...   )Жанр: New age, MeditationПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4D5E8AF0017F80AA4402857067A30071363481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993880   (893979) от 06.03.2016
 
 Marco Beltrami - Gods Of Egypt (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks]<Score, Soundtrack>
@@ -741,32 +770,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C54EE7629B0598890B28E1500F767690A19072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293201   (899810) от 11.02.2011
-
-Dandelium - Дискография (2006-2008) [MP3|256 kbps]<Instrumental symphonic melodic metal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental symphonic melodic metalПродолжительность: 03:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CD029545E338494370D7B58917034DAD5D8EAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

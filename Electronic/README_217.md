@@ -1,3 +1,32 @@
+###  Публикация: 1069401   (369250) от 06.11.2016
+
+VA - Sit and Lounge Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Dur - What's up Girl
+02. Andrea Rizzi DJ - Desert Dream - Radio Version
+03. Collix - Tropico - Diozo Remix
+04. Johan Giannis Hynynen - Touching(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8031D21EE6AFBCC4D7076DCFB09879CFADC65914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070368   (369254) от 06.11.2016
 
 VA - Nothing But... Liquid Drum & Bass Vol.2 (2016) [MP3|320 Kbps] <Drum & Bass>
@@ -715,35 +744,6 @@ VA - JOOF DJ Sessions Volume 4 (Mixed by Fonarev) (2017) [FLAC|Lossless|WEB|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86AE9C0C033FB42165F4E168AA09A90B27BCA7AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175831   (372442) от 21.10.2017
-
-VA - ADE Trance Collection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wright & Davids - The Meaning (feat. Danny Claire) (2k17 Rework)  7:36
-02.  Mariusz Chodorek - Heroes (Mariusz Chodorek Remix)  9:02
-03.  Mario Giaballa - Under The Sun (Original Mix)  7:00
-04.  Karadjov - Octagon (Ula Remix)  7:22(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 03:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9060CA0377CC4112F8591D2C8EED1F05FC27A77E
 ```
 
 https://mybot314.ru/tekegram_catalog/

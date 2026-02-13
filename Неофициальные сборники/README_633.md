@@ -1,3 +1,61 @@
+###  Публикация: 1358698   (967237) от 09.02.2020
+
+VA - Soul At Rest: Ambient Atmosphere (2020) [MP3|320 Kbps] <Ambient, New Age, Meditation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967237.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7and5 - Distant Memory
+002. Synthetic Peals - Jet Travelling (Original Mix)
+003. Weval - The Weight
+004. Dune - Middle Of Nowhere(   Читать дальше...   )Жанр: Ambient, New Age, MeditationПродолжительность: 08:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE366846497E0345D7289ED476410596741969F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358710   (967319) от 09.02.2020
+
+VA - Highly Likely: Turbo Funky Mix (2020) [MP3|320 Kbps] <Funky Disco, Nu Disco, Disco House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967319.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wave Crushers - Happiness
+002. Aad Mouthaan - Bakso
+003. Audio Jacker - So Disco
+004. Haldo - Jazzy(   Читать дальше...   )Жанр: Funky Disco, Nu Disco, Disco HouseПродолжительность: 10:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD3000F1D8C159A083C24AE8C714FC67F0C8F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358756   (967327) от 09.02.2020
 
 VA - Beatport Trance Pack #07 (2020) [MP3|320 Kbps] <Trance, Electro>
@@ -729,64 +787,6 @@ VA - Trance Desire Volume 59 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12B7A1498190AAC94248145C478F24AFB5299B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976501   (969725) от 17.01.2016
-
-VA - I Love Italo Disco ot Vitaly 72 - 6 (2015) [MP3|201 - 320 кб/с] <Italo-Disco, Synth-pop, Disco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kristian Conde - Light In The Dark (06:23)
-02. Tonschatz - Magic Energy (Single Version) (03:45)
-03. Mode One - Ocean Of Love (06:14)
-04. D.J. Savage - I Bridge New Life (Extended Version) (07:36)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Disco, SpacesynthПродолжительность: 05:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8F1DE2D1B76FFE262AEEABA816383D4E4D372D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976162   (969770) от 17.01.2016
-
-VA - The Fitness Club House and Deep House Beats for Running (2016) [MP3|320 кб/с] <House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmonique - Rockstar - Original Mix
-02. Alex & Chris - Nightbird
-03. Brass - Brother
-04. Brass - You Have Control(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6FE014FED39D3086F00FB1672CF63995D17ABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

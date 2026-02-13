@@ -1,3 +1,32 @@
+###  Публикация: 1360552   (959460) от 16.02.2020
+
+Hacknet - Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remi Gallego - Malware Injection
+02. Cinematrik - The Quickening
+03. Sean Gillespie - Tetrameth
+04. Carpenter Brut - Roller Mobster(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C11F512449617FE3A9093581CF80E09723C857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979597   (959786) от 26.01.2016
 
 Arash Behzadi - With Closed Eyes (2015) [MP3|320 кб/с] <New Age, Solo Piano>
@@ -719,35 +748,6 @@ Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7D874007D18CCA92BD5A450ABAAAFE42681A91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747501   (962438) от 19.01.2014
-
-Trance Lucid - Arise (1996) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 April
-02 Balloons
-03 Unbridled
-04 Leaving(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D3EF164A73A0E6188D8D764697CBDE42346025
 ```
 
 https://mybot314.ru/tekegram_catalog/

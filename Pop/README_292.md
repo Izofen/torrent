@@ -1,3 +1,177 @@
+###  Публикация: 1506502   (800004) от 31.10.2021
+
+VA - Best Clean Pop Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Baby (3:36)
+02. Gwen Stefani - The Sweet Escape (4:06)
+03. Lmfao - Party Rock Anthem (4:24)
+04. Bag Raiders - Shooting Stars (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 03:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33A3C4FE8A8E2D436E9D0084C3BCECE6D840E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385235   (800046) от 23.05.2020
+
+VA - Greatest Hits (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben E. King - Stand by Me (02:54)
+02. The Doors - Light My Fire (07:09)
+03. Enya - Orinoco Flow (04:24)
+04. Tina Turner - The Best (04:09)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B2ABC67EC7E2DFEFDDDFE8CD907B0F8EC91676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199721   (800141) от 17.01.2018
+
+VA - Есть глаза у цветов. Песни на стихи Расула Гамзатова (2007) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Захаров, ансамбль «Советская песня» - Любовь (О.Фельцман - Р.Гамзатов, пер. Р.Рождественского)
+02. Вахтанг Кикабидзе - Пожелание (А.Экимян - Р.Гамзатов, пер. Н.Гребнева)
+03. Вокальный квартет «Гая» - О тебе я думаю (М.Кажлаев - Р.Гамзатов, пер. В.Звягинцевой)
+04. ВИА «Цветы» - Есть глаза у цветов (О.Фельцман - Р.Гамзатов, пер. Н.Гребнева)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4985A95B83066B4D0BC07FC898C4AFF7EC18A60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199544   (800307) от 17.01.2018
+
+Dalida - Ciao ciao mon amour (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Grenade a Seville (Cover Fertig)
+02. Les enfants du Piree (Cover Fertig)
+03. Bras dessus bras dessous (Cover Fertig)
+04. Garde-moi la dernieere danse (Cover Fertig)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AE67DCC3B0FFD46D7F21D16B9E6A1BC797F0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385238   (800337) от 23.05.2020
+
+Karsu - Karsu (2019) [MP3|320 Kbps] <Jazz, Blues, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agree to Disagree
+02. Inadina
+03. Yalan Masallar
+04. Reloading My Mind(   Читать дальше...   )Жанр: Jazz, Blues, PopПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F91377B92B2A0D418686AF92A7F1A676EF99D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384900   (800338) от 23.05.2020
+
+23:45 - Новое время (2013) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моя любовь (3:47)
+02. Тайна (3:17)
+03. Сложно забыть (3:26)
+04. Плохая привычка (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767365F82EE20D612B63469F6AA08B79D266F088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199813   (800364) от 17.01.2018
 
 Charlotte Gainsbourg - 5:55 (2007) US Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
@@ -571,180 +745,6 @@ VA - Italo Disco: The Lost Legends Vol.11 (2017) [MP3|320 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8B7EA8E1D2A45786869E780294D1F5DE06F07A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506192   (801105) от 30.10.2021
-
-Kathi Baker - Feel The Heat (1979) LP [MP3|320 Kbps] <Funk / Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fa La La (Feel The Heat), Dance To The Music (6:54)
-02. Isn't Quite Enough To Say (4:40)
-03. Movie Queen (6:03)
-04. Dancin Shoes (4:39)(   Читать дальше...   )Жанр: Funk / Soul, DiscoПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BD8C6CC61787CF49E2639875FDDF91E9653081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199378   (801131) от 16.01.2018
-
-Macho - 2 Albums (1978, 1980) Reissue CD, Italy & C, 2013 [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя - Marzio Vincenzi (Марцио Винченци), родом из Болоньи, Италия. Работая бэк-вокалистом и полюбив музыку в стиле диско, Марцио убедил своего друга Мауро Малавази помочь создать в 1978 году свой первый альбом "I'm A Man". Заглавный трек сразу же получил успех. Впоследствии, с появлением того, что называют иначе как 'rosco music' - гибрид рока (   Читать дальше...   )01. I'm A Man (17:40)
-02. Hear Me Calling (7:11)
-03. Because There's Music In The Air (10:26)
-04. I'm A Man (Single Version) (5:18)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49E5D5DFCE505C6BB1B407181D7BD324C8D6C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120974   (801147) от 01.04.2017
-
-Jamiroquai - Automaton (2017) [FLAC|Lossless|tracks + .cue] <Pop, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801147.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shake It On
-2. Automaton
-3. Cloud 9
-4. Superfresh(   Читать дальше...   )Жанр: Pop, FunkПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9016CD0E73795E290BB9BF0E86B70FB0FF844F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120966   (801172) от 01.04.2017
-
-In Memory Of George Michael - Tribute Album (2017) [FLAC|Lossless|image + .cue] <Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801172.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. George Michael (1963-2016)
-2. Wham Interview (1984)
-3. Careless Whisper (Acoustic Tribute)
-4. Last Christmas (Guitar Tribute)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368FB9CB5379A7EFAB0C60992AC1948F64BCF68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121128   (801175) от 01.04.2017
-
-Eruption - Eruption (1977) Remastered, 2016, Big Break Records [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Stand The Rain 06:33
-02. Movin' 04:22
-03. I'll Take You There 02:50
-04. Computer Love 04:35(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8E011B204192686015508FA99E8FA59751C8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120882   (801179) от 01.04.2017
-
-VA - 90s Festivals Soundtrack 2017 (Special Eurodance Edition) (2017) [MP3|320 Kbps] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Free 2 Night - Under The Sun (Remastered Eurodance Remix)  4:30
-02.  Real 2 Day - Change Our Life (Radio Mix)  3:11
-03.  E-Bomber - Drunk Natashka (Radio Mix)  3:50
-04.  X-Tension - Stay The Night (Back To The 90's Mix)  4:04(   Читать дальше...   )Жанр: EurodanceПродолжительность: 03:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36647AB49A760FA16E053AEBAEFAF0B5ED846A64
 ```
 
 https://mybot314.ru/tekegram_catalog/

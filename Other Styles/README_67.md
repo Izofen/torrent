@@ -1,3 +1,32 @@
+###  Публикация: 1167424   (415092) от 21.09.2017
+
+James Newton Howard - Waterworld (1995) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Main Titles
+02 - Escaping the Smokers
+03 - The Atoll
+04 - Prodigal Child(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A2D539B9E79481B8AD6096A509F207D916CB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167558   (415180) от 21.09.2017
 
 Dario Marianelli - Pride & Prejudice (2005) [MP3|320 Kbps] <Soundtrack, Score>
@@ -733,36 +762,6 @@ Deosil - A Drop of Eternity (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E193ADF877FD577442851B2CDFBADB23927C3DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412054   (422715) от 27.09.2020
-
-Nicolas de Angelis - Grand Concert (1986) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nicolas de Angelis является ярким представителем французской школы романтической гитары, а также одним из вдохновителей последней волны нового французского романтизма. Родился в местности Сэнт Клод – северном предместье Парижа, потянувшемся вдоль берега Рэйна.
-В юности получил классическое музыкальное образование по классу гитары, с десяти лет занимаясь в парижской (   Читать дальше...   )01. - La Danse Du Sabre (Katchatourian) (02:28)
-02. - Danse Macabre (Saint-Saëns) (02:39)
-03. - Adagio (Albinoni) (03:17)
-04. - Barcarolle (Offenbach) (02:55)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FECD77F2AF1AD87D2A7BD73C214BFE39F9F9398
 ```
 
 https://mybot314.ru/tekegram_catalog/

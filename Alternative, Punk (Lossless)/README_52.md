@@ -1,3 +1,32 @@
+###  Публикация: 1131972   (700844) от 09.05.2017
+
+Grayscale - Adornment (2017) [FLAC|Lossless|tracks|WEB] <Alternative, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Let It Rain (03:07)
+2. Come Undone (feat. Patty Walters) (03:30)
+3. Slipping Away (03:34)
+4. Atlantic (03:53)(   Читать дальше...   )Жанр: Alternative, Pop-PunkПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E7FB837C91DB3E17C75FAC8CCE8F9793265275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132219   (700980) от 09.05.2017
 
 Pond - The Weather (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Rock>
@@ -716,35 +745,6 @@ Misery Signals - Ultraviolet (2020) [FLAC|Lossless|image + .cue] <Metalcore, Mel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38F61305AC1F4A5242FAA30BB10EF9C573D52DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025434   (711764) от 11.06.2016
-
-Kongos - Egomaniac (2016) [FLAC|Lossless|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take It From Me (3:11)
-02. The World Would Run Better (3:00)
-03. I Want It Free (3:45)
-04. Underground (3:18)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C002870A892F5613C72003CCB8B4DFADBFE5F31
 ```
 
 https://mybot314.ru/tekegram_catalog/

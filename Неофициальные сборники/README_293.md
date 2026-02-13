@@ -1,3 +1,61 @@
+###  Публикация: 1318463   (494696) от 06.08.2019
+
+VA - Лучшие Trance треки Ver.6 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Blue - Another Life (Original Mix) 7:31
+02. Maria Healy - Bay Breeze (Extended Mix) 6:41
+03. Fast Distance - Divine (Extended Mix) 5:13
+04. Ferry Tayle feat. Betsie Larkin - Live For Tomorrow (Extended Mix) 8:42(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 05:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C925D345F22D31A09F94E703D9C0CAACE42F156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318411   (494704) от 06.08.2019
+
+VA - The Juice R&B (2019) [MP3|320 Kbps] <RnB, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494704.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Usher - Birthday
+002. Dosii - Half Clear
+003. High Høøps - Dreaming
+004. Kayla Ashlee - Ain't Gotta Worry(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 09:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D82C16CD13F2D9ACFC61292CD795382B212FF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318416   (494824) от 06.08.2019
 
 VA - Phoenix Rising (2019) [MP3|320 Kbps] <Metal, Power, Death>
@@ -716,70 +774,6 @@ VA - Billboard Hot 100 (06-09-2014) [MP3|320 кб/с]<Pop, Euro, Indie, Folk, Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47BAD3A50D9FA26D5BC1E18B5631136245831532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318174   (496405) от 05.08.2019
-
-Hugo Race - The best (1999-2019) Compilation Album [MP3|320 Kbps] <Blues rock, Dark blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Mess
-02. Blind Faith
-03. Bow & Arrow
-04. Coming Over(   Читать дальше...   )Жанр: Blues rock, Dark bluesПродолжительность: 02:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755E868AD459B6D5E729912983DC80933378C3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543649   (496436) от 05.09.2012
-
-VA - Русский Avto Club Сентябрь (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пашуля - Ты и я (Fidel Wicked Radio DFM)
-02. Nikita - 20-12 (DJ Sergey Fisun Remix)
-03. Юлия Савичева - Москва-Владивосток (Rodion Gordin 2012 Swedish Refix Radio)
-04. Алисия & Влад Корса - Здесь и сейчас (Harisma Remix)
-05. Quest pistols - Ты так красива (DJ Vengerov Remix)
-06. Geegun & Жанна Фриске - Ты Рядом (DJ Stylezz Remix)
-07. Вика Гранд - Я Не Боюсь (Movskii & Karasev Remix)
-08. Тамерлан и Алена Омаргалиева - Hey Yo (DJ Amor Remix)
-09. Герои - Мое маленькое глупое сердце (Orehov Lite Remix)
-10. Настя Любимова - Что такое любовь (DJ Solovey Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37055D8463BC0280ABEE1C6E238E6BDF0420160C
 ```
 
 https://mybot314.ru/tekegram_catalog/

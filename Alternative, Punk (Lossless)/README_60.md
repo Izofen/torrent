@@ -1,3 +1,32 @@
+###  Публикация: 1011353   (796399) от 28.04.2016
+
+Step Rockets - Future Nature (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West Coast    03:09
+02. Kisser    03:51
+03. Love Is Just A Chemical    04:00
+04. Turning Tides (By Your Side)    03:13(   Читать дальше...   )Жанр: Pop, Alternative, Indie RockПродолжительность: 00:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3543AE561C9C78AABC5F882B136443D768C0F9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011123   (796753) от 27.04.2016
 
 Placebo - Meds (2006) Limited Edition CD+DVD [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -717,35 +746,6 @@ The Greenhornes - американская группа, играющая в с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D18C2D4F0C550D4AB70EB18C1C9BC0D68E73827A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117660   (816901) от 23.03.2017
-
-Bush - The Best Of 94 - 99 (1999) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machinehead (5:14)
-02. Greedy Fly (5:06)
-03. Warm Machine (4:41)
-04. Everything Zen (6:33)(   Читать дальше...   )Жанр: Alternative Rock |Продолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C065517DE0C483498829982BFB11A6026E14E14
 ```
 
 https://mybot314.ru/tekegram_catalog/

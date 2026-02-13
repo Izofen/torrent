@@ -1,3 +1,32 @@
+###  Публикация: 1144272   (627371) от 22.06.2017
+
+2raumwohnung - Nacht und Tag (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1993 (Nacht) (4:33)
+ 02. Lucky Lobster (Nacht) (feat. Umami) (4:14)
+ 03. Somebody Lonely and Me (Nacht) (3:20)
+ 04. Energie Multimillionär (Nacht) (3:45)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 01:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF42D919AF638DC2AF31665A0781923A557A5768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909077   (627390) от 17.06.2015
 
 Major Lazer - 3 Albums + 2 EP + Singles + Remixes + Bonus (2009-2015) [MP3|320 кб/с]<Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, CarnivalBass, Hardstyle, Garage, Reggae, Dancehall>
@@ -717,35 +746,6 @@ Martins Garden - Renaissance: A Dub Opera (2018) Merkaba Music [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:583F1088980F25E2ADE6D6648D4E4844751A0ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294608   (628371) от 08.04.2019
-
-Örnatorpet (Ornatorpet) - Hymner Från Snökulla (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Dungeon Synth, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preludium - Gryning (05:05)
-02. Över Frusen Mark - I (04:59)
-03. Över Frusen Mark - II (07:16)
-04. När Gnistrande Snöflingor Falla - I (04:59)(   Читать дальше...   )Жанр: Electronic, Dungeon Synth, AmbientПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B51A85F295DD30A73C0853B3B8C104C5BA9A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

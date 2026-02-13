@@ -1,3 +1,176 @@
+###  Публикация: 1570113   (445101) от 16.08.2022
+
+Secret Service - The Lost Box (2012) [OGG|485 Kbps] <Pop Rock, Hi NRG, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satellites	3:44
+02. If I Do	3:31
+03. Different	3:32
+04. Eyes Are Talking	4:00(   Читать дальше...   )Жанр: Pop Rock, Hi NRG, Synth-popПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97977C9915093F50BBFD49B511A7DCE29AA1AF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409427   (445247) от 17.09.2020
+
+Michele Freeman - Michele Freeman (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice And Slow  (7:55)
+02. Find The Fire  (5:12)
+03. Where'd You Get What You Got  (5:43)
+04. Tumble Heat  (6:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE01C7DE0370C5EBA8FECF8AEBE67677E75DB1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322119   (446034) от 30.08.2019
+
+Lana Del Rey - NFR!: Norman Fucking Rockwell (2019) [FLAC|Lossless|tracks+ .cue] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norman Fucking Rockwell (04:09)
+02. Mariners Apartment Complex (04:07)
+03. Venice Bitch (09:37)
+04. Fuck It, I Love You (03:38)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B884412457E891EDE214A0F66227633017D19111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061890   (446131) от 11.10.2016
+
+Юта - Мои родные (2016) [MP3|320 Kbps] <Pop, Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. О нём
+02. Прости меня
+03. Роль
+04. Зимушка(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DA5F3CAD822635A41DFA4D2DF004D872691BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163837   (446353) от 07.09.2017
+
+Robert Montecristo - Jo Superboy (1980) Vinyl 7" [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jo Superboy (4:00)
+02. Gimme Gimme (3:45)Жанр: Electronic, Pop, DiscoПродолжительность: 00:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE88AA5C3F6095D4C3CB4D95A7EFFBE8BBDD691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248130   (446511) от 18.09.2018
+
+Drezden - Drezden (2018) [MP3|320 Kbps] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Михалок представляет дебютный альбом DREZDEN!
+Мы очень мотивированы, вдохновлены и пишем второй альбом, не дожидаясь всяких «фидбэков» и реакции публики! Вселенная DREZDEN уже ЕСТЬ! А ЕСТЬ ли Вы? Это еще надо доказать)) Перефразируем, конечно же, наших немецких философов и скажем всем: «Willkommen bei DREZDEN»! – говорит Сергей Михалок.1. Drezden
+2. Айсберг
+3. Самарканд
+4. Ямагути-гуми(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC841BC84E5E802CBA9B8499E6EF22715A2FF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322590   (446566) от 30.08.2019
 
 Александр Ягья - Вспоминай меня (2019) [MP3|320 Kbps] <Pop>
@@ -576,185 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0AE42D3C209320D489FC360EDBFE6EE6A8FC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247569   (451073) от 16.09.2018
-
-VA - Power of Love: 80s Love Songs (2018) [MP3|320 Kbps] <Pop  Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura Branigan - Power of Love
-02. Atlantic Starr - Unconditional Love
-03. Randy Crawford - One Hello
-04. Dollar - Give Me Back My Heart(   Читать дальше...   )Жанр: Pop,  Funk, DiscoПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42831F4780D69705E515C4463D2AA8EAABCA0CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943125   (451369) от 02.10.2015
-
-VA - BRAVO Hits 91 (2015) [FLAC|Lossless|WEB-DL]<Top 40, Pop, Rock, Dance, R&B, Soul, Electronic, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Puth feat. Meghan Trainor - Marvin Gaye (3:09)
-02. SDP feat. Adel Tawil - Ich will nur dass du weißt (Radio Edit) (3:22)
-03. Mark Forster - Bauch und Kopf (Radio Edit) (3:33)
-04. Adel Tawil - Unsere Lieder (4:00)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Dance, R&B, Soul, Electronic, HouseПродолжительность: 01:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B138A808E49DC4DE2648377FD2A26BF11FC1FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 826459   (451479) от 01.10.2014
-
-Pia Zadora - Let's Dance Tonight (1984) [MP3|320 кб/с]<Pop-Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Rain Begins To Fall
-02. Little Bit Of Heaven
-03. Real Love
-04. Follow My Heartbeat
-05. Let's Dance Tonight
-06. Clapping Song
-07. Substitute
-08. You Bring Out The Lover In Me
-09. Rock It OutЖанр: Pop-SynthpopПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8890099D1029807A6A76F31C755BB9109523955E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569610   (451510) от 13.08.2022
-
-Modern Talking - The 1st Album (1985) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul	5:36
-02. You Can Win If You Want	3:55
-03. There's Too Much Blue In Missing You	4:40
-04. Diamonds Never Made A Lady	4:05(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A306C15C5606DE36F450A18F3D813DEBC36028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569429   (451522) от 13.08.2022
-
-Blue System - Body Heat (1988) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under My Skin	3:34
-02. Do You Wanna Be My Girlfriend	3:58
-03. Titanic 650604	3:27
-04. Love Suite	3:22(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B15520A32E31E884DD1E6C8CE21B4649950DB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942741   (451640) от 02.10.2015
-
-Janet Jackson - Unbreakable (2015) Deluxe Edition [MP3|320 кб/с]<R&B, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbreakable
-02. BURNITUP! (feat. Missy Elliott)
-03. Dammn Baby
-04. The Great Forever(   Читать дальше...   )Жанр: R&B, PopПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A06B3A8F4C02400C9DC5AFA99557104717DF4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

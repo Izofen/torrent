@@ -1,3 +1,189 @@
+###  Публикация: 602318   (616282) от 30.07.2013
+
+Сергей Лазарев - ЛАЗАРЕВ. (Deluxe Version) (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Make you say
+2. Take it off
+3. Stumblin'
+4. Under the moon
+5. Нереальная любовь
+6. I need Love (feat. DJ SAN)
+7. Moscow to California (feat. DJ M.E.G. и Тимати)
+8. 7 Wonders
+9. Storm
+10. Keep your Mouth Shut(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662A83EC291905DB10BAFBB7AB14F3FD225F3029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523759   (616300) от 16.07.2012
+
+VA - Лучшее из 90-х (2012) [MP3|256 кб/с]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616300.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. E-Rotic - Max Dont Have Sex With Your Ex
+002. Русский Размер - Ангел Дня
+003. Mo-Do - Eins, Zwei, Polizei
+004. Демо - Я Не Знаю
+005. Диана - Скатертью дорога
+006. Reel 2 Real - I Like To Move It
+007. Dana International - Diva
+008. Рома Жуков - Я Люблю Вас Девочки
+009. Валдай - Хрустальный Ларец
+010. Daze - Toy Boy(   Читать дальше...   )Жанр: PopПродолжительность: 13:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5AE36D9FC713751E18DCBD9B433C98DFD0335C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146175   (616348) от 28.06.2017
+
+VA - Dancefloor Fuller (2017) [MP3|320 Kbps] <Schlager, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noel Terhorst – Traumpilot 03:27
+02. Wolfgang Lippert – Der Morgensong 03:21
+03. De Lancaster – Wir sind jung, wir sind frei 03:26
+04. Kaboom – Y.M.C.A. Reloaded (Extended) 04:31(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DEFA6F353849A109A7E88B8993E0B55F351B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545092   (616389) от 18.04.2022
+
+Добры Молодцы - Лучшее (2011) [MP3|320 Kbps] <Retro Soft Rock>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Опять дожди
+02.Любовь атамана
+03.На небе облака
+04.Люди встречаются(   Читать дальше...   )Жанр: Retro Soft RockПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F0772D4C493D0440DAC6FEBFDC8CC44BF80C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911599   (616429) от 23.06.2015
+
+Victor Manuelle - Que Suenen los Tambores (2015) [MP3|320 кб/с]<Latin, Salsa>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agua Bendita (4:00)
+02. No Queria Enganarte (4:32)
+03. Sal A Bailar (4:05)
+04. La Foto Que Falto (4:10)(   Читать дальше...   )Жанр: Latin, SalsaПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E203023C68023402DAE63A7B55A2E2A68F0C2893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146186   (616586) от 28.06.2017
+
+VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlager, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ‘Die immer lacht’ – Die immer lacht 03:30
+02. Andy Luxx – Wir sind die Mallorca Familie 03:36
+03. Mallorca Cowboys – Eskalation 03:53
+04. Till Simon – Wenn sie tanzt 04:49(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4414320858767A6F335A74F2F9BBCD3F425608DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295663   (616906) от 14.04.2019
 
 VA - 100 Greatest Number Ones (2019) [MP3|320 Kbps] <Pop, Rock>
@@ -583,186 +769,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A42220553657E531576FB0A8523B4522A0D9762F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523163   (618437) от 15.07.2012
-
-Лариса Мондрус - 8 Альбомов (1973-2008) [MP3|256-320 кб/с]<Ретро, Эстрада>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618437.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Весенняя капель (3:49)
- 2. Бесконечное объяснение (3:31)
- 3. Формула вечности (3:17)
- 4. Крылья (2:43)
- 5. В добрый час, счастливый путь (2:51)
- 6. Подожди (3:20)
- 7. Мама (3:08)
- 8. Не упрекай любовь (4:04)
- 9. Зайчик на стене (3:45)
- 10. Синий лён (3:03)(   Читать дальше...   )Жанр: Ретро, ЭстрадаПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC9B8EA07BE055D90B979DF0BFCDF1E3FA494CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295417   (618600) от 13.04.2019
-
-Culture Beat - Inside out (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618600.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Intro 2:24
-2 Walk The Same Line 5:58
-3 Get It Right 4:10
-4 Troubles 5:27(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814AD0E246402F2F3725CA0960E0338DBE82F2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295692   (618604) от 13.04.2019
-
-Технология - Человек, которого нет (2019) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618604.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Человек, которого нет (Single Version)
-2. Человек, которого нет (Current State Retension)
-3. Maybe It's Like That
-4. Человек, которого нет (Back To 90's babyMax Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F6BD21B9E0968986536917DF3892A8ED7A1278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295688   (618607) от 13.04.2019
-
-Лолита - Лучшее (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618607.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Шпилька-каблучок
-2. Пошлю его на
-3. Ориентация Север
-4. Я(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3F11C16E5B217627A152F1487F78CF9B161BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036621   (618632) от 21.07.2016
-
-ВИА Пламя - Золотые шлягеры (2003) [FLAC|Lossless|image + .cue] <Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Не надо печалиться  "
-02. "На дальней станции сойду  "
-03. "Снег кружится  "
-04. "Детства последний звонок  "(   Читать дальше...   )Жанр: RetroПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62DCE893DA76A4AC7A04249A604C913603D24F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295618   (618804) от 13.04.2019
-
-Анжелика - Над Облаками (2003) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Над Облаками
-02. Я Люблю
-03. Запрещу Тишину
-04. Дождь(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE90612EED2ABCF2625738E1F8EE6C48F66A440
 ```
 
 https://mybot314.ru/tekegram_catalog/

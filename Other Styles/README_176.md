@@ -1,3 +1,32 @@
+###  Публикация: 1362470   (949503) от 23.02.2020
+
+Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949503.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:41| 01. Days Gone
+|03:36| 02. The Freakshow
+|03:36| 03. We've All Done Things
+|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5558948E31206E3AE7B2B22376F048AA053D51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362271   (949552) от 23.02.2020
 
 John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -713,35 +742,6 @@ VA - Die schonsten Wiener Walzer (2007) [FLAC|Lossless|tracks + .cue] <Classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19DB637A8D358C7C61CB0DE451944F0F1A680A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980856   (952880) от 31.01.2016
-
-VA - Sirtaki Dance (1997) Instrumental [FLAC|Lossless|tracks + .cue] <Folklore>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G.Zampetas, A.Sakelarios - Siko Horepse Sirtaki (3:53)
-02. St.Xarhakos, V.Goufas - Na Me Thimase (3:16)
-03. I.Kapellas - Nostalgo (3:34)
-04. George Maustaki, D.Christodoulou - Mesogios (3:21)(   Читать дальше...   )Жанр: FolkloreПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923F5B79D8885CA9E73A270FFF14764DE34774B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

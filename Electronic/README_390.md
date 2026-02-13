@@ -1,3 +1,32 @@
+###  Публикация: 1212528   (775820) от 12.03.2018
+
+VA - Passion Lounge A Sensual Chillout Mix (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Red Skin Noxe  -  Vanity and Whim  3:24
+02.  Rick Kelly  -  Just Kiss Me  2:58
+03.  Bruce Maginnis & Mike Caen  -  Sand And Silk  3:06
+04.  Keir Fraser & James Braddell  -  Lately  2:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12106A430D205A799DD14EEE0C47FABB153414C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212437   (775822) от 12.03.2018
 
 VA - Marathon 2018: 50 Great Running Tracks (2018) [MP3|320 Kbps] <House>
@@ -716,35 +745,6 @@ Way Out West - We Love Machine – The Remixes (2010) 2CD [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1620CF2140D24E296D9D772EAEC595A96389AD27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014166   (776946) от 06.05.2016
-
-Lemongrass - Beauty (2016) [MP3|320 кб/с] <Electronic, Ambient, Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something True (ft Jane Maximova) 04:32
-02. Belle Vue 05:12
-03. Beautiful and Free (ft Karen Gibson Roc) 04:15
-04. Sunset People 04:42(   Читать дальше...   )Жанр: Electronic, Ambient, Downtempo, ChilloutПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5751749D6AF4D26429EE7A4C712E2F5F3EB5C130
 ```
 
 https://mybot314.ru/tekegram_catalog/

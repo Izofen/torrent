@@ -1,3 +1,32 @@
+###  Публикация: 1129237   (722501) от 28.04.2017
+
+VA - Los clasicos argentinos - Tango - Vol.17 - Francisco Canaro: El ritmo canyengue (1996) [MP3|192 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aromas
+02. Alma de loca
+03. Una cancion
+04. Preludio nochero(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9B3AFC2652620D44EFD06A8BB1D9AB69FB9990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 188994   (722736) от 03.08.2020
 
 VA - Cafe Chillout Ibiza Edition (2008) [MP3|167-233 kbps]<Lo-Fi>
@@ -707,35 +736,6 @@ Piano Pianissimo - Breathe In, Breathe Out and Relax (2022) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:680B497979580998F26E9BE955E8E05D0FA194FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022982   (726688) от 04.06.2016
-
-Danny Wright - Unconditional Love (2016) [MP3|320 кб/с] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy's Silver Lining [00:04:12]
-02. Time to Say Goodbye [00:04:29]
-03. Unconditional Love [00:03:57]
-04. Christy Kay's Theme [00:04:12](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B232C1C16FAEB5FBEB85B581182EE2B70C393715
 ```
 
 https://mybot314.ru/tekegram_catalog/

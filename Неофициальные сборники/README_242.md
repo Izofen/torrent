@@ -1,3 +1,73 @@
+###  Публикация: 560324   (407464) от 14.10.2012
+
+VA - CrazyDance Потанцуем?! (2012) [MP3|320 кб/с]<Dance , Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407464.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Евро - Я тебя люблю (Dimasound Remix)
+002 - Вирус - Мелодия ночи (Dimasound Remix)
+003 - Haddaway - What Is Love (W'Deejays & Dimasound Remix)
+004 - Dada Life - Rolling Stones T-Shirt (Dimasound remix)
+005 - Deepside Deejays - Never Be Alone (Dimasound remix)
+006 - ARTIK pres. ASTI - Облака (Dimasound Remix)
+007 - Stian K - Be Alive! (Dimasound Remix)
+008 - Flo Rida-Whistle (Dimasound remix)
+009 - Pitbull, Casely & Flo-Rida – Move Shake Drop (ElHouse & Dimasound Remix)
+010 - Basic Element – I'll Never Let You Know (Dimasound remix)(   Читать дальше...   )Жанр: Dance , ClubПродолжительность: 03:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F0CEEBBF91B4A824B68C0963109E01361E3E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559343   (407474) от 14.10.2012
+
+VA - Dubstepium vol. 4 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3dNow - I will kill you
+02. Enigma Dubz - Badness
+03. Eboxyde - Fuck The Code
+04. Rekoil - Odd Maneuvers
+05. Current Value - Indivisible Force
+06. Kannamix - Consensual Rape
+07. Tom Hangs ft. Shermanology - Blessed
+08. Mantis - Hoodshit
+09. Oskilator - Kong
+10. Pyramid Juke - Maybe(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6274EE89B051271CEA1C5CD628BE59FE7DABB8DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574159   (407479) от 03.09.2022
 
 VA - Remixes Box The Saved: The Perfect (2022) CD, Compilation [MP3|320 Kbps] <Club, Progressive, Hardstyle, Dubstep>
@@ -723,70 +793,6 @@ VA - Модный Хит В Машину! Русский (2012) [MP3|224 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C1663A789236CD6B83B1B50BCA7765E1FB2212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559092   (408373) от 13.10.2012
-
-VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.25 (2012) [MP3|128-320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Мишель - Здравствуй, Знаешь
-02.Andamiro feat. Dani B. & Jonathan Carey - I Don't Care
-03.Dzham - Без Тебя
-04.Estela Martin feat. Young James - Love Me Tonight (Radio Edit)
-05.Денис Любимов - Ещё Не Закончен Бой
-06.Mavado feat. Karian Sang - Take It
-07.Пальчики Оближешь - Сжигаю Боль
-08.Carlprit - Fiesta (Michael Mind Project Radio Edit)
-09.Влад Соколовский - Мир Сошёл С Ума
-10.Olly Murs feat. Flo Rida - Troublemaker(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90676587F09C39839DC225A07911297BE35FE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067268   (408382) от 28.10.2016
-
-VA - Блатная волна Радио Шансон (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Александр Вестов - Золушка 3:33
-002.Александр Закшевский - За Тобой 3:27
-003.Александр Келеберда - Все Лучшее В Прошлом 3:26
-004.Александр Климм - Верь Мне 3:53(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9D2E108A207EA6D8DFBF9519FA7D8980D347D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

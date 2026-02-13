@@ -1,3 +1,32 @@
+###  Публикация: 1210706   (778567) от 04.03.2018
+
+VA - Sweet Winter Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Neber Sover  -  Bossa River  4:40
+02.  Uprising Alchemy  -  Kleine Wansee  5:51
+03.  Lime And Shine  -  Handling Symonette  4:58
+04.  Mephia  -  Sequoia Symposium  3:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3972495BE23963C491086A0C08A1CF99E840DBF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210303   (778717) от 03.03.2018
 
 David Vendetta - Rendez-Vous (2007) 541 [MP3|320 Kbps] <House, Progressive House, Electro>
@@ -716,35 +745,6 @@ VA - FG Top 10 February 2018 [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9119FB94A7CC6DD74B26F1E9125864CCE0E342F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209363   (779388) от 26.02.2018
-
-VA - Best Of Chillout 2018 Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJSaint  -  Souls (Harold-Alexis Remix)  6:06
-02.  Data Rebel  -  Broken Note (Original Mix)  5:26
-03.  Puremusic  -  Closer (SineRider Remix)  6:17
-04.  Jama & Stendahl  -  Follow Me (Original Mix)  4:21(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FE8599E8140CB07E5E6AA2EA9D281179B98169
 ```
 
 https://mybot314.ru/tekegram_catalog/

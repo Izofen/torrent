@@ -1,3 +1,32 @@
+###  Публикация: 1019577   (750253) от 23.05.2016
+
+VA - Mallorca Chillout Lounge Music (200 Songs) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750253.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sev Bastian - Little More [04:02]
+002. Cablu - Stalkerman [03:17]
+003. Zen Ongaku - City Streets [05:05]
+004. Lee & Sun - Desperate for Your Love [03:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 15:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F592E56FB92A6118C61CCE44279DE97313E1A8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019582   (750270) от 23.05.2016
 
 VA - Garten Lounge Musik (2016) [MP3|320 кб/с] <House, Deep House>
@@ -713,35 +742,6 @@ VA - Erotica Vol. 1 (Most Erotic Lounge And Chillout Tunes) (2014) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C0346EA5F18BF8298D17F516EFA5DC55BF279B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216068   (752828) от 29.03.2018
-
-VA - Erotica Vol. 3 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - Into The Light
-02. Brazil Beat - Fragile
-03. Andrea Cardillo - Nuages (feat. Gabrielle Chiararo)
-04. Brazil Beat - Ain't No Sunshine(   Читать дальше...   )Жанр: Balearic, LoungeПродолжительность: 01:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839FBC8427DF9F92C6F44396EB65D8F92B9B9FA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

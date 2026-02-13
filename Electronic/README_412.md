@@ -1,3 +1,32 @@
+###  Публикация: 1201975   (791054) от 27.01.2018
+
+VA - Ferry Corsten presents Corsten's Countdown January (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferry Corsten  -  Lonely Inside (Extended Ferry Fix)  5:56
+02.  Alpha 9  -  You And I (Extended Mix)  5:38
+03.  BT & Jes  -  Every Other Way (PureNRG Extended Remix)  7:32
+04.  Gabriel & Dresden  -  Sequoia (Original Mix)  7:24(   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD86425616CF7F24FC72DEAFE38D442562692392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201933   (791057) от 27.01.2018
 
 Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone, Ambient>
@@ -716,35 +745,6 @@ VA - Electronic Lounge 25 Electronic Flavoured Lounge Tunes Vol.2 (2018) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C24CCFE136BA86223540602005048E4A0EB0DC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201674   (791676) от 26.01.2018
-
-VA - Wurkout Vol. 6 (Dj Tonyynot) (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daphne Rubin Vega - Rocket Man (Original Mix) 6:06
-02. Kitty Punch - Swish Swish (Dj Shocker Remix) 5:21
-03. Deborah Cooper - Real Love (Rosabel's Fireball Anthem Edit) 3:46
-04. Ella - Green Light (Dj Shocker Remix) 6:45(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A0379BC322CA77D8281BB4DCDE1642119153C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

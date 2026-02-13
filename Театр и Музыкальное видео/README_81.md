@@ -1,3 +1,267 @@
+###  Публикация: 566534   (397815) от 28.10.2012
+
+Мельница - Дикие Травы в СК "Олимпийский" (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Фолк-РокРежиссер: Роман Бутовский, Юрий ФроловскийПродолжительность: 01:52:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566799   (397927) от 28.10.2012
+
+Gregorian: Epic Chants - Live in Zagreb [Limited Edition] (2012) [H.264] DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Else Matters
+02. Losing My Religion
+03. In The Air Tonight
+04. Blue MondayЖанр: New Age, enigmatic, choral, ambientpop, mysticpopПеревод: ОтсутствуетПродолжительность: 01:21:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566473   (397969) от 28.10.2012
+
+The Doors - Live At The Bowl '68 (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397969.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 июля 1968 г. The Doors выступали на сцене Hollywood Bowl, дав концерт, ставший с тех пор легендарным. The Doors выступали в поддержку выхода своего третьего альбома «Waiting For The Sun» и сингла № 1 в США «Hello, I Love You». Они оттачивали свои концертные выступления последние 2 года и находились на абсолютном пике своей формы. Теперь оригинальная видеозапись из Hollywood Bowl впервые отсканирована в цифровом виде и отреставрирована, чтобы это шоу выглядело лучше и полнее, чем когда-либо прежде, включая 2 ранее не издававшихся по причине брака трека («Hello, I Love You» и «THE WASP (Texas Radio And The Big Beat)», которые теперь восстановлены. Звукоинженер и сопродюсер The Doors Брюс Ботник заново осуществил микширование и мастеринг звука с оригинальных многоканальных пленок. Теперь это наиболее полное и совершенное издание этого знаменитого концерта.Жанр: Psychedelic RockПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399918   (398186) от 15.10.2011
+
+Романтическое путешествие. Концерт Николая Баскова (2011.10.14) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Николая Баскова01. Вступление
+02. Будь моей любовью (муз. Н.Бродский, сл. С Канн)
+03. Поэтому (муз. Г.Харделот, сл. Э.Тешмахер)
+04. Ария Канио из оперы Руджеро Леонкавало "Паяцы"(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7048D1630E799F12EE26568BF843C47EE66A52D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399927   (398290) от 15.10.2011
+
+Сурганова и Оркестр / Концерт в Ялте (25.09.2011) <Rock> CamRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся 25 сентября 2011 года в Ялтинском театре имени А.П. Чехова. Первая часть концерта была посвящена презентации нового альбома группы «Увидимся скоро»001 Интро
+ 002 Увидимся скоро
+ 003 Хвала
+ 004 SanctumSanctorum(   Читать дальше...   )Жанр: Rock / VIP-Punk-DecadenceПродолжительность: 01:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D9A9207AA2B257973B189F1582A00A00E0BECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170815   (398388) от 02.10.2017
+
+Сборник клипов - Ballads and Lyrics от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (диск 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник клипов я собирал когда то для девушки которую очень любил и вложил в него всю свою душу. Каждый кто любил по настоящему, найдет в нем частицу себя. Это 1я часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
+001 Bryan Adams - Please Forgive Me
+002 Mr. Big - Wild world
+003 Рондо - Я буду помнить(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AC8BCE70AAB15F9F3C5C50C061BD1FF7D7CB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566281   (399016) от 27.10.2012
+
+Весь этот рок (Живой звук) - УНДЕРВУД (2012) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лето alles
+02. Бабл-гам
+03. Ангелы и аэропланы
+04. Квартира. Машина. Мировая слава(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1D460C994D75D599053D7D70D07444AF9900AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170516   (399225) от 01.10.2017
+
+Deep and sensual music for love (2017) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заводные клипы электронной музыки с прекрасными девушками поднимут вам настроение!
+
+Постельных сцен эротики течение,
+Нежность белых тонких простыней,(   Читать дальше...   )01. Ansah - I Know [03:18]
+02. Tom Ferro - Molly [04:27]
+03. Jake Ackers - Enigma [05:40]
+04. Gold Front - Jumanji [03:52](   Читать дальше...   )Производство: All WorldЖанр: ElectronicПродолжительность: 02:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1AC63A4D02180BEEBE84CBCF0E51907ECBC332C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565650   (399824) от 26.10.2012
+
+The Doors: Live at the Bowl '68 (2012) [1080p] Blu-ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399824.jpg" />
+</div>
+
+
+###  Подробнее
+
+• On July 5th, 1968, The Doors took to the stage of the Hollywood Bowl for a concert that has since passed into legend. The Doors were performing on the back of their 3rd album release Waiting For The Sun and the US No.1 single Hello, I Love You. They had been honing their live performances over the previous 2 years and were on absolute peak form. Now for the first time the original film footage from the Hollywood Bowl has been digitally scanned and restored to present the show better and more complete than it's ever been seen before, with 2 previously unreleased tracks (Hello, I Love You & THE WASP (Texas Radio And The Big Beat) (aka just Texas Radio And The Big Beat) returned to the running order and with sound newly remixed and mastered from the original multitrack tapes by The Doors engineer and co-producer Bruce Botnick. This is now the definitive edition of this famous performance. / Bonus Features: Over an hour of new bonus material including Echoes From The Bowl, The Doors route to the Hollywood Bowl, (   Читать дальше...   )01. Show Start / Intro
+02. When The Music's Over
+03. Alabama Song (Whisky Bar)
+04. Back Door Man
+05. Five To One
+06. Back Door Man (Reprise)
+07. The Wasp (Texas Radio And The Big Beat)
+08. Hello, I Love You
+09. Moonlight Drive
+10. Horse Latitudes(   Читать дальше...   )Жанр: rockПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565847   (399943) от 26.10.2012
 
 Robert Plant and the Strange Sensation - EXIT Festival July 12, 2007 (2007) DVDRip
@@ -448,266 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C925B1FF727A9A0A5BC91BDE09BE20A873647511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561416   (406071) от 17.10.2012
-
-Gin-n-Juice - Pornografiya (Uncensored) (2011) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ELECTRO-HOPПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9999D1B26954D2829CF75B5C29BB2A3F9A4323A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561638   (406088) от 17.10.2012
-
-Gary Moore - The Definitive Montreux Collection (5 альбомов 1990-2001) (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция выступлений Гэри Мура на Montreux Jazz Festival с 1990 по 2001 год01. Midnight Blues
-02. Texas Strut
-03. Moving On
-04. Cold, Cold Feeling(   Читать дальше...   )Жанр: Концерт, Blues, RockПродолжительность: 03:22:10(00:54:53+01:03:54+00:48:33+00:47:18+00:48:02)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC76E93C27EF20B480242240BCF888F28D1342B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561417   (406178) от 17.10.2012
-
-Dreamshow - Animals (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electronic, IndieПродолжительность: 00:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F524958FF1A2AC087130BEC52EE66F7403EF1308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560684   (406556) от 15.10.2012
-
-Lana Del Rey - Ride (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative, VocalПродолжительность: 00:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31400391482C4868CA7EBB47A6F4CDD2D9525BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560515   (406584) от 15.10.2012
-
-Рок помощь Армении / Rock Aid Armenia (1989) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rock Aid Armenia — название благотворительных музыкального альбома и концерта, состоявшегося 8 июля 1989 в Лондоне в поддержку пострадавших в Спитакском землетрясении.
-В концерте приняли участие многие известные хард-рок и хеви-метал коллективы, собравшиеся в исторической Metropolis Studios в Лондоне для записи благотворительного проекта, доходы от которого пошли в пользу пострадавших от землетрясения в Ленинакане (Армения) в 1988 году.
-Главным моментом сборника стал римейк хита01. Emerson, Lake & Palmer - Fanfare for the Common Man
-02. Bon Jovi - Livin' on a Prayer
-03. Gary Moore - After the War
-04. Iron Maiden - Run to the Hills
-05. Black Sabbath - Headless Cross
-06. Led Zeppelin - Dazed 'N' Confused
-07. Asia - Heat of the Moment
-08. Foreigner - Hearts Turn to Stone
-09. Mike And The Mechanics - Silent Running
-10. The Firm - Satisfaction Guaranteed(   Читать дальше...   )Жанр: Музыка,Hard RockПродолжительность: 01:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70C155B8827292FA8822E2224987200E8B44143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557372   (406920) от 14.10.2012
-
-Легенды русского рока. Часть 1. Первый день (2012.09.01) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фестиваль "Легенды Российского Рока", прошёл 1 и 2 сентября 2012 в Зеленом Театре. Двадцать легендарных коллективов исполнили на открытой арене Зеленого Театра песни, которые прошли испытание временем, и теперь, с полным правом могут носить звание культовых композиций навсегда занявших свое почетное место не только в русской рок-музыке, но и в русской культуре (   Читать дальше...   )01. Ю-Питер - Шар цвета хаки
-02. Ю-Питер - Скованные одной цепью
-03. Ю-Питер - Прошальное письмо
-04. Найк Борзов - Лошадка(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:18:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560283   (406989) от 14.10.2012
-
-Легенды русского рока. Часть 2 (2012) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фестиваль "Легенды Российского Рока", прошёл 1 и 2 сентября 2012 в Зеленом Театре. Двадцать легендарных коллективов исполнили на открытой арене Зеленого Театра песни, которые прошли испытание временем, и теперь, с полным правом могут носить звание культовых композиций навсегда занявших свое почетное место не только в русской рок-музыке, но и в русской культуре (   Читать дальше...   )01. Моральный Кодекс - До свидания, мама
-02. Сплин - Остаёмся зимовать
-03. Сплин - Моё сердце
-04. Скифы, Сокол, Политбюро, Цветы - Я люблю рок-н-ролл(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECD235202BB3BEEC25EFF9144ED4A7D46B0172D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412560   (407220) от 05.10.2020
-
-Masami Okui - V-mode ~10th Anniversary~ Disc 2 (2003) DVDRip [H.264] [PR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот бонусный диск содержит избранные клипы и концертные записи Masami Okui 1993-2003 годов с комментариями самой Masami. Диск 2 из 2.Rinbu-revolution
-J
-Tenshi no Kyuusoku
-Koishimasho Nebarimasho(   Читать дальше...   )Производство: ЯпонияЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D179525F264AA02866CF0F52E1E2649D923308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251692   (407666) от 06.10.2018
-
-Rammstein - Live Aus Berlin (1998) DVDRip [H.264] [DE / DE, EN, RU Sub]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein - культовая немецкая рок-группа, образованная в январе 1994 года в Берлине. Музыкальный стиль группы относится к жанру индастриал-метала (конкретно - его немецкой сцене Neue Deutsche Härte).1. Spiel mit mir – 6:20
-2. Herzeleid – 3:58
-3. Bestrafe mich – 3:51
-4. Weißes Fleisch – 4:34(   Читать дальше...   )Жанр: Rock, Metal, IndustrialСубтитры: Concert: немецкие (srt); Interview: английские, русские (srt)Продолжительность: 01:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1153C82040E9F0F2CA2477CCAD22A92021E175B
 ```
 
 https://mybot314.ru/tekegram_catalog/

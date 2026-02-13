@@ -1,3 +1,32 @@
+###  Публикация: 1278437   (768403) от 26.01.2019
+
+Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical Crossover>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Promenade (5:51)
+02. To the Unknown Man (5:14)
+03. Irina Valentinova – Mythodea - Movement 9 (3:48)
+04. Moonlight Reflections (3:10)(   Читать дальше...   )Жанр: New Age, Classical CrossoverПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966263B0B4AA15E184745362DC147EA3F1414169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278809   (768467) от 26.01.2019
 
 Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classical, Instrumental, Cello>
@@ -716,35 +745,6 @@ Robin Spielberg - Moonlight & Lovesongs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC2278F06D8E41251186F5AB935FC1D3F129F3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213024   (773224) от 15.03.2018
-
-Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773224.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mantra (5:25)
-2. Beautiful Solitute (3:24)
-3. Tokyo Morning (5:19)
-4. Flight Over India (4:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CDB81393B1651FA88EB453952D69671B7C92E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

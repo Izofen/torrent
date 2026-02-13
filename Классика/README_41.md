@@ -1,3 +1,32 @@
+###  Публикация: 1001565   (852097) от 29.03.2016
+
+Ewald Demeyere - Arne: Eight Sonatas or Lessons for the Harpsichord (2002) [FLAC|Lossless|tracks + .cue] <Classical, Baroque, Keyboard>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sonata I in F-major: Andante  2:58
+02.  Sonata I in F-major: Adagio  0:14
+03.  Sonata I in F-major: Allegro  3:15
+04.  Sonata II in e-minor: Andante  5:11(   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DB237F6D19A56DC9384522FCAB7C82067B1A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377095   (853273) от 21.04.2020
 
 Roman Ilyin - Pieces 2 (2020) [MP3|320 Kbps] <Classical, Neo-classical, Encemble>
@@ -716,35 +745,6 @@ Concerto alla rustica, for strings & continuo in G major, RV 151
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36973F12FA0A5E720DAC3F94EF4D9F1844ECCD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000801   (857434) от 26.03.2016
-
-Janet Baker, Geoffray Parsons - Baker (2002) "BBC Legends" Series [FLAC|Lossless|tracks] <Classical, Vocal music.>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christoph Willibald Gluck - Paride ed Elena, opera in 5 acts, Wq. 39 - O del mio dolce ardor  4:13
-02. Jean-Baptiste Lully - Amadis, opera, LWV 63 - Bois epais  2:48
-03. Benedetto Marcello - Amadis, opera, LWV 63 - Il mio bel foco (Quella Fiamma che m'accende), for cantata for soprano, 2 violins, 2 oboes & continuo, SF. 142 (spurious)  3:33
-04. Lennox Berkeley (   Читать дальше...   )Жанр: Classical, Vocal music.Продолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9ACACB187197B08105949FA4D75D2BDCF3BD02E
 ```
 
 https://mybot314.ru/tekegram_catalog/

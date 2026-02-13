@@ -1,3 +1,38 @@
+###  Публикация: 206525   (355050) от 18.11.2013
+
+Behzad - 4 albums (1999 - 2007) [MP3|320 кб/с]<New age, Flamenco, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_355050.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:13) 01. Bemirid (Rumi)
+(3:58) 02. Love Stories
+(4:54) 03. Persian New Year
+(2:51) 04. Roots
+(4:38) 05. Exhausted
+(4:04) 06. Barbie
+(4:58) 07. If You Go a Way
+(4:03) 08. Tears & Sensations
+(6:00) 09. Rest On My Shoulders
+(4:19) 10. Trapped in the Darkness(   Читать дальше...   )Жанр: New age, Flamenco, FolkПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 723663   (355312) от 18.11.2013
 
 Хелависа & Лазерсон и друзья - Новые Ботинки (2013) [MP3|320 кб/с]<Folk-Rock>
@@ -724,35 +759,6 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DC9E776F80B510ECFECEEEFD380A056AF21FF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071680   (356968) от 11.11.2016
-
-VA - Los clasicos argentinos - Tango - Vol.12 - Ruben Juares: El bandoneon que canta (1996) [MP3|128 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - Callejera
-02. Hector Pacheco - Patotero sentimental
-03. Floreal Ruiz - Vieja amiga
-04. Mariano Mores y su conjunto - La guitarrita(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AD65BC3F58BAC07E62AD2B765ADC44009BB5A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

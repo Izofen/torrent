@@ -1,3 +1,32 @@
+###  Публикация: 935558   (498275) от 09.09.2015
+
+DAY6 - The day (2015) [MP3|320 кб/с]<k-pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freely
+02. Out of my Mind
+03. Congratulations
+04. Habits(   Читать дальше...   )Жанр: k-popПродолжительность: 00:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99643170C04CE6701812668919221400CBBC5647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935321   (499163) от 08.09.2015
 
 Pazzo Fanfano Di Musica - Pazzo Fanfano Di Musica (1989) Reissue /2013, King Records, Japan/ [FLAC|image + .cue]<Symphonic Prog>
@@ -726,35 +755,6 @@ Unknown-Dimension — 15 альбомов (2009-2019) /Doujin/ [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C697D32CE7C69904466083A36525645A358AD5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798232   (539626) от 30.06.2019
-
-kairo — 11 альбомов (2010-2013) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2013.04.29 例大祭新譜無料配布デモCD (M3-31)
-2013.05.26 (KAIRO-007) Do not distract the eye in the here andnow (Reitaisai 10)
-2013.12.30 So, All we have (not) created equal (C85)Тип издания: DoujinЖанр: J-MetalФормат: Touhou VocalПродолжительность: 00:04:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158235C11CE01C79AD419B5A48712BD216D3B000
 ```
 
 https://mybot314.ru/tekegram_catalog/

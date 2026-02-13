@@ -1,3 +1,32 @@
+###  Публикация: 641447   (364936) от 28.10.2015
+
+VA - Trance Pioneers  001 - 009 (2010 - 2015) [MP3|320 кб/с]<Trance , Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Tyas - Lift (Sean Tyas Live Rework) (8:29)
+ 02. Sean Tyas - Melbourne (Original Mix) (8:23)
+ 03. Sean Tyas - Drop (Original Mix) (8:50)
+ 04. Sean Tyas - Rulebook (Original Mix) (7:30)(   Читать дальше...   )Жанр: Trance , Uplifting TranceПродолжительность: 03:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A639F5FF98C8DFD2857DDCE88510395812ECE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949376   (364939) от 28.10.2015
 
 Koan (35 releases) (2005-2015) [MP3|~192-320 кб/с]<Ambient, Downtempo, Electronica
@@ -713,41 +742,6 @@ VA - Simplify Recordings Traplify Vol.2 (2016) [MP3|320 Kbps] <Dirty Dubstep, Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD97B83A3661CDB38893734EC259AC42911CBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576380   (366689) от 16.11.2012
-
-VA - Pathaan's Playlist - Ibiza (2011) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kemek - Certain Frequencies
-02. The 2 Bears - Church - Midland Remix
-03. Flavius Etcheto - Solaz - Orginal
-04. Martin Dawson Glimpse - No One Belongs Here More Than You - Ewans Balearos Maximos Remix
-05. David Lynch - Good Day Today - DiskJokke Remix
-06. Munty - Changing Times
-07. Flowers and Sea Creatures - I am - Ewan Pearson Re-Edit
-08. Coyote - Too Hard - Aeroplane Remix
-09. Proviant Audio - Hey, Let's Do It! - Jay Shepheard Mix
-10. Bubble Club - The Goddess(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCC94A19152B2676B2F0BA9B220FAA5FC506C0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

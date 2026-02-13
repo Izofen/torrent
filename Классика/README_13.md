@@ -488,6 +488,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585151   (304711) от 05.12.2012
+
+Thomas Bergersen - Illusions (2011) [FLAC (tracks+.cue)|Lossless]<Orchestra, Classical, World>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_304711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aura
+ 02. Starvation
+ 03. Dreammaker
+ 04. Hurt
+ 05. Ocean Princess
+ 06. Gift of Life
+ 07. Rada
+ 08. A Place In Heaven
+ 09. Merchant Prince
+ 10. Promise(   Читать дальше...   )Жанр: Orchestra, Classical, WorldПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261239   (305041) от 10.11.2018
 
 Sarah Brightman - Hymn (2018) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Pop, Classical Crossover>
@@ -720,35 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66B075595C08145DBF31D5EF7F03C7335F471957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959997   (309272) от 27.11.2015
-
-Чайковский - Гении классической музыки (2011) [MP3|320 кб/с]<Classical>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лебединое озеро: Вальс
-02. Щелкунчик: Вальс цветов
-03. Грустная песенка
-04. Лебединое озеро: Тема лебедя(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19CA892AE9E016C9E7AE8034BB6DA81C5A97368F
 ```
 
 https://mybot314.ru/tekegram_catalog/

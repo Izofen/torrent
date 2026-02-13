@@ -1,3 +1,32 @@
+###  Публикация: 1369720   (902112) от 24.03.2020
+
+VA - Bangin' Future House, Vol. 2 (2018) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Lex - Ready for Tonight (Alex East Edit) [03:23]
+02. Arom Side - Makes Me Move (Radio Edit) [03:24]
+03. Coco Fay - Paradise (Radio Edit) [03:28]
+04. Crew 7 - Strike It Up (Radio Edit) [02:49](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:148594DCC5D12687738BB4942EFF9FEC122AF4EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369719   (902114) от 24.03.2020
 
 VA - Bangin' Future House, Vol. 1 (2018) [MP3|320 Kbps] <House, Progressive House>
@@ -707,35 +736,6 @@ Christian Loffler - Lys (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Electronic, Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2870011C560B36AD035035C5D92B9FAA406F7694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099273   (905324) от 01.02.2017
-
-VA - Tea Time Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Michael E - Be Kind  6:31
-02.  Peter Pearson - Still On My Mind  2:35
-03.  Euphonic Traveller - Chillin@Le Hotel Plaza  3:37
-04.  Lazy Grooves - Secrets  4:22(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D862D7384508CF7F364FB4FDD2B66AF2625628
 ```
 
 https://mybot314.ru/tekegram_catalog/

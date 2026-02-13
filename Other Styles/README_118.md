@@ -1,3 +1,32 @@
+###  Публикация: 1025666   (707843) от 13.06.2016
+
+Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Soundtrack, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening [00:04:08]
+02. Code 44 [00:04:32]
+03. The Arrival [00:02:50]
+04. Future Noir [00:03:25](   Читать дальше...   )Жанр: Electronica, Soundtrack, New Age, Synthwave, ElectroПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BEC82D45E9E399BA21BE16792621463BE9C7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025882   (707939) от 13.06.2016
 
 Blue Tribe - Deep Sentiment (2006-2011) (6 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
@@ -713,35 +742,6 @@ VA - Your Own Personal Buddha: Cafe Ethnic Lounge (2017) [MP3|320 Kbps] <New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F85175B6874E57853AD25468FA5BD29CBA04400D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130740   (712685) от 03.05.2017
-
-Glenn Morrison - How We Are (Motion Picture Soundtrack) (2017) [MP3|320 Kbps] <Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. How We Are (04:06)
-2. Incessant (04:18)
-3. Dinosaur Vibrato (04:16)
-4. Apocalyptic Veil (07:44)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC905047673007078EB4C748E4B2AE256A878873
 ```
 
 https://mybot314.ru/tekegram_catalog/

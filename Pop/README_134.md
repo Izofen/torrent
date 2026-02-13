@@ -1,3 +1,61 @@
+###  Публикация: 959406   (317210) от 24.11.2015
+
+Texas - Texas 25 (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шотландцы Texas выпустили новый альбом «Texas 25». Стандартное издание включает в себя 12 треков, - в том числе восемь перезаписанных известных хитов (а ля «Black Eyed Boy», «Halo», «I Don't Want a Lover», «Say What You Want», «Summer Son» и «The Conversation») и четыре совершенно новых. Специально в честь юбилейного релиза, старые песни были переработаны и перезаписаны (   Читать дальше...   )01. Start A Family
+02. Black Eyed Boy
+03. Say What You Want
+04. Supafly Boy(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10121EE9E296439A6316A5477D7CE2CC7EB3EFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421322   (317474) от 05.11.2020
+
+VA - Rare80 Records - Rare80 Volume 2 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rare80 Volume 2 CD1
+01. Shanghai - Ballerina (Club Mix)
+02. Andrea - Macho Man (Macho Man Version)
+03. Rewind - Rosalie (Pop & Go) (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFFF599D4AAD54D4B729FD873A96691D2AF8AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421319   (317475) от 05.11.2020
 
 VA - Rare80 Records - Rare80 Volume 1 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
@@ -700,64 +758,6 @@ VA - Disco 80's Rare & Special Versions Vol. 2 (2016) Compilation [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37F93D564CD5960BE0094305123F19EC7E13FE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259452   (321261) от 03.11.2018
-
-Clodagh Rodgers - Come Back And Shake Me: The Kenny Young Years 1969-71 (2012) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clodagh Rodgers & Kenny Young - Kenny & Clodagh Intro (00:09)
-02. Clodagh Rodgers - Come Back And Shake Me (02:37)
-03. Clodagh Rodgers - I Am A Fantasy (02:51)
-04. Clodagh Rodgers - Under The Boardwalk (03:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09924483F0E794DD6EEC7D1426E5E4979529B152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259235   (321266) от 03.11.2018
-
-Italove - Extended And Remixed (2018) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italove - Stockholm Is Calling (Extended Mix) (4:44)
-02. Italove - Follow Me To Mexico (Extended Mix) (4:43)
-03. Italove feat. TQ - Rhythm Of Love (Extended Mix) (7:11)
-04. Italove - Too Late To Cry (Matt Pop Club) (7:20)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9096F40ABB3AB8F5ABFF3C6CA3573F530CCE0D15
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 928838   (521764) от 17.08.2015
+
+VA - Romantic Nights - Sex Lounge Tracks for Erotic Moments Sensual Massage (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotic Chill Music - Romantic Nights (Calm Music)
+02. Tantric Massage - Erotic Massage (Reiki Healing)
+03. Cafe Tantra - Gentle Touch (Touch Therapy)
+04. Erotica - Tantric Sex Sound (Stimulate)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6583AEAA62A8F52554F25DDD5FAE3B378503C44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928669   (521781) от 17.08.2015
+
+Alpine - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative Dance, Indie Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tough Skin
+02. Icypoles
+03. Lovers 1
+04. Lovers 2(   Читать дальше...   )Жанр: Alternative Dance, Indie SynthpopПродолжительность: 01:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE169098312B4DA036753A8B7D7F497DC6903248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560102   (521817) от 28.06.2022
 
 VA - Car Music Mix (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
@@ -684,64 +742,6 @@ VA - Velvet Blues: 150 Works Of Gold Masters (2018) [MP3|320 Kbps] <Blues, Rock 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE3E41A6D971C603D21E123093ADA872BE56BC59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313771   (522967) от 10.07.2019
-
-VA - With Gratitude: Romantic R&B (2019) [MP3|320 Kbps] <R&B>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522967.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Timara - Nice & Slow
-002. Ciisum - Love In The Club
-003. Brown Boy - Stay (Feat. Mob Fam & Unique)
-004. Amerie - Midnight Rain(   Читать дальше...   )Жанр: R&BПродолжительность: 11:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A7D27F9748EB799C7E3075CD00C899BDF8ACF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313673   (522976) от 10.07.2019
-
-VA - Kingston Reggae Dancehall (2019) [MP3|320 Kbps] <Dancehall, Reggae, Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522976.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blaiz Fayah - Pum Pum
-002. Dj Ricky - Wine Pon Di Pole Riddim
-003. Lion J - Collabo
-004. Trekar & Vershon - Duggu Dagga(   Читать дальше...   )Жанр: Dancehall, Reggae, LatinПродолжительность: 08:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE36886214EA467D04568C7F8108DB8E001428A
 ```
 
 https://mybot314.ru/tekegram_catalog/

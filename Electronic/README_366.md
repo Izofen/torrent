@@ -1,3 +1,32 @@
+###  Публикация: 1284574   (728771) от 21.02.2019
+
+VA - Lovers Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Grooves - Secrets (Original Mix) 4:21
+02. Ingo Herrmann, Jana Tarasenko - Whole Body (Original Mix) 4:56
+03. Marga Sol - Esta Noche (Leo De La Rosa Rmx) 5:50
+04. Velvet Dreamer - Sky Is Falling (Mo'jardo Remix) 5:00(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4E113A278C8A7BEF62A4449D52B637C25B8B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022656   (728817) от 02.06.2016
 
 VA - The Sound Of: Arkham Knights (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
@@ -716,35 +745,6 @@ VA - Chillout Night (Orange Juice Records) (2019) [MP3|320 Kbps] <Downtempo, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D8ED97142A1D36F2B9540E06A042E2656AEF6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284293   (730057) от 20.02.2019
-
-Feral - Court Of Light (2019) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Enchanter (07:16)
-02. Three Faced Queen (06:08)
-03. Court of Light (05:51)
-04. Jester (06:43)Жанр: TechnoПродолжительность: 00:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09595EAAF23BB1687BFA61910186FAD3C52857BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

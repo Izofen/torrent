@@ -1,22 +1,25 @@
-###  Публикация: 1550969   (591220) от 13.05.2022
+###  Публикация: 1300700   (588188) от 08.05.2019
 
-Человек и закон (13.05.2022) SATRip
+Хоккей. Чемпионат Мира среди женщин 2019. Эспоо (Финляндия). 1/4 Финала. Финляндия — Чехия (2019) WEBRip [EN]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591220.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588188.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Основные темы общественно-политической программы "Человек и закон" - борьба с организованной преступностью, расследования о коррупции в высших эшелонах власти, криминальные истории. Программа старается дать взвешенную оценку важнейшим событиям в политической, экономической и социальной жизни страны, освещает огромный спектр вопросов и проблем, с которыми (   Читать дальше...   )Телекомпания: 1 каналЖанр: Документальный, Телепередача, КриминалПродолжительность: 00:48:33
+11 апреля 2019 года.
+20-й Чемпионат Мира по хоккею с шайбой среди женщин 2019 года. Эспоо (Финляндия)
+1/4 Финала
+Финляндия — Чехия(   Читать дальше...   )Телекомпания: Канада, TSNЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:35:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9ABAD2DB6F244EC42B6234E2A4BB18A7CA2F9D9D
+magnet:?xt=urn:btih:732B5EF2BF2A9F8EB0404B6A249DC8B48CDBEC1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,24 +27,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550834   (591221) от 13.05.2022
+###  Публикация: 1300813   (588189) от 08.05.2019
 
-Saint Serpent - The Moonshine Sessions and the Trailer Park Witch (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
+Buford Pope - The Waiting Game (2019) [FLAC|Lossless|tracks + .cue] <Country Blues, Americana>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591221.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588189.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Bow Down (00:03:38)
-02 - Negative Creep (00:03:29)
-03 - A Cold One (00:03:25)
-04 - Fortunate Son (00:03:00)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:30:22
+01. America (3:52)
+02. Hey Hey Aha (3:31)
+03. Hard Life (3:34)
+04. Stoned (3:01)(   Читать дальше...   )Жанр: Country Blues, AmericanaПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713D2262F0A1F9B9039F76A4BE9B521166A276FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300809   (588190) от 08.05.2019
+
+Храм Рождества Христова в Измайлово (изд.) | Канон Господу «За всякое прошение» [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержащиеся в древнем (XIV в.) каноне «За всякое прошение» молитвенные обращения к Господу способны привлечь Его к нам на помощь во всякой нужде, если только мы будем искренне совершать свою молитву и во всём будем послушны Его святой воле.
+
+Канон отражает очень сильное покаянное чувство, и это безценно — ведь прежде чем просить Бога об избавлении от постигшей напасти, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F1D20A35E8E8EC42C25CED1E046C9794DED7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300945   (588191) от 08.05.2019
+
+Хоккей. Еврохоккейтур 2018-2019. Чешские хоккейные игры 2019. 2-й Тур. Россия — Финляндия (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_588191.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 мая 2019, суббота. 15:00 МСК
+Еврохоккейтур (Euro Hockey Tour) - ежегодный хоккейный турнир  2018-2019
+Чешские хоккейные игры 2019. 2-й Тур.
+Россия — Финляндия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:33
 
 ## Скачать торент
 ```bash
@@ -53,26 +113,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550932   (591222) от 13.05.2022
+###  Публикация: 1300890   (588192) от 08.05.2019
 
-Игорь Акимушкин | Жил-был бобр (1987) [PDF]
+Хоккей. Чемпионат Мира среди женщин 2019. Эспоо (Финляндия). 1/2 Финала. Канада — Финляндия (2019) WEB-DL [H.264/720p-LQ]
 
->>
->>
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591222.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге автор рассказывает про жизнь бобров. Кто такие, чем занимаются, чего боятся и чем полезны...
-Для детей дошкольного возраста. Иллюстрации П.Панченко.Жанр: РассказФормат: PDF
+13 апреля 2019 года.
+20-й Чемпионат Мира по хоккею с шайбой среди женщин 2019 года. Эспоо (Финляндия)
+1/2 Финала
+Финляндия — Чехия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:04:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2144F9C972CB743D4E8DF7ED14545457B457E00F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,405 +142,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550907   (591223) от 13.05.2022
+###  Публикация: 1300844   (588193) от 08.05.2019
 
-Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of The Night (4:10)
-02. Let's Get Ridiculous (4:23)
-03. R U Ready 4 The Boom (4:38)
-04. Raise Your Hands (3:07)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA12967172F80B727F99B5148DC3AB6E60E7040C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550802   (591224) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 24 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born in '82 - Resisted (4:03)
-02. Ildar Bik - Racer (5:22)
-03. A-Reis - Meteor (3:45)
-04. Fraver & Born in '82 - Void in Space (Born in '82 l'amour Remix) (5:15)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C72C02B418F534C440BB20C6CF0356F07B1C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550908   (591225) от 13.05.2022
-
-Рваные Раны - Лучшая проклятая вещь (2022) [MP3|320 Kbps] <Punk Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Проклятая вещь
-2. Строгий отец
-3. Слышишь сука!?
-4. Вы - закройте рты!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550826   (591226) от 13.05.2022
-
-Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paroxysm
-02. One And Only
-03. Hero
-04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550790   (591228) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 18 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unfancy D - Teslagirl (5:12)
-02. Fraver & Born in '82 - Void In Space (4:40)
-03. Enium - Nostalgia (Let's Do The Night) (7:06)
-04. Shtanze - Retropunk (4:31)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153C0D421DE5E938ACBF9743F7AD12574876A3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550893   (591229) от 13.05.2022
-
-Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livets Trädgård (3:29)
-02. Svekets Prins (6:37)
-03. Hjärtat Vet Vad Handen Gör (8:30)
-04. De Närmast Sörjande (7:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CCA2C8EB3BFC5F704B82D994D0B660FD1A3C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550798   (591230) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 21 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VsrtWuto - Late Night Cruise (3:30)
-02. Unfancy D - Rain (La-la-la) (4:20)
-03. Akira - Out The Fire (3:16)
-04. Born in '82 - Evolution (5:34)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286E51614FF944F86A42FE3EE84E4C5148E54192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550800   (591231) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Starzev - Up Tonight (Microsha 89 Remix) (4:05)
-02. Rinak - Evolution (TELEGIMNASTIKA Remix) (5:06)
-03. Born in '82 - Summer Rays (4:25)
-04. Ionov - Break My Heart (TELEGIMNASTIKA Remix) (3:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7471A4CC382611CB9519F59D900DB78AD6A80313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550799   (591232) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 22 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ionov - Break My Heart (3:00)
-02. VsrtWuto - Shuto Nightshift (6:25)
-03. CJ Cyclone - Electronic Body (3:16)
-04. Bloume - Light (4:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584C843B3804328229C697F605FEC1AB30E7AF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550795   (591233) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 20 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NINJACAT & VHS STORE - Pink Sky (2:55)
-02. Born in '82 - Night Road To The Airport (6:01)
-03. Bogdan Bondar & MVG - Sprinkles (3:45)
-04. Dwextrom - Fallen Lord (4:21)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20469C95941146042DD422ADA7AC9286CF536E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550789   (591234) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 17 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TELEGIMNASTIKA - Perlo (7:05)
-02. Born in '82 - I Want To Go Far Away (3:58)
-03. Microsha 89 & Twinhead Pony - Endless (3:42)
-04. Enium - Feel Life (6:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F60D68BBC79B639BCE3B7DCF2093CF766B3A870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550925   (591235) от 13.05.2022
-
-Ecstatic Vision - Elusive Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March of the Troglodytes
-02. Elusive Mojo
-03. Times Up
-04. The Kenzo Shake(   Читать дальше...   )Жанр: Sludge, Stoner, Space RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF7D06D3DEB44041A96A6D3950328B1C2C74759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550793   (591236) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born in '82 - Platov Airport (5:30)
-02. Rapaik - Disguise Self (5:52)
-03. Ella Mordo - No Love '86 (mfpalm Remix) (2:55)
-04. Atakta - Giving Up The Ghost (4:41)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989B60C80347EDEC7EE43ACE859C88BDA6B59646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550910   (591237) от 13.05.2022
-
-Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
+Cotonete - Super-vilains (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Jazz-Funk>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591237.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Meddler [8:31]
-02. Ode to Ray [6:10]
-03. Whims of the Bluebird [10:09]
-04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
+01. Barbaros (06:24)
+02. Last Drink (06:48)
+03. Layla (08:56)
+04. Escola Frances dos Tubaroes (06:17)(   Читать дальше...   )Жанр: Funk, Soul, Jazz-FunkПродолжительность: 01:02:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
+magnet:?xt=urn:btih:75DD2B97A6073677583976D50C061E8BCEE35C8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +171,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550977   (591238) от 13.05.2022
+###  Публикация: 1300928   (588194) от 08.05.2019
 
-Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+Ilkae - Formal Format (2019) Eerik Inpuj Sound [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon White (04:05)
+ 02. Navigation Lights (04:50)
+ 03. Rainy Devil (02:55)
+ 04. Locate Cycle (03:13)(   Читать дальше...   )Жанр: IDM, Experimental, GlitchПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A726429C214047212DB356CA17614B40F43B7CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300791   (588195) от 08.05.2019
+
+Arild Andersen, Clive Bell, Mark Wastell - Tales Of Hackney (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591238.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kinkali - 5:04
-02. Afror - 8:42
-03. Unsleepers - 5:06
-04. Buran  - 8:55(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:23
+1. I (2:59)
+2. II (8:58)
+3. III (2:14)
+4. IV (7:22)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 00:50:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6AEAAFB6530623EF609969B00FB0D32E416F11D
+magnet:?xt=urn:btih:77733FA40984F7274E1831D0E69D66EFB7489BC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,111 +229,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550682   (591239) от 13.05.2022
+###  Публикация: 1300811   (588196) от 08.05.2019
 
-Ron Miles - Rainbow Sign (2020) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Those Who Dream [15:56]
-02. Queen of the South [4:20]
-03. Average [11:12]
-04. Rainbow Sign [7:09](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCBFD8D66FF57A7DF68623D18E6A7F9F6246070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551021   (591240) от 13.05.2022
-
-Cancerslug - Full Term Abortions (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cum Rag (00:01:38)
-02 - When You Lie (00:01:59)
-03 - kitchen blues (00:02:04)
-04 - waiting to die (00:01:41)(   Читать дальше...   )Жанр: Punk Rock, Horror PunkПродолжительность: 00:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C173FDF6EA44493F07EE120E03363C1FDFCE4DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550783   (591241) от 13.05.2022
-
-Fátima (Fatima) - Fossil (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mongolo Bill [00:03:59]
-02 Arch-Vile [00:04:25]
-03 Turks Fruit [00:06:09]
-04 King of the Rats [00:05:43](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687E90859247B4FE330FDE0B48DEEEB3A1E3A00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550718   (591242) от 13.05.2022
-
-Bare King - Beggars (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardcore, Deathcore>
+Billy Strayhorn & Johnny Hodges - The Stanley Dance Sessions (1959 - 1961) 2005, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591242.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_588196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - No Forgiveness (Grief)
-02 - Degradation
-03 - Annotations of Hell (Pain)
-04 - Defeatist(   Читать дальше...   )Жанр: Metalcore, Hardcore, DeathcoreПродолжительность: 00:34:46
+01. Cue's Blue Now [10:03]
+02. Gone with the Wind [4:19]
+03. Cherry [5:55]
+04. Watch Your Cue [3:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:42
 
 ## Скачать торент
 ```bash
@@ -631,25 +258,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 890524   (591243) от 07.07.2015
+###  Публикация: 1300788   (588197) от 08.05.2019
 
-Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip (сезон 2, серии 1-10 из 10) BaibaKo
+Actionesse - The Deep, Bright Below (2019) [FLAC|Lossless|tracks + .cue] <Punk Rock>
 
->>Зарубежные сериалы
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591243.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_588197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: ужасы, драмаРежиссер: Х.А. Байона, Дирбла Уолш, Сэм МендесАктеры: Тимоти Далтон, Ева Грин, Джош Хартнетт, Рори Киннер, Хелен МакКрори, Билли Пайпер, Гарри Тредэвэй, Рив Карни, Алан Армстронг, Рик Берн и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Юлия Котурбаш, Anna_Smile, Олекса Мельник и Акмал ГурезовПродолжительность: ~00:54:00 серия
+01. I Want Doubts (3:53)
+02. Fully Clothed / Slightly Concussed (2:31)
+03. Unplanned Obsolescence (2:41)
+04. Self-Subterfuge (2:51)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:29:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDBE8FC23144AB90D18D99D1317779DB3A27CEF4
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,25 +287,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 895539   (591244) от 07.07.2015
+###  Публикация: 1300825   (588198) от 08.05.2019
 
-Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip (сезон 2, серии 1-10 из 10) LostFilm
+Eric Seva - Nomade Sonore (2015) Gaya Music Production [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
 
->>Зарубежные сериалы
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591244.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: ужасы, драмаРежиссер: Х.А. Байона, Дирбла Уолш, Сэм МендесАктеры: Тимоти Далтон, Ева Грин, Джош Хартнетт, Рори Киннер, Хелен МакКрори, Билли Пайпер, Гарри Тредэвэй, Рив Карни, Алан Армстронг, Рик Берн и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:55:00 серия
+01. Graffiti Celtique [8:23]
+02. Guizeh [5:16]
+03. Rue aux Fromages [3:46]
+04. Nomade Sonore [10:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:599E4F202686A39D16D492D3D7DCE3737D224868
+magnet:?xt=urn:btih:5129C52239E9CE33B87B518B9D45D9432EF6D089
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,25 +316,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 890500   (591245) от 07.07.2015
+###  Публикация: 356976   (588199) от 30.06.2011
 
-Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) BaibaKo
+VA - Супер популярный летний Europa Plus 50/50 (2011) [MP3|128 kbps]<Pop>
 
->>След.
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591245.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: Ужасы, триллер, драмаРежиссер: Джеймс Хоуз, Хуан Антонио Байона, Коки ГидройчАктеры: Ева Грин, Тимоти Далтон, Гарри Тредэвэй, Джош Хартнетт, Рив Карни, Дэнни Сапани, Билли Пайпер, Рори Киннер, Оливия Ллевелин, Алан Армстронг и др.Перевод: Профессиональный многоголосый закадровый - BaibaKoОзвучка: Юлия Котурбаш, Anna_Smile, Олекса Мельник и Акмал ГурезовПродолжительность: ~ 00:54:00 серия
+Жанр: PopПродолжительность: 12:24:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98131EDBB8E7232C3DC904DCA5C6F044282D1AD9
+magnet:?xt=urn:btih:1ABF8616E5CF05DB6B0EE895F0CD14F144E5718D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -709,25 +342,388 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 890727   (591246) от 07.07.2015
+###  Публикация: 357099   (588202) от 30.06.2011
 
-Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) (NewStudio)
+Lost & Found - Decoder (2011) [MP3|VBRv0 kbps] <Full Power, Psytrance>
 
->>След.
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591246.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: Ужасы, триллер, драмаРежиссер: Джеймс Хоуз, Хуан Антонио Байона, Коки ГидройчАктеры: Ева Грин, Тимоти Далтон, Гарри Тредэвэй, Джош Хартнетт, Рив Карни, Дэнни Сапани, Билли Пайпер, Рори Киннер, Оливия Ллевелин, Алан Армстронг и др.Перевод: Профессиональный многоголосый закадровый - NewStudioПродолжительность: ~ 00:54:00 серия
+Lost & Found - Decoder (2011)
+Год: 2011
+Жанр: Full Power, Psytrance
+Лейбл: 3D Vision
+Cat.#: DV31CD035
+Продолжительность: 01:19:48
+Кодек: MP3
+Битрейт: VBRv0 kbps
+Тип рипа: image+*.cueТрек лист:(   Читать дальше...)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C64E22FB9B26FA9B736D6FB2AA64366323A1F32
+magnet:?xt=urn:btih:2117A4317BDB2A4E223A7874574C071AAC558D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357036   (588203) от 30.06.2011
+
+VA - Взрывной звездный хит (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5F3EAECC084745ABD46DEA1629CAA5D877D969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357164   (588204) от 30.06.2011
+
+Журнал | Атлас. Целый мир в твоих руках №74 (июнь 2011) [PDF].
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Предлагаемая вниманию читателей популярная географическая энциклопедия является одной из коллекций издательства «ДеАгостини», собрав все выпуски которого, вы получите уникальный полный иллюстрированный путеводитель по современному миру. Гид разбит на 16 разделов, каждый из которых содержит блок современных знаний о географии, политике, культуре, экономике и истории стран и регионов. Каждый из разделов обозначен своим цветом, что позволит легко систематизировать их по темам. Текст сопровождают десятки карт, сотни великолепных снимков и тысячи фактов, изложенных доступным языком в Атласе, которому нет аналогов. Это незаменимое справочное издание и увлекательное чтение для тех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать больше о нашей планете и ее тайнах. С Атласом вы отправитесь в завораживающее кругосветное путешествие!Жанр: ГеографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6245C35CEC24F53CF070E83BF274192E55FF1031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356951   (588205) от 30.06.2011
+
+Вчерашняя мишень / Yesterday's Target (1996) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588205.jpg" />
+</div>
+
+
+###  Подробнее
+
+За тремя загадочными людьми ведется охота. Эти трое имеют одинаковые метки и обладают нечеловеческими способностями. Они легко могут читать мысли людей, могут двигать предметы одним лишь усилием воли, но все их способности оказываются не в силах противостоять спец. службам, которые решают, во что бы то ни стало захватить этих таинственных личностей. Умение видеть будущее пока помогает загадочной троице избегать встречи с агентами спец. служб, но долго так продолжаться не может. Рано или поздно им придется вступить в открытое противостояние…Жанр: Фантастика, Боевик, ТриллерРежиссер: Бэрри СамсонАктеры: Дэвид Неттер, Ричард Херд, Т.К. Картер, Малколм Макдауэлл, Тревор Годдар, Том Постер, Стейси Хайдук, Левар Бёртон, Дэниэл БолдуинПеревод: Многоголосый закадровыйЯзык субтитров: нетФормат: AVIПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7266B2738E24C83BA22F86ECC87381E9B5D7DF18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357141   (588206) от 30.06.2011
+
+VA - Улетное лето (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DFFEEE8BC3773106488754C0719E6FEEE6C8A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357113   (588209) от 30.06.2011
+
+Lenzman - Lazers / Broken Dreams (2011) [MP3|320 kbps]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lasers (04:56)
+02. Broken Dreams (06:03)Жанр: Drum & BassПродолжительность: 00:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D79E039432DF07544CAF63EBE220CCDDA592E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357281   (588211) от 30.06.2011
+
+Звёздный свет Гавайских островов / Hawaiian Starlight (2009) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследование Вселенной с Мауна-Кеа. Вершина горы Мауна-Кеа на Гавайских островах- прекрасное место для наблюдения за Космосом в северном полушарии. "Звёздный свет гавайских островов" - это видовой фильм, созданный к Международному году Астрономии. Показывает Вселенную, снятую Канадо-Французско-Гавайским телескопом, а также красоту Гавайских островов. Видеоряд сопровождает гало-музыка композиторов Мартина О'Доннела и Микаэла Салватори.Жанр: ДокументальныйПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:565296DB118C5E8878BDC51FD900AE8D0BA888EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357371   (588214) от 30.06.2011
+
+Taragana Pyjarama - Taragana Pyjarama (2011) [FLAC|Lossless]<House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: House |Продолжительность: 00:28:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357026   (588215) от 30.06.2011
+
+VA - XXXL Летний Чудо Mix-Парад №30 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0352E114FFCD9AAC43060A08051CEC1C689A30EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356987   (588216) от 30.06.2011
+
+VA - Vanovlad часть №15 Русские новинки (2011) [MP3|256-320 kbps]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop,DanceПродолжительность: 03:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA22360C5DB14FE9D1A7F7B430C3E511A14663D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357006   (588217) от 30.06.2011
+
+VA - Летний 2011[MP3|320 kbps]<Pop, Hause>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5ivesta Family & ЭФФЕКТ - Я люблю тебя
+02. 23:45 - Летим
+03. Анна Седакова - love U
+04. Bjanka feat.iraklij - Белый пляж
+05. Bumboks - Та, что (Remix 2011)
+06. Сhris Parker - Symphony 2011
+07. Dada life - Unleash the fucking dada (Dead cat bounce remix)
+08. Сoco Fay - Not the same (Original club mix)
+09. Dj Vengerov и Вера Брежнева - Реальная жизнь (remix)
+10. Dzhigan (geegun) и Юлия Савичева - Отпусти(   Читать дальше...)Жанр: Pop, HouseПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FF2097E046F2DEAD72959770490E60E781D627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809278   (588221) от 31.07.2014
+
+Бен Джонсон, Алекс Ллойд | Код исцеления. Метод быстрого лечения, который наука искала на протяжении веков! (2014) [DJVU]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588221.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мнению уже сотен и сотен людей Код Исцеления, описанный в этой книге, является одним из самых выдающихся открытий
+XXI века.
+Автор уверен, что это метод, позволяющий всего за 6 минут избавиться от причины любого заболевания и найти решение любой
+проблемы!
+Код исцеления поможет всем людям, которые хотят наладить свою жизнь, исцелиться от застарелых болячек, снять обострение, избавиться от стресса. Это уже помогло тысячам людей - значит, поможет и вам!Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A7526D138D6AFEFC16D30EA69D5C84572A2B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809155   (588224) от 31.07.2014
+
+Videohive - The Bullet Time - 4373066 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект-выстрел для презентации видео или слайдшоу. Летящая пуля из пистолета последовательно пробивает титры или лого. С эпической музыкой и смотрится эпически )))Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70F889EA295E58A9A5F7463749E6276B98E5164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809149   (588236) от 31.07.2014
+
+VideoHive - Rolling Slide Show - 7263805 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классный динамичный проект, синхронизованный под замечательную музыку Driving In My Car от Soundroll'а (новый микс 320 кБ/с - в раздаче).
+
+ОТ автора:
+This project can present your story in a simple and unique way. Whether it comes to the holidays, movie trailer, fashion, or the introduction to your business. You are in the right place. The project is about 1.37 minutes (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2040E0C070B18DF506E143092835A8C37E8B7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

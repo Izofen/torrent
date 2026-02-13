@@ -1,3 +1,38 @@
+###  Публикация: 522232   (622801) от 13.07.2012
+
+Семья Жемчужных - Застольные песни по-цыгански (2005) [MP3|320 кб/с]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622801.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. За дружеской беседою (2:00)
+ 2. Кай енэ (2:54)
+ 3. Солнышко (3:37)
+ 4. Хоп-Хоп (1:31)
+ 5. Дану-данай (2:02)
+ 6. Аленушка (3:20)
+ 7. Очи черные (2:46)
+ 8. Мар Дяндя (3:02)
+ 9. Нанэ цоха (2:15)
+ 10. Упряжка вороного (1:36)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC8D08FB05C60E865C03BE2BB4DFB39CC057937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035962   (622811) от 19.07.2016
 
 Paul Lawler - Sleep Easy (2011) [FLAC|Lossless|tracks] <New Age>
@@ -746,32 +781,6 @@ Mass Effect Trilogy - Original Videogame Soundtrack (2007-2013) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57F6CBEBC13C9D03FBBB87DF3312A1854F0EC468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 350824   (627296) от 14.06.2011
-
-Franck Pourcel - plays Abba & The Beatles (2010) [MP3|320 kbps]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55CFB65A89F5BC02BB3534E372BEB9521C33058
 ```
 
 https://mybot314.ru/tekegram_catalog/

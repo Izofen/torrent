@@ -1,3 +1,32 @@
+###  Публикация: 1005557   (760535) от 03.02.2019
+
+Phil Von - Discography 4 Releases (2001-2019) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, Electro, IDM, Tribal>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exhaler La Nuit (05:10)
+ 02. Capsized Poetry (05:22)
+ 03. Modern Times Nostalgia (05:19)
+ 04. Where Is The Other Side? (05:19)(   Читать дальше...   )Тип издания: CD, WebЖанр: Abstract/Ambient/IDM/SoundtrackПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44919D853CCE37ECED965775FB430E2EA04D0EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280313   (760542) от 03.02.2019
 
 VA - Total Trance Selections, Vol. 15 (2019) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Cherry Blossoms Springtime Chill Vol 1 (Finest Ambient And Background Music
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A772E590B413934ECE19BD76F2E3AE2C5081CFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214763   (763172) от 23.03.2018
-
-VA - Coffee Bar Lounge Vol.4 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twentyeight feat. Tesz Millan  -  In My Arms (Original Mix)  4:30
-02.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42
-03.  Chambre 19  -  La Pluie D'ete (Original Mix)  5:59
-04.  Weathertunes  -  Hymn Of Peace (Original Mix)  4:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91789E54CDEACF1797F3B866010BC94DF40F473F
 ```
 
 https://mybot314.ru/tekegram_catalog/

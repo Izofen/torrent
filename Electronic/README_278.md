@@ -1,3 +1,32 @@
+###  Публикация: 1238554   (546241) от 30.07.2018
+
+VA - House Clubhits Megamix 2018.2 [3CD] (2018) [MP3|320 Kbps] <House, Dance, Club, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546241.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Klaas - Love Your Life
+02. Tessa & Grimaldo - Kiss Me Awake (Fischer & Fritz Remix Edit)
+03. Marc Kiss & Sawo - Don't Go 2K18 (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Club, ProgressiveПродолжительность: 03:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B5354A34EFA557C0411854393723F629D1B201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310513   (546839) от 24.06.2019
 
 VA - 100 Chillout Tunes Vol. 1 - Best of Ibiza Beach House Trance Summer 2019 Café Lounge & Ambient Classics (2019) [MP3|320 Kbps] <Chill Trance, Progressive House, Dream Lounge>
@@ -712,35 +741,6 @@ VA - Top Zebra Spring (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A664118EA9A8F97A07F9356731E59D36D82C7D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048061   (547485) от 01.09.2016
-
-VA - Electronica Top Spring 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Find The Identity - Take It (Original Mix) (04:12)
-02. M.V.O. Project - Flying To Orion (Original Mix) (04:07)
-03. VaDim - Arrival (Original Mix) (05:42)
-04. Aries - Lezghinka (Instrumental Version) (03:13)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6690813EADAB66FFE567C2D9654B61AA8F3E2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1048061   (547485) от 01.09.2016
+
+VA - Electronica Top Spring 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Find The Identity - Take It (Original Mix) (04:12)
+02. M.V.O. Project - Flying To Orion (Original Mix) (04:07)
+03. VaDim - Arrival (Original Mix) (05:42)
+04. Aries - Lezghinka (Instrumental Version) (03:13)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6690813EADAB66FFE567C2D9654B61AA8F3E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047840   (548347) от 31.08.2016
 
 VA - 100 Sexy Chill-Out and Lounge Tracks (2016) [MP3|320 Kbps] <Balearic, Downtempo, Relax>
@@ -716,35 +745,6 @@ VA - VERANO Chill Out Compiled By DJ Azibi (2016) [MP3|320 Kbps] <Downtempo, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5722144E401ACD255BCD11322546B1F4EE1AB46A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047477   (549386) от 30.08.2016
-
-VA - A State Of Lounge Ibiza (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Attractive Qualities (05:43)
-02. Enrico Donner - Side Chain Reactions (05:58)
-03. Cane Garden Quartet - Chillaxin' (05:13)
-04. Cane Garden Quartet - Drops Of Remembrance (06:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642952622218FD440F2C46479E2B7C0C9E491755
 ```
 
 https://mybot314.ru/tekegram_catalog/

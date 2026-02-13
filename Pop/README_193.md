@@ -1,3 +1,180 @@
+###  Публикация: 926010   (537201) от 08.08.2015
+
+Hanne Sorvaag - Cover Me (2010) [FLAC|image + .cue]<Pop / Soft Rock / Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring Me Down [02:59]
+02. Brief And Beautiful [03:43]
+03. My Heart Is Yours [02:29]
+04. November, December [04:22](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5EBCADDBA0F81C673D3C42E6FD1FF26B8C6C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226992   (537482) от 15.08.2010
+
+Божья Коровка - Все новое... Это хорошо переработанное старое (2008) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Мир раскололся
+02 Друзья-товарищи
+03 В каком неведомом краю
+04 Ледяное сердце
+05 Деревья
+06 Гранитный камушек 2007
+07 А у нас, в Америке
+08 Самая любимая моя
+09 Теплоход (релакс)
+10 Застольная(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696785   (537990) от 04.09.2013
+
+Петр Лещенко - Лучшее / Избранное (2 СD) (1996) [FLAC|Lossless]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, RetroПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215819A2956DD736CEE5CB4125E63ECF9A96ED4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050174   (538265) от 08.09.2016
+
+Эд Шульжевский - И только о любви (2011) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Она и он [3:46]
+02. По имени Настя [3:44]
+03. День рождения [3:45]
+04. Куда уходишь ты [3:31](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D744E132E49FE94A553C584C752367DD1C052278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050525   (538279) от 08.09.2016
+
+Carrie Underwood - Greatest Hits - Decade #1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Something in the Water (3:58)
+ 02.Little Toy Guns (3:31)
+ 03.Inside Your Heaven (4:03)
+ 04.Jesus, Take the Wheel (3:46)(   Читать дальше...   )Жанр: Pop, Country PopПродолжительность: 01:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C23192B5D0F4735169E42B7E5916E113E27813F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239491   (538446) от 05.08.2018
+
+KAZKA - КАРМА (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. КАРМА (04:05)
+02. СВЯТА (03:09)
+03. САМА (03:57)
+04. ЗАПАЛА (03:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0BAB4D900FC2D208AE709C2CE666985B63D08B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239414   (538873) от 05.08.2018
 
 VA - New Italo Disco Top 25 Compilation Vol.9 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
@@ -577,186 +754,6 @@ Budka Suflera - Bal Wszystkich Swietych (2000) [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EB222EA90CCBB04EEFA7DE97AB2ACDBAB3C0226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531398   (541824) от 05.08.2012
-
-Lana Del Rey - Unreleased (2012) [MP3|128-320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541824.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Axl Rose Husband (3:03)
-2. Big Spender (feat. Smiler) (3:18)
-3. Children Of The Bad Revolution (3:25)
-4. Daddy Issues (feat. Aaron LaCrate) (4:54)
-5. Damn You (0:34)
-6. Dangerous Girl (4:22)
-7. Dayglo Reflection (feat. Bobby Womack) (4:18)
-8. Disco (4:05)
-9. Driving in Cars with Boys (4:16)
-10. Dum Dum (4:06)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E864A8E9702EB7E4061153F8352AB1AADFCD6FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311381   (541894) от 29.06.2019
-
-Carrara - 2 Albums (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alberto Carrara (р. 1958), наиболее известный как Carrara и King Carrara , итальянский певец, композитор, аранжировщик, музыкальный продюсер и диск-жокей. Родился в Бергамо, Каррара начал свою карьеру в качестве диск-жокея в 15 лет. Музыкант-самоучка, в 1983 году его сингл "Disco King" принес первый успех, а через год он получил свой главный успех хитом (   Читать дальше...   )01. Dancin' Family (5:53)
-02. Driving (5:03)
-03. Follow Me (5:31)
-04. Welcome To The Sunshine (3:42)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DFE50E53EF215255597363B51D91298BE1FBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311407   (541898) от 29.06.2019
-
-Kim Petras - Clarity (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clarity (02:02)
-2. Icy (03:09)
-03. Got My Number (02:54)
-04. Sweet Spot (03:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4C24C599BE3CDAEDBE7E99168505EC6723428D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311491   (541900) от 29.06.2019
-
-Budka Suflera - Mokre Oczy (2002?) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiedy rozum spi (5:13)
-02. Mokre oczy (4:42)
-03. Szaro - Szary film (4:29)
-04. No i gra (3:49)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA0EDE21E672782CB387CDB1842BD23DAF2C0DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311339   (541908) от 29.06.2019
-
-VA - Sternstunden der Volksmusik (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541908.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Kastelruther Spatzen;Walter Widemair;Manuela Pirkner;Sepp Safrin - Eine weie Rose
-02. Die Zillertaler - Der liebe Gott muss a Tiroler sein
-03. Slavko Avsenik Und Seine Original Oberkrainer - Trompetenecho(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378F24A46C3C927D5031349EAC67CC72B24F153C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311446   (541974) от 29.06.2019
-
-Q - Dancin' Man (1977) LP [MP3|320 Kbps] <Pop, Disco, Funk Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancin' Man (2:41)
-02. Do I Love You? (3:08)
-03. Knee Deep In Love (3:08)
-04. Feel It In Your Backbone, Got It In Your Feet (4:03)(   Читать дальше...   )Жанр: Pop, Disco, Funk SoulПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533BD5C77202A4245E1EA1936722DD3DB1081FEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

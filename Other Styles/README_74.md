@@ -1,3 +1,32 @@
+###  Публикация: 1161410   (464913) от 29.08.2017
+
+Tyler Bates & VA - Atomic Blonde / Взрывная блондинка (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Bowie - Cat People (Putting out Fire) (06:43)
+02. Peter Schilling - Major Tom (vollig losgelost) (04:59)
+03. HEALTH - Blue Monday (04:46)
+04. Tyler Bates - C*cks*cker (01:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934B8BF86FA20B33CB2B315AC3B8827AE087FB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 824372   (464992) от 25.09.2014
 
 VA - Новая рождественская сказка / Scrooged (2001 (1988)) [FLAC|Lossless] <Soundtrack>
@@ -731,35 +760,6 @@ Jeff Wahl - Playing with Silence (2017) [MP3|320 Kbps] <New Age, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF40777EB0B25918A44F2C736AE1AA112D1BB286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406846   (470506) от 05.09.2020
-
-Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470506.jpg" />
-</div>
-
-
-###  Подробнее
-
-[08:01] 01. Ludwig Goransson - RAINY NIGHT IN TALLINN
-[05:16] 02. Ludwig Goransson - WINDMILLS
-[02:16] 03. Ludwig Goransson - MEETING NEIL
-[03:24] 04. Ludwig Goransson - PRIYA(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D562F6C42A86FEF3603C273D5DD3469A800E9A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 537792   (510485) от 22.08.2012
+
+VA - Record Super Chart № 254 (18.08.2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knife Party - Bonfire (Original Mix)
+02. Fly Project – Musica
+03. Tonic feat. Tarantula Man – Big Fat (Original Mix)
+04. Depeche Mode Vs Tujamo, Plastik Funk & Oliver Shulz – Personal Jesus (Dj Nejtrino & Dj Baur Mashup)
+05. Skrillex Feat. Sirah – Bangarang (Original Mix)
+06. Alex Mica - Dalinda (Addictive Elements Official Remix)
+07. DJ Kuba & Ne!tan Feat. Flip Da Scrip – Party Hard (Funkwell Remix)
+08. TON!C feat. Erick Gold - Lead The Way
+09. Bodybangers feat. Victoria Kern – Gimme More (Extended Mix)
+10. Omnia & IRA - The Fusion (Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 02:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93165BA5951E83D4DD0A8C4E3B6E2277507E008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535131   (510488) от 22.08.2012
+
+VA - Любимой Женщине... (2CD) (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510488.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Любовь Успенская - Я - женщина (3:16)
+ 2. Ильдар Южный - Будьте счастливы (2:44)
+ 3. Джемма Халид - Девушка Из Нагасаки (3:26)
+ 4. Андрей Бандера - Жемчужина (4:03)
+ 5. Стас Михайлов - Живи И Знай (3:14)
+ 6. Кабриолет - Парус (3:50)
+ 7. Ирина Круг - Перелетная птица (4:07)
+ 8. И.Круг и А.Брянцев - Привет Малыш (3:17)
+ 9. Артур - Артур - Слезы любви (3:36)
+ 10. Александр Ломинский - Ты Знала (4:08)(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F4BCC7097B2372270CA2049586310FC9530DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538183   (510573) от 22.08.2012
 
 VA - In Da Club Vol.65 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
@@ -715,61 +785,6 @@ VA - Hot And Sexy Lounge Grooves Vol. 1 (2015) [MP3|320 кб/с]<Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA2D901EBAF15138F3AEC7DE25939DC1C1E838B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931574   (511944) от 26.08.2015
-
-VA - Club Hits 2k15 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Green Point - Everything Has an End (Club Mix) [07:28]
-02. Definable - Seaside [08:16]
-03. Deportrance - Midsummernight [06:42]
-04. Sebastian Mulah - How Can I Save You [07:57](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081E81800A16BDFD2544B7F3226B265305EB0317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536892   (512314) от 20.08.2012
-
-VA - Rock instrumental classics (2008) [MP3|160-320 кб/с]<Rock/Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock/InstrumentalПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB10A0912D95B5116B970574DB9ABC9F98D3D5C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

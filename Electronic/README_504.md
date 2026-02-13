@@ -1,3 +1,32 @@
+###  Публикация: 1475517   (1012280) от 07.06.2021
+
+PROFF - Best of PROFF 01 (2020) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Mashkov, Leaman - The Puzzle (PROFF Remix) (Mixed) (6:18)
+ 02. Arcology (ft. 8Kays) (Mixed) (5:30)
+ 03. Obscure (Mixed) (6:20)
+ 04. For The Last Time (Original Mix vs. Breaks Mix) (Mixed) (5:25)(   Читать дальше...   )Жанр: Progressive House, Electro House, TranceПродолжительность: 02:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228DB89C015287DF1AB1AD87ED15F0601060D5CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029274   (1012310) от 06.06.2021
 
 Squarepusher (Tom Jenkinson, Shobaleader One, Duke of Harringay, Chaos A.D.) - Discography 63 Releases (1995-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Drum n Bass, Experimental>
@@ -716,35 +745,6 @@ ESA (Electronic Substance Abuse) - Discography 16 Releases (2006-2021) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DA0000B78F5EB03934EE9E145C3D235542F4424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470972   (1015476) от 18.05.2021
-
-Felix Raphael - Innersense (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Raphael; Stéphane Salerno; Seasoul - Foreword
-02. Felix Raphael - The Way
-03. Felix Raphael; Allies for Everyone - Safe
-04. Felix Raphael; Yannek Maunz - Won't Miss(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1D1C2BA5B5BF4A1A3FCD0F426AE01E6164F227
 ```
 
 https://mybot314.ru/tekegram_catalog/

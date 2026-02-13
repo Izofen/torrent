@@ -1,3 +1,61 @@
+###  Публикация: 1208887   (779639) от 24.02.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 23.02.2018 [MP3|320 Kbps] <Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Post Malone ft. 21 Savage - Rockstar
+02. Imagine Dragons - Whatever It Takes
+03. Janieck - Does It Matter
+04. Vanotek feat. Eneli - Back To Me(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69714A4D775736FBDA226AA7B290C95C278D48E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208729   (779655) от 24.02.2018
+
+VA - Vocal Trance Collection Vol.9 (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bobina feat. Denise Rivera  -  Siente (Vigel Remix)  3:33
+02.  Maarten De Jong feat. Katty Heath  -  Free To Feel Again (Extended Mix)  5:47
+03.  Alexander Turok feat. Sarah Russe  -  Take Me Back (Tycoos Remix)  5:45
+04.  Zoe Song feat. Sabreena Singh  -  Right Beside Me (The Avains Remix)  7:27(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 03:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA22EF76536E1CEDB6D9F2A14371DE206CB5121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209060   (779671) от 24.02.2018
 
 VA - Record Super Chart #525 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -686,64 +744,6 @@ VA - RockДрайв. Новинки русского рока. Часть 2 (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2196EAF582DF42E0671700C1915FAFDA84C61D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207491   (780539) от 18.02.2018
-
-VA - Music Infection: Dance Culture 90's (Compiled by electro75) (2018) [MP3|320 Kbps] <Techno, Euro House, Rave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  L.A. Style  -  James Brown Is Dead  5:42
-02.  Da Hool  -  Meet Her At The Love Parade  4:06
-03.  DJ Visage  -  Formula  3:42
-04.  Red 5  -  Da Beat Goes  3:48(   Читать дальше...   )Жанр: Techno, Euro House, RaveПродолжительность: 04:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F735EA1EFBAF75D6276F9A669028B15BBA4380FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207553   (780566) от 18.02.2018
-
-VA - De Top 100 Aller Tijden 1981 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780566.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Champaign - How 'Bout Us (3:21)
-002. Anita Meyer - Why Tell Me Why (3:29)
-003. Stars On 45 - Stars On 45 (4:47)
-004. Police - Every Little Thing She Does Is Magic (4:21)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89915DA067E78CBCE48DC0971375A1EC8F6D921A
 ```
 
 https://mybot314.ru/tekegram_catalog/

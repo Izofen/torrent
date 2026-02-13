@@ -1,3 +1,175 @@
+###  Публикация: 1324953   (416730) от 13.09.2019
+
+VA - RTL 2 It's fun - Oktoberfest (2019) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416730.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Franzl Lang - Ein Prosit der Gemütlichkeit
+02. Hubert von Goisern - Brenna tuats guat(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E846D5912DA52A2315059BBAC99023B3DD1B5153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066038   (416815) от 24.10.2016
+
+Paul Brookes - Steps from Beyond (1978) LP [MP3|320 Kbps] <Electronic, Abstract, Experimental, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно-таки редкий альбом британского композитора, музыканта и продюсера.01. Steps from Beyond - part one (17:14)
+02. Steps from Beyond - part two (17:36)Жанр: Electronic, Abstract, Experimental, DiscoПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD3C7844361A941DBC32A6169542A14E5F86A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573018   (416890) от 29.08.2022
+
+Mylene Farmer - Ainsi Soit Je... (1988) [OGG Vorbis|485 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Horloge	5:03
+02. Sans Contrefaçon	4:07
+03. Allan	4:46
+04. Pourvu Qu'Elles Soient Douces	4:52(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1F7F0F87BF59FF96740DC75DFD0D65E4C4EDB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065845   (417037) от 24.10.2016
+
+Gram Rabbit - RadioAngel & the RobotBeat (2007) [MP3|256 Kbps] <Alternative Pop, Space Dance Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Hookers
+02. The Rest of Us Sleep
+03. In My Book
+04. Fancy Dancy(   Читать дальше...   )Жанр: Alternative Pop, Space Dance Rock, ElectronicПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7DA12867A32DB78FFCF9A726CDE222E48741CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573046   (417121) от 29.08.2022
+
+Lucio Battisti - Umanamente uomo: il sogno (1972) remaster 1989 [FLAC 2.0|192/24|WEB-DL|tracks] <Soft Rock, Chanson, Canzone italiana>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I giardini di marzo [00:05:31]
+02. Innocenti evasioni [00:03:47]
+03. E penso a te [00:04:25]
+04. Umanamente uomo: il sogno [00:03:18](   Читать дальше...   )Жанр: Soft Rock, Chanson, Canzone italianaПродолжительность: 00:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D609323B96E6886B3862B94A7B977CEB855B2E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065742   (417210) от 24.10.2016
+
+Fernando Express - Urlaub fur die Seele (2005) [FLAC|Lossless|image + .cue] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barfu. bis ans Ende der Welt
+02. Liebe gibt und Liebe nimmt
+03. Urlaub fur die Seele
+04. La Isla Felicita(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D365E0990B09EF6E862B753544A6D4C21FD4B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167349   (417340) от 20.09.2017
 
 Titan - Dama (2016) [FLAC|Lossless|tracks] <Electropop, Nu Disco>
@@ -567,177 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23D49F88F90FBEAABD63234BFA3B1DC4E1EACDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250980   (420095) от 30.09.2018
-
-Systems In Blue - There's No Heart (2018) Special 80's version, 12" [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's No Heart (Maxi Version) (5:09)
-02. There's No Heart (Instrumental) (5:08)
-03. There's No Heart (Radio Version) (3:48)Жанр: Pop, EuropopПродолжительность: 00:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FA68BF9B9668A7D955FC17FDAF6817A41C8EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947166   (420125) от 16.10.2015
-
-John Newman - Revolve (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolve
-02. All My Heart
-03. Something Special
-04. Lights Down(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B9F1FD5521A18572A672C65D8B08D627D722B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947285   (420257) от 16.10.2015
-
-Pentatonix - Pentatonix (Deluxe Edition) (2015) [FLAC|Lossless|WEB-DL]<Pop, A Cappella>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Na Na Na
-02. Can't Sleep Love
-03. Sing
-04. Misbehavin'(   Читать дальше...   )Жанр: Pop, A CappellaПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B05B375FA513B8C54887C0417615026CBBDEAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947344   (420399) от 16.10.2015
-
-VA - Movie Love Songs (1997) [FLAC|tracks + .cue]<Pop, Soul, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Nitzsche & Buffy Sainte-Marie - Up Where We Belong.
-02. Giorgio Moroder & Tom Whitlock - Take My Breath Away.
-03. Stevie Wonder - I Just Called to Say I Love You.
-04. Franke Previte, John DeNicola & Donald Markowitz - Time of My Life.(   Читать дальше...   )Жанр: Pop, Soul, Easy ListeningПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345B0027F08EBB84300C2C6553D5F747598DF353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166788   (421269) от 18.09.2017
-
-Kaleida - Tear The Roots (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Convolution
-02. Echo Saw You
-03. All The Pretty Pieces
-04. Division(   Читать дальше...   )Жанр: Alternative Pop, Synthpop, Indie PopПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05FDD09C8F8A51670C4FD19DA36B5F2C14805148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065075   (421305) от 22.10.2016
-
-Dee D. Jackson - Automatic Lover [New Digital Version] (1977) Maxi-Single, 1988, Jupiter Records [FLAC|Lossless|image + .cue] <Disco, Italo-Disco, Euro-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421305.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Automatic Lover - Remix '88 (Long Version) (6:52)
-2. Automatic Lover - Remix '88 (Club-Mix) (6:41)Жанр: Disco, Italo-Disco, Euro-Disco, Hi-NRGПродолжительность: 00:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEA190928F66B75DB3E883EC4E0C454504922F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 983059   (945389) от 05.02.2016
+
+VA - 60 Minutes Relaxing Music (Non Stop Mix) (2016) [MP3|320 кб/с] <Relaxation, Instrumental, Piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corrado Rossi - Distant Memories (05:00)
+02. Alessio De Franzoni - Nel Pozzo (05:08)
+03. Roberto Mazzanti - Winter Meadow (04:05)
+04. Raffaele Rinciari - Aria (04:51)(   Читать дальше...   )Жанр: Relaxation, Instrumental, Piano, New AgeПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D1F48F5474166ED674650835981AFAA7C74778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090519   (945773) от 07.01.2017
 
 Игорь Матвиенко - Викинг (Оригинальный саундтрек к фильму) (2016) [FLAC|Lossless|tracks]<Soundtrack>
@@ -722,35 +751,6 @@ NBA 2K17 - Soundtrack (2016) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B5F112D82B21A6C0A861C92D2AF9E2508299C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362470   (949503) от 23.02.2020
-
-Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949503.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:41| 01. Days Gone
-|03:36| 02. The Freakshow
-|03:36| 03. We've All Done Things
-|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5558948E31206E3AE7B2B22376F048AA053D51F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1147225   (1007680) от 07.07.2021
+
+iTAL tEK - Discography 27 Releases (2007-2020) Planet Mu [FLAC|Lossless|tracks+.cue, tracks] <IDM, Dubstep, Bass, Abstract, Juke, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Granite And Glass (02:02)
+ 02. Seraph (03:40)
+ 03. The Lake (03:02)
+ 04. For You There Is No Time (02:24)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Dubstep, Bass, Abstract, Juke, Experimental •Продолжительность: 10:55:31 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D8A5EF7B3607FE4D626A00479ED66324C8C8EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482305   (1007775) от 07.07.2021
 
 World Circuit - Desolate Snow Roads (2021) Fantasy Enhancing [FLAC|Lossless|WEB-DL|tracks] <IDM, Acid, Downtempo, Experimental>
@@ -711,35 +740,6 @@ VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC 2.0|48/24|tracks|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71CED093C286A9FBF4A91F1F5102795B4283671F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480709   (1008856) от 29.06.2021
-
-VA - Monday Dreamin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Techno, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Souls Of Saturn & TOKiMONSTA - Revision Of The Past
-02. Rampa - The Church
-03. Moodymann - Keep On Coming (feat. CD)
-04. Butch - Raindrops (feat. Kemelion)(   Читать дальше...   )Жанр: Tech House, Deep House, Techno, ProgressiveПродолжительность: 02:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0657FA7B165457ED9AEEF73041EF4E8780AC93C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

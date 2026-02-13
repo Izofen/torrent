@@ -1,3 +1,31 @@
+###  Публикация: 187379   (875139) от 29.03.2010
+
+Nami Tamaki - 4 альбома + 5 синглов (2004-2010) [FLAC|Lossless]<JPop, dance-pop, pop rock, disco, electronic>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Moshimo Negai ga... (もしも願いが…)
+02. Sukiya de ~Itoshii Hito e~ (好きやで~愛しい人へ~)
+03. Moshimo Negai ga... (Instrumental)Жанр: JPop, dance-pop, pop rock, disco, electronic
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 187176   (875215) от 29.03.2010
 
 Mami Kawada - Дискография[3 альбома+5 синглов] (2006-2010) [FLAC|Lossless]<JRock, Jpop, trance,techno, electro>
@@ -762,41 +790,6 @@ VA - Hot Tracks Music Letter Vol.2 2CD (2011) [MP3|320 кб/с]<New age, Easy li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44797BB45EFED85723CCC1A92197407D54D2E590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761082   (891918) от 02.03.2014
-
-Cho Yong - Crystal Chanting (2007) [MP3|320 кб/с]<Folk, Ethnic>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(4:27) 01. Love
-(4:47) 02. Free
-(5:28) 03. Kuan Yin Inspired Song
-(5:15) 04. Listen
-(4:15) 05. Asked Love
-(3:40) 06. Great Auspicious Day
-(4:04) 07. Home
-(3:55) 08. Wu
-(4:53) 09. Comfortable
-(6:10) 10. Prajna Paramita Heart Sutra(   Читать дальше...   )Жанр: Folk, EthnicПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89AD11E3902BB54E3FC7B5AC13567C9208287A05
 ```
 
 https://mybot314.ru/tekegram_catalog/

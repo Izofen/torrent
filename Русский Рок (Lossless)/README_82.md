@@ -461,3 +461,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851959   (1056433) от 
+
+Коrsика - 5 альбомов (2007 - 2012) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056433.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 - Играй
+2007 - Романтика
+2009 - Апокалипсис afterparty
+2010 - Альтернативы.netЖанр: Heavy MetalПродолжительность: 03:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CB070DF077F2A47F6843CA751DE3ED90FBF23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,3 +1,29 @@
+###  Публикация: 339258   (621198) от 17.06.2011
+
+UVERworld - 7 albums + 16 singles (2005-2011) [FLAC|Lossless]<JRock, Pop Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_621198.jpg" />
+</div>
+
+
+###  Подробнее
+
+albums:Жанр: JRock, Pop RockПродолжительность: 00:13:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035609   (626238) от 17.07.2016
 
 Loudness - Samsara Flight: 35th Anniversary (2016) [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -737,35 +763,6 @@ Aimer - 6 альбомов + 11 синглов (2011-2018) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE8E361E9615A4AAA47C0D23A6CCE6DDF54F867C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938324   (656636) от 19.05.2018
-
-SawanoHiroyuki[nZk] - 2 альбома + 7 синглов (2014-2018) (FLAC|tracks] <J-Rock, J-Pop, Electronic>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-(170628) gravityWall／shØut (Re：CREATORS OP1&OP2 Single)
-(170920) 2V-ALK
-(180425) Binary Star／Cage (Ginga Eiyuu Densetsu：Die Neue These - Kaikou OP Single)Жанр: J-Rock, J-Pop, ElectronicПродолжительность: 00:05:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10517A4C1BC5041049A7E0D2B2B6B992636D03B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

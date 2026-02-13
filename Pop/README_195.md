@@ -1,3 +1,177 @@
+###  Публикация: 1049058   (544249) от 04.09.2016
+
+VA - 12 Inch Dance: 80s Pop (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Spandau Ballet - Gold (12'' Mix) [07:15]
+02 Duran Duran - The Reflex   [06:34]
+03 Soft Cell - Torch   [08:27]
+04 Tears For Fears - Shout   [08:01](   Читать дальше...   )Жанр: PopПродолжительность: 03:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A08045A00E694BDEBAC76A9C34690534A331D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311009   (544276) от 27.06.2019
+
+Madonna - Madame X (2019) Japanese Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medellin with Maluma (4:58)
+02. Dark Ballet (4:15)
+03. God Control (6:19)
+04. Future ft. Quavo (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C969713A847ACC2FAE29C753077F909530667763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238785   (544517) от 01.08.2018
+
+VA - Italo Disco Romantique Vol. 1 (Extended Romantique Mixes) (2018) [MP3|320 Kbps] <Italo-Disco, Dance-pop, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casarano feat. Elise Dean - Fairy Tale (In My Heart) (Extended Romantique Mix) (9:53)
+02. Valerie Star - Flash in the Night (Extended Romantique Mix) (7:13)
+03. Modern Boots - In a World of Jealousy (Extended Romantique Mix) (6:59)
+04. Marco Bardi - World of My Illusions (Extended Romantique Mix) (7:40)(   Читать дальше...   )Жанр: Italo-Disco, Dance-pop, Euro-DiscoПродолжительность: 01:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29952AD1BAE9847930A524DC51DA6E6C08E8BBC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238779   (544518) от 01.08.2018
+
+Gazebo - Italo by Numbers (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance-pop, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion (3:20)
+02. Give Me One Day (3:49)
+03. Self Control (4:18)
+04. Wait (4:03)(   Читать дальше...   )Жанр: Italo-Disco, Dance-pop, Euro-DiscoПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0058F41F4A3A159DDF35181B2DA9CABD6BA29D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310997   (544522) от 27.06.2019
+
+Chocolat's - 3 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chocolat's - музыкальная группа тропических и Карибских жанров, образованная французами и бельгийцами.Список альбомов:
+1977 - Baby, Let's Do It The French Way Cubanita
+1977 - Kings Of Clubs
+1979 - Senorita Por Favor(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215AB13E1E8471A2BAC845352F7ACA0CB33D7A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311024   (544532) от 27.06.2019
+
+Budka Suflera - Zlote Przeboje (Unknown) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twoje radio (5:16)
+02. Ona przyszla prosto z chmur (4:36)
+03. Samotny noca (3:00)
+04. Martwe morze (4:42)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B57C3B8F82DA97E197167076170ADD3303DC60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310966   (544537) от 27.06.2019
 
 VA - Mellow Gold: 70s Classics (2019) [MP3|320 Kbps] <Pop, Soul, Funk>
@@ -577,184 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3266D4894E6CDFFD2781AA4978F72D77A9B02191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310375   (547008) от 24.06.2019
-
-VA - Schlager Sommer Megamix 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Schlager Sommer Megamix 2019, Pt.1
-02. VA - Schlager Sommer Megamix 2019, Pt.2
-03. Norman Langen - Dieses Gefühl
-04. Mike Bauhaus - Mr. Right(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C464A00294EB7049349D3AD14436FED0B3AB77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238367   (547081) от 29.07.2018
-
-Crown Heights Affair - Essential Dancefloor Artists Volume 1 (1994) [FLAC|Lossless|tracks + .cue] <Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming A Dream (Special 'Blended With Love' Re-Edit) (6:39)
-02. Foxy Lady (Special 'Blended With Love' Re-Edit) (6:02)
-03. Dancin' (Original 12' Mix) (6:16)
-04. Far Out (Original Full Album Version) (6:22)(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C54425D5C7788000EF39B4030790B40297BC94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048396   (547312) от 01.09.2016
-
-VA - Extended Version & Remix, Vol. 1 - The Sound of Italo Disco (2016) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change - The Glow of Love (Long Version) (08:16)
-02. Video - Somebody (Hey Girl)Жанр: Disco, Dance, Nu-DiscoПродолжительность: 03:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4AF7E4FA7D5E649BD74CF66546B027C4F861C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 816886   (547542) от 28.08.2014
-
-Maroon 5 - V (2014) Deluxe Edition [MP3|320 кб/с]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maps
-02. Animals
-03. It Was Always You
-04. Unkiss Me(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01420860FC78FEA5044176F8415CB5F193F88BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694062   (547648) от 28.08.2013
-
-Various Artists - Hits 2013 Vol-2 (2013) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Hush / Harlem Shake
- 02. Bang La Decks / Kuedon (Obsession)
- 03. Faydee ft. Lazy J / Laugh Till You Cry
- 04. Xonia / Remember
- 05. A.J. Kriss ft. Sonny Boy W / I’m Trying To Make London My New Home
- 06. Jutty Ranx / I See you
- 07. Dj Sava / Cocktail
- 08. Dsaparecidos Vs. Walter Master J / Danser
- 09. Stereolizza / Go Back To Your Mama
- 10. VOX HALO ft. LaDolla / Criminal(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4418C14CDBCFBF62B26439761525F3B5CBA14CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310194   (547852) от 23.06.2019
-
-Sailor - 2 Albums (1976, 1977) LP [MP3|320 Kbps] <Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Drink Too Many (4:04)
-02. Give Me La Samba (3:24)
-03. Cool Breeze (3:26)
-04. Two Ladies On The Corner (2:49)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFA06C8A319B6184007AE440873E9687E645992
 ```
 
 https://mybot314.ru/tekegram_catalog/

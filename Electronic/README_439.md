@@ -1,3 +1,32 @@
+###  Публикация: 1501194   (836562) от 09.10.2021
+
+Super8 & Tab - Empire 10 (Part 2) (2021) Remixes [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Irufushi (Marsh Remix) (4:32)
+ 02. Eternal Sequence (Nifra Remix) (3:49)
+ 03. Slow To Learn (Rodg Remix) (feat. Jan Burton) (3:55)
+ 04. Mercy (SØNIN Remix) (feat. Jan Burton) (4:19)(   Читать дальше...   )Жанр: EDM, Progressive House, Tech TranceПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA74E9E79D490092E660DA0E4038BED5C2523D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501386   (836565) от 09.10.2021
 
 VA - Spacedance, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth, Retrowave>
@@ -712,35 +741,6 @@ WHITENO1SE @ Behind The Mask, Transmission Prague, O2 Arena Prague, Czech Republ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E34550F92FABC06CB2F7DF3669A0B731CBEFB8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004107   (840015) от 05.04.2016
-
-VA - Vocal Trance Philosophy Vol.2 (Mixed by Vyze) (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Blizzard & Daniel Van Sand Ft. Julie Thompson - Made For You 05:16
-02 Andrew Rayel Feat. Jano -  How Do I Know 03:55
-03 Shogun Feat. Emma Lock - Save Me 05:01
-04 Andy Moor Feat. Sue Mclaren - Fight The Fire 05:40(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 05:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8990268A80BBE2F31FFA84BDCC32C927BFFC22
 ```
 
 https://mybot314.ru/tekegram_catalog/

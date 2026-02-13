@@ -1,3 +1,61 @@
+###  Публикация: 1526733   (738089) от 25.01.2022
+
+VA - Зима на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John Feat. Dua Lipa - Cold Heart (Amice Remix) (4:15)
+02. Люся Чеботина - СОЛНЦЕ МОНАКО (2:40)
+03. The Weeknd - Take My Breath (3:40)
+04. Дима Билан, Мари Краймбрери - Ты не моя пара (2:42)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1033542F59ABE9EAA9566183F52531F9588C7DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526205   (738123) от 25.01.2022
+
+VA - Music For You vol. 22 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738123.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Accept - The Undertaker (05:38)
+ 002. Accept - Too Mean To Die (04:21)
+ 003. Acid Mammoth - Ivory Towers (06:18)
+ 004. ADS - Nights Wolf (05:22)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 08:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C469DC038F31DA64BAC1DCC81A7DE5808306C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526455   (738124) от 25.01.2022
 
 VA - Bedroom  Jams (2022) [MP3|320 Kbps] <Pop, R&B, Other>
@@ -689,64 +747,6 @@ VA - Progressive Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Deep Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AA200737EE5BF19DBD903FDDC004765EFD4E84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397460   (740306) от 20.07.2020
-
-VA - Sexy Midnight with a Saxophone (2020) 3CD [MP3|320 Kbps] <Easy Listening, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exotique - Perfect Day
-02. Grupo Cabana - Desafinado
-03. The Brecon Brothers - Cantaloupe Island
-04. Jazz Urbaine - Street Life(   Читать дальше...   )Жанр: Easy Listening, JazzПродолжительность: 12:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36EFBD0811493392522B94A5073B2DB1EC4FA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283255   (740336) от 16.02.2019
-
-VA - The Official UK Top 40 Singles Chart 15.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - break up with your girlfriend, i'm bored
-02. Ariana Grande - 7 rings
-03. Lewis Capaldi - Someone You Loved
-04. Sam Smith, Normani - Dancing With A Stranger(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D88A6892215B9199362DF9DC709F9BFE07AF127
 ```
 
 https://mybot314.ru/tekegram_catalog/

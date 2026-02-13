@@ -1,3 +1,67 @@
+###  Публикация: 557657   (419950) от 08.10.2012
+
+VA - Осенний Парад (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabio Da Lera & Alenna - One More Night (Andeeno Damassy Remix)
+ 02. ЯрмаК и Маша Собко - Детская Обида
+ 03. Серебро - Мальчик (DJ Squeeze Official Remix)
+ 04. Adele - Skyfall
+ 05. Will.I.Am feat. Eva Simons - This Is Love
+ 06. Dreamer feat. Hypnotic & Rob Gitarnik - Just Calling You
+ 07. Julia Lasker - Хочу (Tom Reason Remix)
+ 08. DJ HaLF & Женя Юдина - Два Сердца (Extended Mix)
+ 09. Shamil (ex. Оскар) - Полюби
+ 10. Cheryl Cole - Call My NameЖанр: PopПродолжительность: 06:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B9E2BFB1AECE8022655908CF9EC84715651CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251200   (420103) от 30.09.2018
+
+VA - Club Music View Gravity September (2018) [MP3|320 Kbps] <Club, Dance, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salasnich feat. Rhett Fisher - Summer Dreams (Etta Matters Remix)
+02. Vain Machine - Harm (Original Mix)
+03. Tony Vegas - Don't You Forget About Me (Radio Edit)
+04. Spoonz feat. Ami Thomson and JD Rox - Rio (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, GrooveПродолжительность: 06:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE7F07CBF32C38D6A14FFE6C2AF51A4989C8666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251203   (420191) от 30.09.2018
 
 VA - Record Super Chart 555 (2018) [MP3|320 Kbps] <Dance, Club, House>
@@ -685,64 +749,6 @@ VA - German Top 50 Party Schlager Charts 09.09.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:979CDDA0BD4F5C4C012F4314AEFA444895BDA927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411795   (423159) от 27.09.2020
-
-VA - Silent Mutiny (Vol.03) (2020) [MP3|320 Kbps] <Hard Rock, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423159.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lo Blow - New Heirs
-002. Stillsuit - At The Speed Of Light
-003. Redline - Stand And Fight
-004. Only Attitude Counts - The Mirror(   Читать дальше...   )Жанр: Hard Rock, HardcoreПродолжительность: 08:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200831B476CD2C52EB1166E1BC3EC49F7A5853BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411589   (423161) от 27.09.2020
-
-VA - The Official UK Top 40 Singles Chart 25.09.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24kgoldn, Iann Dior - Mood (2:20)
-02. Cardi B - WAP (feat. Megan Thee Stallion) (3:07)
-03. Headie One, AJ Tracey, Stormzy - Ain't It Different (3:16)
-04. Paul Woolford, Diplo, Kareen Lomax - Looking for Me (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9150E312824586C7BF99CCF2965CA003044B66
 ```
 
 https://mybot314.ru/tekegram_catalog/

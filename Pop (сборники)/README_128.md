@@ -288,3 +288,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852658   (1056305) от 
+
+ABBA best (1973-1981) [MP3|320 Kbps] <Еlectronic, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056305.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:20] . 01-He Is Your Brother
+[2:46] . 02-She's My Kind Of Girl
+[2:47] . 03-Waterloo
+[3:16] . 04-My Mama Said(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CF57ECBD57C0ECB0E02746FE2B3A1C3D57211B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

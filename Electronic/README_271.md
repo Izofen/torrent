@@ -1,3 +1,32 @@
+###  Публикация: 1156264   (527734) от 07.08.2017
+
+VA - Big House Nights (25 Groovy House Tunes) Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereoliner & Cirque Du Freak - Freakshow (Club mix)
+02. Chris Ve - I Got It
+03. Seolo - My Time (Radio Edit)
+04. TittoBlast & Olesia Bond - Ghetto Blaster(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB4C2112DAEAAB2D6E3CAE1F6219C48B1A02626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156328   (527777) от 07.08.2017
 
 VA - Trance Music Lounge (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -716,35 +745,6 @@ VA - Top 50 Drops Summer '18 (2018) [MP3|320 Kbps] <House, Future House, Groove,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:303DDC3C85CA1D4A385B22C12305B77F48B6002B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240224   (529770) от 10.08.2018
-
-VA - OHM (2018) Ambidextrous Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid, Tech House, Techno Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christ. - Rom (03:46)
- 02. Norken & _Nyquist - Od Detot (05:31)
- 03. Solipsism - Vice Is Nice (06:03)
- 04. _Nyquist - Fornax (05:09)(   Читать дальше...   )Жанр: Techno, Acid, Tech House, Techno AmbientПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3DF2A30AA1ABD81956D6D8F228CE6DF95B8C0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

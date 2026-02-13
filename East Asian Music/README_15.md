@@ -1,3 +1,32 @@
+###  Публикация: 938324   (656636) от 19.05.2018
+
+SawanoHiroyuki[nZk] - 2 альбома + 7 синглов (2014-2018) (FLAC|tracks] <J-Rock, J-Pop, Electronic>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(170628) gravityWall／shØut (Re：CREATORS OP1&OP2 Single)
+(170920) 2V-ALK
+(180425) Binary Star／Cage (Ginga Eiyuu Densetsu：Die Neue These - Kaikou OP Single)Жанр: J-Rock, J-Pop, ElectronicПродолжительность: 00:05:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10517A4C1BC5041049A7E0D2B2B6B992636D03B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514014   (659115) от 23.06.2012
 
 VA - Band Dream Garden I-III (2009) [MP3|320 кб/с]<Instrumental, Ethnic, New age>
@@ -759,35 +788,6 @@ Yoshida Brothers - Yoshida Brothers (2003) [FLAC|Lossless|tracks + .cue] <Folk, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70B89F6ADA3FCB7A106A734053A2A1C1853AC900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281939   (748058) от 10.02.2019
-
-Yuki Murata - Films (2009) Ricco Label, RE. [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (4:59)
- 02. The Hill Named Air (3:27)
- 03. Capricious (0:59)
- 04. Under The Deep Sea (2:44)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98340C0925E1C68E2E1DCAC46A3FF8958A091436
 ```
 
 https://mybot314.ru/tekegram_catalog/

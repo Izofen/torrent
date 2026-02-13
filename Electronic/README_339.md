@@ -1,3 +1,32 @@
+###  Публикация: 1031299   (668782) от 03.07.2016
+
+VA - Girl Power #1 (2016) [MP3|320 Kbps] <House, Electro House, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Coverage -  Tell Me (Club Mix) 4:05
+02. Vio -  One Girl (Stephan F Extended) 4:45
+03. Deeplow -  Limelight (DJane HouseKat Remix) 4:45
+04. Fucking Role Models -  Leave Me Alone (Feat. Adeena) (Extended Mix) 4:52(   Читать дальше...   )Жанр: House, Electro House, Vocal HouseПродолжительность: 02:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99CF45DA0B996397BC7B4CF925C6F858FFC30426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031368   (668783) от 03.07.2016
 
 VA - Future House 2016-03 (2016) [MP3|320 Kbps] <House, Club House>
@@ -716,35 +745,6 @@ Willie Graff & Darren Eboli - The Tribeca Tapes (2018) Music For Dreams [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E0CE79632B9B2FB90D5E3A8E57B9828E2CAD2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224014   (669899) от 07.05.2018
-
-VA - True Uplifting Vol. 3 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UDM - Highlight (Extended Mix)
-02. Elite Electronic & Sandro Mireno - Heaven Song (Extended Mix)
-03. Tycoos - 717 (Extended Mix)
-04. Tom Exo - Hyperspace (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791012936B7970810B9EC741CFC09DACF3F186B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

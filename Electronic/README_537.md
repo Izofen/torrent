@@ -1,3 +1,32 @@
+###  Публикация: 1840731   (1047471) от 07.12.2025
+
+T.O.Y. - The Prophet (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Futurepop, Synthpop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Lights (3:36)
+02. Now and Anytime (3:41)
+03. To the Stars with me (3:58)
+04. Lost in You (4:53)(   Читать дальше...   )Жанр: Futurepop, Synthpop, EBMПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8312E9094D71B4800C91625603431A861979816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840749   (1047472) от 07.12.2025
 
 VA - Deep House Night Drive, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -716,35 +745,6 @@ Boris Brejcha - Christmas Mix 2024 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5542936868E55D6632590B4F4C460C65AA0849B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842205   (1048590) от 15.12.2025
-
-Damian Lazarus - Magickal Remixed (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Searchin' (THEMBA Remix) [00:04:08]
-02. So Low (Anthony Middleton Remix) [00:07:42]
-03. Y Don't U (Cinthie Remix) [00:06:38]
-04. Alive (Nick Morgan Remix) [00:05:53](   Читать дальше...   )Жанр: Tech House, Deep House, Progressive HouseПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B69E5165BD95C6DC9A3C97E079CF05E5D09B92
 ```
 
 https://mybot314.ru/tekegram_catalog/

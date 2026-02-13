@@ -1,3 +1,29 @@
+###  Публикация: 1224517   (665817) от 10.05.2018
+
+Getting Over It with Bennett Foddy (2017) [Ru/Multi] (1.52) License HI2U
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Getting Over It with Bennett Foddy - это карательная игра в скалолазание, дань уважения классическому «Sexy Hiking» 2002 года в стиле Jazzuo. Вы перемещаете молоток с помощью мыши, и это все. Попрактиковавшись вы сможете прыгать, качать, подниматься и летать. Великие тайны и замечательная награда ждут мастеров-туристов, которые достигают вершины горы.Тип издания: LicenseРазработчик: Bennett FoddyЖанр: Action, Arcade, Puzzle, LogicЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53FE5AF6221D58A71566DF6B1E5623A889CB64B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137225   (667567) от 26.05.2017
 
 Microsoft Classic Board Games (2000) [En] (1.0) Unofficial
@@ -642,32 +668,6 @@ Macabre Ring 2: Mysterious Puppeteer (2019) [En] (1.0) Unofficial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EC989351DD1D6365E2BBE45491A9CC13B596161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203789   (787483) от 03.02.2018
-
-AtmaSphere (2018) [En] (1.0/upd1) License PLAZA
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787483.jpg" />
-</div>
-
-
-###  Подробнее
-
-AtmaSphere - это игра о шаре, происходящая в средневековом мире, который полон опасных ловушек и рискованных путей! Соберите все бриллианты, чтобы произвести впечатление на балерину и помогите ей добраться до собственного дома.Тип издания: LicenseРазработчик: Mazen GamesЖанр: Adventure, Puzzle, CasualЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A130DCB16073B6A740273B7B7F1A1F9EBD2BA5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

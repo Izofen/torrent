@@ -1,3 +1,32 @@
+###  Публикация: 958890   (318523) от 23.11.2015
+
+Laserdance - Greatest Hits & Remixes (2015) [MP3|320 кб/с]<Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humanoid Invasion (7'' Version) (03:21)
+02. Shotgun (Into The Night) (Remix) (05:23)
+03. Goody's Return (Album Version) (04:20)
+04. Power Run (Swedish Remix 7'' Version) (04:00)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CA4D478F01D4FB83602E1422ADE38184CFBFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075899   (318545) от 23.11.2016
 
 The Bhaktas - Manipulated (2016) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Ambient, Downtempo, Psybient>
@@ -713,35 +742,6 @@ Koan - Find Me If You Can (2017) [MP3|320 Kbps] <Balearic,Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:824E018909C0F062538965AF945BE1386478CF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181988   (319437) от 09.11.2017
-
-VA - Kingside Fitness Workout 2017 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound 04:18
-02. Insiders - Broken 04:11
-03. Mark Vox - Together 04:45
-04. Denis Dawydow, Simon Aces - Orientalia (Denis Dawydow edit) 04:13(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C54DA2E0F4D1C139557C89841681D5032072EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

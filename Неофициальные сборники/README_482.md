@@ -1,3 +1,61 @@
+###  Публикация: 1214739   (763071) от 23.03.2018
+
+VA - Vocal Jazz Gold Compilation (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carmen McRae - I Only Have Eyes For You
+002. Laura Fygi - Good Morning Heartache
+003. Rosa Passos & Ron Carter - Insensatez
+004. Saravah Soul - Funk De Umbigada(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 11:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D212F84C7CF3DB44106EDF0CAAE67B4C3B0E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214748   (763078) от 23.03.2018
+
+VA - Rampage (2018) [MP3|320 Kbps] <Jungle, Drum and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aphrodite & Mickey Finn - Drop Top Caddy
+02. Hungry T - Friction on My Feet VIP
+03. 88.3 - Wishin' On A Star (feat. Lisa May)
+04. Bassface Sascha - Sound the Alarm (Serum VIP)(   Читать дальше...   )Жанр: Jungle, Drum and BassПродолжительность: 05:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E1E29CFA24B1AE0D7C569ACC9EC8D6D5242357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017304   (763129) от 16.05.2016
 
 VA - UK Dancefloor Hits Return (2016) [MP3|192-320 кб/с] <Eurodance, Nu Disco, Hands Up, Club, Happy Sound>
@@ -687,64 +745,6 @@ VA - не Громкие новинки недели 73 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F872F9C8101E4312B525463B7AFA0592A7868652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394473   (763732) от 05.07.2020
-
-VA - Love You to Death (2020) [MP3|320 Kbps] <Rock, Hard Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Type O Negative - Love You to Death (7:08)
-2. Paradise Lost - Mouth (3:43)
-3. Ghost - Nocturnal Me (5:13)
-4. A Perfect Circle - Judith (4:07)(   Читать дальше...   )Жанр: Rock, Hard Rock, PopПродолжительность: 02:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF257FC31D008919292F4EE4511E744A60C88BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394249   (763736) от 05.07.2020
-
-VA - German Top 100 Single Charts 03.07.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rolling Stones - Living In A Ghost Town
-02. Miksu / Macloud - XXL (feat. Summer Cem, Luciano, Jamule)
-03. Jawsh 685, Jason Derulo - Savage Love (Laxed - Siren Beat)
-04. UFO361 - Emotions(   Читать дальше...   )Жанр: PopПродолжительность: 04:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F4CAB3069F6B41D4DA8EFA45D53F0C47F00C4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

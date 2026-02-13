@@ -1,3 +1,175 @@
+###  Публикация: 1493729   (893698) от 04.09.2021
+
+ABBA - I Still Have Faith In You, Don't Shut Me Down (2021) (Single) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два новых трека из грядущего альбома "подзабытой" супер-популярной группы. Альбом "Voyage", состоящий из 10 треков, ожидается к выходу 05.11.202101 - I Still Have Faith In You (05:11)
+ 02 - Don't Shut Me Down (03:59)Жанр: PopПродолжительность: 00:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CB29921A0D0AFD5D2FA341BE36C32AB8CADB75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493796   (893855) от 04.09.2021
+
+Smokey - Alice, Who The F*** Is Alice (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smokey - Living Next Door To Alice (3:31)
+02. Smokey - Something's Been Making Me Blue (3:04)
+03. Smokey - It's Your Life (3:38)
+04. Smokey - If You Think You Know How To Love Me (3:30)(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6ED0AA0CFB37DC84058B5763BD5539F80A1708E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493826   (893983) от 04.09.2021
+
+DJ Andersson - Crazy Cool Hitmix (2006) [FLAC|Lossless|image + .cue] <Disco,  Electronic, Cover>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy Cool (3:21)
+02. Painter Man (3:03)
+03. Belfast (3:19)
+04. Rasputin (4:16)(   Читать дальше...   )Жанр: Disco,  Electronic, CoverПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807B31BB62A48E621EFC6D97D6E508A5AE870F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992954   (895232) от 05.03.2016
+
+VA - Romantic Collection vol.1 (2000) [FLAC|Lossless|image + .cue] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of The Rising Sun-Animals (04:30)
+02. Wind Of Change-Scorpions (05:13)
+03. Hotel California-Eagles (06:32)
+04. In The Death Car-Iggy Pop (05:12)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F5A1B6B05CD2CBD7E8AFAA3214D2D5B38A70A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993296   (895254) от 05.03.2016
+
+Boney M. - The Greatest Hits (2001) Compilation [FLAC|Lossless|image + .cue] <Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Daddy Cool 03:29
+02.Rivers Of Babylon 04:22
+03.Brown Girl In The Ring 04:03
+04.Ma Baker 04:36(   Читать дальше...   )Жанр: Europop, DiscoПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213B1C84D4CC1C3E2A95E8B33F344CFD1B2E072E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993601   (895373) от 05.03.2016
+
+Joy - Best (1986) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Touch By Touch 03:50
+02.Kisses Are The Doctor's Order 03:29
+03.Chinese Girls 03:40
+04.Valerie 04:12(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18BE14950768A2D7B0AA36C459CD2F650A794B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493479   (895374) от 03.09.2021
 
 Lady Gaga - Dawn Of Chromatica (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Dance-pop, House>
@@ -571,180 +743,6 @@ Gazebo - The Collection (1998) [FLAC|Lossless|tracks + .cue] <talo-Disco, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9317BD5696971B8133D176DA11740FE4839E92E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491529   (898842) от 01.09.2021
-
-MFSB - Philadelphia Freedom & Summertime   (2010)  2CD [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Picnic In The Park (04:16)
-02. Summertime (04:54)
-03. Plenty Good Lovin' (04:35)
-04. Sunnin' And Funnin' (04:17)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A7F2A87D5E024066ED8930D8B236BE35178EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992715   (898844) от 03.03.2016
-
-Валерий Меладзе - Мой Брат VII (Синглы 2010-2015) (2015) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Обернитесь (feat. Григорий Лепс)
-02. Небеса
-03. Побудь со мной
-04. Потерян и не найден(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECAFFC9F3C32AA39D03F8B3FD6777C4A4305813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992701   (898862) от 03.03.2016
-
-Ottawan - All Gold Of The World (2004) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.I.S.C.O. (English Maxi Version) (5:01)
-02. You're O.K. (5:15)
-03. Hands Up (Give Me Your Heart) (4:52)
-04. Crazy Music (5:31)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461CB344D8E5B82F955C544A119DE01F85D6BC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992718   (899056) от 03.03.2016
-
-Валерий Меладзе - Мой Брат VII (Синглы 2010-2015) (2015) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Обернитесь (feat. Григорий Лепс)
-02. Небеса
-03. Побудь со мной
-04. Потерян и не найден(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B91C861430142686A4F1ADD29B4ABADA73A250B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100353   (899349) от 04.02.2017
-
-Icehouse - The Best Of (2013) Compilation [FLAC|Lossless|tracks + .cue] <Synth-pop, 80's>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Help Myself (Single Version) (3:12)
- 02. We Can Get Together (3:48)
- 03. Hey Little Girl (Single Mix) (3:40)
- 04. Love In Motion (Original Single Mix) (3:42)(   Читать дальше...   )Жанр: Synth-pop, 80'sПродолжительность: 01:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745454D5F6BA8ECE711758F5096BEEA0B8CBF273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100729   (899370) от 04.02.2017
-
-VA - Let's Go Into Space (2012-2015) 4LP [MP3|320 Kbps] <Electronic, Cosmic Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный комплект официального издания сборников космического диско 70-80х годов от германской студии Private Records, выпущенных недавно на виниле.Список альбомов:
-2012 - Let's Go Into Space I
-2013 - Let's Go Into Space II
-2014 - Let's Go Into Space III(   Читать дальше...   )Жанр: Electronic, Cosmic DiscoПродолжительность: 02:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BB6DE268894B36BAF96A0B2FA30EC21EDAB6B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

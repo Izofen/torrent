@@ -1,3 +1,31 @@
+###  Публикация: 920390   (580130) от 22.07.2015
+
+Midori - Island Paradise (2015) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Island
+02. Sparkling Light
+03. Temple ShrineЖанр: New Age |Продолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99949D17355FCE711C8475FACA97AD2B394D9A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920403   (580131) от 22.07.2015
 
 Little Wolf Band - 4 альбома (1995-2008) discography [MP3|320 кб/с]<Native American, World, Ethno>
@@ -711,32 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDAEBCCDEA2A0107A940B2A0A8BF81B838845259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357621   (585764) от 02.07.2011
-
-Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9996BABADECEFD4780210A0CC7D44B79141C1093
 ```
 
 https://mybot314.ru/tekegram_catalog/

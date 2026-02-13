@@ -1,3 +1,32 @@
+###  Публикация: 1049164   (544784) от 04.09.2016
+
+Medwyn Goodall - Kissed by the Sun (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Shadow of the Mountains
+02. Sinking Sun
+03. Peace of Mind
+04. Day in the Sun(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4016CF4ABDB4B1A8A92795F341E7C662002B99A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048444   (544847) от 04.09.2016
 
 VA - Honey 3 - Dare to Dance (Original Motion Picture Soundtrack) (2016) [MP3|256 Kbps] <Soundtrack>
@@ -716,35 +745,6 @@ Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04205CA385B145EEAA41109D6F36ED973A08B33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046470   (551930) от 27.08.2016
-
-Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbin' Trains 03:25
-02. Put Me In A Box 02:44
-03. Kinda Don't Care 04:21
-04. Hell On A Highway 04:21(   Читать дальше...   )Жанр: CountryПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64F614DFFD052D6D14ED70677E84009E6560687
 ```
 
 https://mybot314.ru/tekegram_catalog/

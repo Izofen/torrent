@@ -1,3 +1,61 @@
+###  Публикация: 1162470   (456607) от 02.09.2017
+
+VA - American Rock Blues Ballad (2017) [MP3|320 Kbps] <Rock Blues, Country>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456607.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sena Ehrhardt - 07 Last Chance
+002. The Butterfield Blues Band - Walkin' Blues
+003. Tanel Padar Blues Band - Just A Little Bit
+004. Dirk Stelder - Laat Het Zien(   Читать дальше...   )Жанр: Rock Blues, CountryПродолжительность: 10:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D2EED1F704FD098C6848B5BB81EC63AC5B8213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162625   (456610) от 02.09.2017
+
+VA - Original Sound Of Reggae (2017) [MP3|320 Kbps] <Reggae, Ska, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456610.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Super Beagle - Dust A Sound Boy
+002. Cocoa Tea - No Threat
+003. Johnny Osbourne - No Ice Cream Sound
+004. Tenor Saw - Ring The Alarm(   Читать дальше...   )Жанр: Reggae, Ska, SoulПродолжительность: 09:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913DE8CDFEDE5B02B7CC91E0A48151BA7277F36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321588   (456687) от 25.08.2019
 
 VA - Громкие новинки Августа vol.2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -686,64 +744,6 @@ VA - Music News vol.208 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE40E5DF20A777369512ED7C6ABA39E7A40074EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942097   (457636) от 29.09.2015
-
-Elvis Presley - Good Songs (2015) [MP3|192 кб/с]<Rock'n'roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457636.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A big hunk o' love
-002. A fool such as I
-003. A Little Less Conversation
-004. Ain't That Loving You Baby(   Читать дальше...   )Жанр: Rock'n'rollПродолжительность: 08:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9525AE9C0CCC5A7A68A9D975A335C98AA047CEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941970   (457644) от 29.09.2015
-
-VA - Попсовая соточка MTV. Сборник 7 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457644.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Sandro Escobar - Блеск-Шик
-002. Nickelback - Satellite
-003. Ёлка - Нарисуй Мне Небо
-004. Snoop Dogg & Tha Dogg Pound - Foreign Dpg(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2EFA693A27211BF9025FD36A37ADFDA9682C4F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

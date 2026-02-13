@@ -1,3 +1,177 @@
+###  Публикация: 1380290   (835055) от 02.05.2020
+
+VA - The Party Dance Mix Vol.1 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speedy Gonzales - Pat Boone (1:23)
+02. The Twist - Chubby Checker (1:17)
+03. Wild One - Bobby Rydell (1:21)
+04. Swinging School - Bobby Rydell (1:34)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14E2DCFBBCB3B395587B9A8E102F7DA9144FEC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380303   (835062) от 02.05.2020
+
+VA - Party Dance Mix Vol.2 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dizzy - Tommy Roe (1:35)
+02. Silence Is Golden - The Tremeloes (1:58)
+03. Don't Let the Sun Catch Your Crying - Gerry & the Pacemakers (1:27)
+04. (I Don't Know Why) But I Do - Clarence -Frogman- Henry (1:15)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D468977D10A4C51410B688E83C95671AE02492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501502   (835122) от 10.10.2021
+
+VA - Serious Beats 97 (2021) [MP3|320 Kbps] <Dance-pop, Techno, Disco, Progressive House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kungs - Never Going Home
+02. DJ Licious - Hope (feat Armen Paul - extended mix)
+03. Calvin Harris - By Your Side (feat Tom Grennan)
+04. Becky Hill & David Guetta - Remember(   Читать дальше...   )Жанр: Dance-pop, Techno, Disco, Progressive HouseПродолжительность: 04:27:10 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B9728D20A7030A8D3B727C4124C26C0E1DB9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501593   (835186) от 10.10.2021
+
+Lisa Nemzo - Out of Desire (серия "Другие восьмидесятые") (1986) [MP3|320 Kbps] <Electronic Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking on Ice
+02. Addicted to You
+03. Out of Desire
+04. It's so Dark Tonight(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473BDB4F96C370896F19AA5285B21E5AD3B6E563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501656   (835189) от 10.10.2021
+
+Harmony Cats - Harmony Cats (1982) LP [MP3|320 Kbps] <Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bate Bate (3:10)
+02. A Terra Do Faz De Conta (Land Of Make Believe) (3:42)
+03. Eu Amo Amar Voce (3:24)
+04. Estrela Amiga (3:05)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4005B1A9443E33F531C684F11F3D58162678BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501574   (835204) от 10.10.2021
+
+Humphrey Robertson - Essentials (2021) [MP3|320 Kbps] <Eurodance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love in Your Eyes (Radio Version) (3:30)
+02. Don't Stop Loving Me (Radio Version) (3:51)
+03. Touch of Summer (Radio Version) (3:35)
+04. One Step Closer (Radio Remixed) (3:38)(   Читать дальше...   )Жанр: Eurodance, Euro-DiscoПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA6E288AC68B65789B4B300C1E71241CA914ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501495   (835205) от 10.10.2021
 
 VA - DJ Beats Chart 94 (2021) [MP3|320 Kbps] <Pop, Dance, Dubstep, Disco>
@@ -564,180 +738,6 @@ Zivert - Vinyl #2 (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDBEB2A492DB3CBD7F7FD97DCF2041E83EAA8EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501112   (837995) от 08.10.2021
-
-Ольга Бузова - Вот она я (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837995.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вот она я
-2. Выключим рассвет
-3. Феромоны
-4. Без дел(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC64A8E2756C5F759303DEAC5446990B4102E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004150   (838067) от 06.04.2016
-
-Alexandra Stan - Alesta (2016) Japanese Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dancepop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Step It Up (2:57)
-02. Get What You Give (3:03)
-03. We Wanna (Alexandra Stan & INNA feat. Daddy Yankee) (3:53)
-04. Alone (3:57)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Electropop, Euro House, EuropopПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC7731342CD7FFF621AE717EC5E43D3239991B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113231   (838303) от 11.03.2017
-
-VA - Sport Explosion Spring 2017  [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ-Chart - You Broke My Heart [00:03:14]
-02. 24k Magic - 24k Magic [00:03:46]
-03. Clemens Rumpf & Marcell Russell - Ain't Dancing Without You (extended radio edit) [00:03:48]
-04. DJ-Chart - Latin Party On Sunset [00:03:05](   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 03:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A74A523E8F5AD7764F403904C771F4DB19A9A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113533   (838549) от 11.03.2017
-
-VA - JP Music Project Prasentiert Die Besten Discofox Hits (2017) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jp Music Project - Vielleicht (Dance Remix 2017) 03:25
-02. Jenny Fankhauser - Die Zeit Steht Still 03:14
-03. Nic - Ich Geb Nicht Auf 03:39
-04. Peter Reichinger - Engel Der Nacht (Rmx 2K16) 03:16(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 03:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBE436131DFE0DF185B92C5D05C8C28C8CD4ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113554   (838627) от 11.03.2017
-
-Yvonne Catterfeld - Guten Morgen Freiheit (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guten Morgen Freiheit (3:24)
-02. Irgendwas (feat. Bengio) (3:34)
-03. Was bleibt (2:43)
-04. Besser werden (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2BB00FD8924798A40CC9159EB2DCCDF04C1D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879073   (838832) от 17.03.2015
-
-Arabesque - Complete Box (2015) 10CD /Japan/ [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1978 - Friday Night (Arabesque)
-1979 - Peppermint Jack (Arabesque II / City Cats)
-1980 - Marigot Bay (Arabesque III)(   Читать дальше...   )Жанр: Disco |Продолжительность: 06:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2157732E29BD25FB285FEF1694B3588CA8405CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

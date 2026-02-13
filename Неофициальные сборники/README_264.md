@@ -1,3 +1,61 @@
+###  Публикация: 1062241   (444444) от 12.10.2016
+
+VA - The Story Of Lovers (2016) [MP3|320 Kbps] <Pop, Rock Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444444.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eva Cassidy & Katie Meua - What A Wonderful World
+002. Lucius - Madness
+003. Ed Sheeran - Thinking Out Loud
+004. Sam Smith - I'm Not The Only One(   Читать дальше...   )Жанр: Pop, Rock LyricПродолжительность: 09:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A52B18E8CD4B5747502F1158E8955C24FFABCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062244   (444449) от 12.10.2016
+
+VA - Хит атака 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444449.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Britney Spears - Mood Ring
+002. Din-Go - Я Скучал По Тебе
+003. Katrin Mokko - В Моем Кино
+004. Nicole Millar - Tremble(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF11ECA2FE1B01F9F64F18485FAD0E8B49096520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943862   (444611) от 05.10.2015
 
 VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 16) (2015) [MP3|320 кб/с]<Italo Disco>
@@ -693,70 +751,6 @@ VA - Maschinen Metall Music (2017) [MP3|320 Kbps] <Metall, Heavy Metall, Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CC74B58F966547523E5C94AAFC925385E6B7C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163608   (446048) от 07.09.2017
-
-VA - Nature Sound For Meditation And Yoga (2017) [MP3|320 Kbps] <Relax, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446048.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Healing Yoga Meditation Music Consort - Good Night Yoga
-002. Mindfulness Meditation Music Spa Maestro - Mindful Road
-003. Meditation Music Zone - Sun Breeze Yoga
-004. Relaxation Meditation Songs Divine - Loving Kindness Meditation(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 07:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE595EF0EA31BE46F60ACF7A2ECD4E56CEAD937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552781   (446088) от 27.09.2012
-
-VA - Шансон 2012 года 3 Части (2012) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446088.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Михаил Круг - Все сбудется (2:43)
- 2. Иван Кучин - Человек в телогрейке (5:20)
- 3. Сергей Наговицын - Дори-дори (3:35)
- 4. Катя Огонек - Станция Хакинск (5:05)
- 5. Геннадий Жаров - Не жалею... (3:41)
- 6. Сергей Трофимов - Снегири (2:59)
- 7. Семен Канада - Дом у дороги (3:54)
- 8. Виктор Королев - Милая (3:47)
- 9. Петлюра - В тихом ресторане (4:44)
- 10. Ефрем Амирамов - Аленка (3:53)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A281038C3A40A58C83C9E15A1E05B205453F3F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

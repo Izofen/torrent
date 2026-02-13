@@ -1,3 +1,32 @@
+###  Публикация: 1144577   (618093) от 27.06.2017
+
+Samuel Kjell Smith - Vision Quest (2011) [MP3|320 Kbps] <Psychedelic, Meditative, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abundant Harvest 06:58
+02. Bubble of Peace 06:35
+03. Frequency of Clouds 06:53
+04. Cave Painting 05:38(   Читать дальше...   )Жанр: Psychedelic, Meditative, AmbientПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97ACF4AA24FBF0C9B7EF0149399531867FE2D9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295528   (618606) от 13.04.2019
 
 Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydeco, Cajun, Folk>
@@ -728,41 +757,6 @@ VA - Spice (2016) [MP3|320 Kbps] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF1A1FA412B44AAC7CB4B149E2F655BFB74233F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522232   (622801) от 13.07.2012
-
-Семья Жемчужных - Застольные песни по-цыгански (2005) [MP3|320 кб/с]<Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. За дружеской беседою (2:00)
- 2. Кай енэ (2:54)
- 3. Солнышко (3:37)
- 4. Хоп-Хоп (1:31)
- 5. Дану-данай (2:02)
- 6. Аленушка (3:20)
- 7. Очи черные (2:46)
- 8. Мар Дяндя (3:02)
- 9. Нанэ цоха (2:15)
- 10. Упряжка вороного (1:36)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC8D08FB05C60E865C03BE2BB4DFB39CC057937
 ```
 
 https://mybot314.ru/tekegram_catalog/

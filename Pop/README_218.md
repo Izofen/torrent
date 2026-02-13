@@ -1,3 +1,176 @@
+###  Публикация: 1297311   (604822) от 21.04.2019
+
+Alex Hepburn - Things I've Seen (2019) Explicit [MP3|320 Kbps] <Pop-Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Things I've Seen (03:24)
+02. When I'm Old (03:34)
+03. Take Home To Mama (03:18)
+04. Chasing Paradise (03:15)(   Читать дальше...   )Жанр: Pop-Rock, SoulПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3B514CD69166C52034B5BF09C0CB50E5A6E019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297306   (604831) от 21.04.2019
+
+Captain Torkive - Flying Saucers (1979) 7'' [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Saucers (4:11)
+02. Krypton (3:22)Жанр: Electronic, DiscoПродолжительность: 00:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55EA9946DE7662E6F6459F809F9B0A4F280E8ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038599   (604912) от 29.07.2016
+
+THP Orchestra - 4 Albums (1976-1979) Remaster 2013 [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадская диско группа из Торонто. Однако продюсеры выбраны из Европы это -  Ian Guenther и Willi Morrison. Ивестность в России получили благодаря сборнику "Синдикат - 80".1976 - Early Riser
+1977 - Two Hot For Love
+1978 - Tender Is The Night
+1979 - Good To MeЖанр: Electronic, Disco, Funk-SoulПродолжительность: 04:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC91A37498ABEFAB27ECF1D17C4F471E1AE34D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038630   (604923) от 29.07.2016
+
+HONNE - Warm On A Cold Night (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Pop, Soul, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm On A Cold Night (04:21)
+02. Til The Evening (04:40)
+03. Someone That Loves You (With Izzy Bizu) (04:04)
+04. All In The Value (03:42)(   Читать дальше...   )Жанр: Alternative Pop, Soul, ElectronicПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DB29C4FD7E54681703FB61835129F924C91AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231463   (605081) от 18.06.2018
+
+VA - Top Of The Pops '1977 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодняшним релизом пополняется наша небольшая серия путешествий по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители (   Читать дальше...   )CD1:
+01. Donna Summer - I Feel Love  (5:46)
+02. Marvin Gaye - Got To Give It Up  (4:04)
+03. Harold Melvin & The Blue Notes - Don't Leave Me This Way  (3:27)(   Читать дальше...   )Жанр: 1970s, pop, rockПродолжительность: 02:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93984D9F75280929971DF822F6C550A879143AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913447   (605198) от 29.06.2015
+
+Gin Wigmore - Blood To Bone (2015) [MP3|320 кб/с]<Pop, Soul, Funk, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Rush [03:52]
+02. Nothing To No One [03:49]
+03. This Old Heart [04:46]
+04. Black Parade [04:08](   Читать дальше...   )Жанр: Pop, Soul, Funk, AlternativeПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556FD5ADC89B8874601CE7DE4EC9583C254A147A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148054   (605633) от 04.07.2017
 
 Cliff Wedge - Back To The 80's (2009) 2CD [FLAC|Lossless|image + .cue] <Italo-Disco, Italodance>
@@ -573,180 +746,6 @@ VA - Hit Rocket (1977) LP [MP3|320 Kbps] <Electronic, Disco, Electro, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC91E0140D64DB0A7FC52F25F828E12FB717C7FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546194   (607672) от 23.04.2022
-
-VA - Super Disco Еxclusive Remix [Vol.1-5] (2022) DJ Lexsus [MP3|320 Kbps] <Dance, House, Pop, Club, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607672.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vanotek feat. Eneli - Back To Me.mp3
-002. 7even (GR) - Mystery (Original Mix).mp3
-003. Adelina - Bye Bye (Robert Cristian Remix).mp3
-004. Techno Project & Dj Geny Tur - DUDUK.mp3(   Читать дальше...   )Жанр: Dance, House, Pop, Club, DiscoПродолжительность: 08:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196BFD2CA1CFBBD37C5E88E5877327F05C9B71BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546207   (607690) от 23.04.2022
-
-One Way - Fancy Dancer (1981) Reissue, 2008, Dizzare Records [FLAC|Lossless|tracks + .cue] <Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pull Fancy Dancer Pull ( 6: 4)
-02. Get Up ( 4:46)
-03. Show Me ( 4:40)
-04. Hold It ( 5:14)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA13BA6A28B7568C4C0C5648AFFD02DE16B7F314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912682   (608442) от 27.06.2015
-
-E-Type - Best Of (2009) [FLAC|tracks + .cue]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels Crying [3:50]
-02. Russian Lullaby [3:14]
-03. Here I Go Again [3:55]
-04. Set The World On Fire [3:45](   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E49496431E026A8349385FEB5EFC5AA68F54DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296801   (608640) от 19.04.2019
-
-Sabine Sauvant & Compagnie - To The Music Hit-Makers (1978) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabine Sauvant - To The Music Hit-Makers (Part I, Part II) (10:45)
-02. Claudia Field - The Son Of Hickory Holler's Tramp (4:32)
-03. Claudia Field - Pastime Paradise (3:47)
-04. Red Face - (I Can't Get No) Satisfaction (4:11)(   Читать дальше...   )Жанр: Electronic, Funk, DiscoПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A8B45A8656585CAA33A7CE5B98D22FB33999A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912881   (608679) от 27.06.2015
-
-Фристайл - Прощай навеки, последняя любовь (1995) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Прощай навеки, последняя любовь (А. Розанов — С. Кузнецов, В. Казаченко)"
-02. "Принцесса (А. Розанов — С. Кузнецов)"
-03. "Сезон любви (А. Розанов — С. Кузнецов)"
-04. "Парусник белый (А. Розанов — С. Кузнецов)"(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D49305B5CB57F77AEDA4AE0A267964FA055B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038320   (608750) от 27.07.2016
-
-Tricia - Radiate (2013) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything As Loss    03:18
-02. Mirror Mirror    02:50
-03. Enough    02:52
-04. Radiate    02:51(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6E8E50E6D1A4FC1F510B88B4CF359485A701CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

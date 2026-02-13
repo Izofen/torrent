@@ -1,3 +1,32 @@
+###  Публикация: 1096132   (920863) от 23.01.2017
+
+Shastro - Satsang (2017) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lotus [00:09:48]
+02. A New Dawn [00:08:51]
+03. Dance of the Swans [00:14:10]
+04. Holding Hands [00:10:45](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2203AB3F0A22F60DAE51333B31F3A83A45EEA698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096171   (920882) от 23.01.2017
 
 Peng Jing - A Good Day (2004) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
@@ -722,35 +751,6 @@ Louis Landon - Provocative Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75B545FCA1A3A06066C720DFA9035ACEB71F3C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366096   (925636) от 10.03.2020
-
-Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тёмного леса (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925636.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:29| 01. The Legend
-|01:46| 02. Bad Dream
-|03:33| 03. Beginning of Strange Things
-|01:19| 04. Everything Is Great(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAD2AFE36D6A679D0225379D648CD73C371EE6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

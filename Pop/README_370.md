@@ -1,3 +1,177 @@
+###  Публикация: 1849645   (1053680) от 24.01.2026
+
+DJ Hooligan - 3 Years To Become A Ravermaniac (1995) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Rave>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagination Of House (Totally House Version) (05:14)
+02. It's A Dreamsong (06:31)
+03. The Culture (Original Mix) (06:28)
+04. Spacegirl (06:25)(   Читать дальше...   )Жанр: Eurodance, RaveПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FA6E31F4C3A3CEA7133D56116AFABE078F80FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849643   (1053683) от 24.01.2026
+
+DJ Bobo - Dance With Me (1993) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:46)
+02. Somebody Dance With Me (3:34)
+03. Take Control... (4:31)
+04. Everybody (3:55)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D4B5F222C852B8D81523DEC2DE26A132BDE9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849632   (1053684) от 24.01.2026
+
+Snap! - The Madman's Return (1992) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Rap>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madman's Return (4:35)
+02. Colour Of Love (Massive Version) (5:33)
+03. Believe In It (5:08)
+04. Who Stole It? (5:10)(   Читать дальше...   )Жанр: Eurodance, RapПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA3050122DEBB6B8F0F4D6F94324BAF5AADB7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849626   (1053685) от 24.01.2026
+
+Culture Beat - Serenity (1993) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenity (Prolog) (2:16)
+02. Mr. Vain (5:37)
+03. Got To Get It (5:21)
+04. World In Your Hands (5:33)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22843F875DA002FCCCDE57EBA926B5FE298DC2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849624   (1053686) от 24.01.2026
+
+2 Unlimited - No Limits (1993) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Limit (3:45)
+02. Tribal Dance (4:34)
+03. Mysterious (4:25)
+04. Faces (3:51)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA613E6F5C8B6A191698B8D6D5969E53A27BBA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849620   (1053688) от 24.01.2026
+
+2 Unlimited - Get Ready! (1992) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Ready For This (3:44)
+02. Twilight Zone (4:09)
+03. The Magic Friend (4:32)
+04. Contrast (3:42)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A60DC3EFF08B8B2C88194FF9DAB79288ACE0CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849397   (1053768) от 23.01.2026
 
 VA - Best Of The 70s. (2006) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
@@ -565,64 +739,6 @@ BeBe Winans - BeBe Winans (1997) [FLAC|Lossless|tracks + .cue] <Pop, Funk / Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92F2592E95CCB038CA57311963EE2960987A2E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852279   (1055855) от 
-
-VA - New Hits 98 (1998) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natalie Imbruglia - Big Mistake (4:36)
-02. Oasis - All Around The World (4:50)
-03. Catatonia - Mulder And Scully (4:11)
-04. Space - Avenging Angels (3:05)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Funk / Soul, PopПродолжительность: 02:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A70665E04C13C3FA7A9005501B5E28CBF1A953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852244   (1056207) от 
-
-Paul Parker - Strong - The Album (2025) Deluxe Edition [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Pop, Disco, Hi-NRG>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strong (Fantasia Mix) (6:18)
-02. So Dangerous (6:20)
-03. You Cast A Spell (Mondomix) (5:59)
-04. More Than Just A Feeling (6:14)(   Читать дальше...   )Жанр: Pop, Disco, Hi-NRGПродолжительность: 01:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A75BC38E1321567E54757AA24451EE717E514B
 ```
 
 https://mybot314.ru/tekegram_catalog/

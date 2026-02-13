@@ -1,3 +1,61 @@
+###  Публикация: 1297660   (602616) от 25.04.2019
+
+VA - 100 Best Albums Of All Time (2013) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602616.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bob Dylan – Like A Rolling Stone
+02. Nirvana – Polly
+03. Van Morrison – Madame George(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 3:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A758F46F3EA158178A95AA75CEB208BE7B5AABA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297912   (602628) от 25.04.2019
+
+VA - Arpegio Respira: New Age Music Compilation (2019) [MP3|320 Kbps] <Downtempo, NewAge, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602628.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Sills - Emptiness 6:49
+002. Secret Garden - Sometimes When It Rains 4:32
+003. Acoustic Ocean - Deep Grace 6:02
+004. Loreena Mckennitt - Spanish Guitars And Night Plaz 6:42(   Читать дальше...   )Жанр: Downtempo, NewAge, Relax, Ambien, Lo-Fi, ElectronicaПродолжительность: 09:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D071EB29568073D1250639C2DC6EC08ACD49854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298024   (602647) от 25.04.2019
 
 VA - не Громкие новинки недели 12 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -690,64 +748,6 @@ CD 01
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:665A7BBFFB54121584EC3180CFAE8C6F01C9D553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231730   (603764) от 20.06.2018
-
-VA - German Top 50 Party Schlager Charts 18.06.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna-Maria Zimmermann - Scheiß egal
-02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
-03. Andreas Gabalier - Verdammt lang her
-04. Michelle - In 80 Küssen Um Die Welt(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA28DA6762C488DE6C8A360579FA9D80ECA85C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148464   (603780) от 06.07.2017
-
-VA - Песни далекого детства (2017) [MP3|320 Kbps] <Шансон, Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603780.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дым костра (Демидыч)
-002. Шлю тебе Тамара синеглазая… (А. Сержич)
-003. Иволга (С. Гинзбург)
-004. Цвела акация (В.Петлюра)(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 07:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC1D6F1C72248DE14B1C324A044E5D64367FC39
 ```
 
 https://mybot314.ru/tekegram_catalog/

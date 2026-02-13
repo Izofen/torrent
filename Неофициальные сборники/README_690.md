@@ -1,3 +1,61 @@
+###  Публикация: 1851548   (1055436) от 
+
+Romantic Dreams - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Road You Choose
+02 - Cozy and Bright Christmas
+03 - I Missed You, My Angel
+04 - Sweet Dreams and Sunrise(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E01DF9D3ADEB28E6F9079FF71743FE20113640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851781   (1055457) от 
+
+VA - Music News For Forum vol.161 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. NONNA - Бриллианты (03:18)
+ 002. 140 ударов в минуту - Увидеть сны (04:02)
+ 003. 140 ударов в минуту - Холодный свет луны (02:42)
+ 004. Ad Voca & PACANI - Day Dreaming (01:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5A4FBA0E2BE60B77CB113E07E861A0152121EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851349   (1055458) от 
 
 VA - Euro Hits 2023 (2023) [MP3|320 Kbps] <pop,dance,electronic>
@@ -368,6 +426,64 @@ Ai - No name compilation part 48 Soulful Ballad (2026) [MP3|320 Kbps] <Soulful B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46C4F5248B39411184F98449FAD0BD5E4B642B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852965   (1056283) от 
+
+Агата Кристи & Братья Самойловы - Compilation (1988-2025) [MP3|320 Kbps] <Alternative, Gothic rock, Art rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эвтаназия ❂ Резня в Асбесте 2015
+02. 1_1 ❂ Живые, Но Мёртвые 2013
+03. Барон и За Рекой ❂ Маленький Фриц 1990
+04. Бриллиантовые Дороги (& Могилевский А) ❂ Иллюминатор. Песни на стихи Ильи Кормильцева 2017(   Читать дальше...   )Жанр: Alternative, Gothic rock, Art rockПродолжительность: 09:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839FC7DD2EF737138A94DA2A45EBD393A730BBC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852658   (1056305) от 
+
+ABBA best (1973-1981) [MP3|320 Kbps] <Еlectronic, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056305.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:20] . 01-He Is Your Brother
+[2:46] . 02-She's My Kind Of Girl
+[2:47] . 03-Waterloo
+[3:16] . 04-My Mama Said(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CF57ECBD57C0ECB0E02746FE2B3A1C3D57211B
 ```
 
 https://mybot314.ru/tekegram_catalog/

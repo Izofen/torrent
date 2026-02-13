@@ -1,3 +1,61 @@
+###  Публикация: 1366227   (925887) от 10.03.2020
+
+Eric Martin - I'm Goin' Sane (2002) (voice Mr.Big) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Disease
+02. Spaceman
+03. Goin' Sane
+04. Free Of It(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAA3D8628C65C30C03A7D3DD387FDA5A3154B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987534   (925903) от 17.02.2016
+
+Alice Cooper - Classicks (1995) Compilation [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Poison 04:30
+02. 	Hey Stoopid 04:33
+03. 	Feed My Frankenstein 04:44
+04. 	Love's A Loaded Gun 04:11(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C4E52FA6D970F4DDB22DAF87E8057A45E9D80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095207   (926137) от 20.01.2017
 
 King Kobra - Thrill Of A Lifetime (1986) Limited Edition, Remastered, 2000, Axe Killer Records  [FLAC|Lossless|tracks] <Hard Rock, Pop Rock, AOR>
@@ -744,75 +802,6 @@ Scorpions - Deadly Sting (1995) Compilation [FLAC|Lossless|image + .cue] <Rock ,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E0EB8058CD82011C9D1EE6FFE3642946F78056B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753385   (936467) от 05.02.2014
-
-The Who - Who's Next (1971) Platinum SHM-CD /2013, Universal Music/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Baba O'Riley   (5:01)
-02.  Bargain   (5:34)
-03.  Love Ain't for Keeping   (2:11)
-04.  My Wife   (3:36)
-05.  Song is Over   (6:19)
-06.  Getting In Tune   (4:50)
-07.  Going Mobile   (3:44)
-08.  Behind Blue Eyes   (3:41)
-09.  Won't Get Fooled Again   (8:34)Жанр: Hard RockПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF22B638CFF7958236EA45B0ADE42DEDA5015162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753378   (936470) от 05.02.2014
-
-Kingdom Come - Kingdom Come (1988) SHM-CD /2013, Universal Music/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Living Out Of Touch   (4:17)
-02.  Pushin' Hard   (4:58)
-03.  What Love Can Be   (5:14)
-04.  17   (5:30)
-05.  The Shuffle   (3:40)
-06.  Get It On   (4:21)
-07.  Now Forever After   (5:36)
-08.  Hideaway   (5:38)
-09.  Loving You   (4:46)
-10.  Shout It Out   (3:38)Жанр: Hard RockПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687576F0C2DE31C8E375ABB51B5FF869DB71E9CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

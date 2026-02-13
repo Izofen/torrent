@@ -1,3 +1,35 @@
+###  Публикация: 597393   (1000486) от 02.01.2013
+
+VA - Rose Quartz. The Rose Quartz Of Buddist (2005) [MP3|320 кб/с]<New age, Instrumental>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000486.jpg" />
+</div>
+
+
+###  Подробнее
+
+(07:57) 1. The beauty of pink crystal
+(06:38) 2. I love pink crystal music
+(04:53) 3. Pink crystal. Please let me have it
+(05:39) 4. Clean elegant pink crystal
+(12:47) 5. The hope of crystal
+(06:38) 6. The pink crystal of buddist
+(05:43) 7. The happy pink crystalЖанр: New age, InstrumentalПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CD60B37100EDE7B66F5A0D74848FA6B96DB1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597263   (1000490) от 02.01.2013
 
 VA - The Heart of Crystal. Prajna Paramita Sutra (2006) [MP3|320 кб/с]<New age, Relax, Meditative>

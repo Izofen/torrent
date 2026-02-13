@@ -1,3 +1,73 @@
+###  Публикация: 302718   (867068) от 01.03.2011
+
+Deep Purple - 30 The Very Best Of (1998) Special Edition 2CD [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Hush (30th Anniversary Remaster) (4:28)
+02. Mandrake Root (30th Anniversary Remaster) (6:12)
+03. Kentucky Woman (30th Anniversary Remaster) (4:43)
+04. Wring That Neck (30th Anniversary Remaster) (5:14)
+05. The Bird Has Flown (US Single Version) (2:55)
+06. Emmaretta (30th Anniversary Remaster) (3:01)
+07. Hallelujah (3:44)
+08. Black Night (Single Version Remaster) (3:29)
+09. Speed King (25th Anniversary Remaster) (5:53)
+10. Bloodsucker (25th Anniversary Remaster) (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:19:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767069   (867180) от 16.03.2014
+
+VA - The Many Faces Of Deep Purple (2014) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Kind Of Woman - Funky Junction (A.K.A.Thin Lizzy)
+ 02. Rocky Road Blues - Fandango (Nicky Simper)
+ 03. Black Night - Vargas, Bogert & Appice Feat. Paul Shortino
+ 04. No Laughing In Heaven - Gillan (Ian Gillan)
+ 05. Pictures Of Home - Jon Lord
+ 06. Space Oddity - William Shatner, Ritchie Blackmore & Candice Night
+ 07. Hoka-hay! - Energy (Tommy Bolin)
+ 08. Speed King - Funky Junction (A.K.A.Thin Lizzy)
+ 09. My Turn - Roger Glover
+ 10. You Keep Me Hangin? On - Vanilla Fudge(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98286816BAF5413FA4010398E917035402DBD74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 645072   (868081) от 17.04.2013
 
 Troubled Horse - Step Inside (2012) [FLAC|Lossless]<Hard Rock>
@@ -721,65 +791,6 @@ Don Airey - Keyed Up (2014)[FLAC|Lossless]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:337E546C3FB005D8D950CA6F333CFB2807FA69F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105868   (875072) от 18.02.2017
-
-Inglorious - Inglorious (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Until I Die (5:55)
-02. Breakaway (3:01)
-03. High Flying Gypsy (3:56)
-04. Holy Water (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD33035B31FEC1CB2010CB15CA4A17699FB10AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872038   (875404) от 24.02.2015
-
-Scorpions - Return To Forever (2015) Limited Deluxe Edition [WavPack|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Going Out With A Bang
-02. We Built The House
-03. Rock My Car
-04. House Of Cards
-05. All For One(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06587FC0EB27C8F927E39B37A50FBBEFA051A918
 ```
 
 https://mybot314.ru/tekegram_catalog/

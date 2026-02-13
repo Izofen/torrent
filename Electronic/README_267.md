@@ -1,3 +1,32 @@
+###  Публикация: 1560961   (517657) от 02.07.2022
+
+V.A. - Coffee Bar Lounge, Vol. 27 (2022) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman – Dreams Are Reality
+02. Lazy Hammock – One Love
+03. Mo'jardo – Late Night Lattè
+04. Jens Buchert – Rosetta(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E88343082BFF0C496E5F5513F3246E0E1A698A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560899   (517661) от 02.07.2022
 
 Tiesto - Tomorrowland Friendship Mix (2022-06-30) [MP3|320 Kbps] <Electro Pop, Big Room, Bass House>
@@ -710,35 +739,6 @@ VA - Deep House Summer '18 (2018) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:018DA378ED6DE310B381D210A31317D73C87FA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241436   (520257) от 17.08.2018
-
-VA - Ori Uplift & Rich Triphonic - Uplifting Only 288 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syntouch & Spins – Desolation (Intro Mix)
-02. Para X & Claire Willis – Beautiful (Original Vocal Mix)
-03. FAN FAVORITE: XiJaro & Pitch – Unite Again (Extended Mix)
-04. Madwave – On the Run (W!SS Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7F41B2B1EA2B3A5820863DA12A295D2693A4DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1011080   (796756) от 27.04.2016
+
+Aram Khachaturian / Арам Хачатурян - Spartacus / Спартак  (1992) [FLAC|Lossless|tracks + .cue] <Classical, ballet>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 01:02:46
+Act 2Жанр: Classical, balletПродолжительность: 01:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D74E9B04F4845EC1F6608CB43EA4941C220D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011302   (796935) от 27.04.2016
 
 Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
@@ -714,35 +741,6 @@ Concerto for solo violin, 2 oboe, 2 horns, bassoon & strings in D major RV562
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BCDD6C5267CC77F7D9B580C9BEF1D6D9FA63D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007564   (817162) от 17.04.2016
-
-Edvin Marton & Vienna Strauss Symphony Orchestra - Rock Symphony (2016) [MP3|320 кб/с] <Classical, Violin, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817162.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nothing Else Matters (4:02)
- 2. Bohemian Rhapsody (4:51)
- 3. Vivaldi Storm (2:37)
- 4. Fanatico (3:27)(   Читать дальше...   )Жанр: Classical, Violin, InstrumentalПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2A4B9D0F3F80DC33DC15FE75AF76CA8E267621
 ```
 
 https://mybot314.ru/tekegram_catalog/

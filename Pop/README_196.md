@@ -1,3 +1,181 @@
+###  Публикация: 1310375   (547008) от 24.06.2019
+
+VA - Schlager Sommer Megamix 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Schlager Sommer Megamix 2019, Pt.1
+02. VA - Schlager Sommer Megamix 2019, Pt.2
+03. Norman Langen - Dieses Gefühl
+04. Mike Bauhaus - Mr. Right(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C464A00294EB7049349D3AD14436FED0B3AB77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238367   (547081) от 29.07.2018
+
+Crown Heights Affair - Essential Dancefloor Artists Volume 1 (1994) [FLAC|Lossless|tracks + .cue] <Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaming A Dream (Special 'Blended With Love' Re-Edit) (6:39)
+02. Foxy Lady (Special 'Blended With Love' Re-Edit) (6:02)
+03. Dancin' (Original 12' Mix) (6:16)
+04. Far Out (Original Full Album Version) (6:22)(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C54425D5C7788000EF39B4030790B40297BC94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048396   (547312) от 01.09.2016
+
+VA - Extended Version & Remix, Vol. 1 - The Sound of Italo Disco (2016) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change - The Glow of Love (Long Version) (08:16)
+02. Video - Somebody (Hey Girl)Жанр: Disco, Dance, Nu-DiscoПродолжительность: 03:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4AF7E4FA7D5E649BD74CF66546B027C4F861C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 816886   (547542) от 28.08.2014
+
+Maroon 5 - V (2014) Deluxe Edition [MP3|320 кб/с]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maps
+02. Animals
+03. It Was Always You
+04. Unkiss Me(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01420860FC78FEA5044176F8415CB5F193F88BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694062   (547648) от 28.08.2013
+
+Various Artists - Hits 2013 Vol-2 (2013) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Hush / Harlem Shake
+ 02. Bang La Decks / Kuedon (Obsession)
+ 03. Faydee ft. Lazy J / Laugh Till You Cry
+ 04. Xonia / Remember
+ 05. A.J. Kriss ft. Sonny Boy W / I’m Trying To Make London My New Home
+ 06. Jutty Ranx / I See you
+ 07. Dj Sava / Cocktail
+ 08. Dsaparecidos Vs. Walter Master J / Danser
+ 09. Stereolizza / Go Back To Your Mama
+ 10. VOX HALO ft. LaDolla / Criminal(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4418C14CDBCFBF62B26439761525F3B5CBA14CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310194   (547852) от 23.06.2019
+
+Sailor - 2 Albums (1976, 1977) LP [MP3|320 Kbps] <Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Drink Too Many (4:04)
+02. Give Me La Samba (3:24)
+03. Cool Breeze (3:26)
+04. Two Ladies On The Corner (2:49)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFA06C8A319B6184007AE440873E9687E645992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048027   (548081) от 31.08.2016
 
 VA - Хитовый Dance (2016) [MP3|320 Kbps] <Pop>
@@ -571,180 +749,6 @@ Madame Monsieur - Vu d'Ici (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E889C7C5E6D25CB0B83E3DED5165AB9DA4CB85F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237703   (550626) от 25.07.2018
-
-Rudy - Just Take My Body (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Room (7:03)
-02. Just Take My Body (6:49)
-03. Higher (4:48)
-04. Thank You Baby (7:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D825AFEE797752D97F592E6C8F8BB3DF516D5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046902   (550815) от 28.08.2016
-
-Dschinghis Khan - Best Of Dschinghis Khan (2012) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dschinghis Khan (03:04)
-02. Himalaya (04:17)
-03. Pistolero (04:18)
-04. Wir sitzen alle im selben Boot (04:00)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F76BCFC333FFBFDC91525301E3EEF45FD204000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046935   (550818) от 28.08.2016
-
-VA - Hit Explosion - Latin Workout (2016) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj-Chart - La Bomba 03:59
-02. Ivan Herb - Larga Vida En Vivo 03:07
-03. Masterbeat - Take On Me (Live Version) 03:25
-04. Cuba Club - Cuba (Sunset Crew Radio Edit) 03:07(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3922E33F17A4BA8BE77AB62A3D67B88A66BB2678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309424   (551068) от 19.06.2019
-
-VA - Smooth FM - Feel Good Favourites (2019) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Michael - Freedom! '90 (6:30)
-02. Lionel Richie - Dancing On The Ceiling (4:21)
-03. The Emotions - Best Of My Love (3:41)
-04. Donna Lewis - I Love You Always Forever (3:58)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C4D915524AE2CAAF293CBD9137C468B3393E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692751   (551190) от 24.08.2013
-
-Иосиф Кобзон - Я люблю тебя, Жизнь (2012) [FLAC|Lossless]<Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Как молоды мы были (4:59)
-02. А у нас во дворе (2:16)
-03. Идет девчонка (2:18)
-04. Мелодия (4:42)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4836D236209E22A44DFEF4D5708853E5B7689DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237552   (551473) от 24.07.2018
-
-VA - Star 80 New Generation Vol. 1 (2015) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mode One - I Wanna Feel You (5:21)
-02. Ryan Paris - Light In The Dark (5:56)
-03. Talking Eyes - In the Sun (6:33)
-04. Magic System DJ - Angels (6:30)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAA893A62D30BFBA4EBFCED7CD12C455DFB6D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

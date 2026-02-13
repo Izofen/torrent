@@ -1,3 +1,32 @@
+###  Публикация: 1358712   (967311) от 09.02.2020
+
+Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Women (03:12)
+02. Plumfield (03:39)
+03. The Beach (02:49)
+04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8F4CEDE382055379CAA015EF8331E1A7769301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 168685   (967578) от 23.01.2010
 
 Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossless]<Krautrock, Ambient, Jazz Noir, Drone>
@@ -782,35 +811,6 @@ Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A9D49C8E8CA5497C891F6CA87CCDB7D3F423CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357327   (970644) от 06.02.2020
-
-Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Old Oak Wood
-02. Jade
-03. I Love The Rain
-04. Cherry Blossom Street(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

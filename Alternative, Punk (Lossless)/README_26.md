@@ -143,6 +143,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624238   (290990) от 06.12.2015
+
+Серцевий Напад - 2 альбома (2009-2010) [FLAC|Lossless|image+ .cue] <Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_290990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 | Пробач | 03:09
+02 | Оптимістична | 02:27
+03 | Москва | 03:05
+04 | Черепашки Нінзя | 02:25(   Читать дальше...   )Жанр: Pop Punk |Продолжительность: 01:09:47 |
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334834   (291669) от 31.10.2019
 
 White Denim - In Person (2019) Live album [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Garage Rock>
@@ -710,35 +739,6 @@ Stereophonics - Kind (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7C627DCD69E1228640BD5D0EACED26322FFBDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333411   (303431) от 25.10.2019
-
-Mark Lanegan - Somebody's Knocking (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disbelief Suspension (03:15)
-02. Letter Never Sent (03:31)
-03. Night Flight to Kabul (03:30)
-04. Dark Disco Jag (03:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7141FE1D789083B92B2408B4F616BA43ACD3D022
 ```
 
 https://mybot314.ru/tekegram_catalog/

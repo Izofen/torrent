@@ -1,3 +1,61 @@
+###  Публикация: 1375121   (867111) от 13.04.2020
+
+VA - Inspiration: Vocal House Party (2020) [MP3|320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867111.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taffo Velikoff - You
+002. Dj Fixx - Back 2 Ya
+003. Lione With Miranda Glory - Kids
+004. Furkan Syzo - Broken Heart(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908132E107C89A183D870A5EF43EA98E9C32C0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375335   (867113) от 13.04.2020
+
+VA - Metal Supreme (2020) [MP3|320 Kbps] <Rock, Metal, Thrash-Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867113.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Metallica - Enter Sandman 5:31
+002. Anthrax - Caught In A Mosh 5:00
+003. Heaven Shall Burn - Endzeit 4:18
+004. Sepultura - Arise 3:18(   Читать дальше...   )Жанр: Rock, Metal, Thrash-Metal, Industrial-MetalПродолжительность: 08:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D01D3C51B2E27652CC593D44CF5F83A8754D033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375117   (867116) от 13.04.2020
 
 VA - Beatport Deep House: Electro Sound Pack #58 (2020) [MP3|320 Kbps] <Deep House>
@@ -687,64 +745,6 @@ Robert Plant - 100% Robert Plant (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906B32B664C89E33CEE4030046928EA3E17706DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766802   (868975) от 15.03.2014
-
-VA - My Favourite Hits of 1981 (11CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New age, Pop rock, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868975.jpg" />
-</div>
-
-
-###  Подробнее
-
-172. Eddy Grant - Can't Get Enough Of You
-173. Maywood - Distant Love
-174. Rainbow - Difficult To Cure (Beethoven's Ninth)
-175. Stars On 45 - Stars Get Ready(   Читать дальше...   )Жанр: Disco, Pop, Synth pop, New age, Pop rock, RockПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4868CAFDF76F28AC17317CC10EDC9A5C57ED5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375051   (868979) от 12.04.2020
-
-VA - не Громкие новинки недели 63 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868979.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Bahh Tee feat. Turken - О Тебе (4:53)
-2.Bahh Tee feat. Эллаи - Ты Меня Не Стоишь (4:31)
-3.Brandon Stone - Натали (4:16)
-4.Darrem - Подарю (3:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B5931D8E82652ACA16B8DE112587309B679628
 ```
 
 https://mybot314.ru/tekegram_catalog/

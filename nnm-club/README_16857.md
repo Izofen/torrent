@@ -1,24 +1,25 @@
-###  Публикация: 1228949   (629969) от 04.06.2018
+###  Публикация: 1229449   (626468) от 06.06.2018
 
-Векторный клипарт - Ramadan Kareem vector calligraphy design #1 [EPS]
+Moral Support - Insanity (1985) Limited Edition, Reissue, Remastered, Unofficial Release, 2017, Sound Philosophy [FLAC|Lossless|tracks + .cue] <Synthpop>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629969.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_626468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Рамадан Карим
-5 EPS + previewФормат: EPS
+01. Insanity
+02. Chasing Rainbows
+03. Whatever Turns You On
+04. Strange Day For Dancing(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:44:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD38905BE066ADCDC7847FA65E44AF1A784CF2ED
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,27 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229089   (629970) от 04.06.2018
+###  Публикация: 1229435   (626469) от 06.06.2018
 
-Векторный клипарт - Ramadan Kareem vector calligraphy design #15 [EPS]
+Журнал | Золотые рецепты наших читателей №11 (июнь 2018) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629970.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_626469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Рамадан Карим
-5 EPS + previewФормат: EPS
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BABCE3F0C73EAD20933B29593BA07E1DB3DC074D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,27 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228954   (629971) от 04.06.2018
+###  Публикация: 1229434   (626470) от 06.06.2018
 
-Векторный клипарт - Ramadan Kareem vector calligraphy design #3 [EPS]
+Газета | Наша кухня №6 (268) (июнь 2018) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629971.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_626470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Рамадан Карим
-5 EPS + previewФормат: EPS
+«Наша кухня» - журнал о кулинарии. С его помощью можно запросто составить меню на каждый день и для праздничного стола, ведь в нём всё просто и доступно, так как основу каждого номера составляют проверенные читательские рецепты блюд с фотографиями. И тогда приготовление блюд превращается в удовольствие!Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F47412959D272F30ADDA3323E2C202862779D001
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,27 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229247   (629972) от 04.06.2018
+###  Публикация: 1229438   (626471) от 06.06.2018
 
-Векторный клипарт - Floral Borders Elements Set 62 [AI]
+Журнал | Садовод и огородник №11 (июнь 2018) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629972.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_626471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Набор цветочных узоров
-3 AI +TIFF PreviewФормат: AI
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Только в «Садоводе и огороднике»: самые актуальные и полезные советы от ученых, а также проверенные толковые подсказки от садоводов-любителей. Журнал знакомит своих (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F03A2744F0D718FC13CD5B79EA4CAB8C2C2256A1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,27 +105,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229038   (629973) от 04.06.2018
+###  Публикация: 802260   (626484) от 06.07.2014
 
-Е. В. Тарле | Отечественная война 1812 года и разгром империи Наполеона (1941) [DJVU, PDF]
+Пчелиные истории / The Hive (2010) DVD5 (Сезон 01, Серии 01-08 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот жужжащий, жужжащий мир! Пчелиный улей - дом для счастливого и дружного пчелиного семейства. Папа-пчела, Мама-пчела и их дети Базз и Руби - они похожи на самую обычную семью, за исключением того, что они маленькие, полосатые и постоянно жужжат! В школе Медовой росы готовятся отмечать юбилей, проводят день спорта и урок по оказанию первой помощи. Базз пробует (   Читать дальше...   )Производство: Великобритания / Disney Junior, DQ Entertainment, Lupus Films, Monumental ProductionsЖанр: Мультфильм, Семейный, Детский, ПриключенияРежиссер: Ray MerrittПеревод: ДублированныйПродолжительность: Серия по ~00:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C941AD67694192627F7B97D9F710CA93AFAF7E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802762   (626485) от 06.07.2014
+
+Подшивка журналов | Elektronika Praktyczna (2013) [PDF] [Pl]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626485.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Elektronika Praktyczna" ("Практическая электроника") - журнал для радиолюбителей и профессионалов о новинках электроники на польском языке. В каждом номере приведены теоретические сведения, интересные статьи по технике и электронике, новинки в области электроники, справочные данные по электронным компонентам, практические конструкции разнообразной (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A56A9D8470689F6B458C0A9C8F384996C43064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035624   (626500) от 17.07.2016
+
+В. А. Мезенцев | Энциклопедия чудес (1990) [DJVU, PDF]
 
 >>Научная и техническая литература
->>Историческая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629973.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Из всех войн Наполеона война 1812 года является наиболее откровенно империалистской войной, наиболее непосредственно продиктованной интересами крупной французской буржуазии.
-
-Для России борьба против нападения Наполеона была единственным средством сохранить свою экономическую и политическую самостоятельность, спастись не только от разорения, которое несла с собою (   Читать дальше...   )Жанр: История, политологияФормат: DJVU, PDF
+В трёх книгах автор рассказывает о многих явлениях живой и неживой природы и даёт этим явлениям материалистическое объяснение. Книги переводились на многие иностранные языки и языки народов Советского Союза. Издание предназначено для широкого круга читателей.Жанр: История, естествознаниеФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8709AECA0AAAC02E3206248FD435B1FEF38F64C
+magnet:?xt=urn:btih:93960E208822A166839C817D82FE3338B279BCF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,28 +183,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229143   (629974) от 04.06.2018
+###  Публикация: 1035634   (626501) от 17.07.2016
 
-VA - Popular Megasonic (2018) [MP3|320 Kbps] <Pop, Dance>
+RidNacs 2.0.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626501.jpg" />
+</div>
+
+
+###  Подробнее
+
+RidNacs - быстрое средство анализа использования дискового пространства для Microsoft Windows. Программа сканирует локальные диски, сетевые диски или отдельные каталоги и представляет данные  в виде дерева папок с процентными гистограммами. Это предоставляет пользователю быстрый и простой способ определить наибольшие каталоги, что может быть очень полезным для очистки (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F811A71DDEFD9AC25EB049DC3226D744EA8E5162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035446   (626502) от 17.07.2016
+
+VA - С днем рождения, Натали! (2016) 5CD [MP3|320 Kbps] <Шансон, Авторская песня, Поп>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629974.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Zedd, Maren Morris - The Middle
-002. Bruno Kauffmann - Make It Love
-003. Years & Years - Sanctify
-004. Vegedream - La rue(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:30:56
+01. Аркадий Хоралов - С днём рождения, Наташенька! (04:06)
+02. Александр Малинин - Кто послал мне тебя (04:03)
+03. Стас Михайлов - Всё для тебя (03:52)
+04. Владимир Кузьмин - Сказка в моей жизни (04:49)(   Читать дальше...   )Жанр: Шансон, Авторская песня, Поп, РокПродолжительность: 06:23:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41CF282815821D73B8E50C811392E80C1B751B1C
+magnet:?xt=urn:btih:240F03D196F7083784CB27FC58A1D528BFAA6E55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,28 +238,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294227   (629975) от 07.04.2019
+###  Публикация: 1035587   (626503) от 17.07.2016
 
-VA - Record Super Chart 581 (2019) [MP3|320 Kbps] <House, Club, Dance>
+Ю.Б. Кудасов | Электрофизические измерения (2010) [PDF]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629975.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Calvin Harris & Rag'n'Bone Man - Giant
-02.  Denis First & Reznikov & Bright Sparks - Shameless
-03.  Gaulin  -  Moonlight
-04.  Filatov & Karas - Au Au(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:16
+Излагаются физические основы методов измерения магнитных и электрических полей, токов, а также электрофизических характеристик веществ, включая высокочастотные и сверхвысокочастотные методы. Значительное внимание уделено особенностям измерений в условиях сильных импульсных полей и способам борьбы с электромагнитными помехамиЖанр: Метрология, радиоизмеренияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BA0C1DB993496983097602D8727615789A6E1D6
+magnet:?xt=urn:btih:A9E3BAF8EEB4B5D63C5EEFE5A3999456C6594A02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,28 +264,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294373   (629976) от 07.04.2019
+###  Публикация: 1035451   (626504) от 17.07.2016
 
-VA - Let's Dance - Das Tanzalbum (2019) 2CD [MP3|320 Kbps] <Pop>
+Газета | Кулинарный клуб. Пальчики оближешь №2 (80) (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета предлагает рецепты соусов и заправок, расскажет о секретах консервирования и хранения.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000B01189C6516BD17D6661D94B2255C8441DF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035580   (626505) от 17.07.2016
+
+Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
 
 >>Pop
->>Зарубежная поп-музыка
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629976.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 01:
-01. Queen - I Want To Break Free (Foxtrott - Cha Cha)
-02. Rick James - Super Freak (Cha Cha)
-03. Santana Feat. Rob Thomas - Smooth (Radio Edit) (Cha Cha)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:58
+01. Hello Mr. Monkey
+02. Fly High Little Butterfly
+03. Buggy Boy
+04. Friday Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BD340D008E915E0BE93E1D409DEC05AF91D6ADB
+magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,25 +319,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294270   (629977) от 07.04.2019
+###  Публикация: 1035579   (626506) от 17.07.2016
 
-Первая передача на НТВ. Автомобильная передача (07.04.2019) SATRip
+Сюзанна Саркисян | Вкусное путешествие по Армении (2016) [PDF]
 
->>Документалистика и Телепередачи
->>За рулем
+>>Разное (категория книг)
+>>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629977.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нашествие гигантских кузнечиков и грузовик на задних «копытах»: «Первая передача» в мире автомутантов! А также — как виновники ДТП аннулируют свою страховку?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:28:04
+Есть на земле места, которые не только остаются в памяти на всю жизнь, но и меняют наше представление о ней. Просто потому, что они проникают в душу и оставляют в ней свой неизгладимый след. Одно из таких мест – Армения. Чтобы познать эту страну, недостаточно взгляда на её изумительные и многообразные природные ландшафты, на шедевры древней архитектуры, многочисленные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78ADB3B619E0159AC562B61CD3205961A376589B
+magnet:?xt=urn:btih:FDC6AA1AFDBBBFA352FBC9483E0015775468D232
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,28 +345,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294451   (629978) от 07.04.2019
+###  Публикация: 1035381   (626507) от 17.07.2016
 
-VHS Dreams - Lost World (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+Ван Хельсинг / Van Helsing (2004) AC3 5.1 [Solod]
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Остальное
+>>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629978.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Song I Once Heard (5:47)
-02. Holon (The 4th Dimension) (7:38)
-03. A Midday Summer's Dream (6:06)
-04. Journey (5:01)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:49:08
+Глубоко в Карпатах лежит таинственная страна Трансильвания — мир, в котором зло встречается на каждом шагу, мир, в котором опасность оживает с заходом солнца, и где монстры, живущие в глубине человеческих кошмаров, обретают форму. В этот мир попадает легендарный охотник на чудовищ Ван Хельсинг, рождённый на страницах романа «Дракула» Брэма Стокера.
+В своей непрерывной (   Читать дальше...   )Производство: США, ЧехияЖанр: Фэнтези, Приключения, Ужасы, БоевикРежиссер: Стивен СоммерсАктеры: Хью Джекман, Кейт Бекинсейл, Ричард Роксбург Дэвид Уэнэм, Шулер Хенсли, Елена Анайя, Уилл Кемп, Кевин Дж. О’Коннор, Алан Армстронг, Сильвия КоллокаПеревод: Одноголосый любительский закадровый - SolodПродолжительность: 02:11:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F00CF472855A5A79D721513E84C230425D101FBB
+magnet:?xt=urn:btih:907DE367B6DE9304F46327FCFFF23F97BBC1E6A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,28 +372,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294449   (629979) от 07.04.2019
+###  Публикация: 1035633   (626508) от 17.07.2016
 
-VHS Dreams - TRANS AM (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+Рима Раднер | Счастье. Инструкция по применению (2012) [PDF, DJVU]
 
->>Архив торрентов
->>Архив Музыки
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629979.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vice Point (3:43)
-02. Miami 2K15 (5:13)
-03. Highway Lovers (4:04)
-04. R.E.D.M (3:34)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:41:39
+Перестаньте мечтать и надеяться, что счастье придет само, и научитесь создавать его для себя сами. В этой книге специалист по коучингу в области счастья Рима Раднер описывает новаторский "инструментарий счастья", дающий возможность избежать самых распространенных причин несчастья и депрессии, с которыми всем нам время от времени приходится сталкиваться. (   Читать дальше...   )Жанр: ПсихологияПеревод: Д. КуликовФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F17CE4FAA6A4909CE71B4BEAC3F118B49BF05E2
+magnet:?xt=urn:btih:CDCBD6EC7F63B4139B6BFDE497E701C400113806
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,28 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294365   (629980) от 07.04.2019
+###  Публикация: 1035527   (626509) от 17.07.2016
 
-VHS Dreams - Lost World (2018) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+Stellar Drive Clone 3.5 [En]
 
->>Архив торрентов
->>Архив Музыки
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629980.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Song I Once Heard (5:47)
-02. Holon (The 4th Dimension) (7:38)
-03. A Midday Summer's Dream (6:06)
-04. Journey (5:01)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:49:08
+Stellar Drive Clone – программное обеспечение, предназначенное для эффективного клонирования томов и для резервного копирования полезных данных
+ 
+- Создает точную, идентичную копию вашего Mac диска на другой диск / HD
+- Клоны дисков, отформатированные с MBR (Master Boot Record)(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 мая 2016Разработчик: Stellar Information Technology Private LimitedПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64B579553080B5AACAAF741E0B1F777C4C578024
+magnet:?xt=urn:btih:F2E1FEFFA1F7FE30F2156EFCB1BED0F6B0CDC5B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,28 +427,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294327   (629981) от 07.04.2019
+###  Публикация: 1035599   (626510) от 17.07.2016
 
-Nicki Parrott - From New York To Paris (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
+Сергей Капелюх | Электронная почта: Самоучитель (2006) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629981.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Love Paris
-02. There's A Boat Leaving Soon For New York
-03. I Will Wait For You
-04. On Broadway(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:59:01
+Книга предназначена для самостоятельного обучения работе с электронной почтой в повседневной жизни: дома и в офисе. Подробно описаны этапы получения электронного почтового ящика, вопросы настройки и использования почтовой программы, способы зашиты от спама и вирусов.
+Приведены решения типичных проблем, которые возникают при работе с почтой: как прочитать нечитаемое (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFA66A2B866D7103DAB908B13B91D212A2C74AAC
+magnet:?xt=urn:btih:462C5EBE194A0D88C43DDFE9735B084006487494
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,28 +454,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294358   (629982) от 07.04.2019
+###  Публикация: 1035600   (626511) от 17.07.2016
 
-Silver Bullet - Mooncult (2019) [MP3|320 Kbps] <Power Metal, Symphonic Metal>
+Создан робот, столь мастерски играющий в бадминтон, победить которого не сможет ни один человек
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>След.
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629982.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_626511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 - 1590 Edinburgh (Intro) (2:05)
- 2 - She Holds the Greatest Promise (5:06)
- 3 - Forever Lost (4:45)
- 4 - Maiden, Mother and Crone (4:47)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:55:39
+Специалисты в области робототехники периодически "развлекаются" тем, что периодически создают роботов, способных играть в одну из спортивных игр. И не очень важно, что удерживается манипулятором робота, ракетка для пинг-понга, специальное устройство для бросания мячей или пластмассовый клинок, роботы, за счет высокой точности их движений, скоростной обработки (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E582FC9C7D283F4E180372257576F194C9FEB1E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,137 +480,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294325   (629983) от 07.04.2019
+###  Публикация: 1035574   (626512) от 17.07.2016
 
-Журнал | Наша история №2 (6) (апрель-май 2019) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал посвящён истории России.Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75DC70970CBB264C85E3D46328FBC4E9699769B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294339   (629984) от 07.04.2019
-
-Shwamp - Inner Landscape (2019) Mindspring Music [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Dub, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Lost (07:40)
-02. Dragonfruit (05:42)
-03. Who Are You (05:08)
-04. Floating Sunrise (06:43)(   Читать дальше...   )Жанр: Psychill, Downtempo, Dub, AmbientПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88298577E29410762E78ED4C753421FF2F341B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294375   (629985) от 07.04.2019
-
-Jayda G - Significant Changes (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629985.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Unifying The Center (Abstract) (03:13)
-2. Renewal (Hyla Mix) (04:58)
-3. Stanley’s Get Down (No Parking On The DF) (05:22)
-4. Leave Room 2 Breathe (Feat. Alexa Dash) (07:00)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93CD1FB8B545EA37E1A740F7DBAF716F05459E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294361   (629986) от 07.04.2019
-
-Журнал | История от "Русской семёрки" №4 (2019) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «История от «Русской Семерки»» - уникальный журнал, охватывающий все аспекты истории мировой цивилизации.
-Исторический журнал нового поколения, позволяющий узнать о ключевых событиях российской и мировой истории в доступной, современной и развлекательной форме.
-Журналисты проекта по-новому раскрывают известные исторические события, исторические фигуры, открывают (   Читать дальше...   )Жанр: популярный исторический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27573E7CEA1894D28C24A5A48F4AE27FC3787476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294309   (629987) от 07.04.2019
-
-Журнал | Архивы ХХ века №1 (февраль 2019) [PDF]
+Журнал | Дилетант №7 (июль 2016) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629987.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bauer Media Group — одна из самых успешных и передовых медиа-компаний в мире. Имея около 570 журналов, более 300 интернет-проектов и около 50 телевизионных и радиоканалов, она является значимым игроком в стремительно развивающейся и постоянно совершенствующейся индустрии. Стабильное развитие и успех компании под руководством издателя Ивонн Бауэр (Yvonne Bauer) являются (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы. В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B6FF4549FF867CE62C8BC2E98BEB9ABAA5D6D5C
+magnet:?xt=urn:btih:215F318156E4B50A93DFC887D61DC89318FBE17C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,28 +506,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294268   (629988) от 07.04.2019
+###  Публикация: 1035583   (626513) от 17.07.2016
 
-The Neal Morse Band - The Great Adventure (2019) 2CD [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+VA - Бомба Года Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629988.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 	Overture
-02. 	The Dream Isn't Over
-03. 	Welcome To The World
-04. 	Momentary Change(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:43:47
+01. Нетсмысла - Мегаполис
+02. Никита Хазановский - Воробьи
+03. Mozgi - Полицаи
+04. Quest Pistols - Непохожие(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74CC32F87FB73BD1389F9B404F10498431F7FC9C
+magnet:?xt=urn:btih:01EE728E85BA3B01F85EDD93B8F174CC16C565F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,28 +535,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294424   (629989) от 07.04.2019
+###  Публикация: 1035283   (626514) от 17.07.2016
 
-Nat King Cole - Ultimate Nat King Cole (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Swing, Easy Listening>
+Виктор Некрасов | В окопах Сталинграда (2013) [MP3, Владислав Антонов ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629989.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. (Get Your Kicks On) Route 66 (3:01)
-02. Straighten Up And Fly Right (2:25)
-03. (I Love You) For Sentimental Reasons (2:53)
-04. Sweet Lorraine (3:09)(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 01:00:13
+В эту книгу Виктора Платоновича Некрасова (1911 - 1987) включены произведения, рассказывающие о военных событиях сталинградского периода: повесть "В окопах Сталинграда" (Государственная премия 1947 года), продолжение ее "Чертова семерка" и несколько рассказов.
+Главное в этих произведениях - правда о войне, правда, которую носят в сердце ветераны (   Читать дальше...   )Жанр: военная прозаИздательство: Нигде не купишьПродолжительность: 14:42:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:861855759EC8A01F98524B622E60DE9F261FBAEB
+magnet:?xt=urn:btih:535C9DC4F470DEE7E402E2E9E7DFE87BBFAA57A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,28 +562,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294348   (629990) от 07.04.2019
+###  Публикация: 1035769   (626515) от 17.07.2016
 
-Thump'n Pig & Puff'n Billy - Downunda (1973) CD, Remastered, 2005, Aztec Music [MP3|320 Kbps] <Classic Rock, Blues Rock, Rock'n'Roll>
+Т.Е. Демидова и др. | Математика. 1 класс. В 3-х частях (2016) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629990.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Captain Straightman
-02. I've Cried over You
-03. You Look After Me, I Look After You
-04. Moving with Rock(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Rock'n'RollПродолжительность: 01:01:03
+Данное издание является учебником, поэтому не предназначено для письменного выполнения заданий непосредственно на его страницах. Учебник «Математика» для 1 класса соответствует Федеральному государственному образовательному стандарту начального общего образования. Является продолжением непрерывного курса математики тех же авторов и составной частью комплекта учебников (   Читать дальше...   )Жанр: МатематикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4800413C9477A4E20B539DD0B2F599D399314768
+magnet:?xt=urn:btih:8417B1832E697A87AA0A861483892D5D98F710ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,28 +588,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294255   (629991) от 07.04.2019
+###  Публикация: 1035620   (626516) от 17.07.2016
 
-Sopor Aeternus & The Ensemble of Shadows - Death and Flamingos (2019) [FLAC|Lossless|tracks] <Rock, Deathrock>
+Антон Чиж, Дмитрий Емец и др. | Котики и кошечки [сборник] (2016) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629991.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Side A (0:27)
-02.Kinder Des Teufels (3:30)
-03.Spellbound (3:10)
-04.The Boy Must Die (5:08)(   Читать дальше...   )Жанр: Rock, DeathrockПродолжительность: 00:42:36
+На чем держится современный мир? Можно смело утверждать – на котиках! Они – главный тренд нашего времени: рулят настроением, повышают продажи. И реальные, и виртуальные кошки и коты дарят нам счастье. Как только из глубин интернета выпрыгнет к вам очередное фото с усатым-полосатым, жизнь налаживается. Скольких людей спасла от депрессии умильная кошачья мордочка, (   Читать дальше...   )Жанр: Рассказы, Современная русская литератураФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:305FF890EADA9EEF1D7E55ACDC5C4AB84E4CB511
+magnet:?xt=urn:btih:55DD054B45592D15865C4515C37778A88E7E5FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,28 +614,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294294   (629992) от 07.04.2019
+###  Публикация: 1035547   (626517) от 17.07.2016
 
-Boy Howdy - Welcome to Howdywood (1992) [FLAC|Lossless|tracks + .cue] <Country>
+VA - Ghostbusters / Охотники за привидениями (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
 
 >>Other Styles
->>Folk (Lossless)
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629992.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bring On The Teardrops [0:03:01.40]
-02. Love Is Easy [0:03:07.68]
-03. If This Is Love [0:05:20.25]
-04. In Another Tear From Now [0:03:27.02](   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:39.
+01. Walk The Moon - Ghostbusters (03:45)
+02. G-Eazy - Saw It Coming (Feat. Jeremih) (03:30)
+03. Elle King - Good Girls (02:59)
+04. 5 Seconds Of Summer - Girls Talk Boys (03:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:46:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3E1A7BF68028AB8FED47D2F3B85FFC76DBD3315
+magnet:?xt=urn:btih:2B9B484F3153D607621C42170ED31F045DE46021
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +643,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294366   (629993) от 07.04.2019
+###  Публикация: 1035628   (626518) от 17.07.2016
 
-Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
+VA - Blue Pills Lounge: Love Making, Tantric Massage, Smooth Jazz (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Pop
->>Зарубежная поп-музыка
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629993.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Swing All Night Long With You
-02 - Stronger Than The Truth
-03 - Storm In A Shot Glass
-04 - Tammy Wynette Kind Of Pain(   Читать дальше...   )Жанр: CountryПродолжительность: 00:47:28
+01. Slip 'n' Slide - I Took A Sexy Pill In Ibiza - Generic Glitch Foreplay Mix
+02. Lemonjazz - Close Your Eyes - Erotic Sunset to Sunrise Mix
+03. Swinging Jazz Orchestra - Beyond the Star - Midnight Passion Mix
+04. Perelandra - Mind Flies(   Читать дальше...   )Жанр: Downtempo, Chillout, Smooth JazzПродолжительность: 01:20:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C8921E281E9A043AC767BB1D794F82D0B1A6699
+magnet:?xt=urn:btih:E2B9E35125BAAF8293A78EBBD18750737E1DF3A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,28 +672,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294230   (629994) от 07.04.2019
+###  Публикация: 1035776   (626519) от 17.07.2016
 
-VA - Solee - 10 Years Parquet Recordings (2016) Parquet Recordings [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House>
+Benny Benassi - Danceaholic (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629994.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626519.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Solee - Ten (Original Mix) (08:19)
- 02. Solee - Ten (Petar Dundov Remix) (08:59)
- 03. Solee - Ten (Luca Bacchetti Endless Remix) (08:25)
- 04. Solee - Ten (Habischman Remix) (07:08)(   Читать дальше...   )Тип издания: WEBЖанр: Tech House, Deep House, Progressive House •Продолжительность: 00:47:43
+01. Benny Benassi & Chris Brown – Paradise
+02. Benny Bennasi – Danceaholic
+03. Benny Benassi feat. Richard Judge – Out Of Control
+04. Benny Benassi feat. BullySongs – Universe(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:00:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:947726DE40A4C0D5606CB403365500A073228FCF
+magnet:?xt=urn:btih:6F12BF0051EE238FF2215BD0EB05821F07F411A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1152190   (566821) от 22.07.2017
+
+Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer - The Mole (05:36)
+02. Hans Zimmer - We Need Our Army Back (06:28)
+03. Hans Zimmer - Shivering Soldier (02:52)
+04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B57E9D06CFA17781CAACC15FB888616775B333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152189   (566849) от 22.07.2017
 
 Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -752,35 +781,6 @@ Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечнос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78BA5EEEC4903FC8D84EB663643F1AA5EEEB5F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554988   (572250) от 02.06.2022
-
-Olga Stankevich - Alone With the City (2014) [FLAC 2.0|48/24|WEB-DL|tracks] <Instrumental Pop, Piano>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moscow Midnight (3:26)
-02. Beyond the Time (4:33)
-03. Smile (3:09)
-04. Recalcitrance (5:17)(   Читать дальше...   )Жанр: Instrumental Pop, PianoПродолжительность: 00:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04380B740E6D18E8CB38BA41C8E69E5A5663669F
 ```
 
 https://mybot314.ru/tekegram_catalog/

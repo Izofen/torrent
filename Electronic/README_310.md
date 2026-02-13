@@ -1,3 +1,32 @@
+###  Публикация: 1231062   (608661) от 16.06.2018
+
+VA - Global Explosion Progressive House 8 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Paul Sparkes - Worgull (original)
+02.  C-Jay - Shogun (Dirty Disorder remix)
+03.  Alexi Bongioanni - Do It Yourself (original mix)
+04.  Downpour - Cloudy (original mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E96626243AFDB2292F344726DE6D3156449E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037998   (608715) от 27.07.2016
 
 Jens Buchert - Elevation (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lounge, Downtempo>
@@ -713,35 +742,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26DC0E00217721BDBB1AB7A5CA101CE93F4DE495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230900   (610585) от 15.06.2018
-
-VA - Markus Schulz - Global DJ Broadcast Top 20 June (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DT8 Project - Climb (Original Mix)
-02. Ferry Corsten & Paul Oakenfold - A Slice Of Heaven (Extended Mix)
-03. Vadim Zhukov - Travelling (Mike Saint-Jules Interstellar Mix)
-04. Dylhen - Brouhaha (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922CC90DCC584B3E46F90373954CA7F17DA0676B
 ```
 
 https://mybot314.ru/tekegram_catalog/

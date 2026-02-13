@@ -1,3 +1,38 @@
+###  Публикация: 289452   (915160) от 02.02.2011
+
+Owl City - Ocean Eyes Deluxe Edition-2CD (2009) [FLAC|Lossless]<synthpop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915160.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+  1. Cave In (00:04:02)
+   2. The Bird and the Worm (00:03:28)
+   3. Hello Seattle (00:02:47)
+   4. Umbrella Beach (00:03:51)
+   5. The Saltwater Room (00:04:03)
+   6. Dental Care (00:03:11)
+   7. Meteor Shower (00:02:14)
+   8. On the Wing (00:05:01)
+   9. Fireflies (00:03:48)(   Читать дальше...)Жанр: synthpop, ElectronicПродолжительность: 1:48:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097351   (915219) от 26.01.2017
 
 Infected Mushroom - Return To The Sauce (2017) [MP3|320 Kbps] <Psy-Trance, Dubstep, Electro House>
@@ -716,32 +751,6 @@ Tiesto - Club Life 750 (Top 50 Fan Favorites) (2021-08-13) [MP3|192 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:520BC37CEB315392D449FBC816A6BD7374049366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490537   (917572) от 21.08.2021
-
-Leaving Laurel - Leaving Laurel (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Deep House, Progressive HouseПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1E0745986B31210F15989AF2206F47E6C656A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

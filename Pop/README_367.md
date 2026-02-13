@@ -1,3 +1,177 @@
+###  Публикация: 1602631   (1046023) от 06.01.2023
+
+Bee Gees - Mr. NATURAL (1974) SHM-CD, Japanese Edition, Reissue, 2022, Capitol Records [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charade 4:12
+02. Throw a Penny 4:52
+03. Down the Road 3:20
+04. Voices 4:50(   Читать дальше...   )Жанр: Pop Rock, BalladПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672006782EB1CDD42F31A1D64802FB0E3E7C3C41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602659   (1046044) от 06.01.2023
+
+Duran Duran - Astronaut (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.(Reach Up For The) Sunrise 03:26
+02.Want You More 03:37
+03.What Happens Tomorrow 04:05
+04.Astronaut 03:24(   Читать дальше...   )Жанр: Electronic, Rock, Pop RockПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782D4E0C7D8C59CC33F56F35F3964780A4431635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602448   (1046105) от 05.01.2023
+
+Mariah Carey - #1's (1999) [OGG Vorbis|480 Kbps] <Hip Hop, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetheart
+02. When You Believe (from The Prince Of Egypt)
+03. Whenever You Call
+04. My All(   Читать дальше...   )Жанр: Hip Hop, Pop, VocalПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5670DCD03D68D0C29E5391F5A960C4E44BED7C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602313   (1046113) от 05.01.2023
+
+Stevie Wonder - Fulfillingness' First Finale (1974) Reissue, Remastered, 2011, Motown [OGG Vorbis|480 Kbps] <Funk / Soul, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile Please  3:29
+02. Heaven Is 10 Zillion Light Years Away  5:03
+03. Too Shy To Say  3:28
+04. Boogie On Reggae Woman  4:57(   Читать дальше...   )Жанр: Funk / Soul, SoulПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71FAC7E85DBEF44C74C58307FFBD494BCF420B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602233   (1046114) от 05.01.2023
+
+Celine Dion - Falling Into You (1996) Reissue, 2015, Sony Music [OGG Vorbis|480 Kbps] <Soft Rock, Synth-pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's All Coming Back To Me Now
+02. Because You Loved Me (Theme from 'Up Close & Personal')
+03. Falling Into You
+04. Make You Happy(   Читать дальше...   )Жанр: Soft Rock, Synth-pop, BalladПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115BF795DB22CE133674D2698FCA28664BD281BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602250   (1046202) от 04.01.2023
+
+Илья Киреев - Vegas City Hall (Live) (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - И даже если (Live) [00:06:12]
+02 - Куда уходят корабли (Live) [00:05:26]
+03 - Слушай Молись Люби (Live) [00:05:46]
+04 - Лунатики (Live) [00:04:33](   Читать дальше...   )Жанр: PopПродолжительность: 01:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CA13D076633FF0E6A82C993E04EAFC4F68E291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601892   (1046252) от 03.01.2023
 
 Les Humphries Singers - The Best Of (2020) Rerecorded, OVC Media [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock, Gospel>
@@ -571,180 +745,6 @@ Greater Vision - Perfect Candidate (2000) [FLAC|Lossless|tracks + .cue] <Gospel,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8181CBB7CB20656256FF6854F550E0EE511D4B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844499   (1050112) от 26.12.2025
-
-Bee Gees - Greatest (1979) 2 x CD, Compilation, Reissue, 1987, Polydor [FLAC|Lossless|image + .cue] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Greatest - это сборник лучших хитов группы Bee Gees. Альбом был выпущен лейблом RSO Records в октябре 1979 года и представляет собой ретроспективу творчества группы за период с 1975 по 1979 год. Это была идеальная квинтэссенция звучания, которое вывело Bee Gees на вершину поп-музыкального мира. В то время это вызвало некоторое невысказанное недовольство у старых (   Читать дальше...   )CD1:
-01. Jive Talkin' (3:45)
-02. Night Fever (3:32)
-03. Tragedy (5:03)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BC42DFBE78D6A2EC5D441A38DE68F8C07E7117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844762   (1050179) от 28.12.2025
-
-VA - Venti Compilation 11 (2025) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Disco, Hi NRG, Electro, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Laszlo - This Life (I Venti Remix)
-02. Atrium - Dream With Me
-03. David Dima - Time Machine
-04. Gotcha! - This Is Your Time (Original)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRG, Electro, Synth-popПродолжительность: 02:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FB5E252F23754371ECDC2AB443B55CA0FB5F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844528   (1050319) от 27.12.2025
-
-Андрей Защитник - Таро (Deluxe album) (2026) [MP3|320 Kbps] <Indie-Folk, Indie-Pop, Synthwawe>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Таро
-02 Руна Любви
-03 Тёмный обряд
-04 Защитный заговор(   Читать дальше...   )Жанр: Indie-Folk, Indie-Pop, SynthwaweПродолжительность: 00:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA4F38F50953A960034FCAB4F09B42ED120CA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844934   (1050357) от 29.12.2025
-
-Baby's Gang - Challenger (Deluxe Edition) (2016) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Challenger
-02. Jamin
-03. Happy Birthday (To My Mammy)
-04. Happy Song (Remix)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, Synth-popПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974A8EE311FE32B20021B2393C2ED5543823440B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845308   (1050531) от 31.12.2025
-
-VA - Dos Décadas Dance (2001) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, House, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Cell - Tainted Love
-02. Visage - Fade To Grey
-03. Human League - Don't You Want Me
-04. Culture Club - Do You Really Want To Hurt Me(   Читать дальше...   )Жанр: Electronic, Italo-Disco, House, Synth-popПродолжительность: 06:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FF0A62A21E275BCC42A2F0CBE5D9FC232FE7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845659   (1050760) от 02.01.2026
-
-VA - Smash Hits Of The 80's (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yazz - The Only Way Is Up
-02. Kylie Minogue - I Should Be So Lucky
-03. Adam And the Ants - Antmusic
-04. Mel & Kim - Respectable(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Pop Rock, Synth-popПродолжительность: 02:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECFF0274F1B99A5431C8F9D896598A355C11E31
 ```
 
 https://mybot314.ru/tekegram_catalog/

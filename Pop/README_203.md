@@ -1,3 +1,177 @@
+###  Публикация: 1555761   (567357) от 05.06.2022
+
+Kiki Dee - 3 Albums (1977-1981) Reissue CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кики Ди (настоящее имя Полин Мэтьюс, Pauline Matthews; род. 6 марта 1947) - британская певица. Была первой белой блю-айд-соульной певицей, подписавшей контракт с мотауновским лейблом Tamla Records. За свою карьеру Кики Ди издала 40 синглов, 3 мини-альбома (EP) и 12 альбомов.Список альбомов:
+1977 - Kiki Dee
+1978 - Stay With Me
+1981 - Perfect Timing...Plus(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE1D0D31694CC3C7F9C27BF5455CF42346C51D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555708   (567483) от 05.06.2022
+
+J. C. Riffaud - Emotion Life And Happiness (1979) LP [MP3|320 Kbps] <Electronic, Jazz, Easy Listening, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunder Storm (4:09)
+02. Air Ticket (3:32)
+03. The Song Of Little Bird (3:30)
+04. Blue Morning (2:54)(   Читать дальше...   )Жанр: Electronic, Jazz, Easy Listening, DiscoПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3090FA2AD2ECB22AEB66AEA5719808ED1FAEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234782   (567857) от 07.07.2018
+
+Ника - Это не мой секрет (1997) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это не мой секрет 03:09
+02. Не обещай 04:02
+03. С часу до пяти 03:01
+04. До луны пешком 04:26(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F78E9415209D7A6CA469510DDDBE971211F6DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234781   (567877) от 07.07.2018
+
+Кристиан Рэй & МФ3 - Жар (1997) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567877.jpg" />
+</div>
+
+
+###  Подробнее
+
+02. "О-Э-О" Ветер перемен
+03. Тихий вечер
+04. Дикая кошка
+05. Город (диалог с наркоманом)(   Читать дальше...   )Жанр: РорПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC7D780D5A8314AAEFBFAD8CE6D5581C82738F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234653   (567889) от 07.07.2018
+
+Валерий Юрин (ex-На - На - Жизнь моя грешная (1995) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здравствуй, девочка моя
+02. Жизнь моя грешная
+03. Я устал
+04. Ночь желаний(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA96D8359645D143B39BB79837D91A4C316AEE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234635   (567896) от 07.07.2018
+
+Ken Laszlo - Best Of 1990-1998 (Maxi Singles & More) (2018) Compilation, Limited Edition [MP3|320 Kbps] <Disco, Dance-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Hey Guy ‘94 (05:34)
+02. Mary Ann (Thats The Lovely Mix) (05:43)
+03. Baby Call Me (Ken Hit Mix) (07:23)
+04. Happy Song (Happy Mix) (06:10)(   Читать дальше...   )Жанр: Disco, Dance-popПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD2242656AB353B70AC54881B059A5F1EA74D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234551   (567954) от 07.07.2018
 
 Krono - Krono (1979) LP [MP3|320 Kbps] <Electronic, Space Disco>
@@ -592,192 +766,6 @@ Czerwone gitary / Червоны Гитары - 16 альбомов (1966-2007) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B3008E0025A1D73CC2B2E86FC1E41EC7A5E43C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151373   (570510) от 20.07.2017
-
-Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Eurobeat, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover To Lover (For Sale) (AV Version) (08:13)
-02. Take My Heart (Vocal Version) (05:13)
-03. Recollection (Vocal Version) (07:03)
-04. I'm Your Lover (Vocal) (05:30)(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E418E763EE17C99779E23F9C6AAA7C687063960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043627   (570633) от 17.08.2016
-
-Wham! - The Final (1986) K2HD Mastering, 2014, Sony Music [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wham Rap! (Enjoy What You Do?) (6:42)
-02. Young Guns (Go For It!) (5:12)
-03. Bad Boys (3:20)
-04. Club Tropicana (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BC2B87163A75B03C7508586EB50161D71A1C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151679   (570703) от 20.07.2017
-
-Lee Towers - The Real… Lee Towers (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. You'll Never Walk Alone
-02. Frankie
-03. It's Raining In My Heart(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 03:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794B31FFA3E75CCAA0B6690248CDD831905D4F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812639   (570863) от 14.08.2014
-
-Babe - Hollands Glorie (2003) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Drunken Sailor
-02. Ooh La La I'm Falling
-03. Mister Blitzer
-04. Wanna Do (What Mamma Said)
-05. Please Me Please Do
-06. (Never Listen To A) Bouzouki Player
-07. I'm A Rocking Machine
-08. Wonderboy
-09. Billy Joe
-10. Indian Habbits(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22DB5801840F4E75C5FD6F3C2BE230DAA46D038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812637   (570865) от 14.08.2014
-
-Babe - Never Listen To A Bouzouki Player (2001) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Never Listen To A) Bouzouki Player
-02. Break Away
-03. Do You Know What Love Means
-04. It's Only A Matter Of Time
-05. L.O.V.E.
-06. Only A Woman
-07. Ooh La La I'm Falling
-08. Please Me, Please Do
-09. Rain In Spain
-10. The Spanish Shuffle(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D9FB8B49EA2085812D7C3F8B85C53E19383CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043700   (570921) от 17.08.2016
-
-Gwen Stefani - This Is What The Truth Feels Like (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery 03:26
-02. You’Re My Favorite 02:56
-03. Where Would I Be? 03:18
-04. Make Me Like You 03:36(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8757F7673FAF611D513362E4EE648658D2EA5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

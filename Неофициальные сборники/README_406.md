@@ -1,3 +1,67 @@
+###  Публикация: 513780   (658056) от 24.06.2012
+
+VA - Шоферской хитовичок в дорогу Vol. 4 (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658056.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Виталий Синица - Песня дальнобойщика (3:17)
+2. Юрий Соловей - Таксист (3:30)
+3. Юрий Белошевский - Инспектор ДПС (3:33)
+4. Катерина Голицына - Уезжаешь (3:11)
+5. Андрей Приклонский - Дорожная (4:25)
+6. Юрий Маковей - Полторуха (3:36)
+7. Евгений Шапорев - Такси - шансон (3:54)
+8. Владимир Самарин - Дорога (3:17)
+9. Сергей Куприк - Доброй дороги (2:57)
+10. Юрий Соловей - Дальнобойное сердце (2:56)2012Жанр: ШансонПродолжительность: 06:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67806DD47B860F9AA1FCEDDFEEBE62351C624D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902767   (658081) от 31.05.2015
+
+VA - Black (2015) [MP3|320 кб/с]<Techno, Electro, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658081.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tom Nihil - 5MeO (6:38)
+2. KATA - Hole Mole (5:22)
+3. SKuRR - Sledgehammer (6:17)
+4. PSyD - Step In To The Darkness (3:13)(   Читать дальше...   )Жанр: Techno, Electro, DubstepПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F289DED8B6F4E456D5DD96E96E1342103535E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513744   (658152) от 24.06.2012
 
 VA - Пляжная Дискотека Хит FM 50+50 (2012) [MP3|256 кб/с]<Pop>
@@ -717,64 +781,6 @@ VA - Дискотека 2017 Deep House - The Best Vol.3 от NNNB (2017) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BF1A32F44E3C57C5D9D0F50D2618872DD0CB919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902823   (659914) от 29.05.2015
-
-VA - I Love Italo Disco ot Vitaly 72 - 3 (2015) [MP3|320 кб/с]<Italo-Disco, Synth-pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659914.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aldo Lesina - Goodbye (Extended Power Mix) (07:18)
-002. Tonschatz - Midlife Dreams (Extended Club Mix) (04:57)
-003. Boris Zhivago - Once Upon A Time (05:21)
-004. The Crosslines - In The Heaven Of The Night (Sp Records Version) (05:29)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 03:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34DBF5275973BE498344D9C4E105DC6C89E02FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539056   (659939) от 23.03.2022
-
-VA - Deep Vocal Relax (2022) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zakir feat. Alex Ronin - Calling Your Mind (6:55)
-02. Deeperise, Mr.Nu, Tolgah - Just to Me (6:49)
-03. C-Block - So Strung Out (The Distance & Riddick Edit) (6:40)
-04. SevenEver - No Others (6:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDEB547C7C8A620810F6FBD1F3E24F5356BDF343
 ```
 
 https://mybot314.ru/tekegram_catalog/

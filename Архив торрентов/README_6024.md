@@ -1,393 +1,31 @@
-###  Публикация: 1352746   (1000780) от 15.01.2020
+###  Публикация: 598452   (1000057) от 04.01.2013
 
-Benvista PhotoZoom Pro 8.0.6 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000780.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoZoom Professional - программа является лучшей из имеющихся технологий для увеличения цифровых фотографий! Фирменная технология масштабирования S-Spline, используемая в PhotoZoom Professional, основана на запатентованной адаптивной методике, которую можно отнести к категории революционных. Сохраните качество Ваших снимков! Теперь Вы сможете увеличивать Ваши фотографии (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CA147E5CFC4B85E94FE1693F2A7FB9A51FA37C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352781   (1000782) от 15.01.2020
-
-VirtualBox 6.1.2 Build 135662 + Extension Pack [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000782.jpg" />
-</div>
-
-
-###  Подробнее
-
-VirtualBox - специальная программа для создания в памяти ПК виртуальных компьютеров. Каждый виртуальный компьютер может содержать произвольный набор виртуальных устройств и отдельную операционную систему. Область применения виртуальных компьютеров очень широка - от выполнения функций по тестированию ПО до создания целых сетей, которые легко масштабировать, распределять (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03D37B05F46ED601059472379211CAD189C6150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352598   (1000786) от 15.01.2020
-
-Need For Speed Shift v2.0.29 [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need For Speed Shift - что тут можно добавить - легендарные гонки теперь и на Андроид! Обрисуем основные моменты, вам предстоит 3 режима прохождения: Evolution - участие в гонках, покупка машин, тюнинг, ремонт, продажа и пр.
-Factory Driver - выполнение заданий (подвезти друга, проехать по заданному маршруту и др.)
-а также есть режим Одиночной гонки.
-Всего вас ждет (   Читать дальше...   )Тип издания: VIP (Эксклюзив не имеющий страницы в Google Play)Релиз состоялся: 18 сентября 2009Разработчик: ELECTRONIC ARTSПоддерживаемая ОС: Android 2.1+Жанр: Гонки, CимуляторыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B2CFD4D3E0645B78AE2C553553583AB77618C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352890   (1000790) от 15.01.2020
-
-Adobe Audition 2020 13.0.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition 2020 представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C5694EC418E075D5C7F5783AF4C6D772375C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352804   (1000799) от 15.01.2020
-
-Hard Disk Sentinel Pro 5.50 Build 10482 Final RePack by Diakov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Disk Sentinel Pro - утилита для мониторинга и контроля состояния жестких дисков. Позволяет определить потенциальные проблемы, снижение производительности и возможные сбои. Может предупредить пользователя в случае обнаружения неполадок или превышения температуры.Ее возможности явно не покажутся лишними, особенно в случае особой ценности хранимых данных при росте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190CE377E522969581DD8F1D6478C3AA7B46220F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352532   (1000821) от 15.01.2020
-
-Cockos - REAPER 6.03 + Portable (x86/x64) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689D7CD001EAAA7BEB7CE56C2E16970E4D28A501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352474   (1000822) от 15.01.2020
-
-Reg Organizer 8.41 Final RePack (& Portable) by D!akov [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2B93B413F784507971D36EB1691FB4F6963211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352615   (1000829) от 15.01.2020
-
-Daum PotPlayer 1.7.21093 Stable RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E438DBE80B9D2130BF4774583C965C7A64C0A9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352747   (1000831) от 15.01.2020
-
-Games AdBlock 0.6.1 [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любите играть в игры на телефоне или планшете, но вам мешает постоянно всплывающая реклама? Тогда попробуйте к использованию приложение Games AdBlock , которое поможет избавиться от подобных проблем.Тип издания: Оригинал (Разорвана связь с Google Play)Релиз состоялся: 12 апреля 2019 годаРазработчик: Designal ProПоддерживаемая ОС: Android 5.0+Жанр: Блокировщики рекламыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D62FE76E4D239E1FC505FCE75C5AFE50038DE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352812   (1000839) от 15.01.2020
-
-RAM Saver Professional 20.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000839.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAM Saver Pro - инструмент для профессионального мониторинга, очистки и оптимизации оперативной памяти. Служит для повышения производительности операционной системы, освобождая оперативную память от драйверов и процессов MS Windows для приложений требующих максимальную загрузку процессора и оперативной памяти. RAM Saver Pro: дефрагментирует системную память для быстрого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F57619E57AF1BE659E1D8D54E70654A0303E1EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352683   (1000844) от 15.01.2020
-
-Helium Music Manager Premium 14.4.16330 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Helium Music Manager - многофункциональный музыкальный каталогизатор, дающий возможность систематизировать Вашу музыкальную коллекцию. Представляет из себя одновременно редактор тегов и имён файлов по тегам, музыкальную базу-каталог и создатель плейлистов по ней. Так же, есть возможность создания отчётов по коллекции и быстрый поиск по базе. Немаловажными плюсами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7F5FF424D7DE11CCB1AE6B8DABDBFE057A6EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352895   (1000845) от 15.01.2020
-
-Adobe Bridge 2020 10.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E542568D734EA8556E5992D7F84642456AD076A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352808   (1000847) от 15.01.2020
-
-NetLimiter 4.0.58.0 Pro RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000847.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetLimiter — утилита, которая позволяет собирать статистику об интернет-трафике, создаваемом любыми программами, а также контролировать трафик: Netlimiter позволяет выставлять ограничения на скорости скачивания/закачки для каждого приложения или соединения, осуществлять мониторинг их сетевой активности.
-Программа ведет детальную статистику в реальном времени, а при (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D950A49D879752DFE9F03D465C7CB367A826A7D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352898   (1000848) от 15.01.2020
-
-SAS: Zombie Assault 4 v1.9.0 [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000848.jpg" />
-</div>
-
-
-###  Подробнее
-
-SAS: Zombie Assault 4 – год 3104, и вирусная инфекция на планете транс- федерации угрожает судьбе человечества. Единственное, что останавливает этих новых и страшных орды зомби - это высококвалифицированные солдаты спецназа SAS. Выберите один из 3 классов уникальных персонажей и используйте полностью мастерство солдат в сочетании с сотнями оружия и брони, чтобы уничтожить (   Читать дальше...   )Тип издания: Мод Unlocked (Не ограниченное кол.во игровой валюты)Релиз состоялся: 28 октября 2016 годаРазработчик: ninja kiwiПоддерживаемая ОС: Android 2.3+Жанр: Экшены, вид с верхуЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6C0AFBACDD4DA77D363953682A694E6C1D0FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352672   (1000851) от 15.01.2020
-
-Laxenanchaos - Transform Ordinary Events Into Miracles (2018) Virgin Babylon [FLAC|Lossless|WEB-DL|tracks] <IDM, Breakcore>
+Spektre - Mutual Respekt 074 (2012) [MP3|320 кб/с]<Techno>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000851.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-1. Transform Ordinary Events Into Miracles 10:01
-2. Harlequin 07:03
-3. Dog With Snow 05:37
-4. South Island Hanabi 06:55(   Читать дальше...   )Жанр: IDM, BreakcoreПродолжительность: 01:13:58
+01. Spektre & Tom Laws - Psycho Diesel (Respekt)
+02. Roberto Capuano - Sharpness (Spektre Remix) (Analytic Trail)
+03. Snello - Calling Mars (Respekt)
+04. Alex Bau - Sidestep (Spektre Remix) (Respekt)
+05. Markantonio & Roberto Capuano - Pearl (Unrilis)
+06. Hertz - Break an Entry (Mikael Jonasson Remix) (Respekt)
+07. Mark Reeve - Drumatic (Drumcode)
+08. Tom Hades - Vocalismo (Kalden Bess Remix 1) (Rhythm Converted)
+09. Gary Beck - Algoreal (Soma)
+10. A/A - On The Bass Walk (Isolated System)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6021375C8B8B8C3B6392E9CC32B189D8A08EF95A
+magnet:?xt=urn:btih:716B8ABD78DF4AFA66D37AE3FA57064371C6CA5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,25 +33,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352816   (1000857) от 15.01.2020
+###  Публикация: 598718   (1000058) от 04.01.2013
 
-VKM - Музыка для ВКонтакте 1.0.4 [Ru/En]
+Журнал | Gladget №27 [январь 2013] [PDF] [En]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000857.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VKM - Музыка для ВКонтакте - прослушивайте любимые мелодии прямо из социальной сети ВКонтакте вместе с эти удобным приложением . Нет ограничений по категориям, а удобная навигация позволит вам наслаждаться музыкой, где бы вы ни находились, а сохранение любых песен в кэш позволит их прослушавать даже без интернета.Тип издания: VIP (Эксклюзив не имеющий страницы в Google Play)Релиз состоялся: 2 сентября 2018 годаПоддерживаемая ОС: Android 4.1+Жанр: Мультимедиа, музыкальные плеерыЯзык интерфейса: Русский, Английский
+Бесплатный электронный журнал о компьютерной технике, комплектующих и компьютерных играх для разных платформ: обзоры, плюсы-минусы, суммарные характеристики.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5F9D3FEBF8FA562FD46021EB1C4E59CF1A63FD9
+magnet:?xt=urn:btih:26FA2FB2B0F575B29050AF73A9A6F8C1C6E66A48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,53 +59,705 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352771   (1000858) от 15.01.2020
+###  Публикация: 598462   (1000060) от 04.01.2013
 
-IObit Driver Booster Pro 7.2.0.598 RePack (& Portable) by TryRooM [Multi/Ru]
+Ангельвания -  Камелот (2010) [MP3|224 кб/с]<Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000060.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Боль - 02:31
+2. Ланселот и Гвиневера - 04:12
+3. Перед Круглым Столом - 06:28
+4. Со мной - 02:34
+5. Флибустьер - гроза морей - 02:43
+6. Черный замок - 03:49
+7. Шторм - 02:53Жанр: power MetalПродолжительность: 00:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28733047F62542DFE71D1D015832FB1ED1B21E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597991   (1000064) от 04.01.2013
+
+Ad Plenitatem Lunae - Tempus Non Est Iocundum (2012) [MP3|320 кб/с]<Folk Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:51]
+02. Sante Agnes [00:03:33]
+03. Tempus Non Est Iocundum [00:05:17]
+04. Turcs! [00:05:29]
+05. I Intermezzo [00:01:26]
+06. Cogocars [00:06:17]
+07. 1511, 27 di Fevrar [00:04:22]
+08. L' Ustir [00:05:18]
+09. II Intermezzo [00:01:42]
+10. Canis Domini [00:06:08](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E0D59B0D9F2A2E2A462A6048C771CD67BA5009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598437   (1000065) от 04.01.2013
+
+Ant Prescott - Mutual Respekt 054 (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Alberto Pascual - Vertigo (Plus 8 Records)
+02. Xpansul & Alessio Mereu - Moldy Oscillator (Sasha Carassi Remix) (Analtictrail)
+03. Alan Fitzpatrick - Always Something For Nothing (Drumcode)
+04. Mr.Bizz - Rotational Movement (Respekt Recordings)
+05. Alan Fitzpatrick - Mohawk (Drumcode)
+06. Spektre & Matt Cooper - The Chemist (Sasha Carassi Remix) (Phobiq)
+07. Tom Laws - Twisted Cabaret (Organism)
+08. Tony Montana & D.A.V.E The Drummer - Freak 4 Me (Hydraulix)
+09. Markantonio & Roberto Capuano - T4 (Analytictrail)
+10. BodyScrub - Another Level (Phobiq)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BB2E1800A6752E0F4B8A2318FA338028A29EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598182   (1000066) от 04.01.2013
+
+M.PRAVDA - Live in Motion 107 (28.07.2012) Best of July [MP3|320 кб/с]<Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Tom Cloud - After Dark
+2. Andy Moor feat. Meredith Call - Undeserved
+3. Andy Moor feat. Sue McLaren - Rrespass
+4. Ashley Wallbridge feat. Audrey Gallagher - Bang the Drum (Omnia remix)
+5. Alex M.O.R.P.H feat. Shannon Hurley - Monday Morning Madness
+6. Eximinds - Sunrise 6am
+7. Radion 6 - Lost In Space
+8. Zara feat. Snatt & Vix - No Angel
+9. Dash Berlin - Silence in Your Heart (Antillas Remix)
+10. Alex M.O.R.P.H - Tales Of The Black Panther Pt.1(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165BCB8AA1BFC81FBF8EFDAFD6F4DC42B1E3BB0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597869   (1000067) от 04.01.2013
+
+Dawn Of Relic - Lovecraftian Dark (2002) [FLAC|Lossless]<Dark / Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000067.jpg" />
+</div>
+
+
+###  Подробнее
+
+chapter I - Throes Matrix
+01 - Dawn over Carcosa (02:07)
+02 - Masquerade of Sickness (The Eve of Reckoning) (04:38)
+03 - Throes Matrix (03:15)
+04 - Phosphor (03:55)
+05 - Scions of the Blackened Soil (04:16)
+06 - Wrathcast (03:55)
+07 - Watchtower Son (Lemurian Guard) (04:29)Жанр: Dark / Black MetalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598455   (1000068) от 04.01.2013
+
+Skober - Mutual Respekt 075 (2012) [MP3|256 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Dehnert - Refillable (Delsin Records)
+02. Alan Fitzpatrick - Skeksis (Drumcode)
+03. Timmo - Panic (Fone Audio)
+04. Skober - Dynamik (Respekt)
+05. Skober - Turn It Louder (Remain)
+06. Skober - Catacomb (Organism)
+07. Mark Reeve - Phobia (Soma Records)
+08. James Mile - Crumbles (8 Sided Dice)
+09. Skober - Uniminor (Speca)
+10. Sutter Cane - chemtrails (Phobiq)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70B83F51B424BC03095B69A9FE79AEAC44E4A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598448   (1000069) от 04.01.2013
+
+Tom Hades - Mutual Respekt 073 (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Faraone & Luca Agnelli - Floor Attack (Truesoul)
+02. Ruben Mandolini - Broke Jane (Coyu Edit) (Suara)
+03. Hans Bouffmyhre - Stress Control (Par Grindvik In The Fall Remix) (Sleaze)
+04. Frankyeffe - Grain (Justin Berkovi Remix) (Spark Music)
+05. Spektre & Tom Hades - Respekt The Rhythm (Analytic Trail)
+06. Luigi Madonna - City Liner (Excentric Muzik)
+07. Nicole Moudaber - The Road To Transformation (Drumcode)
+08. Axel Karakasis - Sealed (Remain)
+09. Tom Hades - Act Of Passion (Respekt)
+10. The Advent & A.Paul - Heron (LK Remix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F279D6F2B8D34C4084B23F4EBCB85EE36CDD9C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598432   (1000070) от 04.01.2013
+
+Redhead - Mutual Respekt 047 (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Bailey & RedHead - Start and Play (MB Elektronics)
+02. Exercise One - Top Score (Cocoon)
+03. Marco Bailey and Tom Hades - Realm
+04. Marco Bailey - Intense Substance (Gary Beck Remix) (MB Elektronics)
+05. Snello - Evergreen (Kalden Bess Remix) (Phobiq)
+06. Lorenzo D'Ianni - Random
+07. Mikael Jonasson - PranksterЖанр: TechnoПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFE2BB4FF33944B94B83B7EED5F9330A9EE3223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597684   (1000071) от 04.01.2013
+
+Grain - Dive In Sound (2012) [MP3|320 kbps]<Sludge Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Way Of Sun [05:41]
+ 02. Bite The Bullet [06:06]
+ 03. Dive In Sound [05:37]
+ 04. Dirty Breeze [05:36]
+ 05. Davidian (Machine Head cover) [05:47]
+ 06. Vote With A Bullet (Corrosion [03:23]Жанр: Sludge MetalПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4F31ACB22C3B8B99612BFBC061C3AD5123D892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598048   (1000072) от 04.01.2013
+
+M.PRAVDA - Live in Motion 115 (29.09.2012) Best of September [MP3|320 кб/с]<Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Chicane and Ferry Corsten - One Thousand Suns
+2. Velvetine - The Great Divide
+3. Markus Schulz feat. Seri - Love Rain Down (Myon and Shane 54 Summer of Love Mix)
+4. Paul Webster feat. Angelic Amanda - Time (Marlo Dub remix)
+5. Space Rockerz and Ellie Lawson -Under the same sky (Beat Service Remix)
+6. Store n Forward - Sugar
+7. Stoneface & Terminal and Cathy Burton - Go The Distance (Club Mix)
+8. Armin Van Buuren feat. Ana Criado - I'll Listen
+9. Simon Patterson feat. Sarah Howells - Here and Now
+10. Ascension - Someone (Signum vocal mix)Жанр: Progressive Trance, TranceПродолжительность: 01:02:415
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0610167FBB009FF1D863A5B20146E381277A97F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598429   (1000073) от 04.01.2013
+
+Steve Mulder - Mutual Respekt 045 (2012) [MP3|320 кб/с]<Techno, Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel D'Or & Bordoy - Insane Areas (Pornographic)
+02. Andrea Mattioli & Stefano Kosa - Countdown (Elio Riso Remix)
+03. Carl Cox - The Player (Steve Mulder Remix)
+04. Steve Mulder - Avenger (Respekt)
+05. Nonnus - Thumping (Tomy DeClerque Remix)
+06. Spektre feat. Mara - Give Yourself To Me (Ticon Remix)
+07. Piatto - Head Shock (Ivan Pica Remix) (Sabotage)
+08. Umex - Mumps (Jonno Brien Remix)
+09. Alex Di Stefano - Everybody (Binary404)
+10. Gabriel D'Or & Bordoy - Monoacoustic(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B847DF4D161B102275B181A3B8FE05D3EA87CACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598055   (1000074) от 04.01.2013
+
+M.PRAVDA - Live in Motion 114 (22.09.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Talamanca and Velden feat. Isa Bell - One Embrace (Pierre in the air remix)
+2. Tritonal feat. Cristina Soto - Still with me (Stoneface and Terminal remix)
+3. Stonevalley feat. Shannon Hurley - Something to say (Johan Malmgren remix)
+4. Genix - Destinations
+5. Norin and Rad - Five Finger Death Punch
+6. Aligator feat. Daniel Kandi - The Perfect Match (Dennis Pedersen remix)
+7. Paul Webster feat. Angelic Amanda - Time (Marlo Dub remix)
+8. Store n Forward - Sugar
+9. Dart Rayne - Four Steps to Eternity (Extended mix)
+10. Jorn van Deynhoven - Headliner(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D998464F5B3B249A50DE33808A9ED9042626D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598434   (1000075) от 04.01.2013
+
+Snello - Mutual Respekt 051 (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Snello - Darkside (Tom Laws Remix) (Patterns)
+02. Snello - Evergreen (Markantonio Remix (Phobiq)
+03. Snello - Steel (Axel Karakasis Remix) (Remain)
+04. Snello - Steel (Remain)
+05. Roman Gertz - Big Hook (Analytic Trail)
+06. Sasha Carassi & Mikael Jonasson - Void (Phobiq)
+07. Snello - Brightside (Patterns)
+08. Bodyscrub - Another Level (Phobiq)
+09. Sin Sin - Frozen Feedback (Ground Factory)
+10. Johan Dresser & Juan DDD - Columbia (Snello Remix) (Baptism)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596C831AB89536640F1214C7D0D5242435451899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598440   (1000076) от 04.01.2013
+
+Madutec - Mutual Respekt 060 (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Mr.Bizz - Underline (Respekt)
+02. Madutec - Pressure Drop (Respekt)
+03. Skober - Full Steam Ahead (Phobiq)
+04. Marco Bailey & Redhead - Start And Play (MB Elektronic)
+05. Steve Mulder - Lockdown (Respekt)
+06. Peter Bailey - Bring You Up (Local Music)
+07. Filterheadz - Abstract (MB Elektronic)
+08. Mona Vision Just A Gigolo (Sian vs Mr.Bizz Saint efisio mix) (Octopus)
+09. Miguel Bastida & Florian Kaltst - Crises (BluFin)
+10. Madutec - Virgo(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F37AA31413C39D0B47949D416207A76D06D22D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598056   (1000077) от 04.01.2013
+
+M.PRAVDA - Live in Motion 113 (15.09.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Willem De Roo - Index
+2. Arty - Gentle Touch (Juventa Club Mix)
+3. Genix - Moments
+4. Markus Schulz feat. Seri - Love Rain Down (Myon and Shane 54 Summer of Love Mix)
+5. Sequentia and Jaco - Crossfire
+6. Armin Van Buuren feat. Ana Criado - I'll Listen
+7. Simon Patterson feat. Sarah Howells - Here and Now
+8. Ascension - Someone (Signum vocal mix)
+9. Richard Durand feat. Protoculture - Pleasure
+10. Snatt and Vix Ft. Neev Kennedy - At The End Of The Day (Suncatcher Remix)Жанр: Progressive Trance, TranceПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72EA1E67678C803B5F44126A9881DB7B1B77892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598433   (1000078) от 04.01.2013
+
+Dataminions - Mutual Respekt 049 (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Citizen Kain & Phuture Traxx - Acid Love (Neverending Records)
+02. Axel Karakasis - Conclusion (Remain)
+03. Dataminions - Big
+04. Spektre - Turbine (Toolroom Records)
+05. Dataminions - Pounce (1605 Music Therapy)
+06. Mikael Jonasson - Prankster (Spektre Remix) (Respekt)
+07. Dataminions - Glod
+08. DJ Rush & Robin Hirte - Evil (Elbodrop Remix) (Truth Tracks)
+09. Dataminions - Park (Respekt)
+10. Alex Di Stefano - Try Again(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B75B6EA462AEBC8AD7543A7BEF17FCB03F35C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597954   (1000093) от 03.01.2013
+
+Эмулятор Nintendo GameCube и Wii "Dolphin" [Multi24/+] (L/3.5-124) 2013
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dolphin является открытым исходным кодом Nintendo GameCube и Wii эмулятор для Microsoft Windows и операционные системы Linux. В последней версии, многие игры для GC & Wii могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.Язык интерфейса: Русский / Английский / Арабский / Каталонский / Китайский (Упрощенный) / Китайский (Традиционный) / Чешский / Голландский / Фарси / Французский / Греческий / Германский / Еврейский / Венгерский / Итальянский / Японский / Корейский / Норвежский / Польский / Португальский / Португальский (Бразильский) / Сербский / Испанский / Турецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3683D676AE318CCBCC100EFE1BD16657E62D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596762   (1000095) от 03.01.2013
+
+Двенадцать бедствий на Рождество / The 12 Disasters of Christmas (2012) SАТRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Появление таинственной рождественской звезды предвещает конец света. Но что если одна девочка-подросток сможет предотвратить всемирную катастрофу?Жанр: ФантастикаРежиссер: Стивен Р. МонроПродюсер: Джон Принц, Том Берри, Лиза М. ХансенАктеры: Эд Куинн, Магда Апанович, Холли Элисса, Райан Грантхэм, Кай-Эрик Эриксен, Роарк Критчлоу, Эндрю Эйрлай, Грег Кин, Доннелли Роудс, Бренна О'БрайенПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: SyfyПродолжительность: 01:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066C15BB11415B596A82B655AB5B1321373F4741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597983   (1000096) от 03.01.2013
+
+Новый Камеди Клаб / Комеди Клаб / Comedy Club/ Выпуск №351 (01.01.2013) WEBRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000096.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из КВН. 23 апреля 2005 года «Comedy Club» впервые вышел в эфир телеканала ТНТ. Рейтинги программы стали бить все рекорды и это приносило программе большие доходы, на которые они стали делать другие проекты. Впоследствии они создали свою продюсерскую компанию «Comedy Club Production». 15 апреля 2007 года на ТНТ был показан сотый выпуск программы. Регулярно выходят новые выпуски и другие проекты - например спецвыпуски на Первом канале, юмористические фестивали и продюсирование участниками «Comedy Club» проекты других телепередач. 23 апреля 2010 года «Comedy Club» вышло с новой музыкой и обновлённым оформлением. Также «Comedy Club» выходит на каналах ICTV, (   Читать дальше...   )В выпуске: Продолжительность: ~ 00:46:53Жанр: Телепередача
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A474BE9E722E7A3179A847783DEC638C5C4A1D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597465   (1000104) от 03.01.2013
+
+Заложница 2 / Taken 2 (2012) [1080p] BDRip [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Брайану Миллсу придется расхлебывать последствия своих действий. Спасая свою дочь, он убил главаря банды, у которого — сюрприз! — есть отец по имени Мурад. Мурад жаждет отмщения и описывается как человек, отдающий приказы, но сам никогда никому не подчиняющийся. Мурад берет в заложники Миллса с супругой, и тут уже Ким Миллс нужно будет спасать своих родителей.Жанр: Боевик, Триллер, КриминалРежиссер: Оливье МегатонАктеры: Лиам Нисон, Мэгги Грэйс, Фамке Янссен, Лиленд Орсер, Джон Грайз, Д.Б. Суини, Люк Граймс, Раде Шербеджия, Кеворк Маликян, Ален ФиглажПеревод: ДублированныйЯзык субтитров: Английские (Full, SDH)Продолжительность: 01:32:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597955   (1000105) от 03.01.2013
+
+Эмулятор Sony Playstation 2 "Pcsx2" [Multi20/+] (L/v.1.1.0 SVN r5495) 2013
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это официальная стабильная версия PCSX2. PCSX2 это эмулятор Sony PlayStation 2 (PS2) для операционных систем Microsoft Windows и Linux. В последней версии, многие игры для PS2 могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.(   Читать дальше...   )Язык интерфейса: Русский / Английский / Чешский / Китайский (Упрощенный) / Китайский (Традиционный) / Финский / Французский / Немецкий / Венгерский / Индонезийский / Итальянский / Японский / Корейский / Малайский / Малайский (Малайзия) / Польский / Португальский (Бразилия) / Испанский (Современный) / Шведский / Турецкий / Тайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94C8BF40086E1C8AC3FC5515D36E550FAA0E573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598161   (1000112) от 03.01.2013
+
+Nokia Suite 3.7.22 Final [MULTi / Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000858.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C534FF0106490D53E1C02D9AEBE420B907D74C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352641   (1000859) от 15.01.2020
-
-Disk Drill Enterprise 3.8.961 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Drill Enterprise - самое популярное приложение для восстановлени данных на вашем Mac, которая поможет вернуть удалённые файлы с жёстких дисков, флешек, карт памяти и других носителей с файловыми системами HFS, HFS+, FAT16, FAT32, NTFS, EXT3, EXT4.
+Nokia Suite - набор программ для работы с мобильными телефонами Nokia, являющийся дальнейшим развитием Nokia PC Suite. С помощью приложения Nokia Ovi Suite вы можете без усилий приводить в порядок данные и передавать их с устройства Nokia на компьютер и обратно. Это приложение, предназначенное для работы на персональном компьютере, было полностью переработано. Оно стало проще, мощнее, быстрее, и теперь важная информация всегда будет у вас под рукой...
 
-После запуска приложение определит все подключённые диски и отобразит доступные для них режимы и функции. Особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: CleverFilesПоддерживаемая ОС: macOS 10.8.5+Язык интерфейса: Русский, Английский, Немецкий и др.
+(   Читать дальше...   )Название программы: Nokia SuiteЯзык интерфейса: MULTi / Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99CCB375C119DBBFB83B07BB89036955A4A999E3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,25 +765,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352665   (1000863) от 15.01.2020
+###  Публикация: 598025   (1000117) от 03.01.2013
 
-KeePassXC 2.5.2 + Portable [Multi/Ru]
+Star Trek: The Next Generation: Klingon Honor Guard [En] (L) 1998
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000863.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-KeePassXC — программа для управления паролями. Позволяет безопасно хранить пароли и автоматически вводить их на посещаемых сайтах. Для хранения используется специальная база данных, которая шифруется с помощью надёжного алгоритма шифрования AES (Rijndael) с использованием 256-битного ключа. Важной особенностью является то, что программа не хранит никаких данных в (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+Зверский FPS по мотивам сериала The Next Generation про этих милейших воителей - Клингонов.
+(   Читать дальше...   )Тип издания: ЛицензияЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2561CBB79227EAA167C62CD63A4324CA0368090
+magnet:?xt=urn:btih:5AE5E20C6BDD43AED38C99181B37196BAE3170D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,184 +792,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352702   (1000865) от 15.01.2020
+###  Публикация: 597881   (1000118) от 03.01.2013
 
-IObit Driver Booster Pro 7.2.0.598 RePack (& Portable) by D!akov [Multi/Ru]
+Новый Ералаш (2013.01.02) SATRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000865.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+Детский юмористический киножурнал об историях, которые случаются с ребятами в школе и дома,во дворах и на улице. Поучительные кинозарисовки прививают молодому поколению любовь и уважение к сверстникам и окружающим.Жанр: ЮморПродолжительность: ~ 00:17:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:071E09DD690DC1A81093409B9FB5EF8BB0223646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352722   (1000867) от 15.01.2020
-
-K-Lite Codec Pack Update 15.3.4 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000867.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8516909293EA8E7DBD5CAB441A8E04A4D1F52E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352761   (1000875) от 15.01.2020
-
-FireAlpaca 2.2.8 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000875.jpg" />
-</div>
-
-
-###  Подробнее
-
-FireAlpaca - это достаточно простой, но удобный графический редактор для преобразования изображений, фотографий и любых других картинок. Здесь нет каких-то продвинутых или специфических функций, но базовый набор инструментов позволяет быстро и легко редактировать нужные изображения.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E2C85CCAE13E3089B1FE9345F8354AD9A9CD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352760   (1000883) от 15.01.2020
-
-Slimjet 25.0.5.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F0A6144EFB1807FA207584B0BEEB073B53D95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352671   (1000885) от 15.01.2020
-
-Frl. Linientreu - Transformation (2016) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Industrial, Ambient, Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000885.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Re-Connected 36°33'N, 121°55'W, 38°25'N, 27°9'N 	4:18
-2. The Walk 	2:53
-3. The Hood 	2:28
-4. Around Us 	4:18(   Читать дальше...   )Жанр: Industrial, Ambient, TechnoПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AEBBF7EE1C0E65C7041B468D53DD08345BC0895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352716   (1000886) от 15.01.2020
-
-Cisdem PDF Compressor 3.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem PDFCompressor является программным обеспечением для сжатия PDF файлов. Программа позволяет уменьшить размер всех ваших PDF файлов до 90%, сохраняя при этом их исходное качество неизменным. С Cisdem PDFCompressor, вы можете сэкономить место на Вашем компьютере, а также обмениваться PDF-файлами с друзьями/коллегами значительно быстрее.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389609DA5C0F740E0F76790AA172BC6D60320A87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352782   (1000887) от 15.01.2020
-
-Extreme Picture Finder 3.46.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Extreme Picture Finder - программа для автоматического поиска, загрузки и сохранения любых файлов (картинки, видео, музыка, архивы, флэш и т.д.) с Интернет сайтов, а также для поиска картинок в Интернет по ключевым словам. Extreme Picture Finder позволит Вам автоматически загрузить только нужные Вам файлы, избавив от просмотра назойливой рекламы, всплывающих окон (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40F158B43C3C01F0D9DA07ECDDBE07872CBF37D
+magnet:?xt=urn:btih:9485719AF0687E2E58D6BC8AE87DB47DB86EBF9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

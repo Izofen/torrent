@@ -1,3 +1,32 @@
+###  Публикация: 1409799   (443028) от 18.09.2020
+
+Le Couleur - Concorde (2020) [MP3|320 Kbps] <Synthpop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Désert [00:06:46]
+02. Silenzio [00:03:19]
+03. Silhouette [00:03:10]
+04. Concorde [00:04:01](   Читать дальше...   )Жанр: Synthpop, DiscoПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B16C579CB550EF961A30758E91CA9EB8286D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944358   (443126) от 06.10.2015
 
 VA - Unique Sense History Vol. 1 (Mixed By Abstract Vision) (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
@@ -734,35 +763,6 @@ One Arc Degree - Gravity Shaped (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22948555692719C608BC7C1D95F580D30ADC8344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409546   (445245) от 17.09.2020
-
-AK1200 with MC Navigator - Mixed Live: Moonshine Overamerica, San Francisco (2001) Moonshine Music [FLAC|Lossless|tracks+.cue] <Drum n Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving Fusion & Shimon - Hangman (05:17)
- 02. Usual Suspects - Body Count (03:36)
- 03. Bad Company - Crucifixion (04:43)
- 04. Dylan & Loxy - Evolution (03:14)(   Читать дальше...   )Жанр: Drum n BassПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4F48E17FBF7FFCE3255AC51713C39CD5486251
 ```
 
 https://mybot314.ru/tekegram_catalog/

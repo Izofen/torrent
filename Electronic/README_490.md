@@ -1,3 +1,32 @@
+###  Публикация: 1356466   (979118) от 30.01.2020
+
+VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979118.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. House Boyzz - Now Baby Com (Boyzz Mix) 3:03
+2. Carl Carlton - I'll Wait Here (Deep Cut Mix) 3:07
+3. Piet Lorrigan - Baja Buggys (Root Mix) 2:59
+4. Paul Sandemann - Do It Yourself (Diy Edit) 2:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1F2571268888711DCBDEF986A6D9C234EA816F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356171   (979121) от 30.01.2020
 
 MRUKS - Last Round (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
@@ -729,35 +758,6 @@ ATB - All The Best (2012) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5042D558453F4D3F69E374C5BE69609F43D4A96F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972236   (983500) от 05.01.2016
-
-VA - Fantasy Lounge Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Way - Faster [03:19]
-02. Nicole - Into It [03:17]
-03. Maria - Sway with Me [03:16]
-04. Oscar Salguero - With You [05:05](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8876812454F787216C6E63F40280B9C25E910BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

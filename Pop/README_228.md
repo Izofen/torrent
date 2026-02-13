@@ -1,3 +1,183 @@
+###  Публикация: 1294373   (629976) от 07.04.2019
+
+VA - Let's Dance - Das Tanzalbum (2019) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629976.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Queen - I Want To Break Free (Foxtrott - Cha Cha)
+02. Rick James - Super Freak (Cha Cha)
+03. Santana Feat. Rob Thomas - Smooth (Radio Edit) (Cha Cha)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD340D008E915E0BE93E1D409DEC05AF91D6ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294366   (629993) от 07.04.2019
+
+Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Swing All Night Long With You
+02 - Stronger Than The Truth
+03 - Storm In A Shot Glass
+04 - Tammy Wynette Kind Of Pain(   Читать дальше...   )Жанр: CountryПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8921E281E9A043AC767BB1D794F82D0B1A6699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035128   (630195) от 15.07.2016
+
+M People - Best Of (Unknown Year) Unofficial Release [APE|Lossless|image + .cue] <Progressive House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moving On Up
+02. Angel St.
+03. Dreaming
+04. One Night In Heaven(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D054936C41571B8C2B92F2935EDBE25C9CE6E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035151   (630301) от 15.07.2016
+
+Bananarama - The Greatest Hits Collection (1999) [MP3|320 Kbps] <Europop, Euro House, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Venus  3:42
+02.  I Heard A Rumour  3:27
+03.  Love In The First Degree  3:31
+04.  I Can't Help It  3:31(   Читать дальше...   )Жанр: Europop, Euro House, Synth-popПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE075337903DE1252871C6837D986DEB52EEDE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144122   (631059) от 20.06.2017
+
+Время и Стекло - Обратный отсчёт (2017) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На Стиле
+02. Навернопотомучто
+03. Песня 404
+04. Имя 505(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D7D54AACAC8A01141EE32091B3E049F3000B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520689   (631134) от 09.07.2012
+
+Gusttavo Lima - E Voce (2011)(Live) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631134.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cor De Ouro
+2. Balada
+3. Demais Da Conta
+4. Eu Vou Tentando Te Agarrar
+5. Arrasta
+6. Fora Do Comum
+7. Refém
+8. Tornado
+9. Calafrio
+10. Inventor Dos Amores(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D01583042BB518012D4A56E19381FD552052B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520565   (631435) от 09.07.2012
 
 Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
@@ -596,186 +776,6 @@ Giorgio Moroder & Joe Esposito - Solitary Men (1983) [MP3|320 кб/с]<Pop/Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE1B6BD1A5B89EE821D14C016E40B35144756516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542877   (633287) от 09.04.2022
-
-Мираж - Мираж версия 2000 (1999) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты словно тень
-02. Музыка нас связала
-03. Я снова вижу тебя
-04. Звёзды нас ждут(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2396E0862E28958B53A2221BD3C4B0DC276F210B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542869   (633290) от 09.04.2022
-
-Сергей Минаев - Радио Абракадабра (1987) Unofficial Release, 2015, Anima Vox [FLAC|Lossless|tracks + .cue] <Pop, Parody>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона A:
-01. Вступление
-02. Кто стучится на мой "Хаус"?
-03. Мини-макси(   Читать дальше...   )Жанр: Pop, ParodyПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0446FBCE4EAC727CDFC394D64C2AC7848ACC737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519819   (633309) от 08.07.2012
-
-Duran Duran - A Diamond in the Mind, Duran Duran – A Performance – 2011 (2012) [MP3|320 кб/с]<Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before The Rain
- 02. Planet Earth
- 03. A View To A Kill
- 04. All You Need Is Now
- 05. Blame The Machines
- 06. The Reflex
- 07. Girl Panic!
- 08. Ordinary World
- 09. Notorious
- 10. Hungry Like The Wolf(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C0494C2833C7BD0AE3AE4697A601C8D1D6B3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542881   (633431) от 09.04.2022
-
-Patty Ryan - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Love, You're My Life
-02. I Don't Wanna Lose You Tonight
-03. Love Is The Name Of The Game
-04. Love Emotion(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6175A5487D665057AC8A6F9CBF36F6E691B2F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293654   (633737) от 05.04.2019
-
-VA - NOW That's What I Call Music 102 (2019) 2CD [MP3|320 Kbps] <Synthpop, Reggae, Dancehall>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633737.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Ariana Grande - 7 rings
-02. Ava Max - Sweet but Psycho(   Читать дальше...   )Жанр: Synthpop, Reggae, DancehallПродолжительность: 02:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFF59A000C444EA1AFE37947D63089A821D8C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908317   (633990) от 14.06.2015
-
-Marie Fredriksson - I En Tid Som Var (1996) [FLAC|image + .cue]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I En Tid Som Var [6:18]
-02. Drommen [5:39]
-03. Efter Sa Manga Ar [4:50]
-04. Min Trognaste Van [4:07](   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1CACEA25C15A85E7BAFCF179380A4E5BCF4978
 ```
 
 https://mybot314.ru/tekegram_catalog/

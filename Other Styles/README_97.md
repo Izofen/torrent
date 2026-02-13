@@ -1,3 +1,32 @@
+###  Публикация: 1149130   (602539) от 09.07.2017
+
+Lynn Tredeau - Shifting Sands (2017) [MP3|320 Kbps] <New Age, Piano, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost in Familiar Sorroundings 04:43
+02. Shifting Sands 03:45
+03. Warm Embrace 03:15
+04. Dance of the Unknown 03:46(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907614CBF95A2726B73B3EC50F9AF6CBC116D8F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297927   (602644) от 25.04.2019
 
 VSOP Vienna Symphonic Orchestra Project - 7 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -722,35 +751,6 @@ VA - The Organ Plays Sentimental Favorites (1999) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E8D5E8DEA9007CC4CDB37294E17AFE8BC686459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296785   (607895) от 19.04.2019
-
-А.И.Жихарев - Вознесение (2008) [FLAC|Lossless|tracks + .cue] <Музыка на плоских колоколах (билах)>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Напутствие (5:23)
-02. Призыв (3:58)
-03. Без названия (5:54)
-04. Исповедь (7:35)(   Читать дальше...   )Жанр: Музыка на плоских колоколах (билах)Продолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC651860470A4FE4ACFBD145FEF98D0D8C32DD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

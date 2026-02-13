@@ -1,3 +1,38 @@
+###  Публикация: 610659   (989919) от 29.01.2013
+
+Pyotr Ilyich Tchaikovsky - The Seasons (2000) [MP3|320 кб/с]<Classic>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation, op.72 no.5
+02. Polka Peu Dansante, op.51 no.2
+03. Aveu Passione
+04. Tendres Peproches, op.72 no.3
+05. Berceuse, op.72 no.3
+
+ Les Saisons, op.37a (The Seasons)
+
+06. At The Fireside (January)
+07. Carnival (February)(   Читать дальше...   )Жанр: ClassicПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEEF98E53F98279A73F7CB849015129D2838F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610678   (989998) от 29.01.2013
 
 Pyotr Ilyich Tchaikovsky - The Seasons (2000) [FLAC|Lossless]<Classic>
@@ -815,35 +850,6 @@ Sofiane Pamart - PLANET (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEAEB646990DEC9747BCC7DC03736642ECFEC50A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350152   (1003687) от 04.01.2020
-
-Strozzi, Monteverdi, Kapsberger, Carissimi, Frescobaldi - Lamento (Romina Basso) (2014) [FLAC|Lossless|image + .cue] <Classical vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003687.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Johann Hieronymous Kapsberger - Toccata Seconda Arpeggiata - Lamento Della Regina De Svezia
-2. Giacomo Carissimi - Lamento in Morte Di Maria Stuarda
-3. Barbara Strozzi - Lagrime Mie
-4. Claudio Monteverdi - Capriccio Di Durezze - Lamento D'Arianna(   Читать дальше...   )Жанр: Classical vocalПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75F5FD109FB0DE20D6E30848EDDA785331C4C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

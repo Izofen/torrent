@@ -1,3 +1,32 @@
+###  Публикация: 1221104   (698512) от 22.04.2018
+
+VA - Instrumental Club Hits (2018) [MP3|320 Kbps] <Dance, Club-House, Electro-House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernd Loorbach - Cafe Del Mar (TbO and Vega Trance Mix) (04:57)
+02. Project Blue Sun - Fiesta (Club Mix) (07:17)
+03. KCB - 9 PM (Till I Come) (Klubbmix) (04:54)
+04. Naxwell - Fable (Club Mix) (05:19)(   Читать дальше...   )Жанр: Dance, Club-House, Electro-HouseПродолжительность: 01:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF37CF8E22772C77AD5CB05876417E6271D97A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221001   (698718) от 22.04.2018
 
 VA - Space Trance Music (2018) [MP3|320 Kbps] <Trance>
@@ -715,35 +744,6 @@ VA - Floating Spirals III (Compiled by E-Mantra) (2016) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:021354153E667521950311B3181F020FA1185D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026699   (702311) от 16.06.2016
-
-VA - Deepalma Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Caster - Change (feat Leo)
-02. Juloboy & Toly Braun - I Remember
-03. Passenger 10 & Lika Morgan - Golden Sky (Sons Of Maria remix)
-04. Nora En Pure - U Got My Body (Return Of The Jaded remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D50D464B15B0D97CD03082AC3B3755D14917E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

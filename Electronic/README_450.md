@@ -1,3 +1,32 @@
+###  Публикация: 1375657   (865609) от 14.04.2020
+
+VA - From Fitness To Dance (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronnie Joy - Bring The Noise (Deep House Melody Edit)
+02. House Beats - Crazy Funky Dunky! (Party House Edit)
+03. Pete Lover - Miami Miami (Piano House Edit)
+04. Bokka Project - Up And Down (Club Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3D48AD1DBE0A6BF22C2184CD84C6690C583701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107750   (866098) от 23.02.2017
 
 Convextion - 2845 (2016) [MP3|320 Kbps] <Electronic, Techno>
@@ -716,35 +745,6 @@ VA - Chill Top 50 - Armada Music (2017) [MP3|320 Kbps] <Downtempo, Electronica, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:423285669CD7F4C071677314F3A9F275BA77FA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106914   (868131) от 22.02.2017
-
-VA - Sexy Collection Deep House Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Levent Lodos - Circle of Fifths
-02. Michael Paul - Call Me On the Weekend
-03. M.O.O.N. Pro - So Hot
-04. Leno - Explosion(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76085863F0029ABDEC328FDE4331B53F0BC48863
 ```
 
 https://mybot314.ru/tekegram_catalog/

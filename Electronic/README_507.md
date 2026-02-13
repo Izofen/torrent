@@ -1,3 +1,32 @@
+###  Публикация: 1465336   (1019274) от 25.04.2021
+
+Above & Beyond - The Club Instrumentals (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hideaway (Extended Mix) (7:52)
+ 02. Out Of Time (Above & Beyond Extended Club Mix) (6:17)
+ 03. Balearic Balls (Extended Mix) (6:29)
+ 04. Hello (Extended Mix) (6:49)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 03:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21DD68AB3ACF392D167DC7BBA2ECE391A8E5F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176824   (1019279) от 25.04.2021
 
 Zzzzra - Сollection 23 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Techno>
@@ -710,35 +739,6 @@ Kaon - Blurred (Side A) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:576F78CC564964C2B04A16EB04F5D1C7D681D2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462515   (1021187) от 14.04.2021
-
-VA - Первому Покорителю Космоса (To The First Conqueror of Space) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbeat, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PPK (Pimenov Plus Khramkov) - Zodiac Reload (Mashur X Mad-A Remix) (4:09)
-02. Soulstring - Gagarin (5:50)
-03. Dmitriy Zhavoronkov - Fly (3:26)
-04. ESTRADARADA - Ночь космонавтики - Мантра о счастье свободного человека (7:33)(   Читать дальше...   )Жанр: Electronic, Breakbeat, SynthpopПродолжительность: 02:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A92A9FD955E0805965980A5C9A40BA7C64D0FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

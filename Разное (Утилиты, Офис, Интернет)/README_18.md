@@ -1,3 +1,29 @@
+###  Публикация: 1570174   (444997) от 16.08.2022
+
+StudioTools 26.0 [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая утилита для помощи в работе с видеоредактором Pinnacle Studio Ultimate 26Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A829EDC48AA7AD09AE76EE97421266A17702E0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322576   (446174) от 30.08.2019
 
 VideoSolo Screen Recorder 1.1.28 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -647,32 +673,6 @@ Password Cracker 4.35 Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF78C9A73F54406ECCB1468102D06D9D32886F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929176   (520306) от 18.08.2015
-
-DoNotSpy10 1.0.0.1 Portable by PortableWares [En/Ge]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520306.jpg" />
-</div>
-
-
-###  Подробнее
-
-DoNotSpy10 — эта утилита предоставляет пользователю все опции для настройки конфиденциальности Windows 10 с помощью единого интерфейса, а управление происходит с помощью пары кликов.Язык интерфейса: Английский , Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51166719F008DE49682568ADB691FAD376EA8E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

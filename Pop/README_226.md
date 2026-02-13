@@ -1,3 +1,177 @@
+###  Публикация: 1294837   (625969) от 09.04.2019
+
+Lika Star - The Best (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокая луна (4:14)
+02. Падай (4:26)
+03. Пусть пройдёт дождь (4:28)
+04. Падший ангел (4:38)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D59430C04B436E4BD4B3491459E5F9428C96BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294830   (625975) от 09.04.2019
+
+Алёна Апина - Alena Apina (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ДиДжей (3:57)
+02. S.M.W. (3:13)
+03. Deep in the dark (4:12)
+04. Мелодия (3:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6402243D267925C68A7AFC171CBF65B90740F722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294734   (625979) от 09.04.2019
+
+Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Old Are You (Radio Version) (4:05)
+02. The World Is You (Radio Version) (3:57)
+03. One Step To Heaven (Original Mix) (4:16)
+04. Two For Love (Original Edit Mix) (4:03)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0083371ACEBB31229F8B6F590BBE3E0BBE37D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909755   (626002) от 18.06.2015
+
+Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 U With Love
+02. Deja Vu (feat. Sia)
+03. Diamonds (feat. Charli XCX)
+04. Don’t Let Go (feat. Mikky Ekko)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B554833FFAAA455846A61A8B57E7355DDF7700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909741   (626003) от 18.06.2015
+
+Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Way Home
+02. Blue Skies
+03. Free
+04. Unique(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E2D3437DD824E10AA070292D857FDD7F75C35A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294827   (626098) от 09.04.2019
+
+Аурика Ротару - Счастье - свободная птица (2006) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Счастье - свободная птица (3:20)
+02. Двi голубки (3:25)
+03. Сентiменте (4:48)
+04. Сопiлка (3:31)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144C094C57712EE94E7F082D166C21B29B3323B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294835   (626104) от 09.04.2019
 
 Герр Антон - Одинокий мужчина и другая честная попса (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -571,180 +745,6 @@ VA - I Love Disco Presents: Rewind To The Disco Vol.1 (2009) 2CD, Compilation [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE4F4B4D2E0019CAB86F6F79805AE33D4E1035D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909001   (628055) от 17.06.2015
-
-VA - Heat Summer Anthems (2015) 3CD [MP3|320 кб/с]<Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628055.jpg" />
-</div>
-
-
-###  Подробнее
-
-41. Rita Ora-I Will Never Let You Down
-42. Lady Gaga-Born This Way
-43. Nelly-Hot In Herre
-44. Calvin Harris-I Need Your Love(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 03:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D7005E8B7C77CCCB770998A58D3A42C430CDEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909428   (628206) от 17.06.2015
-
-Mania - Рассвет (2014) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (02:44)
-02. Рассвет (02:24)
-03. Серым облакам (02:46)
-04. Отец (02:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F87DF9383CC590AD3A3E1073B245785490A03C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229362   (628217) от 05.06.2018
-
-VA - Ballermann Sommerparty (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628217.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Lorenz Büffel - Beate, die Harte
-02. Ina Colada - Ein schöner Tag
-03. Almklausi & Specktakel - Mama Laudaaa(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8E910D406B56E9459B7E4272720A16D118E6B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294606   (628245) от 08.04.2019
-
-VA - Танцы со вкусом (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вика Воронина - Угги (3:24)
-02. Мари Краймбрери - Полюби меня пьяную (3:04)
-03. Александр Шоуа - Как жаль (4:00)
-04. Витас - 7-й элемент (Седьмой элемент) (4:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B2AA9281314943439FDA0DABA1152A530D19CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294642   (628251) от 08.04.2019
-
-Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On
-02. Battle Of The Sexes (Feat. Rod Stewart)
-03. Slow Walk
-04. Seven Waves Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AC673E73AED26F165703F145DB3448A24DD88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035308   (628312) от 16.07.2016
-
-Andy Bell (Erasure) - 7 Albums (2005-2016) [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эндрю Айвэн «Энди» Белл (англ. Andy Bell, полное имя Andrew Ivan Bell, род. 25 апреля 1964) — британский музыкант, вокалист английского синтипоп-дуэта Erasure. Начиная с 2005 года также строит собственную сольную карьеру, выпуская, параллельно с работой в группе, предлагаемые альбомы.Список альбомов:
-2005 - Andy Bell - Electric Blue
-2010 - Andy Bell - Non-Stop
-2014 - Andy Bell - Torsten the Bareback Saint(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 06:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B8B18B2B3C1E9BB470A6EF8777FBB351B31114
 ```
 
 https://mybot314.ru/tekegram_catalog/

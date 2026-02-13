@@ -1,3 +1,32 @@
+###  Публикация: 1094982   (925955) от 20.01.2017
+
+Richard Wagner - Neuschwanstein (2001) [FLAC|Lossless|image + .cue] <Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ring der Nibelungen - The Ride of the Valkyries (04:37)
+02. The Ring der Nibelungen - Siegfried (10:18)
+03. The Ring der Nibelungen - Brunnhilde (04:02)
+04. The Ring der Nibelungen - Gotterdammerung (12:21)(   Читать дальше...   )Жанр: OperaПродолжительность: 01:12:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330532E10EC1D30BB6A8B076F111AD8105906912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987342   (927592) от 16.02.2016
 
 Joe Hisaishi - Symphonic Best Selection (1992) [FLAC|Lossless|tracks] <Score, Classical>
@@ -715,35 +744,6 @@ Antonio Lucio Vivaldi - Flute Concerto I Solisti Veneti solist Jean-Piere Rampal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3A159E35BDA364DC3B49B3EC29EF8F4CC2BCE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088962   (953584) от 02.01.2017
-
-Vitalij Margulis / Виталий Маргулис - Frederic Chopin / Фредерик Шопен — Nocturnes / Ноктюрны (1994) [APE|Lossless|image + .cue] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturne № 1 b-moll Op 9/1
-02. Nocturne № 2 Es-Dur Op 9/2
-03. Nocturne № 4 F-Dur Op 15/1
-04. Nocturne № 5 Fis-Dur Op 15/2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4546C1506A9C290C96CC4CFB25FDEA2819EAD212
 ```
 
 https://mybot314.ru/tekegram_catalog/

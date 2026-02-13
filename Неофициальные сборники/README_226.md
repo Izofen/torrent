@@ -1,3 +1,76 @@
+###  Публикация: 1068843   (378451) от 02.11.2016
+
+VA - Dance Bigroom House (2016) [MP3|256-320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378451.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Freakbreak - Midnight Rain
+002. Luke Meyers - Play House (Vocal Edit)
+003. Mike Candys Feat. Clyde Taylor - Make It Home (Gino G Remix)
+004. Brothers - My Battle (Trvpers Mix) (feat. Ranieri)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 12:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCC6B3573FBE841AAED0CC4EA314DAC4C9AB7EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573675   (378542) от 11.11.2012
+
+VA - The World Of Chillout Lounge Vol. 1-2 (2008, 2012) [MP3|320 кб/с]<Instrumental, Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378542.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Faro — Shape Of Sense
+02. Mirage Of Deep — Green Tea
+03. Tafubar + Eskadet — Paradise Reconquered (Feat. Airily)
+04. Jane Maximova — Illusions
+05. Newton Feat. Twila.Too — New Beautiful Life
+06. Mark Oakland — Sunny
+07. Moshang — Pagoda
+08. Kiwi Twist — Jazz Lady
+09. Banda Dalai Lam — Ya Tak Lublu(   Читать дальше...   )CD1
+01. Faro - Clouds [04:10]
+02. Hana - Ayume [05:23]
+03. Ielo - Ameya [05:08]
+04. Derrick - Divine Season [04:18]
+05. Jeftricks Ft. Adefunke - Love Hangover [05:50]
+06. Weathertunes - Ladies First [02:57]
+07. Jasmon - What You Want [05:02]
+08. Nana Wang - Can't You See In The Fever [03:28]
+09. Orbis - Feel So Good [05:20](   Читать дальше...   )Жанр: Instrumental, Lounge, Chill OutПродолжительность: 02:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5F4D2A90854F0C1C800EDB4A5A955F82EAA724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573464   (378559) от 11.11.2012
 
 VA - Русский Шторм - 80 (2012) [MP3|112-320 кб/с]<Pop>
@@ -765,64 +838,6 @@ VA - Hip Hop Raised Me (2018) [MP3|320 Kbps] <Hip Hop, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE7F8A6ED113A82B59B940013CBD3016E9EFC177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948883   (379470) от 22.10.2015
-
-VA - Vocal Deep House Vol.2 (Compiled by Zebyte) Russian Version (2015) [MP3|256-320 кб/с]<House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jama - Spring (Sergey Franc & Dmitriy Brain Remix) [04:24]
-02. Катя Лель - Долетай (Low Deep Mix) [04:09]
-03. D.I.P. - Время Ню (Mastadont Deep Mix) [06:34]
-04. Мохито - Я Не Могу Без Тебя (Tvkiller Radio Edit) [03:30](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE94F8A9DBEC12D91AF325DF921F48F33FD143D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253853   (379509) от 11.10.2018
-
-VA - Respect Drum & Bass (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Derrick & Tonika - Vatra Spirit
-002. Linear - Anthem At Dusk
-003. Wax Motif - Legit
-004. Foureye - Air Raid(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 10:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCEE1FE1B26775BF6FEEE6A50171E4E24304798
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1076208   (314442) от 25.11.2016
+
+VA - Electronic Space Files, Vol. 5 (2016) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Graebe - Alles neu (5:30)
+02. Felix Cage - Love Again (Souldust Remix) (Feat. Lazarusman) (6:16)
+03. Josh - Dispatched (7:34)
+04. Italo Brutalo - Oggi (7:23)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371DD6AD4FDCD031AD8BF9272161908DA752065F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075744   (314453) от 25.11.2016
 
 VA - Progressive Sexy Nights Vol.2 (2016) [MP3|320 Kbps] <House>
@@ -715,41 +744,6 @@ Vendor Refill - Stable LP (1999) Nature Records [FLAC|Lossless|tracks+.cue] <IDM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88644F591F958962303A4C9043FD91B55549C0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583203   (315821) от 01.12.2012
-
-Counting Clouds - Perfect Harmony (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Harmony
-02. Black & Blue
-03. Daylight
-04. Colors
-05. Sweet
-06. Sunday Morning
-07. Dream Lounge
-08. Imena
-09. Somewhere In Africa
-10. Aiyetoro(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Easy ListeningПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15BA81B685D7A5D405B3BDB9AB710D984BC49CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

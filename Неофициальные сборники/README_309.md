@@ -1,3 +1,61 @@
+###  Публикация: 1313771   (522967) от 10.07.2019
+
+VA - With Gratitude: Romantic R&B (2019) [MP3|320 Kbps] <R&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522967.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Timara - Nice & Slow
+002. Ciisum - Love In The Club
+003. Brown Boy - Stay (Feat. Mob Fam & Unique)
+004. Amerie - Midnight Rain(   Читать дальше...   )Жанр: R&BПродолжительность: 11:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A7D27F9748EB799C7E3075CD00C899BDF8ACF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313673   (522976) от 10.07.2019
+
+VA - Kingston Reggae Dancehall (2019) [MP3|320 Kbps] <Dancehall, Reggae, Latin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522976.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blaiz Fayah - Pum Pum
+002. Dj Ricky - Wine Pon Di Pole Riddim
+003. Lion J - Collabo
+004. Trekar & Vershon - Duggu Dagga(   Читать дальше...   )Жанр: Dancehall, Reggae, LatinПродолжительность: 08:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE36886214EA467D04568C7F8108DB8E001428A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928199   (523089) от 15.08.2015
 
 VA - Легенды Нашего Рока (2015) [MP3|278-320 кб/с]<Rock>
@@ -687,64 +745,6 @@ VA - Deep House Collection Vol.181 (2018) [MP3|320 Kbps] <House, Deep House, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52D3DA41AEC53DE94C0895DD35196360FC1B9D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053757   (524192) от 18.09.2016
-
-VA - Дорожный шансон с любимой музыкой. Часть 7 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524192.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Владимир Курский & Бутырка - Воля-Вольная
-002. Варвара Комиссарова - Я Старше Ты Моложе
-003. Виктор Калина - Тобою Простужен
-004. Даниил Якубович - Корпоратив Был Между Прочим(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54ED1856B88B9601214951438C03A4A0A6E13FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313311   (524223) от 08.07.2019
-
-VA - Top 150 Deep House Tracks Vol.3 (2019) [MP3|320 Kbps] <Deep House, Club House, Tech House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524223.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AEX - Indie (Original Mix)
-002. Alessio Cappelli - Don't Wanna Give Up  (Original Mix)
-003. Alessio Cappelli - I Have Been Before (Original Mix)
-004. Ali Bakgor - Say It's Over (Extended Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech House, Vocal HouseПродолжительность: 13:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF47ABC4A7A7D8430CAE7CEF3B43283A09DAD34
 ```
 
 https://mybot314.ru/tekegram_catalog/

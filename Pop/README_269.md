@@ -1,3 +1,177 @@
+###  Публикация: 1280575   (756986) от 05.02.2019
+
+Ke - I Am [...] (1996) [FLAC|Lossless|image + .cue] <Rock, Funk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756986.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Strange World 4:33
+2. Someday 4:17
+3. I Think It's Time 4:50
+4. I Don't Wanna Go 4:48(   Читать дальше...   )Жанр: Rock, Funk, PopПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72144767B98B361C6C365C1DC4787188FD7F4341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018196   (757255) от 19.05.2016
+
+VA - Super Hits Of The '70s: Have A Nice Day (1990-1996) 25CD [MP3|320 кб/с] <Pop,Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiral Staircase - More Today Than Yesterday (2:58)
+ 02. Smith - Baby It's You (3:25)
+ 03. The Flying Machine - Smile A Little Smile For Me (3:00)
+ 04. Billy Joe Royal - Cherry Hill Park (2:50)(   Читать дальше...   )Жанр: Pop, Rock|Продолжительность: 16:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0431B314B0C064029576B1478D2812EEFF8E30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018107   (757631) от 19.05.2016
+
+George Baker - Diamond Star Collection (1996) Unofficial Release [APE|Lossless|image + .cue] <Funk, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Una Paloma Blanca (1975)
+02. Beautiful rose (1977)
+03. Morning sky (1975)
+04. Sing a song of love (1974)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7195846E09C37D37E3A0C07D48080EEB5C509233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781226   (757757) от 27.04.2014
+
+VA - The 80s (2003) [FLAC|Lossless]<Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757757.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:21] 01. Kylie Minogue - I Should Be So Lucky
+[04:01] 02. Jive Bunny & The Mastermixers - That's What I Like
+[03:29] 03. F.R. David - Words
+[05:45] 04. David Christie - Saddle Up(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4F1D3834CB64C6CEE316FC3B9B459FF34FDF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215621   (757806) от 26.03.2018
+
+Мари Краймбрери - Переобулась (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757806.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. От диктофона до радио
+2. Не в адеквате
+3. Бой
+4. А мы могли быть(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090033AF1DBCAC13FECDD3E0C6E493B030A0AD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215624   (758092) от 26.03.2018
+
+Arp-Life - Jumbo Jet (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumbo Jet (3:31)
+02. Adolfino Tango (3:04)
+03. Apolobomba (3:51)
+04. Besame Mucho (4:25)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F9AFF776188FC520CB425519D4AEAB3689458B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215596   (758221) от 26.03.2018
 
 Yan Tregger - Christopher Ried - Ducks & Drakes (1979) LP [MP3|320 Kbps] <Electronic, Psychedelic, Disco>
@@ -568,180 +742,6 @@ Dusty Springfield - 7 альбомов (1963-2000) [FLAC|Lossless]<Pop, Soul>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016397   (762943) от 16.05.2016
-
-Prince - 5 Albums (1978 - 2004) [APE|Lossless|image + .cue] <Pop, Soul, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musicology
-02. Illusion, Coma, Pimp & Circumstance
-03. A Million Days
-04. Life 'O' The Party(   Читать дальше...   )Жанр: Pop, Soul, Funk, DiscoПродолжительность: 03:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A357F012AEF9B9AB3EDC0F052E3CC1243FFF852B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214743   (762983) от 23.03.2018
-
-Рок-Острова - Летать, смеяться и плакать (2018) [MP3|320 Kbps] <Поп>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762983.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Дождь и ветер  3:38
-02.  А я пойду  3:44
-03.  В этот вечер  3:34(   Читать дальше...   )Жанр: ПопПродолжительность: 02:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F69071C81C1EB4E0D457B4B9CE89D44E14CAB4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214896   (763065) от 23.03.2018
-
-Наталия Гулькина и Маргарита Суханкина - Просто мираж (2005) Enhanced [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Просто мираж (3:42)
-02. Ночь (3:38)
-03. Я не могу без тебя (3:23)
-04. Давлю на тормоза (3:16)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F28A6F298C9696094CE22FE12E11E87652D640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214716   (763181) от 23.03.2018
-
-VA - Fun Club (2018) [MP3|320 Kbps] <Reggae Fusion, Indie Dance, Groove, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763181.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Avicii - Lonely Together 3:02
-02. Dj Snake - A Different Way (Devault Remix) 3:36
-03. Kygo - Stargazing 3:57(   Читать дальше...   )Жанр: Reggae Fusion, Indie Dance, Groove, Nu-DiscoПродолжительность: 03:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EA29D79038FE42EE911B97585DC5D5D18348A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214696   (763293) от 23.03.2018
-
-Max Berlin - 2 Albums, 2 Singles & EPs (1978-1987) Vinyl [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он-же: M. Berlin's, Max, Max B, Max Berlin's и Jean-Pierre Cerrone. Является братом всем известного Jean-Marc Cerrone, выпустил на его студии Malligator первые синглы.Список альбомов:
-1978 - Dream Disco
-1979 - World Wide Party
-1980 - New Wave(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 01:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBEE61EB085C962F3ACAD4C03F1D3FD5E8A989E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214660   (763295) от 23.03.2018
-
-Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need Love (3:35)
-02. You Opened My Eyes (3:41)
-03. One Of A Kind (3:55)
-04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8537E2BE63DCC3877AD03E86B54EE10EA675448E
 ```
 
 https://mybot314.ru/tekegram_catalog/

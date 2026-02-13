@@ -1,3 +1,177 @@
+###  Публикация: 952729   (353181) от 02.11.2015
+
+VA - NRJ Music Awards 2015 (2015) [FLAC|tracks +.cue]<Pop Compilation, Pop, Dance, R&B, French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - What Do You Mean? (3:23)
+02. David Guetta & Showtek feat. MAGIC! & Sonny Wilson - Sun Goes Down (3:31)
+03. Rihanna - Bitch Better Have My Money (3:37)
+04. Nicky Jam & Enrique Iglesias - El perdón (3:26)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Dance, Electronic, R&B, Hip Hop, House, Funk, Soul, Pop Rock, Ballad, French PopПродолжительность: 02:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6D05EECE69257F7B2BA105008E78D03B09227A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178844   (353441) от 29.10.2017
+
+Pink (P!nk) - Beautiful Trauma (2017) Japan [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Trauma
+02. Revenge
+03. Whatever You Want
+04. What About Us(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48CFA83313F3E4E531FD1EBB6C35B90982DC89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256562   (354032) от 22.10.2018
+
+Фантом 2 - Без Контролю (1997) [MP3|320 Kbps] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Інтро
+02. Без контролю
+03. Двоє
+04. Капітошка(   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B9469BF923B92332ED1948C734C64B483F875B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072271   (354107) от 12.11.2016
+
+Sandra - The Very Best Of (2016) 2CD, Compilation, Remastered [FLAC|Lossless|image + .cue] <Pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (I'll Never Be) Maria Magdalena (Single Version) 3:58
+ 02. Everlasting Love 3:42
+ 03. We'll Be Together (Single Remix) 3:46
+ 04. In The Heat Of The Night (UK Single Version) 3:57(   Читать дальше...   )Жанр: Pop, Dance-popПродолжительность: 02:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755A22F365026D01DB822398DC0E01166CFD00C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071965   (354250) от 12.11.2016
+
+Patricia Kaas - Patricia Kaas (2016) Deluxe [FLAC|Lossless|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele 03:08
+ 02. Cogne 03:34
+ 03. Madame tout le monde 02:49
+ 04. Sans tes mains 03:34(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F49A41EC0D08B98EA6CB52540246DC51410D09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256549   (354280) от 22.10.2018
+
+Дима Билан - Я ночной хулиган + (2004) Enhanced [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночной хулиган (3:12)
+02. Звёздочка моя ясная (3:41)
+03. Малыш (3:32)
+04. Я так люблю тебя (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A32799EAD3C3286C2E51BD4C7D8B0DC075349C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072181   (354392) от 12.11.2016
 
 Sandra - Close To Seven (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
@@ -574,180 +748,6 @@ Silent Circle - The Original Maxi-Singles Collection (2014) [MP3|320 кб/с]<Eu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8372C6BE8C0BF7426D367D14F2AD17E1A8C9457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328987   (358170) от 02.10.2019
-
-VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2xCD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excitations And Fred Ventura - State Of Confusion (Italoconnection Remix) (6:31)
-02. Stockholm Nightlife Feat. Helly - My Guiding Star (ZYX Extended) (7:28)
-03. Tom Hooker - You're Right (Mixtended Version) (7:04)
-04. Alex Valentini - See You Again (Extended Mix) (5:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED114E17DC10B0EEB88BDB6C2C85ADC8526FC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256018   (358181) от 20.10.2018
-
-VA - Хитовый 5 (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feduk - По волнам
-02. Анна Седокова - Шантарам
-03. Monmart - Бумажные
-04. Катя Адушкина - Beauty Bomb(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EF2FDD6085DDA6808714EB721A556EAFC5C990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417484   (358256) от 20.10.2020
-
-Luv' - Dance medley (1993) [FLAC|Lossless|image + .cue] <Pop, Europop, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358256.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Luv Dance-Medley (Club Edit) - 6:50
-1a -	Luvely
-1b -	You're The Greatest Lover
-1c -	Trojan Horse(   Читать дальше...   )Жанр: Pop, Europop, MedleyПродолжительность: 00:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67040BF1831377C6C4DDBA89E57BF6FA2B375245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177898   (358518) от 27.10.2017
-
-Kelly Clarkson - Meaning Of Life (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Minute (Intro)
-02. Love So Soft
-03. Heat
-04. Meaning of Life(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A729784BAE3A93D314690143B731D5FEB06BA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554727   (358554) от 02.10.2019
-
-Карел Готт (Karel Gott) - Встречай весну (2008) [APE|Lossless|image + .cue]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я открываю двери
-02. Ну и что ж
-03. Напиток любви
-04. Едет ярмарка(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F124FC8448D7C6D916F15FC0D9991088BE07FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255951   (358746) от 20.10.2018
-
-Dua Lipa - Dua Lipa (Complete Edition) (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis
-02. Lost In Your Light (feat. Miguel)
-03. Hotter Than Hell
-04. Be The One(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F778DB12BF5C4311D48FC91FF02CB1C90D5F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 570990   (389407) от 06.11.2012
+
+VA - Улетная 200ка: Самое лучшее! 7 (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389407.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анна Седокова - Что я наделала
+002. Ирина Ортман и Александр Киреев - Навсегда
+003. Денис Майданов - Пролетая над нами
+004. Юлия Савичева - Я Так Тебя Жду
+005. Филипп Киркоров - Дева-вода
+006. St1m feat. Дакота - Рядом С Тобой
+007. Нереальные - Любовь-Война
+008. А.Р.М.И.Я - Клянусь
+009. Марсель - Настроение осень
+010. Настя Кудри - Оригами(   Читать дальше...   )Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6818029F27A5865AF1668283A7BD8207B55B629C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571314   (389414) от 06.11.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #100 (2012) [MP3|320 кб/с]<Voca Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Protoculture - Cobalt (Original Mix)
+002. Serge Devant feat. Emma Hewitt - Take Me With You
+003. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
+004. Starkillers & Nadia Ali - Keep It Coming (Basto Remix)
+005. The Blizzard & Yuri Kane feat. Relyk - Everything About You (Original Mix)
+006. Tritonal feat. Cristina Soto - Everafter (Tritonal Club Mix)
+007. Will Holland feat. Jeza - Every Heartbeat (Beat Service Intro Mix)
+008. Roger Shah feat. Inger Hansen - Dance With Me (Extended Mix)
+009. Sean Tyas feat. David Berkeley - Take My Hand (John O'Callaghan Remix)
+010. Sunlounger feat. Zara Taylor - Try To Be Love (Roger Shah Naughty Love Mix)(   Читать дальше...   )Продолжительность: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2836162CDA5924022704FA6610984A38DFF41908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173499   (389634) от 12.10.2017
 
 VA - Empire Records - House Clinic 2 (2017) [MP3|320 Kbps] <House>
@@ -771,70 +841,6 @@ VA - Autumn Vintage: Deep House Original Chill Version (2017) [MP3|320 Kbps] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A79B8CFDEB3BD88FA7D55F93D592C837605E5C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173299   (390648) от 11.10.2017
-
-VA - Empire Records - House Clinic (2017) [MP3|320 Kbps] <Dance, Club, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe Carolina, Dropgun, Kaleena Zanders - Rhythm Is A Dancer (Extended Mix)
-02. Mike Williams, Brezy - Don't Hurt (Extended Mix)
-03. Azealia Banks - The Big Big Beat (Kostya Rhino Rmx)
-04. Runge - Coloured Squares (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 01:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065643983D55B2F811605F06A1FC7CD63D160154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569957   (390726) от 04.11.2012
-
-VA - Самые Яркие Русские Хиты За Последние 15 Лет (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390726.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Верка Сердючка - Все будет хорошо
-002. Алла Пугачева и Максим Галкин - Это любовь
-003. Николай Носков - Паранойя
-004. Божья коровка - Теплоход
-005. Филипп Киркоров и Маша Распутина - Роза чайная
-006. Валерия - Часики
-007. Андрей Губин - Танцы
-008. Диана Гурцкая - Я не люблю
-009. Валерий Леонтьев - Виновник
-010. Кристина Орбакайте и Авраам Руссо - Просто любить тебя(   Читать дальше...   )Жанр: PopПродолжительность: 13:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C4FB8C0BD2A6095E9D9782C7B668579DE205F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

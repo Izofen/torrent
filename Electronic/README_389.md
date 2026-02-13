@@ -1,3 +1,32 @@
+###  Публикация: 1212959   (774453) от 14.03.2018
+
+VA - Ibiza Cafe Del Sol - Chill Lounge Club Sessions (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lea Perry  -  Dubby Sunset Sky At Cafe Del Mar (Ibiza Beach Mix)  5:14
+02.  Silver Beat  -  Time 2 Go (Isla Del Sol)  5:18
+03.  Rainman  -  Riding On A Cloud (Ibiza Mix)  4:05
+04.  Soleil Fisher  -  Lightbox (Ibiza Guitar Mix)  5:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51216573D39D60B9BEF3A3AC3F08FD55FB74DAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212904   (774468) от 14.03.2018
 
 VA - Nu Lounge Sounds Late Night Music Playlist (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -707,35 +736,6 @@ VA - JOOF Editions Vol.4 (Mixed by John 00 Fleming) (2018) [MP3|320 Kbps] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF028FD7209162396883842A12551E35E8FDF7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212528   (775820) от 12.03.2018
-
-VA - Passion Lounge A Sensual Chillout Mix (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Red Skin Noxe  -  Vanity and Whim  3:24
-02.  Rick Kelly  -  Just Kiss Me  2:58
-03.  Bruce Maginnis & Mike Caen  -  Sand And Silk  3:06
-04.  Keir Fraser & James Braddell  -  Lately  2:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12106A430D205A799DD14EEE0C47FABB153414C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

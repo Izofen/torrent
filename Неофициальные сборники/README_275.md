@@ -1,3 +1,67 @@
+###  Публикация: 1321213   (461079) от 23.08.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 16.08.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran & Justin Bieber - I Don't Care 3:40
+02. Daddy Yankee feat. Katy Perry & Snow - Con Calma (Remix) 3:01
+03. Denis First & Reznikov feat. Bright Sparks - Shameless 2:46
+04. Jonas Brothers - Sucker 3:01(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446EC210979708D3330645603DF3BAB08100458B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549672   (461162) от 21.09.2012
+
+VA - BadboE - 30 min TruFunk Mix (2011) [MP3|320 кб/с]<Nu Funk, Ghetto Funk,Breaks>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.BadboE - Ease The Funk (Bootleg Mix)
+02.BadboE - Sound of Invasion (Def Cut Mix)
+03.BadboE - Do What You Wanna Do (Mashup Mix)
+04.BadboE - Unhooked Jam
+05.Opiuo - Loist Moinal feat. Xzibit (BadboE Edit)
+06.BadboE - Make It Happend
+07.Slynk vs Ed Solo - I Wish
+08.Breakbeat Junkie vs DJP - The Freak Hop Part 3
+09.BadboE - Shine Like A Halo
+10.N E - Way (BadboE Edit)(   Читать дальше...   )Жанр: Продолжительность: 00:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C901BA4F8783146C8AEEDB4FE1FA48764B0153E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059490   (461253) от 04.10.2016
 
 VA - Sense Of Renewal: Club House Party (2016) [MP3|320 Kbps] <Club, House, Dance>
@@ -699,64 +763,6 @@ VA - Струны Шансона (2019) [MP3|320 Kbps] <Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F14D27141CC2F250FBF1F5B49E7C68B29C0D509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941367   (462995) от 27.09.2015
-
-Guilty by Innocence - Temple of Love feat Samira K [Erotic Vocal Pop Lounge and Oriental Chillout Cafe Sessions] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning (Twilight)
-02. Temple of Light - Intimate India and Asian Erotic Mix
-03. Mantra - Buddha Lounge Cafe World Pop Chant Mix
-04. I Feel You (In My Mind) - Erotic Bondage Moment Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D63F9D8806E872619A4FC24D3AA2C0C1ABC4ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941474   (463009) от 27.09.2015
-
-VA - Chill in Chill Out Sensual Lounge Music for Relaxation (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soleil Fisher - Where Is the Day Now - Vocal Mix
-02. Delliah - For You
-03. Massive Gold - Love Will Alway Win
-04. Merianda - No Deeper Feeling(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AE43EDAC3D431E4D35D2E22BA2598013611773
 ```
 
 https://mybot314.ru/tekegram_catalog/

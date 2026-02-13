@@ -1,3 +1,32 @@
+###  Публикация: 1371347   (891772) от 30.03.2020
+
+Andre Rieu - Happy Days (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андре Леон Мари Николя Рьё (нидерл. André Léon Marie Nicolas Rieu; род. 1 октября 1949, Маастрихт) - нидерландский дирижёр и скрипач, называемый в прессе Королём вальса вслед за Иоганном Штраусом-сыном. Сын дирижёра Андре Рьё-старшего.01. Second Waltz (3:54)
+02. Chit-Chat Polka, Op.214 (2:29)
+03. Griechischer Wein (4:11)
+04. Ob blond, ob braun (2:08)(   Читать дальше...   )Жанр: Classical, Classical CrossoverПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AFDDF62375F720450F3FD5F34923E70978E66E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371345   (891851) от 30.03.2020
 
 Andre Rieu - Romantic Moments II (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Classical Crossover>
@@ -719,35 +748,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2364BB7C280E71D0952A09BA512296F56B921358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992717   (898796) от 03.03.2016
-
-Ravel, Debussy, Mussorgsky - Herbert von Karajan, Berliner Philharmoniker (1995) Reissue, 2015 [FLAC 2.0|96/24|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Claude Debussy (1862-1918)
-La Mer, L.109
-01. 1. From Dawn Till Noon On The Sea (8:38)
-02. 2. Play Of The Waves (6:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236728D0E43F0A2450FC1A5486E3DAA997B7D011
 ```
 
 https://mybot314.ru/tekegram_catalog/

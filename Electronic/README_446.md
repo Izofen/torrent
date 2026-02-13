@@ -1,3 +1,32 @@
+###  Публикация: 1109659   (857373) от 28.02.2017
+
+VA - Balearic Daylight Bar Vol.1 (Balearic Hang Out Tunes) (2017) [MP3|320 Kbps] <Deep House,Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Living Room - World Traveller  4:36
+02.  Badetasche & Deat Marotta - Sunshine (Radio Edit)  3:44
+03.  Runthesphere - Fade Away  6:17
+04.  Benno Blome & Hopperider - Father Of Birds (Fish Eye Collective Remix)  7:28(   Читать дальше...   )Жанр: Deep House,DowntempoПродолжительность: 02:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B77896AE03E98367E22A2D9050D21C7FF98C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000734   (857375) от 26.03.2016
 
 Superpitcher - Kilimanjaro (2010) [FLAC|Lossless|tracks + .cue] <Downtempo, Minimal, Tech House>
@@ -715,35 +744,6 @@ Carpenter Brut - BLOOD MACHINES OST (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2508EBCC50248DF8949E7E6FC3A52A62A7452063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376501   (858361) от 18.04.2020
-
-Paul van Dyk - Escape Reality (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Downtempo, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk with Aly & Fila feat. Sue Mclaren - Guardian (Escape Mix) 5:55
-02. Paul van Dyk & Jessus with Adham Ashraf feat. Tricia McTeague - Only In A Dream (Escape Mix) 5:21
-03. Paul van Dyk & Pierre Pienaar - Stronger Together (Escape Mix) 6:03
-04. Paul van Dyk feat. Hemstock & Jennings - Nothing But You (Escape Mix) 4:18(   Читать дальше...   )Жанр: Trance, Downtempo, Chill OutПродолжительность: 01:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DB248FD6CEE9B99936297861D254203B292A79
 ```
 
 https://mybot314.ru/tekegram_catalog/

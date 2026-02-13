@@ -1,3 +1,32 @@
+###  Публикация: 1108735   (861074) от 26.02.2017
+
+VA - Chillout De Paris (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861074.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arrojas - Cala de Piedras 5:58
+002. Rey Salinero - Recuerdos 5:59
+003. Lamar Ensemble - Stay Sharp 5:37
+004. Diario - Ancient Stone Steps 5:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4C8629B8E0F3DDAD1C7F5FCC987931918B0774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108889   (861075) от 26.02.2017
 
 VA - Lounge System Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -714,35 +743,6 @@ Ochre - Beyond the Outer Loop (2017) [FLAC|Lossless|WEB-DL-24Bit|tracks] <IDM, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6D32D1414C5C9093896C8048931AD5124A20AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108213   (864148) от 24.02.2017
-
-VA - Springbreak 2017/Dubstep, Drum & Bass Edition  [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heimkind - Inforealismus 04:19
-02. Mash-D - Kill Machine 04:03
-03. Monoklin - Sunrise 02:53
-04. Heimkind - Der Letzte Tanz 04:01(   Читать дальше...   )Жанр: Dirty Dubstep, Trap, GrimeПродолжительность: 02:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C03384EFC5BA90E1FA75C7337A17812298B575
 ```
 
 https://mybot314.ru/tekegram_catalog/

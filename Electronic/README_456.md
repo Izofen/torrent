@@ -1,3 +1,32 @@
+###  Публикация: 1104186   (881883) от 14.02.2017
+
+VA - This Is My Church Vol.5 (The Lounge Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Duane Alpert - Cool Experience (Laurent Paradise Mix)  2:57
+02.  Mark Mars - Ship's Lounge (Downtown Slow Mix)  3:23
+03.  Warm Incline - Orange Sky (Markus Wassenberg's Ice Mix)  2:54
+04.  Aaron Smith - Alife (Original Mix)  3:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018512DC293E41BE5AC6AFC9C168E98C3AD69123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104008   (881886) от 14.02.2017
 
 VA - All About The Bass (20 Electro Monsters) Vol 1 (2017) [MP3|320 Kbps] <Electro House>
@@ -716,35 +745,6 @@ VA - The Best Of Silver Waves Recordings 2016 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:022E379F191986D742433255C80F43FECB24D0F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372724   (883744) от 04.04.2020
-
-Boytronic - The Robot Treatment (2019) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venus Covers Mars (Intro) [00:18]
-02. Under the Red [04:31]
-03. All You Can Eat [03:59]
-04. Wayward Sister [03:53](   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738D9BAFCD6AC7A33E735EF69476708005C3372B
 ```
 
 https://mybot314.ru/tekegram_catalog/

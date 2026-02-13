@@ -1,3 +1,209 @@
+###  Публикация: 600916   (998309) от 10.01.2013
+
+Группа Арамис - Звезда на Север (1997) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Спеши Домой
+02. Юла
+03. Твой Друг
+04. Бродяга-Пес
+05. Слышишь, Мама?!
+06. Дождь
+07. Валерия
+08. Кошка
+09. Звезда На Север
+10. Ленка(   Читать дальше...   )Жанр: popПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D641E85E30CB230BB95D7BDC467F628C1AD29C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600907   (998311) от 10.01.2013
+
+VA - Звёзды поют песни композитора Александра Журбина (2CD) (2010) [MP3|320 кб/с]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998311.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:01. У меня в Москве купола горят (А. Журбин - М. Цветаева) - Жанна Рождественская
+02. Ария Магды из мюзикла "Губы" (А. Журбин - С. Проханов, М. Мишин) - Анастасия Стоцкая
+03. Последний шанс (А. Журбин - В. Шленский) - Павел Смеян
+04. Осенняя баллада (А. Журбин - С. Бобков) - Михаил Боярский
+05. Тебя зову (А. Журбин - Н. Гоголь) - Леонид Серебренников, Екатерина Гусева
+06. Поезда (А. Журбин - П. Синявский) - Дмитрий Харатьян
+07. Больше не хочу (А. Журбин - Л. Дербенев) - Валерий Леонтьев, Валентина Игнатова
+08. Ночные звонки (А. Журбин - Н. Олев) - Лев Лещенко
+09. Иллюзия (А. Журбин - В. Шленский) - Армен Джигарханян
+10. Песня о цирке (А. Журбин - В. Шленский) - Евгений Герчаков(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D18499B75B527A8A2F63F2347832546DA103D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600993   (998316) от 10.01.2013
+
+Aura Dione - 3 Альбома (2008-2011) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geronimo (Jost & Damien Radio Mix) (03:15)
+02. Geronimo (The Disco Boys Remix Edit) (03:23)
+03. Geronimo (The Disco Boys Remix) (05:38)
+04. Call Messiah (06:53)
+05. Geronimo (Cloud Geronickoo Mix) (08:15)
+06. Geronimo (Martin Roth Club Mix) (06:43)Жанр: Pop |Продолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCCB64A3F84E5D4B93AF7826DC01869925F838D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600924   (998354) от 10.01.2013
+
+Маркиза и Пароходъ - Здррравствуйте Вам! (2010) [MP3|320 кб/с]<ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весенняя песенка
+02. Петрушка
+03. В парке Чаир
+04. Ах, эти чёрные глаза
+05. Марфуша
+06. Локон
+07. Осень
+08. Прекрасная Маркиза
+09. Фокстрот Нинон
+10. Моя Марусечка(   Читать дальше...   )Жанр: ретроПродолжительность: 00:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D1848C4B29E9ACC237783AE5C07820E1C49CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600460   (998485) от 09.01.2013
+
+Синяя Птица - Лучшее (3CD) (2011) [MP3|320 кб/с]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аттракцион
+02. Так вот какая ты
+03. Приезжай поскорей
+04. Видеомагнитофон
+05. Прощай, прощай
+06. Мир на холсте
+07. Пол -дороги
+08. Ты мне не снишься
+09. Карусельная лошадка
+10. Здравствуй и прощай(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF22889CA334EBD04DD84F4984D0E27A48719F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600540   (998540) от 09.01.2013
+
+Балаган Лимитед - Кто бы мог подумать (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ой, да
+02. Кто бы мог подумать
+03. Свадьба
+04. Осень
+05. Сереженька
+06. Пусть говорят (ft. Белла Огурцова)
+07. Гуси-Лебеди
+08. Сон мой, сон (Монголия) (ft. Органическая Леди)
+09. День рождения
+10. Колыма(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C6D02D8FD0322C0ACB1AB2F209B7AE3FEEDA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599915   (998821) от 08.01.2013
 
 Нэнси - #Вечерочкиночки (2012) [MP3|320 кб/с]<Pop>
@@ -661,179 +867,6 @@ Ricky & The Rockets - Rock'n Roll Disco - 50 Non-Stop Rock'n'Roll Dancing Hits (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C1B2E65931C0988C49F014B57CD3C706CCD953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489117   (1001168) от 14.08.2021
-
-Государственный Академический русский хор п/у А.В.Свешникова - Народные песни. Выпуск 3 (2007) [FLAC|Lossless|tracks + .cue]<Folk, Chorus>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прощание 3:27
-02. "На лодке". Баркарола 4:27
-03. Колечко 4:12
-04. "Ночь темна-темнешенька" 3:13(   Читать дальше...   )Жанр: Folk, ChorusПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4505BF7366CC9587574B2B111DA6DDE0A9176F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489115   (1001192) от 14.08.2021
-
-Fox & Promes - 2 Singles (1979) 7'' [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Hood (4:13)
-02. Mr. Reggae-Man (4:16)
-03. Amen (3:59)
-04. I'll Take You To The Sun (3:54)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5664481522228A6173D5D5E0B3DE99BCD0A81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352259   (1001275) от 13.01.2020
-
-Pin-occhio - Pinocchio Vai !! (1993) Digital Dig-it, 2012 [FLAC|Lossless|WEB-DL|tracks] <Italodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enjoy The Musik (3:58)
-02. Happy Gipsies (4:11)
-03. Tu Ta Tu Ta Tu Ta Ta (Original Version) (4:14)
-04. Bum Bum (3:51)(   Читать дальше...   )Жанр: Italodance, Euro-HouseПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393D727FE8EE487075885EAB58C7ED4CA3EECFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352208   (1001293) от 13.01.2020
-
-Righeira - Reference 80 (2012) [FLAC|Lossless|image + .cue] <Italo-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001293.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Vamos A La Playa 3:37
-2 No Tengo Dinero (LP Version) 4:01
-3 L'Estate Sta Finendo 3:47
-4 Tanzen Mit Righeira 5:30(   Читать дальше...   )Жанр: Italo-Disco, EuropopПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96363FAB7FADAFB212FE4C4F51C37A641587689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352109   (1001296) от 13.01.2020
-
-Neoton Familia - Karneval (1998) [FLAC|Lossless|image + .cue] <Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hetvegi Motorozas [03:53]
-02. Karneval [03:40]
-03. Volt Egy Lany [03:07]
-04. Senorita Rita [04:34](   Читать дальше...   )Жанр: Disco, EuropopПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063AB99A75BE998052E3EAFAFBF2F80BC1A76CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352191   (1001302) от 13.01.2020
-
-One-eyed Jacks - Falling (1991) [FLAC|Lossless|image + .cue] <Breaks, Ambient>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001302.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Falling (The Log Lady Mix) 5:53
-2 Falling (The Ronnette Pulaski Mix) 3:52
-3 Falling (The Log Lady Mix Short Version) 3:59Жанр: Breaks, AmbientПродолжительность: 00:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B7B59AA3F3E1C1A7AFA4B679FB16143CC77A59
 ```
 
 https://mybot314.ru/tekegram_catalog/

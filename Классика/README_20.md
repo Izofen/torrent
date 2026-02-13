@@ -1,3 +1,32 @@
+###  Публикация: 948402   (410935) от 20.10.2015
+
+Sviatoslav Richter - The Essential Richter (1996) 5CD [MP3|320 кб/с]<Classical,Instruments>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mussorgsky: Pictures At An Exhibition (Original Version):
+01. Promenade
+02. Gnomus
+03. Promenade(   Читать дальше...   )Жанр: Classical,InstrumentsПродолжительность: 06:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AABE011CCABC22576A0E7494C9CCE317AA3044E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252109   (410985) от 04.10.2018
 
 Marco Bakker - Opus (1987) A Tom Parker Project [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad, Opera>
@@ -712,36 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E1B18FAEAEF6507B5A9F8D702DD4F49F9A7425D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555435   (429311) от 04.10.2012
-
-Franz Schubert - Symphonies Nos. 1 & 2 (Claudio Abbado & The Chamber Orchestra of Europe) (1988) [FLAC|Lossless]<Classical, Romantic Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 1 in D, D 82
-01. Adagio - Allegro vivace (09:34)
-02. Andante (07:42)
-03. Menuetto. Allegretto - Trio (04:05)
-04. Allegro vivace (06:21)Жанр: Classical, Romantic Period, SymphonyПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB181E14C600AF3C1147653BF40D2CE68B0ADCE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

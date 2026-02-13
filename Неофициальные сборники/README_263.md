@@ -1,3 +1,61 @@
+###  Публикация: 944203   (442505) от 06.10.2015
+
+Joe Dassin - Good Songs (2015) [MP3|320 кб/с]<Pop, Shanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442505.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bip Bip (1965-1969)
+002. Guantanamera (1965-1969)
+003. Je change un peu de vent (1965-1969)
+004. Il a plu (1965-1969)(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 05:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72BD5904E9515AD11B3F8BD6D7596A4F932EE243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248490   (442532) от 20.09.2018
+
+VA - Latin Beats Funky Mix (2018) [MP3|320 Kbps] <Latin, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noelia - Candela (Latin Workout)
+02. Adriel Favela - El Fulano
+03. Yero Company - Echame La Culpa
+04. Alexis Y Fido & Nacho - Reggaeton Ton(   Читать дальше...   )Жанр: Latin, Pop, DanceПродолжительность: 04:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08202298BCF1B846BEE9596D97737D873706D528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944122   (442762) от 06.10.2015
 
 VA - Carefree Lounge (Laidback Chillout Music) (2015) [MP3|320 кб/с]<Jazz, Lounge>
@@ -747,64 +805,6 @@ VA - This Is Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9441E946FA792DDD22D79AE98056C57DA04ED099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062241   (444444) от 12.10.2016
-
-VA - The Story Of Lovers (2016) [MP3|320 Kbps] <Pop, Rock Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444444.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eva Cassidy & Katie Meua - What A Wonderful World
-002. Lucius - Madness
-003. Ed Sheeran - Thinking Out Loud
-004. Sam Smith - I'm Not The Only One(   Читать дальше...   )Жанр: Pop, Rock LyricПродолжительность: 09:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A52B18E8CD4B5747502F1158E8955C24FFABCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062244   (444449) от 12.10.2016
-
-VA - Хит атака 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444449.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Britney Spears - Mood Ring
-002. Din-Go - Я Скучал По Тебе
-003. Katrin Mokko - В Моем Кино
-004. Nicole Millar - Tremble(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF11ECA2FE1B01F9F64F18485FAD0E8B49096520
 ```
 
 https://mybot314.ru/tekegram_catalog/

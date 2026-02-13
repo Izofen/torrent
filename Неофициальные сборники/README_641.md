@@ -1,3 +1,61 @@
+###  Публикация: 971870   (984594) от 04.01.2016
+
+VA - Explosion Samples Tropic House (2016) [MP3|230-320 кб/с] <Tech House, Soulful, Nu Disco, Progressive, Tropical House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ka One & St-Sene - Page Not Found 05:58
+002. Fred P - Slow Euphoria 07:03
+003. Herron - Feet First 05:26
+004. Lnrdcroy - Donny On The River 02:47(   Читать дальше...   )Жанр: Tech House, Soulful, Nu Disco, Progressive, Tropical HouseПродолжительность: 11:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7267BBE320242DE7FF234E034729D3B3D0E37136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971809   (984643) от 04.01.2016
+
+VA - Уголовочка от радио Шансон. Часть 6 (2015) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984643.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Петлюра - Самая Любимая В Мире Женщина
+002. Игорь Слуцкий - Три Брата
+003. Лукьяновка - Ножки
+004. Артур Гога - Жиган(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27DA83AEBBACED123676E35A8CDD7B574B4FDB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971799   (984654) от 04.01.2016
 
 VA - Water Show: Matrix Bass (2016) [MP3|320 кб/с] <Dubstep, DnB>
@@ -699,67 +757,6 @@ VA - Снежный Хит. Самые Сливки (2016) [MP3|128-320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9E0F9BEC340FF9A32DB3ED7DA1F5CD50F124730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611846   (987339) от 01.02.2013
-
-VA - Dj Compressor Energy Mix 13-01 (2013) [MP3|320 кб/с]<House, Trance, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987339.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deep Dive Corp. & Michele Adamson - Fired Up (Dj Compressor Edit)
-2. Spartak - Lets Go Get 'em (Mark Reeder's Remix & Dj Compressor Edit)
-3. Dionigi - Cosmic All Night (Original Mix & Dj Compressor Edit)
-4. Dibmo - I Keh Eeh Eeh (Dj Compressor Edit)
-5. Boss Axis & Steklo - And Nothing (Dj Compressor Edit)
-6. Nicone & Sascha Braemer - Pianotic (Dj Compressor Edit)
-7. Piatto & Luigi Rocca - Cosmic Girl (Original Club Mix & Dj Compressor Edit)
-8. YarosLOVE - Again (Adam Lorx Remix & Dj Compressor Edit)
-9. Серебро - Gun (Dj Compressor Edit)
-10. Proff - I'll Try (Original Vocal Mix & Dj Compressor Edit)(   Читать дальше...   )Жанр: House, Trance, TechnoПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D3DB1DD4F72DF8A667F4E25D7BB88927003A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163675   (987371) от 06.01.2010
-
-VA - XXXL Русский Рок (2009) [MP3|192 kbps]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 06:25:39
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

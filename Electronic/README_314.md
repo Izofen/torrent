@@ -1,3 +1,32 @@
+###  Публикация: 1145603   (618224) от 27.06.2017
+
+VA - Barcelona Orange Urban (Music For Urban People) (Compiled by Marga Sol) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marga Sol - Amoralea (Original Mix)  5:58
+02.  Paulsen & Stryczek - Havana Postcard (Original Mix)  3:04
+03.  Leo de la Rosa - Desnudos Tu Y Yo (Original Mix)  3:23
+04.  Marco Bianchi feat. Franky Harper - Oye Como VA (Original Mix)  3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1113EF5F11B05DA5E09F3FFF2203536E262D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145794   (618231) от 27.06.2017
 
 VA - Ibiza Morning Chill Vibes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -714,35 +743,6 @@ VA - Pure Synthwave Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD7D0451D7164EDF6AE67512AB0F14FB90421C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295129   (620633) от 12.04.2019
-
-Nango Manchay - Under Our Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Psydub>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Varanssi Flame (07:03)
-02. Nepali Dawn (07:42)
-03. Spaces Inbetween (06:05)
-04. Pale Blue Dot (06:21)(   Читать дальше...   )Жанр: Chillout, Downtempo, PsydubПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2755EAAF99D3F358F55183B6F97E9E8526B6F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

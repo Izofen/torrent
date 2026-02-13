@@ -1,3 +1,32 @@
+###  Публикация: 780422   (767614) от 27.01.2019
+
+Jeff Dodson (Defrag, Defragmentation) - Discography 5 Releases (2002-2015) Hymen Records [FLAC|Lossless|tracks+.cue, tracks]<Breakcore, IDM, Dubstep, Breakbeat, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky Calls (Intro) (01:31)
+ 02. Rydian Apex (01:20)
+ 03. That's A Small Hole (01:05)
+ 04. Be The Ball (00:33)(   Читать дальше...   )Тип издания: CD, WebЖанр: Soundtrack/Ambient/Modern ClassicalПродолжительность: 00:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0AD60B1A0D2144298A0349CF0A9A541DA2E28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393443   (767646) от 30.06.2020
 
 VA - Balkan Connection Summer 2020 (2020) [MP3|320 Kbps] <Progressive-House, Deep-House, Melodic-House>
@@ -716,35 +745,6 @@ VA - Aegean Chill (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF40F1F3F844B35A6D0EC417CA39C0A2CF4A49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393214   (768293) от 29.06.2020
-
-The Flying Mars - Cosmochemistry (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Vibrational Repatterning 04:40
-02.Lapislazzuli 13:16
-03.Omumborombonga 13:40
-04.The Dance of the Secret Monkey 14:51(   Читать дальше...   )Жанр: Psychill, Psydub, Psybass, DowntempoПродолжительность: 02:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C589E21B60F2755C39301FD733EC8EC7F2D97C97
 ```
 
 https://mybot314.ru/tekegram_catalog/

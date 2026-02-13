@@ -1,3 +1,32 @@
+###  Публикация: 1060364   (455184) от 07.10.2016
+
+VA - Future Sound Of Egypt 450 (Mixed By Aly & Fila, Ferry Tayle & Dan Stone, Mohamed Ragab) (2016) [MP3|320 Kbps] <Trance , Uplifting Trance , Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila With Ahmed Romel - Kingdoms (3:30)
+02. Davey Asprey - The Rapture (3:09)
+03. Steve Dekay Ft. Crystal Blakk - Musa (3:20)
+04. Nick Callaghan - Live For Today (4:13)(   Читать дальше...   )Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 07:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8005A0162075D518E705EF170470AE00A77D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060482   (455186) от 07.10.2016
 
 VA - Maretimo Sessions: Sunset Del Mar (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -719,32 +748,6 @@ VA - Best of Ibiza Sunset Chill and Lounge (2015) [MP3|320 кб/с]<Downtempo, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5FBBD3D76EC29FED5FD675D98094B8D271C0044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987382   (458637) от 24.08.2019
-
-Steve Roach - Discography 150 Releases (1982-2019) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Tribal, New Age, Drone, Dark Ambient, Berlin-School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Today (09:34)Тип издания: CD, WebЖанр: Ambient, Tribal, New Age, Drone, Dark Ambient, Berlin-School •Продолжительность: 00:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36354B096BB4A339D3822D2A26A12F5602F80AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

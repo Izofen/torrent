@@ -1,3 +1,61 @@
+###  Публикация: 948951   (409439) от 21.10.2015
+
+VA - Новинки Шансона 38 (2015) [MP3|320 кб/с]<Шансон, Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Павел Павлецов - Крылья
+02. Сергей Куренков - Ангел мой
+03. Виктор Калина - Моя Наталья
+04. Дмитрий Прянов - Любить обещаю(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 05:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31458D4EA7B38FAD52980C2900AD37232BAFEBB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413256   (409569) от 03.10.2020
+
+VA - The most fun Disco, let's dance! (2020) 5CD [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - I Want To Break Free
+02. Boney M. - Rivers of Babylon
+03. Blondie - Heart Of Glass
+04. Generation X, Billy Idol - Dancing with Myself (2001 Remaster)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 19:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D570AE2FE2710BDF415FAE1ABAF5E954D41F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948686   (409639) от 21.10.2015
 
 VA - Halloween Witch Party Best of Chill Deep and House (2015) [MP3|320 кб/с]<Deep House, Chill House>
@@ -693,64 +751,6 @@ VA - ConfiG Q-B! Sound Top 145 (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3E1AAF90B419F7135739E9EBF9CD53E965485DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066690   (410198) от 27.10.2016
-
-VA - Ultimate House Reflected Smash (2016) [MP3|198~320 Kbps] <House, Electro House, Progressive House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410198.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Max Ferrante, Heidi Vogel - Hold My Hand (Marco Rea & Ru.DiJ, Mancuso Remix)  7:41
-002. Effex & Loco feat. Amperage & Dela K - Harter Track Mit Guten Vocals (Marc Reason Remix)  5:26
-003. SomeWire - Bounce Now Partycrowd (Original Mix)  5:16
-004. The White Nights - Life Is Good (Extended Mix)  6:16(   Читать дальше...   )Жанр: House, Electro House, Progressive House, Club, DanceПродолжительность: 10:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF895BA41397FF1EB2CE3AE76B4485367E35F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573709   (410199) от 01.09.2022
-
-VA - Hip-Hop Mega Hits (2022) CD, Compilation [MP3|320 Kbps] <Hip Hop, Gangsta, Emo, Memphis Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Harlow - WHATS POPPIN
-02. The Notorious B.I.G. - Hypnotize
-03. Lil' Kim - Lighters Up
-04. Masked Wolf - Astronaut in the Ocean(   Читать дальше...   )Жанр: Hip Hop, Gangsta, Emo, Memphis RapПродолжительность: 02:22:56 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735CE4F4C548F2E0C6BAFAB5C63365893900B4C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

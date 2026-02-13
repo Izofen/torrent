@@ -1,3 +1,32 @@
+###  Публикация: 1842205   (1048590) от 15.12.2025
+
+Damian Lazarus - Magickal Remixed (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Searchin' (THEMBA Remix) [00:04:08]
+02. So Low (Anthony Middleton Remix) [00:07:42]
+03. Y Don't U (Cinthie Remix) [00:06:38]
+04. Alive (Nick Morgan Remix) [00:05:53](   Читать дальше...   )Жанр: Tech House, Deep House, Progressive HouseПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B69E5165BD95C6DC9A3C97E079CF05E5D09B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842246   (1048594) от 15.12.2025
 
 VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <Trance>
@@ -709,35 +738,6 @@ VA - Enhanced Progressive Best of 2025 (Mixed by Matt Fax) (2025) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:496F144213B204C52A358283854B4509E46D820E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844225   (1050026) от 25.12.2025
-
-VA - Interplay 2025 (Mixed by Alexander Popov) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Popov & Huvagen - Fairytale (Mixed) 02:34
-02. Alexander Popov & Whiteout & Vaileri - Need To Feel Loved (Mixed) 03:33
-03. Idy Ramy & Dawtone - Pilgrim (Mixed) 03:02
-04. Dawtone & Alex Soun - Sirma (Mixed) 04:09(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0698F83EC1BE8BC08455DDE21783E3FAF9130F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

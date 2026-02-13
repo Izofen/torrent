@@ -1,3 +1,29 @@
+###  Публикация: 117613   (939267) от 03.02.2014
+
+Kazuki Tomokawa - Дискография (1975-2008) [MP3|128-256]<Acid Folk>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Acid-FolkПродолжительность: 22:48:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364042   (939274) от 01.03.2020
 
 Katsu Ohta - Micronist (2003) [WavPack|Lossless|image + .cue] <Neoclassical Metal>
@@ -755,41 +781,6 @@ U-KISS - 7 albums (2008-2011) [FLAC|Lossless]<KPop, Electropop, Dance>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613255   (981078) от 05.02.2013
-
-Hiromi Sano - Mood Sax Best of Sorrow (2CD) (2008) [MP3|320 кб/с]<Instrumental, Saxophone>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981078.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:01. I Drink
-02. The Inn Zankano
-03. Summertime Shiretoko
-04. Seto No Hanayome
-05. Town Blues
-06. Dotonbori Humanity
-07. Nagasaki Was A Rainy Day
-08. Naniwa Koi Shigure
-09. Love Tears
-10. Ice Storm(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0634D2B8B29BF776BEAEA36B5A1BEE049F163B2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1036656   (619142) от 21.07.2016
+
+VA - Al Mira Presents - Classic in Modern (2004) [MP3|320 Kbps] <Neo Classic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jules Massenet - Meditation    06:12
+02. Frederic Chopin - Prelude In E Minor    07:00
+03. Tomaso Albinoni - Adagio    05:34
+04. Johann Sebastian Bach - Air    05:05(   Читать дальше...   )Жанр: Neo ClassicПродолжительность: 02:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D44D34DF5C069094143638DD255057C8CA819B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036674   (619144) от 21.07.2016
+
+VA - Ultimate Kizomba Hits (2016) [MP3|320 Kbps] <Workd, Zouk, Kizomba>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaysha - Sexual Healing 04:57
+02. Loony Johnson - Kada Vez Mas Bonita 04:20
+03. Jacie - Next to Me 04:08
+04. Kaysha - Automatic 04:11(   Читать дальше...   )Жанр: Workd, Zouk, KizombaПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CAA8D2B3B2976718D2301F322FED6F7408A894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036767   (619151) от 21.07.2016
 
 VA - Red Box EDM: Euromania Set (2016) [MP3|320 Kbps] <Dance, Club, EDM, House>
@@ -711,64 +769,6 @@ VA - Back in Blue (A Blues Tribute to AcDc) (2016) [MP3|320 Kbps] <Blues, Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:890F80FED547DB9290AF1978DA10720F2B624A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036236   (620839) от 20.07.2016
-
-VA - Blues: Love & Devotion (2016) [MP3|320 Kbps] <International, Jazz, Vocal,Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slim Harpo - I Got Love If You Want It (02:49)
-02. B.B. King - To Know You Is to Love You (03:50)
-03. Clarence - I'll Be There {If You Ever Want Me) (04:46)
-04. Etta James - I Just Want to Make Love to You (03:09)(   Читать дальше...   )Жанр: International, Jazz, Vocal,BluesПродолжительность: 01:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD715DFED0407BB1144EC86B9F334139F405A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229971   (620882) от 09.06.2018
-
-VA - Vocal Drum & Bass Selected Works [Compiled by Zebyte] (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T-base - Locked (Feat. Kryptomedic) [05:04]
-02. Mr Joseph - Spinning Around (Feat. J&s) [06:06]
-03. Satl - Everything Anything [04:34]
-04. The Vanguard Project - Is This Love (Feat. Lucy Kitchen) [05:16](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96DD555787ECA781BA4F51E15759F9E7DB9DF59
 ```
 
 https://mybot314.ru/tekegram_catalog/

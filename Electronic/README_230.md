@@ -1,3 +1,32 @@
+###  Публикация: 1066920   (410193) от 27.10.2016
+
+Taff - Miracles (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3d Trip To Mars 05:34
+02. Invitation 04:44
+03. Doors 06:36
+04. Dream Chains 05:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687A5012283DB8FE4945AC2BD81629D782F0FB35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325748   (410234) от 16.09.2019
 
 VA - Jazz Sensation Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
@@ -716,35 +745,6 @@ Markus Schulz - Escape to Sedona
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:439E75AA7FC43F7FED964CB486075E5AE942BD3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413049   (411917) от 02.10.2020
-
-Henrik Meierkord - Själ (Sjal) (2019) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Neoclassic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Trädet 05:46
-2. Själ 07:30
-3. Ren Och Fin 09:34
-4. Kommunikation 08:04(   Читать дальше...   )Жанр: Ambient, Drone, NeoclassicПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E660125EBD242ED1A02B4B17377912AE7CB1F070
 ```
 
 https://mybot314.ru/tekegram_catalog/

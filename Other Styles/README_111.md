@@ -1,3 +1,38 @@
+###  Публикация: 508605   (677062) от 11.06.2012
+
+Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_677062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Grave Is A Grim Horse (04:02)
+02. Clothes Of Sand (02:30)
+03. The Acre (03:28)
+04. Willow Tree (03:42)
+05. Valley Of The Moon (06:27)
+06. The Spider Song (03:25)
+07. Looking For Dry Land (06:42)
+08. Western Son (04:46)
+09. Brigit's Cross (04:12)
+10. Promises (03:06)(   Читать дальше...   )2000-2008Жанр: Acoustic, Neofolk, AmbientПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508558   (677200) от 11.06.2012
 
 Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Folk, Experimental>
@@ -735,35 +770,6 @@ Heidi Breyer - Moonlight in Empty Rooms (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26965670168D6E6A75BA3FB1E5088C4A58CC51FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135205   (682897) от 18.05.2017
-
-Manolo Fernandez - Celtic Music Dream (2017) [MP3|320 Kbps] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dreamcatcher
-02. The Elves Are Coming
-03. Her Celtic Eyes
-04. Morrigan(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D829D5552DFD3DFAC0255CCEE3B4F25B8980196D
 ```
 
 https://mybot314.ru/tekegram_catalog/

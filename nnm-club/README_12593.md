@@ -1,109 +1,22 @@
-###  Публикация: 552809   (446699) от 27.09.2012
+###  Публикация: 553133   (443312) от 28.09.2012
 
-Журнал | Огородник №10 [октябрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446699.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Огородник» - красочный современный журнал для любителей дач и огородов. В каждом номере интересные статьи и полезные советы по уходу за различными культурами, а также по дизайну участка.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F8DBE977B7C05747595946E32A0DC2C8FE9815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553009   (446700) от 27.09.2012
-
-Журнал | Любимая дача №10 [октябрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446700.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Любимая дача» - популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3F01CA7613C2484AD338D8A060BF42BF0408E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553061   (446705) от 27.09.2012
-
-VA - Dub step from evolinte vol.12 (2011) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446705.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Assault Terror - Terror (3:54)
-2. ASYS - Bassturbation (Oyaebu Remix) (4:08)
-3. Atomic - Missile (4:10)
-4. Atomic - Reflux (4:14)
-5. Brainpain - Engine (4:13)
-6. Captain Panic! - Screamer (Gambit Remix) (4:22)
-7. Captain Panic! - Screamer (VIP) (5:03)
-8. Chaosphere - Empire (4:13)
-9. Chaosphere - System (4:03)
-10. Chaosphere - Venom (4:50)(   Читать дальше...   )Жанр: DubstepПродолжительность: 02:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE02A73697770330E12B187DE01152BF4C07C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827509   (446706) от 03.10.2014
-
-Люди Икс: Дни минувшего будущего / X-Men: Days of Future Past (2014) BDRemux 3D [1080p] [3D/2D]
+Джеймс Бонд 007: Завтра не умрет никогда / James Bond 007: Tomorrow Never Dies (1997) [1080p] Blu-ray
 
 >>Зарубежное кино
->>Зарубежные Фильмы (3D)
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446706.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_443312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В недалёком будущем мутанты близки к истреблению роботами-охотниками на мутантов Стражами. Единственная надежда для мутантов выжить — предотвратить череду роковых событий, приведших к появлению Стражей. С помощью своих способностей, Китти Прайд перемещает сознание Росомахи в его молодое тело в 1973 год. В прошлом всё оказывается не так радужно: молодой Профессор (   Читать дальше...   )Производство: США, Великобритания, 20th Century Fox Film Corporation, Bad Hat Harry Productions, Marvel Entertainment, Marv Films, Dune EntertainmentЖанр: Фантастика, Приключения, БоевикРежиссер: Брайан СингерАктеры: Майкл Фассбендер, Джеймс МакЭвой, Хью Джекман, Дженнифер Лоуренс, Иэн МакКеллен, Патрик Стюарт, Николас Холт, Эллен Пейдж, Холли Берри, Питер ДинклэйджПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, французский, датский, финский, норвежский, португальский, русский, шведский, эстонский, корейский, латышский, литовский, тайский, украинскийПродолжительность: 02:11:35
+Медиамагнат Элиот Карвер, один из самых влиятельных и богатых людей планеты. Он хочет присоединить Китай к своей глобальной телекоммуникационной империи. Китай как всегда не спешит с решением, и это выводит Карвера из равновесия. Для достижения своих целей он не остановится ни перед чем. А имея в распоряжении самый эффективный инструмент формирования общественного мнения, он готов даже спровоцировать третью мировую войну. Чтобы предотвратить катастрофу, Джеймсу Бонду необходимо использовать все свои необыкновенные способности, благо прогресс не стоит на месте, и Бонда вовремя снабжают новыми высокотехнологичными разработками из шпионских лабораторий.Жанр: Боевик, триллер, приключенияРежиссер: Роджер СпоттисвудВ ролях: Пирс Броснан, Джонатан Прайс, Мишель Йео, Тери Хэтчер, Рикки Джей, Гёц Отто, Джо Дон Бейкер, Винсент Скьявелли, Джуди Денч, Дезмонд Льюэлин, Саманта Бонд, Колин Сэлмон, Джеффри Палмер, Джулиан Феллоуз, Теренс Ригби, Сесиль Томсен, Нина Янг, Дафна Декерс, Колин Стинтон, Эл Мэтьюз, Марк Спэлдинг, Брюс Александр, Энтони Грин, Кристофер Бауэн, Эндрю Хоукинс, Доминик ШонПеревод: ДублированныйПродолжительность: 01:59:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CDB98960C0053FF95D3486447B9AE2C742BF8A6
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 552573   (446707) от 27.09.2012
+###  Публикация: 243866   (443314) от 09.10.2010
 
-Журнал | Легко худеем №10 [октябрь 2012] [PDF]
+Землетрясение (Таншаньское землетрясение / Пережившие ужас) / Tangshan da dizhen / Aftershock (2010) BDRip [H.264/720p]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446707.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_443314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Легко худеем» — журнал, рассказывающий о том, как: сохранить стройность, не утратив бодрости и хорошего настроения; выглядеть стильно при любой комплекции; какими новыми блюдами себя порадовать без ущерба для фигуры.Формат: PDF
+Землетрясение в городе Таншане (провинция Хэбэй) 1976 года длилось меньше чем полминуты, но унесло несколько сотен тысяч жизней. Эти секунды поставили мать перед невозможным выбором — спасти сына или дочь, и спасение обернулось грузом вины на десятилетия.Производство: Китай / Tangshan City Government, China Film Group Corporation (CFGC), Huayi Brothers MediaЖанр: ДрамаРежиссер: Фэн СяоганАктеры: Сюй Фань, Чжан Цзинчу, Ян Лисинь, Чэнь Даомин, Чэнь Цзинь, Ли Чэнь, Чжан Цзыфэн, Цзяцзюнь, Чжан Лу И, Чжан ГоцянПеревод: Профессиональный двухголосый (BBC Saint-Petersburg)Субтитры: АнглийскиеПродолжительность: 02:16:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AFF331340F25DE3D0EAF4EE2247C2D938D1263B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 552827   (446709) от 27.09.2012
+###  Публикация: 244114   (443316) от 09.10.2010
 
-Журнал | Здоровье №10 (Россия) [октябрь 2012] [PDF]
+Черная смерть / Black Death (2010) [1080p] BDRip
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446709.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_443316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Здоровье» — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, antiage, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье – основные темы, которые освещает журнал.Формат: PDF
+«In an age of darkness one man will face the ultimate battle against evil.»
+Средневековая Англия попала под тень Черной смерти. В этом апокалиптическом мире, заполненном страхом и суеверием, собираются несколько монахов, объединенных одной целью — выследить того, кто способен возвращать к жизни умерших от чумы.Жанр: Драма, Фэнтези, ДетективРежиссер: Кристофер СмитАктеры: Шон Бин,  Эдди Редмэйн,  Джонни Харрис,  Кэрис Ван Хаутен,  Дэвид Уорнер,  Кимберли Никсон,  Дэвид Мастерсон,  Тим МакИннерни,  Джон Линч,  Энди НайманПеревод: Многоголосый закадровый (любительский)Формат: MKVПродолжительность: 01:41:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA958E59680AE30446D193716405F887BD35DF83
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 827487   (446710) от 03.10.2014
+###  Публикация: 244125   (443324) от 09.10.2010
 
-Люди Икс: Дни минувшего будущего / X-Men: Days of Future Past (2014) Blu-ray [1080p]
+Двойная рокировка / Infernal Affairs / Mou gaan dou (2002) [1080p] BDRip
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446710.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_443324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В недалёком будущем мутанты близки к истреблению роботами-охотниками на мутантов Стражами. Единственная надежда для мутантов выжить — предотвратить череду роковых событий, приведших к появлению Стражей. С помощью своих способностей, Китти Прайд перемещает сознание Росомахи в его молодое тело в 1973 год. В прошлом всё оказывается не так радужно: молодой Профессор (   Читать дальше...   )Производство: США, Великобритания / 20th Century Fox Film CorporationЖанр: Фантастика, боевик, триллер, приключенияРежиссер: Брайан Сингер / Bryan SingerАктеры: Хью Джекман, Джеймс МакЭвой, Майкл Фассбендер, Дженнифер Лоуренс, Холли Берри, Николас Холт, Анна Пэкуин, Эллен Пейдж, Питер Динклэйдж, Шон ЭшморПеревод: ДублированныйЯзык субтитров: Русский, украинский, английский, испанский, французский, датский, финский, японский, норвежский, португальский, шведский, болгарский, китайский, хорватский, чешский, эстонский, индонезийский, корейский, латышский, литовский, малайский, сербский, словенский, тайскийПродолжительность: 02:11:35
+История двух людей, ежесекундно рискующих жизнью. Один из них - агент мафии в полиции; другой - полицейский, внедренный в мафию. Каждый стремится к одному: разоблачить врага. Ян был самым многообещающим кадетом в полицейской академии, поэтому на роль агента под прикрытием комиссар Вонг рекомендовал начальству именно его. Яна показательно выгоняют из академии и внедряют (   Читать дальше...   )Производство: ГонконгЖанр: Триллер, детективРежиссер: Вэй Кеунг Лау, Сиу Фай МакПеревод: Профессиональный, многоголосыйСубтитры: Английские, чешские, датские, немецкие, норвежские, испанскиеФормат: MKVПродолжительность: 01:40:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31DDA7977785F3BD504ECD5BAF36B9F13F64CC9D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,34 +103,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 552569   (446713) от 27.09.2012
+###  Публикация: 1409715   (443334) от 18.09.2020
 
-Paul Oakenfold - Planet Perfecto 099 (22-09-2012) [MP3|320 кб/с]<Trance>
+Aua - I Don't Want It Darker (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psychedelic Rock, Krautrock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446713.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gina Starr - Bliss (Original Mix)
- 02. AN21 & Max Vangeli feat. Rudy - This Far (Original Mix)
- 03. Static Revenger feat. Dev - Turn The World On (Alex Kenji Remix)
- 04. EDX & Nadia Ali - This Is Your Life (Leventina Remix)
- 05. Michael Woods feat. Ester Dean - We've Only Just Begun (Club Mix)
- 06. Hard Rock Sofa & Squire - Just Can’t Stay Away (Original Mix)
- 07. Animal Kingdom - Strange Attractor (Dzeko & Torres Remix)
- 08. Justice. - New Lands (A-Trak Remix)
- 09. Clockwork - Titan (Original Mix)
- 10. Organ Donors - Stylus Over Substance (Original Mix)(   Читать дальше...   )Жанр: Trance
+01. Friendo (02:23)
+02. I Don't Want It Darker (04:01)
+03. Starstruck (03:24)
+04. Coke Diet (04:35)(   Читать дальше...   )Жанр: Psychedelic Rock, KrautrockПродолжительность: 00:32:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC197B38343F19D050158D41E1E5AECA373AC2E3
+magnet:?xt=urn:btih:B32046BB7A7CCDFCBFC13C05CD29FC15F8765FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +132,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248150   (446717) от 18.09.2018
+###  Публикация: 1409707   (443335) от 18.09.2020
 
-VA - Anjunabeats Vol.100 (Mixed By Above And Beyond) (2008)(2CD)[FLAC|Lossless|image + .cue] <Trance, Progressive Trance>
+Days Between Stations - Giants (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spark (16:54)
+02. Witness the End of the World (3:57)
+03. Another Day (9:38)
+04. Goes By Gravity (4:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9531F997D3738C10E8E0428A9163BF44E13C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409699   (443336) от 18.09.2020
+
+Poor Genetic Material - Here Now (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Now (04:44)
+02. Serendipity (03:43)
+03. The Waiting Game (06:59)
+04. Note from My Younger Self (07:00)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3922F7F2F3E4EA400F6E8D46F84A27EE81D0F78B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409654   (443337) от 18.09.2020
+
+Faction - The End Of Tel Aviv Redux (2020) False Industries [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Ambient>
 
 >>Electronic
->>Trance (Lossless)
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446717.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cara Dillon vs 2Devine - Black Is The Colour (Coco & Green Remix) 04:50
-02. Super8 & Tab - Helsinki Scorchin' 02:52
-03. Above & Beyond - No One On Earth (Gabriel & Dresden Club Mix) 07:07
-04. Boom Jinx feat. Key - Eternal Reminiscence 06:41(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:39:02
+01. Inside Out (06:43)
+ 02. Maybe Tommrow (06:34)
+ 03. Cutter's Way (07:06)
+ 04. An Older Outland (04:50)(   Читать дальше...   )Жанр: IDM, Glitch, AmbientПродолжительность: 01:11:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F5937F4523700F43323331EE030F7CAE13FB2BC
+magnet:?xt=urn:btih:462CF46ADFBD647626C8BE574D07DCBEC78E1A0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,487 +219,490 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 552579   (446718) от 27.09.2012
+###  Публикация: 1409683   (443338) от 18.09.2020
 
-Paul Oakenfold - Full On Fluoro 017 (25-09-2012) [MP3|256 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fractal Skulls - The Fog (Original Mix)
- 02. Scuba - Ignition Key (Original Mix) (Hotflush)
- 03. Perfect Static - ID (CDR)
- 04. Wally Lopez feat. Kreesha Turner - Keep Running The Melody (The Japanese Popstars Remix) (Positiva)
- 05. Paul Oakenfold feat. Cee Lo - Falling (Dezarate & Michel Manzano Remix) (Bootleg)
- 06. Max Freegrant - Penguins Dancing Too (Danny Rockin’ & DJ Volsky Remix) (Freegrant)
- 07. Perfecto All Stars - Reach Up (Papa’s Got A Brand New Pigbag) (Flesh & Bone Remix) (Perfecto)
- 08. DJ Mikas & DJ Sage - 1975 (Original Mix) (Progressive Grooves)
- 09. Solarstone with Aly Fila - Fireisland (Serhio Vegas Remix) (Blackhole)
- 10. Justin Michael feat. DJ From Saint Motel - Eyes Closed (Jerome Isma-Ae Dub Mix) (Zouk)(   Читать дальше...   )Жанр: Trance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F581EE65C71A8E381C6D1F15D116F60AF3B13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827682   (446719) от 03.10.2014
-
-Владимир Дронов | PHP 5/6, MySQL 5/6 и Dreamweaver CS4. Разработка интерактивных Web-сайтов (2009) [PDF]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446719.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены приемы разработки на языке РНР интерактивных Web-сайтов, извлекающих данные из баз MySQL. Отмечены особенности новейших версий PHP 6 и MySQL 6. Для написания простейших страниц используется популярный Web-редактор Adobe Dreamweaver CS4, попутно дается краткое описание языка HTML. Приводится описание языка PHP, а также подробно разбираются все (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6451676FA7A64CAB69D9E6EE161B5828084C89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248158   (446720) от 18.09.2018
-
-K-Lite Codec Pack Update 14.4.7 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446720.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F583957E1BD33AE1B7AF64414302DEBA84F61F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175198   (446721) от 03.10.2014
-
-Avril Lavigne - Live in Calgary Alberta (2007) HDTVRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Avril Lavigne в Calgary Alberta (Canada) 2 апреля 2007.01. Girlfriend
-02. I Can Do Better
-03. Sk8er Boi
-04. My Happy Ending(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:06:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552523   (446722) от 27.09.2012
-
-DJ Feel - TranceMission (25-09-2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rex Mundi - Bella Monaco (Original Mix) (COLDHARBOUR)
- 02. Space RockerZ & Ellie Lawson - Under The Same Sky (Two & One Remix) (A&R)
- 03. Alex Vives - Take Off (Original Mix) (MONDO)
- 04. Carol Lee - Edge of A Broken Heart (Raneem Vocal Club Mix)
- 05. Rave CHannel - Te Quiero (Sargas Remix) (CD-R)
- 06. Store N Forward - Sugar (Original Mix) (AFTERGLOW)
- 07. Evo & Faveon - Play (Original Mix) (ECHELON)
- 08. Azima - Godsfalling (Essonita Remix) (CD-R)
- 09. Tritonal feat. Cristina Soto - Everafter (Craig Connelly Remix) (AIR UP THERE)
- 10. DJ Feel - Burning Up (Original Mix) (ALTER EGO)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632B4540BB998C88D8D8C1C3BA1FE3C955E27E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248121   (446723) от 18.09.2018
-
-Shortcut Bar 1.8.14 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shortcut Bar - невероятно удобное приложение, с его помощью вы получите быстрый доступ к файлам, папкам и приложениям, которые вам необходимы.
-Приложение «живет» в меню баре и позволяет добавлять ярлыки в неограниченном количестве. Всякий раз, когда вам требуется доступ к этим важным файлам и папкам, просто нажмите на иконку в строке меню и выберите элемент из раскрывающегося (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2018Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248060   (446724) от 18.09.2018
-
-VA - Record Super Chart 553 (2018) [MP3|320 Kbps] <Dance, Club, House>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dynoro feat. Gigi D'Agostino - In My Mind
-02. Chris Lake - I Want You
-03. The Prince Karma - Later Bitche
-04. Vanessa da Mata - Ai Ai Ai (Felguk & Cat Dealers Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 01:54:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248141   (446726) от 18.09.2018
-
-VA - Morning Breeze Lounge (Chillout Your Mind) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - Rise & Shine (Original Mix) 4:37
-02. Martin Liege - Chillin In La (Original Mix) 3:59
-03. Red Chameleon - Everything (Original Mix) 3:55
-04. Solar Music Club - Down To Earth (Original Mix) 6:11(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248160   (446727) от 18.09.2018
-
-Avant Browser Ultimate 2018 build 6 + Portable [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не знаете какой браузер лучше - Internet Explorer, Chrome или Firefox? Испытайте Avant Browser - современный браузер, использующий 3 движка (Trident, Webkit и Gecko), между которыми можно быстро и легко переключаться. Avant Browser имеет удобный интерфейс, умеет блокировать всплывающие окна, флеш-ролики и рекламу, включает в себя массу нужного для работы в интернете.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248210   (446729) от 18.09.2018
-
-Калеб Крисп | Только не Айви Покет! (2018) [FB2]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы знакомы с Айви Покет? Эта двенадцатилетняя горничная — сущее наказание для всех, у кого она когда-либо служила. Айви сродни стихийному бедствию: там, где она появляется, тут же наступает хаос и происходят разные недоразумения. Она запросто может окунуть вас лицом в суп и высказать все, что у нее на уме. Зная об этом, вы бы доверили ей ужасно ценный алмаз Тик-так? (   Читать дальше...   )Жанр: Городское фэнтези; Фантастика для детейПеревод: Наташа АллунанФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248223   (446730) от 18.09.2018
-
-VA - German Top 100 Single Charts 17.09.2018 [MP3|320 Kbps] <Pop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446730.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dynoro Gigi D'Agostino - In My Mind
-002. Bonez MC RAF Camora - 500 PS
-003. Capital Bra - Melodien (feat. Juju)
-004. El Profesor - Bella ciao (HUGEL Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248162   (446731) от 18.09.2018
-
-Things 3.6.2 [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248111   (446734) от 18.09.2018
-
-Darlyn Vlys - Prince in the Rain (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Techno, Indie Dance>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Northern Lite & Darlyn Vlys – Sun In Hell | AFFKT Remix (06:58)
-02. Darlyn Vlys & Kid Bucle – Tears In Rain | Marc DePulse Remix (06:44)
-03. Darlyn Vlys & RARI – Paradoxal | Third Son Remix (06:07)
-04. Darlyn Vlys & Haptic – Surface | HearThuG Remix (07:40)(   Читать дальше...   )Жанр: Deep Progressive House, Techno, Indie DanceПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248229   (446735) от 18.09.2018
-
-Che-MD - Хозяин в доме (2018) [MP3|320 Kbps] <Alternative Rock, Folk Rock, Punk Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Che-MD — тогда она называлась Plexus — была основана в 2002 году её бессменным лидером и идейным вдохновителем Михаилом Смоленко, ныне журналистом бельцкого телевидения, документалистом и любителем молдавской старины.
-Название коллектива поменялось в 2006 году на вариант созвучный с сочетанием имени легендарного революционера Че Гевары и названия интернет-домена (   Читать дальше...   )01. Герои Бессарабии
-02. Страх
-03. Балканика
-04. Бесы(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Punk RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248189   (446737) от 18.09.2018
-
-App Cleaner & Uninstaller Pro 5.4 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте установленными приложениями, деинсталлируйте ненужные приложения, удаляйте сервисные файлы приложений.
-Удалите все служебные файлы и будьте уверенны, что ничего лишнего не занимает места на Вашем диске. Запустите приложение и оно автоматически сделает всю работу по поиску служебных файлов за Вас.Тип издания: macOS SoftwareРелиз состоялся: 14.09.2018Разработчик: NektonyПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248196   (446738) от 18.09.2018
-
-AnyTrans for iOS 7.0.0 (20180918) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446738.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
-
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5ABF82095F6F6726DAF140F945B8CD441F930A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248131   (446739) от 18.09.2018
-
-Oscar Peterson, Stephane Grappelli - Skol (1979) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+June Christy - The Ballad Collection (50-e - 60-e) 2000, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446739.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nuages [8:17]
-02. How About You [5:05]
-03. Someone To Watch Over Me [6:59]
-04. Makin' Whoopee [5:23](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:23
+01. Interlude [4:44]
+02. My One and Only Love [2:47]
+03. Lonely House [4:07]
+04. Softly as in a Morning Sunrise [2:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D63EBF3638C65B808DD07E7F868E2D2A3D2CCB83
+magnet:?xt=urn:btih:CF0F8FF252EB3011CFD0DC8747A36D5087EF045A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409696   (443339) от 18.09.2020
+
+Just Delayed - Just Delayed (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strained 03:50
+02. Locked Up 04:11
+03. A House On The Moon 04:42
+04. A Father's Regrets 05:00(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D5C96BF534BC9A9DBF21EB7773F0CF7059F6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409764   (443340) от 18.09.2020
+
+Permute 3 v3.5.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 18.09.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF46DE8CA57AEBFF95BDF874BE9AF93A2F824E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409685   (443341) от 18.09.2020
+
+Kenny Burrell - Giants of Jazz (2004) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Blues [10:05]
+02. St. Thomas [3:48]
+03. You and the Night and the Music [4:40]
+04. Listen to the Dawn [5:40](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC8659F11A14579FB68A545DC6B08F4F1C0ABCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409682   (443342) от 18.09.2020
+
+Mel Torme - The Essentials (1946 - 1962) 2002, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow Road [3:02]
+02. It Happened in Monterey [2:51]
+03. There's No Business Like Show Business [2:56]
+04. (It's) Easy to Remember [3:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C0899BCC2DFBCCF8F4789ED538C8273D3F42E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409689   (443343) от 18.09.2020
+
+Gil Coggins - Better Late Than Never (2001, 2002) 2007, Smalls Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Old Fashioned [10:04]
+02. Smooch [6:46]
+03. Repetition [8:24]
+04. Vierd Blues [8:59](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3690093EEB9FFF53F341900B265F56128483B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409687   (443344) от 18.09.2020
+
+Turk Mauro - Hittin' The Jug (1995) Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canadian Sunset [9:56]
+02. Red Top [4:59]
+03. We'll Be Together Again [4:55]
+04. Ca' Purange (Jungle Soul) [6:14](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53CAD74827BA0A9FCBFB5DFC0FCF240AC0DA7708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553529   (443345) от 28.09.2012
+
+Прометей / Prometheus (2012) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443345.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках сакрального знания группа ученых отправляется в самые темные и неизведанные чертоги вселенной. Именно там, в отдаленных мирах, находясь на пределе своих умственных и физических возможностей, им предстоит вступить в безжалостную схватку за будущее всего человечества…Производство: США, ВеликобританияЖанр: Фантастика, триллер, приключенияРежиссер: Ридли СкоттАктеры: Нуми Рапас, Майкл Фассбендер, Шарлиз Терон, Идрис Эльба, Гай ПирсПеревод: Дублированный |Лицензия|Субтитры: Русские, АнглийскиеПродолжительность: 02:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719EEEFD43AAFC51ABFD3083BDDAD0BDDA36E81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553162   (443347) от 28.09.2012
+
+Цунами 3D / Bait (2012) [720p] BDRip <Звук с TS>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_443347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чудовищное цунами обрушивается на курортный город. Из морских глубин на затопленные улицы вырываются голодные и жаждущие крови акулы. Начинается охота. Оказавшись в ловушке стихии, чудом уцелевшие люди пытаются выжить. Сможет ли Джош спасти жизнь девушки, которую он всегда любил, но однажды уже потерял?Жанр: Ужасы, Боевик, ТриллерРежиссер: Кимбл РендаллПродюсер: Питер Барбер, Гари Хэмилтон, Тодд ФелмэнАктеры: Шарни Винсон, Завьер Сэмюэл, Фиби Тонкин, Джулиан МакМэхон, Кариба Хейн, Алекс Расселл, Линкольн Льюис, Элис Паркинсон, Дэниэл Уилли, Ричард Бранкатисано, Дэмиен Гарви, Мартин Сакс, Николас МакКаллум, Адриан Пэнг, Ци ЮйуПеревод: ДублированныйЯзык субтитров: AнглийскийПродолжительность: 01:33:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552989   (443351) от 28.09.2012
+
+Мрачные тени / Dark Shadows (2012) DVDRip [UKR]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владелец поместья Коллинвуд, Барнабас Коллинз, богат, властен и слывет неисправимым Казановой, пока не совершает роковую ошибку, разбив сердце Анжелики Бошар. Будучи ведьмой в буквальном смысле этого слова, она обрекает его на судьбу, худшую, чем сама смерть — обращает его в вампира и хоронит заживо. Два века спустя Барнабаса случайно освобождают из склепа, и тот оказывается в очень изменившемся мире 1972 года. Он возвращается в Коллинвуд и находит в руинах это некогда величественное здание. Жалкие потомки его семьи сохранились лишь немногим лучше родового гнезда, и у каждого из них есть свои «скелеты в шкафу».Жанр: Фэнтези, Мелодрама, КомедияРежиссер: Тим БёртонАктеры: Джонни Депп, Мишель Пфайффер, Хелена Бонем Картер, Ева Грин, Джеки Эрл Хейли, Джонни Ли Миллер, Белла Хиткот, Хлоя Грейс Морец, Гулливер МакГрат, Кристофер ЛиПеревод: ДублированныйПродолжительность: 01:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149E0D91543EA859FCE869A877A1CB87FFDA004C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553243   (443354) от 28.09.2012
+
+Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видео группы Uriah Heep01.Жанр: Музыка
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0729DFA1E1C2AC8A94EBD6A6AAC4326ECA335F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553099   (443356) от 28.09.2012
+
+Любовь с препятствиями / Un bonheur n'arrive jamais seul (2012) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саша живет беззаботной и легкомысленной жизнью в окружении красивых девушек, друзей и музыки. Шарлота уже дважды успела побывать замужем и больше не собирается повторять своих ошибок. Хотя, как знать. Может, у судьбы свои планы?Жанр: Мелодрама, КомедияРежиссер: Джеймс ХатПродюсер: Ришар Гранпьер, Патрик Батто, Соня ШиллитоАктеры: Софи Марсо, Гад Эльмалех, Морис Бартелеми, Франсуа Берлеан, Майкл Абитебул, Джули-Энн Рот, Маша Мериль, Франсуа ВинчентеллиПеревод: Дублированный |Продолжительность: 01:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B512361CB2D4F1FFBF567F1FC68C0F242F906408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553056   (443358) от 28.09.2012
+
+Сергей Сергеевич Дмитриев | Half-Life 2 [2009] [FB2, PDF]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фанатам серии посвящается...книга, написанная по сюжету игры Half-Life 2, малоизвестным автором.
+Могут быть орфографические ошибки (опечатки).Формат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15ABB8C6363C358511981360589D1A65098B95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553187   (443360) от 28.09.2012
+
+Любовь с препятствиями / Un bonheur n'arrive jamais seul (2012) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_443360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саша живет беззаботной и легкомысленной жизнью в окружении красивых девушек, друзей и музыки. Шарлота уже дважды успела побывать замужем и больше не собирается повторять своих ошибок. Хотя, как знать. Может, у судьбы свои планы?..Производство: Франция, Captain Movies, Eskwad, SPAD FilmsЖанр: Комедия, мелодрамаРежиссер: Джеймс ХатАктеры: Софи Марсо, Гэд Эльмалех, Морис Бартелеми, Франсуа Берлеан, Майкл Абитебул, Джули-Энн Рот, Маша Мериль, Франсуа ВинчентеллиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 244071   (443379) от 09.10.2010
+
+Joe Satriani - Black Swans & Wormhole Wizards (2010) [FLAC|Lossless]<Instrumental Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_443379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Premonition (3:53)
+02. Dream Song (4:49)
+03. Pyrrhic Victoria (5:08)
+04. Light Years Away (6:11)(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 243604   (443384) от 09.10.2010
+
+Imelda May - No Turning Back (2007) [FLAC|Lossless]<Blues, Jazz, Swing, Rockabilly>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_443384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues, Jazz, Swing, RockabillyПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164017   (443385) от 08.09.2017
+
+Autodesk AutoCAD 2018.1.1 x86-x64 RUS-ENG
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443385.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD является мировым лидером среди решений для 2D- и 3D-проектирования. Будучи более наглядным, 3D моделирование позволяет ускорить проектные работы и выпуск документации, совместно использовать модели и развивать новые идеи. Для AutoCAD доступны тысячи надстроек, что позволяет удовлетворить потребности самого широкого круга клиентов. Пришло время проектировать (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D786618227FA37873A1B29599053A1288F9728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158667   (443386) от 08.09.2017
+
+Игра престолов / Game of Thrones (2017) WEB-DL [H.264/1080p-LQ] (сезон 7, серии 1-7 из 7) Кравец, LostFilm, AlexFilm, NewStudio, FOX, OMSKBIRD, UATeam
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Укороченный и предпоследний по счёту седьмой сезон приближает грандиозную фэнтези-сагу к финалу Игры. Ключевые участники во всеоружии: Дейенерис вместе с драконами и своим внушительным полчищем, Безумная Королева Серсея, Король Ночи с ходоками и новоявленный король Севера Джон Сноу. Вестерос на пороге Великой войны...
+Седьмой сезон экранизирует незавершённые книги (   Читать дальше...   )Производство: США, Великобритания / Home Box Office (HBO), Television 360, Grok! StudioЖанр: фэнтези, драма, приключенияРежиссер: Алан Тейлор, Марк Майлод, Джереми ПодесваАктеры: Питер Динклэйдж, Лина Хиди, Эмилия Кларк, Кит Харингтон, Николай Костер-Вальдау, Мэйси Уильямс, Софи Тернер, Айзек Хемпстед-Райт, Иэн Глен, Алфи Аллен и др.Перевод: Дублированный - Кравец; многоголосый закадровый, профессиональный - LostFilm, AlexFilm, NewStudio, FOX, OMSKBIRD, UATeamСубтитры: Русские (Forced), Русские (Amedia, 7kingdoms), АнглийскиеПродолжительность: ~00:57:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41DD058E83CAFC75AD138516CFA44BA35E07DF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

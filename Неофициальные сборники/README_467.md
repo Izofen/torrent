@@ -1,3 +1,61 @@
+###  Публикация: 1397460   (740306) от 20.07.2020
+
+VA - Sexy Midnight with a Saxophone (2020) 3CD [MP3|320 Kbps] <Easy Listening, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exotique - Perfect Day
+02. Grupo Cabana - Desafinado
+03. The Brecon Brothers - Cantaloupe Island
+04. Jazz Urbaine - Street Life(   Читать дальше...   )Жанр: Easy Listening, JazzПродолжительность: 12:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36EFBD0811493392522B94A5073B2DB1EC4FA18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283255   (740336) от 16.02.2019
+
+VA - The Official UK Top 40 Singles Chart 15.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - break up with your girlfriend, i'm bored
+02. Ariana Grande - 7 rings
+03. Lewis Capaldi - Someone You Loved
+04. Sam Smith, Normani - Dancing With A Stranger(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D88A6892215B9199362DF9DC709F9BFE07AF127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282974   (740660) от 15.02.2019
 
 VA - Вспоминая Rock 80-х (зарубежный выпуск) (1980-1989) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
@@ -688,64 +746,6 @@ VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0DD72BA9E99D4A3F9FCD9F4A263050CE19A3CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217540   (742264) от 05.04.2018
-
-VA - Trance 100 World Fashion (2018) [MP3|320 Kbps] <Harmonic, Emotional, Tuneful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronny K. & Ben Ashley - Every Single Moment (Astuni & Nikolauss Remix) 6:38
-02. Ng Rezonance - Visitation (Intro Edit) 4:44
-03. Madwave Ft. Vanessa Marchi - By My Side (Extended Mix) 7:25
-04. Ronski Speed & Syntrobic Ft Renee Stahl - See The Future (Ronski Speed Mix) 6:18(   Читать дальше...   )Жанр: Harmonic, Emotional, TunefulПродолжительность: 11:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0653B0F3DE366ABCBBBC91D70C962FAC7592D3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282798   (742345) от 14.02.2019
-
-VA - The Last Sun Rays (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742345.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adаm Whitе - Timе Stооd Still
-002. Kеурlауеr & Alеxаndrа Bаdоi - Run Awау
-003. Alеxаndеr Pороv, Nаtаliе Giоiа - Nоthing Is Ovеr
-004. Andу Mооr & Sоmn - Frее Fаll (Extеndеd Mix)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 09 :18 :01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7844CE6B9C65BA7056DEF688B467E108342756
 ```
 
 https://mybot314.ru/tekegram_catalog/

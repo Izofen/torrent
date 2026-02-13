@@ -1,3 +1,183 @@
+###  Публикация: 1542877   (633287) от 09.04.2022
+
+Мираж - Мираж версия 2000 (1999) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты словно тень
+02. Музыка нас связала
+03. Я снова вижу тебя
+04. Звёзды нас ждут(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2396E0862E28958B53A2221BD3C4B0DC276F210B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542869   (633290) от 09.04.2022
+
+Сергей Минаев - Радио Абракадабра (1987) Unofficial Release, 2015, Anima Vox [FLAC|Lossless|tracks + .cue] <Pop, Parody>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона A:
+01. Вступление
+02. Кто стучится на мой "Хаус"?
+03. Мини-макси(   Читать дальше...   )Жанр: Pop, ParodyПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0446FBCE4EAC727CDFC394D64C2AC7848ACC737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519819   (633309) от 08.07.2012
+
+Duran Duran - A Diamond in the Mind, Duran Duran – A Performance – 2011 (2012) [MP3|320 кб/с]<Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before The Rain
+ 02. Planet Earth
+ 03. A View To A Kill
+ 04. All You Need Is Now
+ 05. Blame The Machines
+ 06. The Reflex
+ 07. Girl Panic!
+ 08. Ordinary World
+ 09. Notorious
+ 10. Hungry Like The Wolf(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C0494C2833C7BD0AE3AE4697A601C8D1D6B3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542881   (633431) от 09.04.2022
+
+Patty Ryan - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Love, You're My Life
+02. I Don't Wanna Lose You Tonight
+03. Love Is The Name Of The Game
+04. Love Emotion(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6175A5487D665057AC8A6F9CBF36F6E691B2F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293654   (633737) от 05.04.2019
+
+VA - NOW That's What I Call Music 102 (2019) 2CD [MP3|320 Kbps] <Synthpop, Reggae, Dancehall>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633737.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Ariana Grande - 7 rings
+02. Ava Max - Sweet but Psycho(   Читать дальше...   )Жанр: Synthpop, Reggae, DancehallПродолжительность: 02:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFF59A000C444EA1AFE37947D63089A821D8C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908317   (633990) от 14.06.2015
+
+Marie Fredriksson - I En Tid Som Var (1996) [FLAC|image + .cue]<Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I En Tid Som Var [6:18]
+02. Drommen [5:39]
+03. Efter Sa Manga Ar [4:50]
+04. Min Trognaste Van [4:07](   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1CACEA25C15A85E7BAFCF179380A4E5BCF4978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034468   (634224) от 13.07.2016
 
 Pino D'Angio - 7 Albums (1981-1991) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
@@ -579,179 +759,6 @@ Tori Kelly - Hiding Place (2018) [FLAC|Lossless|tracks + .cue] <Pop, Gospel>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73A5702013685D42AB8F548CC618AC93D4A2D9D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228148   (635679) от 01.06.2018
-
-C.C. Catch - The Album - Remastered (2017) Limited Edition [MP3|320 Kbps] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley 2010 (6:47)
-02. You Are My World (Radio Version) (4:24)
-03. Supernature (3:24)
-04. Unborn Love (Remastered) (3:38)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6359EFD449C00952F6C971D5EDF5C20F3432D87D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033648   (635709) от 12.07.2016
-
-Олег Винник - 3 Альбома   (2011 - 2015)  3CD  [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635709.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011. Ангел
-2013. Счастье
-2015. Я не устануЖанр: PopПродолжительность: 01:57:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0CCC9584B0629862E9673B40E50237F91F20D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033875   (635920) от 12.07.2016
-
-VA - DJ Hits Vol. 61 (1996) Unofficial Release [APE|Lossless|image + .cue] <House, Europop, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr.President - Coco Jamboo
-02. Backstreet Boys - Get Down
-03. Carol Bailey+Alex Party - I Can't Make You Love Me
-04. Neuronic - Heaven(   Читать дальше...   )Жанр: House, Europop, Euro HouseПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76635A46E49E0170A38D9FDE0BD0762CD1FF5ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908044   (635959) от 13.06.2015
-
-Giorgio Moroder – Deja Vu (2015) [FLAC|Lossless|WEB-DL]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 U with Love [2:36]
-02. Deja vu (feat. Sia) [3:20]
-03. Diamonds (feat. Charli XCX) [3:31]
-04. Don't Let Go (feat. Mikky Ekko) [4:30](   Читать дальше...   )Жанр: PopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745BFFBF7C362FCBE16BE69E2739F9615FCEFFF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033788   (636034) от 12.07.2016
-
-Тамара Гвердцители - Избранное (2005) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Виват, король! 04:42
-02. Грузия 04:44
-03. Не ревнуй 03:02
-04. Мамины глаза 04:26(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5C9C6FD7A0F4F173DD4D194623C79E32581509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033716   (636041) от 12.07.2016
-
-Dirty Vegas - Photograph (2015) [MP3|320 Kbps] <Dance, Synth Pop, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let the Night (Original Mix)
-02. Setting Sun (Original Mix)
-03. Do What You Feel
-04. Photograph(   Читать дальше...   )Жанр: Dance, Synth Pop, HouseПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A234974E67481756C8E0A40313D8DCD066C687D
 ```
 
 https://mybot314.ru/tekegram_catalog/

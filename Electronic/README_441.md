@@ -1,3 +1,32 @@
+###  Публикация: 1378650   (842970) от 27.04.2020
+
+VA - Keep Calm and Ultra Lounge 10 (2020) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groovy Waters - Jamming [02:45]
+02. Groove Da Praia, Ituana - Talking in Your Sleep (Bossa Nova Mix) [03:49]
+03. Beluga's Trio, Shelly Sony - Love You Inside Out [03:43]
+04. STEREO DUB, Karen Souza - Back Down South (Bossa Nova Mix) [02:45](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA01B1499D5CCB31BAC89A0079B76429641F138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378572   (842986) от 27.04.2020
 
 Vulta - Swarm (2020) [MP3|320 Kbps] <Synthwave, Cyberpunk, Darksynth>
@@ -717,35 +746,6 @@ Config.Sys & Ahnst Anders - ...Boiling The Ocean (2008) [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3B4D7BE1A80F9F35E7E441F9F92E38CC262DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003013   (845395) от 02.04.2016
-
-VA - Sunshine Live Vol.57 (2016) [MP3|320 кб/с] <House, Progressive, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Robin Schulz - Sugar 03:39
-02 Felix Jaehn - Eagle Eyes (Lucas & Steve Remix feat. Lost Frequencies & Linying) 03:19
-03 EDX - Revered 03:15
-04 DJ Antoine - Thank You (Paolo Ortelli & Luke Degree Radio Edit) 03:26(   Читать дальше...   )Жанр: House, Progressive, Electro HouseПродолжительность: 06:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBED05E1BFBB1E1D006452EBC37F29C3DDB6E27
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1199039   (802813) от 14.01.2018
+
+David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Breathe (10:50)
+02.  Lightdancer (10:12)
+03.  Deep Blue (9:53)
+04.  Floating (10:08)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 02:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A861CF123BBA58EE8B00ECC252D42EBFDE8DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119772   (803268) от 30.03.2017
 
 Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
@@ -715,35 +744,6 @@ Rupert Gregson-Williams - Hacksaw Ridge / По соображениям сове
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB674F0985B71B19B2F3A7027149CC0311D92274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009832   (805994) от 23.04.2016
-
-Timothy Wenzel - Distant Horseman (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Bend in the River (feat- Josie Quick)    04:23
-02. Distant Horseman (feat- Josie Quick)    05:05
-03. Turn and Walk Away    04:00
-04. A Night so Cold (feat- Josie Quick)    05:04(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF20CA73360F5BEA378156984F1DAFEA5AFF8467
 ```
 
 https://mybot314.ru/tekegram_catalog/

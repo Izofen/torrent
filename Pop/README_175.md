@@ -1,3 +1,187 @@
+###  Публикация: 548607   (467344) от 18.09.2012
+
+Mika - The Origin Of Love (2012) [MP3|320 кб/с]<Pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origin of Love (4:37)
+02. Lola (3:45)
+03. Stardust (3:18)
+04. Make You Happy (3:36)
+Мульти-платиновый британский певец и автор песен01. Karen (3:57)
+02. L'amour dans le mauvais temps (4:07)
+03. Un soleil mal lune (3:06)
+04. Tah Dah (5:47)
+05. Make You Happy (5:55)
+06. Celebrate (5:02)
+07. Elle me dit (3:11)
+08. Make You Happy (2:50)
+
+Продолжительность: 00:33:55]Жанр: Pop, rockПродолжительность: 01:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B484E3B0EC36077B32932229E5D18D8C5F43BAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161398   (467373) от 28.08.2017
+
+Samantha vs. Sabrina - Call Me (2010) EP, Enhanced [APE|Lossless|image + .cue] <Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samantha vs. Sabrina - Call Me
+02. Sabrina Salerno - In The Morning
+03. Samantha Fox - I Give Myself To You (Remix)
+04. Sabrina Salerno - Gringo (Remix)(   Читать дальше...   )Жанр: Disco, Eurobeat, Hi-NRGПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209B691E778936F32BD7C03373ADD0208672D74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161405   (467458) от 28.08.2017
+
+Hot Shot - 2 Albums (1981, 1983) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hot Shot - малоизвестная в СССР, но получившая популярность в Европе 80-х и особенно в Германии диско-группа из Голландии. Продюсером и аранжировщиком был Patric Perquee.01. (Don't You Believe That) I'm O (4:27)
+02. What's Your Name (3:35)
+03. Fire In The Night (3:31)
+04. Friday (3:22)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1B6124201FE63F4B04A68BDA49308A28924EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245362   (467661) от 08.09.2018
+
+VA - NRJ 300% Hits 2018 Vol. 2 (2018) 3CD [MP3|320 Kbps] <Pop, Dance, Rap>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467661.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01: 
+01. David Guetta, Anne-Marie - Don't Leave Me Alone (feat. Anne-Marie)
+02. Aya Nakamura - Djadja
+03. Maroon 5, Cardi B - Girls Like You(   Читать дальше...   )Жанр: Pop, Dance, RapПродолжительность: 03:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CADF5CFFB13806DAACA2B8BAC9708C99761F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245721   (467877) от 08.09.2018
+
+Knuckle Puck - Shapeshifter (2017) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nervous Passenger (1:32)
+ 02. Twist (3:03)
+ 03. Double Helix (2:51)
+ 04. Gone (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F39509E68185229D44F5398278C22A805DDB126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245929   (467878) от 08.09.2018
+
+Coffee - Slippin' And Dippin' (1980) Reissue CD, Big Break Records, 2016 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slip And Dip (5:39)
+02. Mom And Dad 1980 (5:13)
+03. I Wanna Be With You (7:41)
+04. Casanova (6:12)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5973BE2279CF150B30E28DE632B0EA0A43E23635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245848   (467880) от 08.09.2018
 
 MAGIC! - Expectations (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -573,186 +757,6 @@ Southern Exposure - Headin' South (1979) LP [MP3|320 Kbps] <Electronic, Disco, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:357896C001852F37DC61AB5C4496EF36C2A612A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320430   (471070) от 18.08.2019
-
-Kim Wilde - Aliens Live (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Shot  (Live in London)
-02. Water on Glass  (Live in Antwerp)
-03. Never Trust a Stranger  (Live in Gateshead)
-04. Kandy Krush  (Live in Utrecht)(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBDFD491485C8D753219673DE7DF87B083494F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940169   (471323) от 23.09.2015
-
-Лариса Долина - Снимем маски, господа (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снимем маски, господа
-02. Очередь за мечтой
-03. Верни мне музыку
-04. У деревни Крюково(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505FAC2FC196631D598F91166391D5D622589D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386018   (472173) от 11.09.2011
-
-Наталья Сенчукова - Необходимость (2011) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ты так долго не звонил
-02.Необходимость
-03.Все шоколадно
-04.Сахарная вата
-05.Не отречься
-06.Не летная погода
-07.Перстенек
-08.Телефонная история
-09.Костя,ты не прав
-10.Все решено(   Читать дальше...   )2011Жанр: PopПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0902C665B937A74A9A9EF1F607E7D9E74651C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406579   (472768) от 04.09.2020
-
-Linda Jo Rizzo - Magic Moments: My 35th Anniversary (2020) Single Collection [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Volcano Project feat. Linda Jo Rizzo - More To Love (03:32)
-02. Linda Jo Rizzo - Paradise Island Amor (03:08)
-03. Linda Jo Rizzo & Ken Laszlo - Different Kind Of Magic (04:30)
-04. Linda Jo Rizzo - Policeman (04:06)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurodanceПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3E0C86498B532CDD65E60FEE53B395C7563054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939733   (473213) от 22.09.2015
-
-Андрей Державин и группа Сталкер - Андрей Державин и группа Сталкер (1994) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не плачь, Алиса [4:33]
-02. Когда ты уйдешь [4:42]
-03. Все как всегда [6:04]
-04. Было или не было [3:13](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50801769562051E492819DE444078A310DDE00D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320311   (473371) от 17.08.2019
-
-Strutt - Time Moves On (1975) Reissue CD, 2001, Victor [MP3|320 Kbps] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Moves On (6:01)
-02. Said You Didn't Love Him (3:13)
-03. Front Row Romeo (Instrumental) (4:23)
-04. We've Come A Long Way Baby (4:21)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678CB22FED902D3004D5FAAFF2C5D2C24B2EF48C
 ```
 
 https://mybot314.ru/tekegram_catalog/

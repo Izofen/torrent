@@ -1,3 +1,32 @@
+###  Публикация: 930467   (510785) от 27.08.2015
+
+Lazerhawk - Skull and Shark (2013) [MP3|320 кб/с]<Electronic, Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skull and Shark (04:50)
+02. Chaos (04:50)
+03. Lawless (04:26)
+04. The King of the Streets (04:57)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54388FF7C8CBBD624A2C840A3B8585CD3A12C096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315827   (510978) от 22.07.2019
 
 VA - Like A Summer Day, Vol. 3 (2019) [MP3|320 Kbps] <House, Deep House, Indie Dance>
@@ -717,35 +746,6 @@ BELLATRIX - Cosmic Dust (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacepop, Spacesyn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26536CF740474E75A6C4FC0F498EDE5C9DF29DC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315187   (513901) от 19.07.2019
-
-VA - Power Lifting Platinum Hits Fitness Session (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morgana - Nobody Love (Fitness Version)
-02. Speedmaster - Kids In America (Fitness Version)
-03. Speedmaster - Get Ur Freak On (Fitness Version)
-04. Mazerati - Hold Each Other (Fitness Version)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DF4DCA814A89A20E6779D931230D6E03AC06AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

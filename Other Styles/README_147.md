@@ -1,3 +1,32 @@
+###  Публикация: 1114433   (831675) от 15.03.2017
+
+Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Pacific (00:36)
+02. The Beach (01:28)
+03. Project Monarch (02:02)
+04. Packard's Blues (01:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B967794B2AEAD2C7D0BA2557126E0B8B5687BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113833   (831682) от 15.03.2017
 
 Mgzavrebi / Мгзавреби - PROстранства (2015) [WavPack|Lossless|image + .cue] <Folk, Pop-Rock, Pop>
@@ -715,41 +744,6 @@ Frederic Talgorn - Крепость / Fortress (1992) 1993 [MP3|320 кб/с] <Sc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA62B713BA169F6A393DC76BC26176FE92991B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310267   (837216) от 18.03.2011
-
-The Chemical Brothers - Hanna (OST) (2011) [MP3|320 kbps]<Techno, Big-Beat>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanna's theme [02:08]
-02. Escape 700 [05:16]
-03. Chalice 1 [00:47]
-04. The devil is in the details [03:22]
-05. Map sounds - Chalice 2 [00:15]
-06. The forest [01:07]
-07. Quayside synthesis [01:21]
-08. The sandman [01:45]
-09. Marissa flashback [02:44]
-10. Bahnhof rumble [02:37](   Читать дальше...)Жанр: Techno, Big-BeatПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A73D1528F265B578663D7C89EF74FE6F06C5C38
 ```
 
 https://mybot314.ru/tekegram_catalog/

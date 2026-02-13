@@ -1,3 +1,61 @@
+###  Публикация: 1097349   (915544) от 26.01.2017
+
+VA - Blues Collection 6 (2017) [MP3|320 Kbps] <Blues, Rock, Folk>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915544.jpg" />
+</div>
+
+
+###  Подробнее
+
+001| John Illsley - When God Made Time  (04:54) 
+002| Baylou - Sweet Red Wine  (03:36) 
+003| Bill Durst - 21st Century Blues  (04:51) 
+004| Carl Verheyen Band - Give A Try  (05:35) (   Читать дальше...   )Жанр: Blues, Rock, FolkПродолжительность: 09:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12AFC63DC717CFC40CB70510E8BADF5953DF088C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097327   (915554) от 26.01.2017
+
+VA - Зарубежные хиты экспресс Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915554.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daddy Yankee Feat. Natti Natasha - Otra Cosa 3:28
+002. Mаrkus Rivа - Sаuсu Tеvi Vеl 3:21
+003. Ferreck Dawn - Mad Love 3:34
+004. Sollar - Cheat Code 4:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78484E8588FB2AECB30C5C77224AA8B08145C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989925   (915635) от 23.02.2016
 
 VA - Acoustic Cafe (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -687,64 +745,6 @@ VA - 100 Самых Любимых Песен (2017) [MP3|320 Kbps] <Pop , R&B ,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF010A3B4257B2D546359919986FCD5DABA115D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988745   (917027) от 22.02.2016
-
-VA - Electro Life Best 100 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Dubstep, Electro Progressive, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Kunnari - Helsinki (Marcus Maison & Will Dragen Remix)
-02. Amir Afargan ft. Katty Heath - Above The Clouds (Original Mix)
-03. Andrew D - Sweet Thing
-04. Andrew Spencer - What A Feeling (Cassey Doreen Remix)(   Читать дальше...   )Жанр: Electro House, Dubstep, Electro Progressive, Progressive HouseПродолжительность: 07:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931FF4D86E6EBAD899C1E705D34FD918C2BFCC83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989157   (917030) от 22.02.2016
-
-VA - Придуманный мир. Новинки русского шансона (2016) [MP3|128-320 kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917030.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Игорь Голубев - Придуманный Мир
-002. Сергей Вольный - Поздняя любовь
-003. Игорь Слуцкий – Материнская любовь
-004. Борис Мамажанов- Осень в подмосковье(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AA7A79CCC27682A1EA2ACB6E669F68519530AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
