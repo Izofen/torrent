@@ -1,25 +1,25 @@
-###  Публикация: 1617539   (250303) от 07.03.2023
+###  Публикация: 1569096   (451647) от 13.08.2022
 
-Cosmic Gate - MOSAIIK Chapter One (2021) [MP3|320 Kbps] <Trance>
+DJ Dado - The Album (1996) [OGG|485 Kbps] <House, Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250303.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451647.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cosmic Gate with Diana Miro - Blame (03:40)
-02. Cosmic Gate - Feel It (03:28)
-03. Cosmic Gate with Diana Miro - Nothing To Hide (03:36)
-04. Cosmic Gate - Your Mind (03:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:35:35
+01. Metropolis	2:08
+02. The Legend Of Babel	3:55
+03. X-Files	3:54
+04. Dreaming	4:04(   Читать дальше...   )Жанр: House, TranceПродолжительность: 00:52:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:272294E7E63244A510D47AA6EF0C39DABF3D96F6
+magnet:?xt=urn:btih:BA2AB73441A18EFF72058D5FD1328F25BD32FACE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835482   (250722) от 06.11.2025
+###  Публикация: 1247676   (451390) от 16.09.2018
 
-VA - Anjuna25 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+VA - Le Tour De Trance (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250722.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anjunabeats - Volume One [07:22]
-02. Parker & Hanson - Gravity (Edit) [04:37]
-03. Smith & Pledger - Northern Lights [07:39]
-04. P.O.S - Gravity (Edit) [04:01](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 13:17:21
+01. Richard Durand - The Air I Breathe (Original Mix)
+02. Giuseppe Ottaviani feat. Thea Riley - On The Way You Go (Ruben De Ronde Remix)
+03. Sied Van Riel - On A Trip (Original Mix)
+04. Cosmic Gate & Super8 & Tab - Noom (Estiva Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21B4E1A4C349B2F3B799E65D4715E917E5B15238
+magnet:?xt=urn:btih:D044E925A7E1582DE2AD3ED491EF37206541A553
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836104   (252295) от 08.11.2025
+###  Публикация: 1247702   (451378) от 16.09.2018
 
-VA - Redux Selection, Vol. 11 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+David Forbes pres. Hal Stucker - Electronic Excursions (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Progressive House>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252295.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rob Binner - Turning Point (Extended Mix) [6:42]
-02. Kymol - Empty Space (Extended Mix) [6:01]
-03. Guy Alexander & Shadow Theory - Search And Destroy (Extended Mix) [6:30]
-04. Soaring Star - Ascension (Soaring Star's Hypertech Extended Rework) [6:11](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:18:51
+01. David Forbes pres. Hal Stucker - Celeste (Original Mix)
+02. David Forbes pres. Hal Stucker - Chaos Bowl (Original Mix)
+03. David Forbes pres. Hal Stucker - Fairlights (Original Mix)
+04. David Forbes pres. Hal Stucker - Monolith (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Progressive HouseПродолжительность: 01:46:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E80DDAD5040FC77570518B9EB25A7B420D73528D
+magnet:?xt=urn:btih:1DB4F69D75B4E4DACF52E922B14B27D755EA946A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836302   (252413) от 09.11.2025
+###  Публикация: 1247639   (451372) от 16.09.2018
 
-VA - Suanda Music 500 (The Official Album) (2025) [MP3|320 Kbps] <Trance>
+VA - Vocal Dance Vol.4 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252413.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roman Messer & Main Engine - New Reality (Suanda 500 Anthem) (Extended Mix) [6:42]
-02. ThoBa & Kate Miles - Your Love (Alex M.O.R.P.H. Extended Remix) [6:37]
-03. Roman Messer & Philippe El Sisi - C'est La Vie (Extended Mix) [6:09]
-04. Michael Milov & H4lo - Now Or Never Again (Extended Mix) [4:28](   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:18
+01. Roman Messer - Tonight (Original Mix)
+02. Bogdan Vix & Lucid Blue - I Am Now (Mhammed El Alami Remix)
+03. Adip Kiyoi & Christina Novelli - Carousel (Original Mix)
+04. Attila Syah vs J.Puchler & Xpectra - Forever (Original Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:14:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C73BCD349F7EAF0A807BC29940DE2CCCAA28DD2
+magnet:?xt=urn:btih:FDA3FF733634FD35EF3461E962ED4E57FDA1217A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836469   (253097) от 11.11.2025
+###  Публикация: 1247799   (448807) от 17.09.2018
 
-VA - Top 10 June 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+VA - Progressive Ibiza (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253097.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Grom - Calisto (Intro Mix) [06:15]
-02. SounEmot - Quizás El Amor (Emotional Mix) [10:09]
-03. Jef Karlen - Eclipse [06:43]
-04. Ocoro - Hayan Sonamu [07:42](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:10:28
+01. Eranga - The Reason (Eximinds Remix)
+02. Roman Messer - For You (Original Mix)
+03. LTN - Wind & Cloud (Denis Sender Remix)
+04. Alexander Spark - Nothing Like The Sun (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A67D11ADBFF181E739555C7C389533270D13A7E6
+magnet:?xt=urn:btih:C03075BE41D4AA729685CA3EBD695AC825A45244
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836470   (253098) от 11.11.2025
+###  Публикация: 1570178   (445102) от 16.08.2022
 
-VA - Top 10 July 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+VA - FSOE Ibiza (2022) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253098.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Myngo & Ourmotion - Exploration (Original Mix) [4:18]
-02. Dreary Fan - Sanctuary In My Heart (Kyousin Remix) [7:18]
-03. Stormline - Space Traveller (Original Mix) [6:41]
-04. Masaru Hinaiji - Snow Drop (Original Mix) [6:19](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:46:38
+01. Aly & Fila vs The Noble Six - Moonlit (Extended Mix)
+02. Sunlounger & Susie Ledge - Sail Away (FSOE 734) (Roger Shah & Yelow Remix)
+03. Aly & Fila vs Scott Bond & Charlie Walker - Shadow (Paul Thomas Extended Remix)
+04. Aly & Fila - Sunrise At Cala Bassa (Ferry Tayle Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:00:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37594C19ABEB9AAB8CB73737E3DDABCDA4B5B38E
+magnet:?xt=urn:btih:4C9CE9BC382CD0BD293D36A0237D266BD0DF16DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836472   (253099) от 11.11.2025
+###  Публикация: 1248308   (444929) от 19.09.2018
 
-VA - Top 11 August 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+VA - Nothing But... Total Trance Selections Vol.05 (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253099.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maxim Kovalskiy - Road To The Dunes (DJ Grom Remix) [6:50]
-02. Henrik Nilsson - Happiness, It's A Way Of Life (Original Mix) [8:17]
-03. Masaru Hinaiji & Kayumai - Our Beats (Elissandro Remix) [6:07]
-04. Duezher - In The Alley Where I Grow Up (Original Mix) [6:15](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:13:05
+01. NyTiGen - Renessance (Progressive Mix)
+02. Serious Stan - Winged (Original Mix)
+03. Like It Lite - The Ridge (Lumin-8 Uplifting Remix)
+04. Sven E - Tell Me (Brent Rix Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7B918C253E8CD67FFC3B11B2CF022EF19C09A5D
+magnet:?xt=urn:btih:1A84DBD0ADA372B5B02C0612B46220002BBF12B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628535   (254813) от 25.04.2023
+###  Публикация: 1248330   (444925) от 19.09.2018
 
-VA - Nothing But... Trancetopia, Vol. 02 (2023) [MP3|320 Kbps] <Trance>
+VA - Epic Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254813.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Surok - Forever Alone (Radio Edit) [3:40]
-02. Grande Piano - Message From Space (Calvin O'Commor Remix) [8:42]
-03. Sanani & Henry Caster - Code Yellow (Original Mix) [2:48]
-04. A.R.T. Conspiracy - Michael Jefferson (Earthling & Virtual Light Remix) [6:43](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:22
+01. Photographer - Infinity (Original Mix)
+02. Attila Syah - B29 (Extended Mix)
+03. Elite Electronic - Heaven Song (Extended Mix)
+04. Ahmed Helmy - Helena (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23FF16AEF5EFC1BF5CCB1DC893CA09590D8C97E5
+magnet:?xt=urn:btih:EF42D6D43364C16EC9A144C38E508575FA4F5F29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627847   (254944) от 21.04.2023
+###  Публикация: 1409727   (443264) от 18.09.2020
 
-VA - Female Vocal Trance Legends - Best Of The Best (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
+VA - Female Vocal Trance Vol. 2 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254944.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. BiXX & Roxanne Emery - Sound Of The Alarm (Original Mix) [3:50]
-02. Sleepthief & Zoë Johnston - Alice's Door (DRYM Remix) [3:34]
-03. Dennis Sheperd & Christina Novelli - Starlight (Costa Remix) [3:37]
-04. Michael Fearon & Maria Nayler - You Are The Reason (Original Mix) [3:28](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:29:15
+01. Suncatcher & Exolight feat. Ellie Lawson - Let It Shine (Original Mix)
+02. Phillip J feat. Kim Casandra - Ocean's Call (Original Mix)
+03. Craving feat. Manon Polare - When Oceans Collide (Original Mix)
+04. Costa & Ana Criado - The Secret Garden (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:05:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53E72CF0E8CD0AA7CF7F0AF892B85DAB28601B30
+magnet:?xt=urn:btih:85E46C5FA41C631FBABC324D8BF8B7920E72ECFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836807   (255657) от 13.11.2025
+###  Публикация: 944358   (443126) от 06.10.2015
 
-VA - A State of Trance: Future Favorite - 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+VA - Unique Sense History Vol. 1 (Mixed By Abstract Vision) (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255657.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ruben De Ronde & Amber Revival - Illuminate (Extended Mix) [5:43]
-02. Armin van Buuren & Norma Jean Martine & LAWRENT with Alok - Euphoria (Extended Mix) [3:54]
-03. Armin van Buuren & Omnia - Love (Extended Mix) [5:28]
-04. Armin van Buuren & John Christian - All Night (Extended Mix) [4:18](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:37:37
+01. Abstract Vision - Excalibur (Original Mix) (5:49)
+02. Digital X - Raveland (Original Mix) (4:52)
+03. Behind The Sunset - Actus Secundus (Arisen Flame Remix) (6:05)
+04. Tolga Uzulmez - Nihavend (Mino Safy Remix) (6:55)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:12:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11C33E3B1F34B79EFF9A48BE03C4DAFF58E80E66
+magnet:?xt=urn:btih:CF113E3CF2F6611F2CEE909CD1183E21A3E3E632
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837018   (255882) от 14.11.2025
+###  Публикация: 1248696   (442559) от 20.09.2018
 
-VA - Black Hole Trance Music 11-25 (2025) [MP3|320 Kbps] <Trance>
+VA - Markus Schulz - Global DJ Broadcast: Top 20 September (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255882.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ashley Wallbridge, Pulse Gate & Ava Silver - After The Flood (Extended Mix) 05:23
-02. Markus Schulz & Blr - Ten Seconds Before Sunrise (Extended Mix) 05:58
-03. Svenson, Gielen, Nifra & Johan Gielen - The Beauty Of Silence (Extended Mix) 03:31
-04. Xijaro, Pitch & Christina Novelli - When Nobody Cares (Extended Mix) 06:23(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:44
+01.Markus Schulz & Emma Hewitt - Safe from Harm (Giuseppe Ottaviani Extended Remix)
+02.Jam El Mar & Adina Butar - Right in the Night (Extended Mix)
+03.Dennis Sheperd & Bjorn Akesson - Memoria (Extended Mix)
+04.Darren Tate - Timeless (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:19:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F3D71D89B71E1E7B93A96EEE8662E10DAE9DBD3
+magnet:?xt=urn:btih:7965DBF961739D8181DC0EA2D40DD50DF16627C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837112   (256666) от 15.11.2025
+###  Публикация: 1409974   (440874) от 19.09.2020
 
-VA - D.Trance 112 (2025) [MP3|320 Kbps] <Trance>
+VA - Black Hole Trance Music 09-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256666.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gordon Tennant - For The Stars (Extended Mix) [6:20]
-02. Myde - Earthbound (Extended Mix) [5:32]
-03. CJ Stone & Quiz - The Sun (Extended Mix) [4:23]
-04. Laucco - Zirakzigil (Extended Mix) [7:09](   Читать дальше...   )Жанр: TranceПродолжительность: 04:14:14
+01. BT & Emma Hewitt - No Warning Lights (Sean Tyas remix) 08:27
+02. Andy Duguid + Jaren - My Thunder (extended mix) 07:19
+03. Christina Novelli - I'm Ok (extended mix) 04:55
+04. Bill McGruddy feat. Wai - Iris (extended mix) 05:42(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:41:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:065BB610C84313ADDE5B29ACEF5E1269B8EE94B0
+magnet:?xt=urn:btih:73150825869B6543EF9371F85812221CD1F0A751
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837118   (256849) от 15.11.2025
+###  Публикация: 1164765   (439895) от 10.09.2017
 
-VA - The Best Trance Tunes Of 2025 Vol. 2 - Mixed by Roan Gosling (2025) [MP3|320 Kbps] <Trance>
+VA - Sheridan Grout Presents Escape Vol.1 (2017) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256849.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. tyDi - Fool For You (Original Mix) [3:15]
-02. Protoculture - Viper (Original Mix) [6:35]
-03. Ahmed Helmy - What If! (Original Mix) [6:25]
-04. Benjamin Duchenne & The Element - The Sound Of Hope (Original Mix) [6:03](   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:45
+01. Sheridan Grout - The Last Word (Extended Mix)
+02. Somna - Story Untold
+03. Sheridan Grout - Escape
+04. Sheridan Grout - Alpha (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D810BA80CB1CA4E3B9AEEE2C51733598B34ADA2
+magnet:?xt=urn:btih:C69E98A72EFD28373D94B9349E8FA27132252E5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837250   (256852) от 15.11.2025
+###  Публикация: 1410188   (438507) от 20.09.2020
 
-VA - 10 Years of Dreamstate (2025) [MP3|320 Kbps] <Trance>
+VA - Aurosonic - Winter Sessions (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256852.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paul van Dyk + Aly & Fila - Is This Only A Dream? (A Dreamstate Anthem) (Festival Mix) [5:39]
-02. Nifra & Sarah De Warren - On Repeat (Extended Mix) [4:40]
-03. Paul Oakenfold - Viola (Original Mix) [5:31]
-04. Giuseppe Ottaviani & Darren Porter - Keep Your Dreams Alive (Extended Mix) [4:34](   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:36
+01. Raz Nitzan & Jess Morgan - Not Like Everyone (Aurosonic Remix) (Mixed)
+02. Aurosonic & Ana Criado - Ask Me Anything (Mixed)
+03. Aurosonic & Stine Grove - In Euphoria We Rise (Mixed)
+04. Sleepthief & Zoe Johnston - Alice's Door (Aurosonic Remix) (Mixed)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:27:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:444A449D3126ADA4D17CBE890D0D4C35A269C36A
+magnet:?xt=urn:btih:AEFC87CDCADC09FEFDB316301C6548575D5D9664
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837255   (256853) от 15.11.2025
+###  Публикация: 1570915   (438307) от 19.08.2022
 
-VA - Progressive Trance Awakening, Vol. 09 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+VA - Vocal Trance Gems - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256853.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Toonpaz - Waterdrops (Gabriel Batz Remix) [7:34]
-02. Vision L.A.B - Belong (Original Mix) [7:29]
-03. Hawk & Air Breeze - Guide Me The Way (Original Mix) [8:15]
-04. Midav & Mike Peralta - Ugly (Evgeny Bardyuzha Remix) [6:55](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:09:32
+01. Darren Porter & Susana - The Hero In Me (3:37)
+02. Ana Criado - Lockdown Heart (Daxson remix) (3:51)
+03. Sarah Lynn & Main Engine - Shadows & Dust (3:27)
+04. THIRDWAVE & Stine Grove - Electric Love (3:34)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:25:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7106E2BDBE3F315B91374EFC990706D558764E5
+magnet:?xt=urn:btih:5EFE992350F8C421907DE54C446E6BAB37E0B931
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838000   (257737) от 20.11.2025
+###  Публикация: 1570911   (438298) от 19.08.2022
 
-VA - Autumn Trance 2025 (2025) [MP3|320 Kbps] <Trance>
+VA - Black Hole Trance Music 08-22 (2022) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257737.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438298.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Glassman - Never Do More (Original Mix) [6:35]
-02. Master Beat Projekt - Free Your Mind (Original Mix) [4:22]
-03. Mazeev - 21st Century (Original Mix) [5:56]
-04. Dimassive - Immensity (Extended Mix) [6:11](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:25
+01. Cosmic Gate & Nathan Nicholson - Follow You Anywhere (Extended Mix)
+02. BT & JES - Every Other Way (MaRLo Extended Remix)
+03. D72 & Natalie Gioia - For Our Freedom (Extended Mix)
+04. Dennis Sheperd & MR. CLN with Gid Sedgwick - Wishful Thinking (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94580E90911452CB341E54825DBC6EAC478CB6C3
+magnet:?xt=urn:btih:63610B4976CEA0323C2470CBA4AD81FC4F0557FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838003   (257740) от 20.11.2025
+###  Публикация: 1249064   (438013) от 22.09.2018
 
-VA - The Best Of Suanda Progressive 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
+VA - Voice Hits Vol. 2 (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257740.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rospy - Value Of A Teardrop (Extended Mix) [6:31]
-02. Adip Kiyoi & ZUZAH - Together (Extended Mix) [5:17]
-03. PoLYED & Max Denoise - The Sundays (Extended Mix) [6:15]
-04. Everi - Memories (Extended Mix) [7:45](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:03:50
+01.Attila Syah Presents Gamma & Cari - Every Goodbye (NoMosk Extended Remix)
+02.Feel & Rimsky ft. Diana Leah - One Last Time (Extended Mix)
+03.Alexander Spark & Lucid Blue - Nothing Like the Sun (Extended Mix)
+04.Michael Milov & Claire Willis - Anywhere With You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BED2523EF9468FB88B70F7CF3501EB80723DF10
+magnet:?xt=urn:btih:655AD45C6F18B9BACE8C2BA0967CC18BFDE9D6CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838036   (257744) от 20.11.2025
+###  Публикация: 1410487   (436161) от 21.09.2020
 
-VA - New Year Trance Rave 2026 (2025) [MP3|320 Kbps] <Trance>
+VA - Uplifting Trance Essentials Vol 3 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257744.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andrew Mactire - Irruption 07:28
-02. Andrew Modens - Dreaming 05:04
-03. Betelgeuze - Dissolution 06:49
-04. Chris Pryde - The Last Fight 05:37(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:43
+01.Allan Dark - On Waves (Original Mix)
+02.Northern Angel - Flames Within (Dan Smooth & Elena T Remix)
+03.Nytigen - Renessance (Original Mix)
+04.Artyom Kopylov - We're Dreaming (Original Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 01:26:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D541E9B1C94CEC29162DBAC093F039AE337E30EA
+magnet:?xt=urn:btih:CE46236AFBAF1F65022DA60A228B826B2F48F83B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838181   (257986) от 21.11.2025
+###  Публикация: 1164919   (435229) от 12.09.2017
 
-VA - The Best Of Suanda Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, Trance, Electronic>
+VA - Amsterdam Trance Sessions Vol.12 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257986.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roman Messer & ThoBa & Justin J. Moore - Now We're Found (Extended Mix) [3:33]
-02. Michael Milov & H4lo & Barbie Mak - Something Better (Extended Mix) [3:44]
-03. CrIsKo - Don't Believe In Love (Extended Mix) [5:04]
-04. Feel - Now We Are Free (Extended Mix) [4:32](   Читать дальше...   )Жанр: TranceПродолжительность: 00:42:37
+01.  D-Mad vs. Ispolins - The Voice (Extended Mix)  4:58
+02.  Cold Stone - Mustang (Extended Mix)  7:32
+03.  James Kelly & Craig Johnstone - Return To Reality (Original Mix)  6:11
+04.  Novan - Royal Clipper (Extended Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:49:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C78B661F78CFBD6BECA5DF18ED7D47F1B3B5D1B
+magnet:?xt=urn:btih:CCFAD43D837FD979DBA8C5F33FFA5D8C8445020D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838379   (260996) от 22.11.2025
+###  Публикация: 1323707   (433886) от 05.09.2019
 
-VA - Trancendence, Vol. 06 (2025) [MP3|320 Kbps] <Trance>
+DJ Ensamble - Trancing Queen (2005) [MP3|320 Kbps] <Trance, Eurodance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260996.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stéphane Badey - Dark Spectrum (Original Mix) [3:50]
-02. Ruslan Borisov - Through Time (Original Mix) [3:38]
-03. Alternate High - Hope (Original Mix) [3:35]
-04. Speed DJ - Forging (Extended Mix) [6:38](   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:07
+01. Summer Night City (4:36)
+02. The Winner Takes It All (4:23)
+03. Dancing Queen (feat. Paivi Lepisto) (3:25)
+04. Lay All Your Love On Me (4:40)(   Читать дальше...   )Жанр: Trance, EurodanceПродолжительность: 01:05:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51EEED054CD9B1FB3E59C49432C42853495216A9
+magnet:?xt=urn:btih:45377F7ECA7494DA22F933C7D935A9CD6CB69F20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838862   (261500) от 25.11.2025
+###  Публикация: 1165523   (432933) от 13.09.2017
 
-VA - Uplifting Only Top 15: October 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+VA - Utrecht Series - Vol XXVI (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261500.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Poinoir - Motherland (Intro Mix) 08:22
-02. Illitheas - Golden Skies (Extended Mix) 07:07
-03. Manuel Le Saux & Db Mokk - Inferno (Extended Mix) 06:17
-04. Phil Dinner - Epic (Original Mix) 04:57(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:39:19
+01. Thyron!x & Leonard Lofstrand - Title Wave (Club mix) (03:25)
+02. The Survivors - Eye Of Tiger (Mr. Free remix) (05:44)
+03. Daryus & Schiller - I Feel You (Deep remix) (05:05)
+04. Emanuele DJ - Mash Up (original mix) (06:10)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BCF12AB3DC0E9C4A0EA35C4580891AF4F9D086B
+magnet:?xt=urn:btih:F6402E57365AC4DA74C63E6874F8DFFB287FF3FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838864   (261501) от 25.11.2025
+###  Публикация: 1165518   (432757) от 13.09.2017
 
-VA - Uplifting Only Top 15: November 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+VA - Nothing But... The Future Sound Of Trance Vol 03 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261501.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ADOVE (CH) - Lavender Field (Intro Mix) [7:55]
-02. Alexander Komarov - The Lion Is Born (Extended Mix) [5:03]
-03. Cedric Paul - Harmonic Skies (Extended Mix) [8:44]
-04. Mhammed El Alami - Dawn (Sunyella Extended Remix) [6:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:47:19
+01. Lucas Deyong - Spectrum (extended mix) (06:22)
+02. Sou Kanai - Sunbeam (extended mix) (07:08)
+03. Mike Sang - Impetus (original mix) (08:00)
+04. Exouler - Embrace (original mix) (07:32)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:55:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79E6D316609985FDB8DD7ABF474923FE33B5E3B8
+magnet:?xt=urn:btih:F60BE71B2C374F77CFBF71076D83DD9014452375
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838807   (261539) от 24.11.2025
+###  Публикация: 1249796   (431387) от 25.09.2018
 
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 15 (2025) [MP3|320 Kbps] <Trance, Progressive>
+VA - Trance Rave Vol.1 (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261539.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Geri - The Crowds (Original Mix) [8:22]
-02. Will Dukster & Solnc - Im Reaching (Original Mix) [8:32]
-03. Appledrugs - Every Second Of Time (Front vs Lala Project Mush Up) [8:29]
-04. Audien - Eleven Eleven (Tom Fall Remix) [7:11](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 03:09:53
+01. Alex Ender - Reasons to forget (Original Mix)
+02. Alex Ender - Reasons to forget (Ula Remix)
+03. 7Oceans - Mainstage (Original Mix)
+04. Audiocells - One Brothers (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:41:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5399BAECF292385E84F6CA49C303210CE726ED18
+magnet:?xt=urn:btih:47EB806EE0CE731A33B686E45CFBD884FF9B2FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838924   (261593) от 26.11.2025
+###  Публикация: 1249788   (431384) от 25.09.2018
 
-VA - Extrema Global Music - Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
+VA - Pacific Trance Waves (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261593.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Etasonic - Shakerato (Original Mix) [3:38]
-02. Anna Lee - Silver Coast (Original Mix) [4:15]
-03. Reborn Sound System - Inner Voices (Original Mix) [3:19]
-04. Lightstate & Tycoos - Unseen Force (Original Mix) [3:40](   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:49
+01. Arjan Kramer - Pacific Ocean (Radio Edit)
+02. Cryostasis - Never Ever (Extended NRG Mix)
+03. Adam Sobiech & Angel Falls - Disillusion (Original Mix)
+04. Maratone & Dreamy feat. Emma Chatt - Out From Under (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:019B4568AF24301045685526F0DCCFE93F5AA5E2
+magnet:?xt=urn:btih:F15F2B1BCD23825A8467C81AB3E9927A8CD23018
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194036   (261828) от 23.12.2017
+###  Публикация: 1249812   (431198) от 25.09.2018
 
-VA - Best of Lifted (Mixed bi Azima) (2017) [MP3|320 Kbps] <Trance>
+VA - Future Trance 85 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,House,>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261828.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Motion Sound - Phantom (Darryn M Remix)
-02. Libra - Resolution Of Minds (Extended Mix)
-03. Hypersia - Cassiopeia (Fresh Code Remix)
-04. Azima - Singularity (Last Soldier Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:32
+01. Tiesto & Dzeko feat. Preme & Post Malone - Jackie Chan
+02. Jonas Blue feat. Jack & Jack - Rise (Jonas Blue & Eden Prince Club Mix)
+03. El Profesor - Bella Ciao (HUGEL Remix)
+04. Klaas Gerling - Get Down(   Читать дальше...   )Жанр: Trance,Progressive Trance,House,Продолжительность: 05:58:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9736FACE3D8D421E45A4827DEF5E327B34B1C5C7
+magnet:?xt=urn:btih:89BD28B677F99B8A244FABD1A3776653FDE00FD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193790   (261979) от 22.12.2017
+###  Публикация: 1165767   (430611) от 14.09.2017
 
-VA - Black Hole Trance Music 12-17 (2017) [MP3|320 Kbps] <Trance>
+Paul Oakenfold - Generations - Three Decades Of Dance (2017) 3 CD[Box set] [MP3|320 Kbps]<Trance,House,Electronic>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261979.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430611.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Cosmic Gate & Sarah Lynn  -  Folded Wings (Rafael Frost Extended Remix)  6:45
-02.  Clarks  -  Sanya (Original Mix)  5:34
-03.  Somna & Melissa Loretta  -  Brave (Attila Syah Remix)  6:17
-04.  Pete Severano & Steve Brian  -  Merle (Extended Mix)  8:23(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:03
+01. Sueno Latuni, Manuel Goettsching & E2E4 – Sueno Latino (Paradise Version) (05:00)
+02. M/A/R/R/S – Pump Up The Volume (02:03)
+03. Steve "Silk" Hurley – Jack Your Body (Club Your Body) (03:52)
+04. Joe Smooth – Promised Land (02:18)(   Читать дальше...   )Жанр: Trance,House,ElectronicПродолжительность: 03:59:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6E9665BC800E348BF29325A5B90997B3C55443B
+magnet:?xt=urn:btih:C6FA3A1747AF8308C67767A36F022E2AEB351749
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,318 +1,25 @@
-###  Публикация: 973357   (980117) от 08.01.2016
+###  Публикация: 1794551   (67252) от 29.04.2025
 
-Анжела Уилкс, Фиона Уотт | Кулинария для детей. Кухни народов мира (2001) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря этой книге вы сможете совершить путешествие по странам и континентам и познакомиться с кулинарией всего мира. В этой книге собраны простые и необычные рецепты национальной кухни многих стран. Вы узнаете, какие блюда готовят в разных уголках земного шара и какие продукты для этого используют.Жанр: Кулинария для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CFE4A1AF4B77AF7F68C39577BB1ED445DEE1CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614831   (980119) от 06.02.2013
-
-DVDFab 9.0.2.5 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980119.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVDFab – мощный, многофункциональный программный продукт для копирования DVD дисков с возможностями гибкой обработки видеопотока. Программа является одной из лучших на сегодняшний день, из инструментов для копирования, разбиения, пережатия и конвертирования DVD дисков с фильмами. Снимает все защиты и ограничения с диска и при желании пережмет диск большой емкости и вместит его в обыкновенную пустую DVD болванку с минимальными потерями качества (DVD9->DVD5) или разобьет фильм на два диска с полным переносом его меню, удалит всю рекламу, запишет только фильм и многое другое. 2D в 3D Converter может преобразовать различные 2D DVD/Blu-ray/видео в 3D видео с потрясающими 3D-эффектами в формате AVI/MKV/MP4/FLV/M2TS/TS. Программа имеет интуитивно понятный, мультиязычный интерфейс включая русский.Название программы: DVDFabЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614729   (980122) от 06.02.2013
-
-EZ CD Audio Converter 1.0.6 Ultimate Portable by SamDel [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980122.jpg" />
-</div>
-
-
-###  Подробнее
-
-EZ CD Audio Converter - является одним из самых универсальных пакетов для высококачественной оцифровки/записи Audio CD и конвертирования аудио-файлов. Данная программка способна работать с абсолютным большинством популярных музыкальных форматов: MP1, MP2, MP3, Windows Media Audio 8, Windows Media Audio 9, Windows Media Audio 9.1, MP4, M4A, AAC, WAV, AIFF, Shorten, CUE и M3U. Состоит из четырех компонентов: модуль для создания Audio CD, конвертер аудио файлов, CD-граббер и средство для записи MP3/WMA CD.Название программы: EZ CD Audio Converter UltimateЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614964   (980127) от 06.02.2013
-
-BurnAware Professional 6.0 Final Portable by SamDel [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980127.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware Professional - обновлённая версия многофункциональной программы для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволит вам выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные инструменты для созданий копий CD и DVD с фотографиями, документами, фильмами, играми и музыкой и многое другое. Имеется многоязычный интерфейс, включая русский и поддержка Windows 7/8.Название программы: BurnAware ProfessionalЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614926   (980129) от 06.02.2013
-
-SynWrite Editor 4.7.700 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980129.jpg" />
-</div>
-
-
-###  Подробнее
-
-SynWrite Editor - мощнейший текстовый редактор для программистов и обычных пользователей. SynWrite - редактор исходного кода, поддерживает возможность разработки программ более чем на 70 языках. В том числе Java, C++, JavaScript, Pascal, Perl, HTML, XML, PHP, SQL и других. SynWrite обладает TDI-интерфейсом, а значит позволяет открыть сразу несколько файлов в отдельных вкладках. Помимо этого в SynWrite имеется целый ряд вспомогательных инструментов, облегчающих написание кода.Название программы: SynWrite EditorЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613853   (980131) от 06.02.2013
-
-Roger Shah - Music for Balearic People 246 (2013-02-01) [MP3|256 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Island - Intro (Hour 1) (01:19)
-02. Roger Shah - Openminded (Illitheas Remix) (08:06)
-03. Andy Tau - Breakfast For The Soul (Aku & Ghazaly Remix) (06:11)
-04. Mike Danis - Remember (06:17)
-05. Estiva - Smiley Smilesworth (04:43)
-06. Luke Terry & Fucus One - Spring Rain (Cylenth Vision Remix) (06:16)
-07. Karanda - Stronghold (05:58)
-08. Tarmo Tammel - Sunday (Kaimo K Remix) (07:51)
-09. Tritonal feat. Meredith Call - Broken Down (Daniel Kandi's Bangin Remix) (06:33)
-10. Playme - Peace & Serenity (09:44)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAA834E35AC4D4D9033F36090D38CFEAB413BA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614434   (980132) от 06.02.2013
-
-My Reflection - Dreamland Drowning (2012) [MP3|320 кб/с]< Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamland Drowning
-02. Sweet Freedom
-03. Crossroads
-04. Let the Rain Come Down
-05. Stand Again
-06. On the Edge
-07. Shadow in the Sun
-08. Down to Rebirth
-09. Ghost
-10. Eternal Flames(   Читать дальше...   )Жанр: MetalПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5754351DAEC02753458C1D32812430713E3AFDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613975   (980134) от 06.02.2013
-
-Daniel Domenge - Lost in My Thoughts (2013) [MP3|320 кб/с]<Smooth Jazz, Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between Your Hands
-02. Back to the Past
-03. Lost in My Thoughts
-04. On the Wave
-05. Head in the Clouds
-06. Always to Run
-07. Have a Good Day
-08. French Connection
-09. Asian Dream
-10. Latin FlavoursЖанр: Smooth Jazz, JazzПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354EF2FA2BCD57B8774008CAC470C46DF7ACC2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614744   (980135) от 06.02.2013
-
-Nightfall - Cassiopeia (2013) [FLAC|Lossless]<Black  / Gothic Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phaethon
-02. Oberon & Titania
-03. Colonize Cultures
-04. The Nightwatch
-05. Stellar Parallax
-06. Hubris
-07. The Reptile Gods
-08. Hyperion
-09. Akhenaton, The 9th Pharaoh Of The 18th Dynasty
-10. The Sand Reckoner(   Читать дальше...   )Жанр: Black  / Gothic MetalПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436986   (980138) от 15.01.2012
-
-Журнал | Авторевю №1 [январь 2012] [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание «Авторевю» рассказывает о новинках автомобильного рынка. Самые свежие новости, самые новые автомобили, все это и многое другое можно найти на страницах "Авторевю".Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FC619AA84A60CCDB02DB493DE393B6357A57AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437170   (980146) от 15.01.2012
-
-Patti Labelle - The Universal Masters Collection: Classic Patti Labelle (2001) [FLAC|Lossless]<Soul / R&B / Pop>
+Dudley Taft - The Speed of Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980146.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Soul / R&B / PopПродолжительность: 01:15:32
+01. Wanted Man (3:22)
+02. Miles and Miles to Go (4:47)
+03. Work It Out (3:23)
+04. Burn It Down (2:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:23
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:15483C3D7A51D5F9076B24750B2A9A6015869BFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 437013   (980155) от 15.01.2012
+###  Публикация: 1794560   (67251) от 29.04.2025
 
-Журнал | 5 колесо №1 (январь 2012) [PDF]
+Katie & The Bad Sign - Revolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Автомобили
->>Автомобильные журналы
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980155.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"5 колесо" - один из самых популярных журналов, имеющий долгую историю развития, одной из главной особенностью журнала, является непосредственное участие читателей в тестах автомобилей.Формат: PDF
+01. Wolf at the Door (3:44)
+02. Revolution (3:38)
+03. Heartless Woman (3:38)
+04. Shake Me Down (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06D85331F64BE9E525369E1305FAB6E69401CEFE
+magnet:?xt=urn:btih:23816DF46281BF7A535A0DD4D9AE5C87C47BA12F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,27 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973314   (980158) от 08.01.2016
+###  Публикация: 1794410   (67250) от 29.04.2025
 
-Еврейское счастье (2016.01.07) HDTV [H.264/1080i] (выпуск 3)
+Растровый клипарт - inpixell.studio - Creative Fabrica - Spring Herbal Spa Day Clipart [PNG]
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980158.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кибуц – дело добровольное: Существовал бы Израиль без кибуцного движения? Вероятно, нет.
-Существовал бы Израиль без кибуцного движения? Вероятно, нет. Потому что дух непокорности родил кибуц, а кибуц родил таких легендарных строителей и защитников еврейского государства как Моше Даян, Голда Мейер, Шимон Перес и еще многих-многих других.
-Первый кибуц был основан в (   Читать дальше...   )Владимир Познер и Иван Ургант отправляются в очередное путешествие. На этот раз по Земле Обетованной.Телекомпания: Первый канал HDЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:48:19
+Клипарт на тему весеннего спа.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A2EA3F0EFED8B24EBB2D85F93D7044ED2E38297
+magnet:?xt=urn:btih:9795503FDC5D4B5D9B6BCCF937416BAE8FC234B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973345   (980159) от 08.01.2016
+###  Публикация: 1794590   (67249) от 29.04.2025
 
-Госпожа Метелица / Frau Holle (2008) DVB
+The Riven - Visions of Tomorrow (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980159.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По мотивам одноименной сказки братьев Гримм. Про двух сестёр, попавших во владения госпожи Метелицы. По-разному они госпоже служили - и награды за свою работу получили разные. Однажды девушка по наказу злой мачехи долго пряла у колодца, поранила палец до крови, опустила руку в воду, чтобы обмыть, и обронила веретено. Мачеха рассердилась и велела ей достать веретено (   Читать дальше...   )Производство: Германия, ANTAEUS Film- und Fernsehproduktionsgesellschaft mbH, Rundfunk Berlin-Brandenburg (RBB)Жанр: Фэнтези, СемейныйРежиссер: Бодо ФюрнайзенАктеры: Марианна Сагебрехт, Герберт Фюрштайн, Леа Мари, Камилла Домбровски, Йоханна Гастдорф, Питер ПрагерПеревод: Многоголосый закадровыйПродолжительность: 00:58:19
+01. Far Away From Home (3:54)
+02. Killing Machine (3:33)
+03. Set My Heart On Fire (3:14)
+04. Travelling Great Distance (3:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C5DFFA82BE9E6108BD1F38AF6F5E0BCFD7F370B
+magnet:?xt=urn:btih:35AB85E0B68DFC37FC9E40644BB3D0487F558114
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,26 +111,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973343   (980160) от 08.01.2016
+###  Публикация: 1794557   (67248) от 29.04.2025
 
-PhoneClean Pro 4.0.3 (20150107) [Multi]
+Даниил Гранин | Мой лейтенант (Главы из книги) (2024) [MP3, Иван Краско и др.]
 
->>Архив торрентов
->>Архив 4Apple
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980160.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhoneClean - удобная утилита для очистки памяти от различных ненужных файлов и лишних данных на iOS-устройствах (iPhone, iPad и iPod touch). Помогает очистить кэш, историю звонков и сообщений, удалить временные файлы, cookie, скрипты, медиаданные оставшиеся после синхронизации и т.д., а также увеличить скорость работы гаджета. Имеет простой и удобный интерфейс.
- (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 января 2016Разработчик: iMobie Inc.Поддерживаемая ОС: Mac OS 10.7 +Язык интерфейса: Английский, Немецкий, Японский и др.
+Даниил Александрович Гранин (1919–2017) – русский писатель, киносценарист, общественный деятель.
+Пронзительный роман Даниила Гранина «Мой лейтенант» показывает нам войну глазами младшего офицера. Писатель-фронтовик не понаслышке знал тяготы фронтовой жизни, будни окопной войны и правдиво отобразил их на страницах своего романа. Эта книга для тех, кто не любит громких (   Читать дальше...   )Жанр: Русская литература, романИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:44:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FD4A7E8F0B1EFF3821A2680D3F8982D80FD4549
+magnet:?xt=urn:btih:DBB6EB288D1D060931827208AF231ABE6599EF37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,28 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973018   (980161) от 08.01.2016
+###  Публикация: 1794552   (67247) от 29.04.2025
 
-VA - Подарочный Шансон (2016) [MP3|256 кб/с] <Шансон>
+Даниил Гранин, Алесь Адамович | Блокадная книга. Часть II (2020) [MP3, Игорь Гмыза]
 
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980161.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Пятилетка - Далеко Далеко
-02. Сергей Кама - Копи Копеечку
-03. Сергей Гвоздика - Зима И Весна
-04. Эльдар Артист И Мемфис - Старая Мать(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:01
+Серия/Цикл: Эксклюзивная классика (АСТ).
+Даниил Александрович Гранин (1919–2017) – русский советский писатель, киносценарист, общественный деятель.
+Алесь Михайлович Адамович (1927–1994) – белорусский советский писатель, сценарист и литературовед, критик.
+Есть вещи, которые человечество забывать не должно, если оно хочет оставаться человечеством. И подвиг ленинградцев-блокадников (   Читать дальше...   )Жанр: Русская литература, повесть, книги о войне, биография и мемуарыИздательство: Аудиокнига (АСТ)Продолжительность: 14:42:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAF6FAE429DCAADEA330C616E7A8F21A40214C89
+magnet:?xt=urn:btih:894AC7E993668D0E35B388236893A1C506316FD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,27 +167,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973250   (980162) от 08.01.2016
+###  Публикация: 1794413   (67246) от 29.04.2025
 
-Станислав Новицкий | Запуск разрешаю! [сборник] (2011) [FB2]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Dragon Watercolor Clipart [PNG]
 
->>Художественная литература
->>Сатира, Юмор
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980162.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаем вашему вниманию сборник веселых и ироничных рассказов про нашу жизнь "Запуск разрешаю!".
-
-Благодарю за предоставленную книгу  -Жанр: Современная прозаФормат: FB2
+Акварельный клипарт с драконами.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:146B567DFDC65A6E7CE7954778F1676ACC37DE92
+magnet:?xt=urn:btih:C2DFC74F919F5E9D34C84A809B661DADACF247EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,25 +193,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973198   (980163) от 08.01.2016
+###  Публикация: 1794416   (67245) от 29.04.2025
 
-Бесконечно белый медведь / Infinitely Polar Bear (2014) HDRip
+Растровый клипарт - inpixell.studio - Creative Fabrica - Easter Eggs Clipart [PNG]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980163.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кэмерон пытается вернуть свою жену Мэгги. Ради этого он пробует взять на себя полную ответственность за их двух молодых дочерей, которые отнюдь не стараются облегчить ему задачу.Производство: США / Bad Robot, KGB Media, Paper Street Films, Park PicturesЖанр: Драма, КомедияРежиссер: Майя ФорбсАктеры: Зои Салдана, Марк Руффало, Кейр Дуллеа, Уоллес Володарски, Имоджин Володарски, Мэри О’Рурк, Брианн Брози, Адам В. Майэрсон, Уильям КсифарасПеревод: Любительский (двухголосый) (Parovoz Production)Субтитры: отсутствуютПродолжительность: 01:28:14Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+Клипарт на тему пасхальных яиц.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D08DC6BC8A6DEDE79583C86C7AC0A6F2D98639B
+magnet:?xt=urn:btih:1A4292E732C1BD2B7422A0AA30955BA6133C6621
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,25 +219,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973311   (980164) от 08.01.2016
+###  Публикация: 1794412   (67244) от 29.04.2025
 
-Обои - Сборник обоев. Природа. Часть 2. 2560x1440 - 100 шт [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Cute Baby Bear Sleep Clipart [PNG]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980164.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новая подборка качественных обоев на тему природы для вашего рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
+Клипарт с медвежатами.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74F1D01D71C194BD15E2B7E71F5FAC8782685135
+magnet:?xt=urn:btih:9F381344A5A8AFC029432E06D136EF56CF681DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,25 +245,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973427   (980165) от 08.01.2016
+###  Публикация: 1794455   (67243) от 29.04.2025
 
-Елена Первушина | Огородная аптека от А до Я. Натуральные витамины (2015) [PDF]
+VA - Progressive Frequencies #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
->>Разное (категория книг)
->>Кулинария
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980165.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Два ключевых понятия здорового образа жизни – это правильное питание и физическая активность. И, выращивая на огороде полезные для здоровья овощи, фрукты и ягоды, мы работаем сразу на два фронта. Нет, даже на три, потому что огороды, как правило, расположены в сельской местности, на свежем воздухе, то есть в благоприятной экологической обстановке. Правильное питание (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+01. Jakliu - Don't Forget [03:44]
+02. Deodar - Initiate [07:12]
+03. Sigooma - Vegas Breakfast Nuts [07:06]
+04. Pat H - Roots of the Bonsai Tree [07:04](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:17:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9448E453027EB15FB8C15B15D5F21791D20A8118
+magnet:?xt=urn:btih:541791DA01FCCA0099F35405550BC03B435E17D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,26 +274,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972636   (980166) от 08.01.2016
+###  Публикация: 1794402   (67242) от 29.04.2025
 
-Франц Кафка | Замок. Превращение (2005) [DJVU]
+Periphery - Periphery II: This Time It's Personal (2012) Released, 2019, Sumerian Records [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Metalcore>
 
->>Художественная литература
->>Классическая поэзия и проза
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980166.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В настоящий том вошли роман Кафки «Замок», признанный одной из главных книг XX столетия, и сборник его рассказов.
-Замок — сюжетный рисунок романа (поиски дороги, ведущей к Замку) весьма прост и одновременно предельно сложен. Он притягивает не в силу закрученных ходов и запутанных историй, а вследствие своей параболичности, притчевости, символической многозначности. (   Читать дальше...   )Жанр: Классическая проза, Роман, рассказыПеревод: М. Л. Рудницкий, С. К. АптФормат: DJVU
+A1 Muramasa
+A2 Have a Blast
+A3 Facepalm Mute
+A4 Ji(   Читать дальше...   )Жанр: Progressive Metal, MetalcoreПродолжительность: 01:08:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BEB6E227BEC91F0AB62F200452FC3A5B4BB5ABF
+magnet:?xt=urn:btih:646A55C3C5D5065006D400E72C435F375C781E6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,25 +303,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973313   (980167) от 08.01.2016
+###  Публикация: 1794522   (67241) от 29.04.2025
 
-Обои - Микс обоев. 2560x1600 - 150 шт [JPG]
+Ausweglos - Ausgestoßen (2025) [MP3|320 Kbps] <Atmospheric Black Metal>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980167.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка качественных обоев для вашего рабочего стола.Формат: JPGРазрешение файлов: 2560x1600
+01. Vergänglichkeit
+02. Eine Erzählung
+03. Einsamkeit
+04. Funeral Song(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:53:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D25AEDA7AA1ED6FCADA798BE8CAEE101B159255
+magnet:?xt=urn:btih:A9DCECDBA2785B4AD021C767E9A23934AD5152CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,25 +332,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973373   (980168) от 08.01.2016
+###  Публикация: 1794535   (67240) от 29.04.2025
 
-Hidden Expedition 10: The Fountain of Youth (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
+Disfuneral - In Horror, Reborn (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980168.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Некая подозрительная организация берет на себя миссию восстановления одного из важнейших археологических памятников в Шри-Ланке. В целях контроля на работах присутствуют наблюдающие. Вдруг связь с ними обрывается, и вы, как специальный агент направляетесь на место археологических работ. По прибытию место работ оказывается странно опустевшим.Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+01. Catacomb Dwellers
+02. Tombs Vomiting the Dead
+03. Ripped from Within
+04. Crypt of Demented(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C19654C3741E2515A21F41BA78F8E5A2D33A831
+magnet:?xt=urn:btih:153B30227D1DEFFEE146BB6D94B2C74998AF584F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,25 +361,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973330   (980169) от 08.01.2016
+###  Публикация: 1794546   (67239) от 29.04.2025
 
-SUMo Pro 4.2.7.300 [Multi/Ru]
+Samael - Ceremony of Opposites (1994) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980169.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SUMo (Software Update Monitor) — последняя версия данной программы, которая поможет поддерживать ваш ПК обновленным и обеспечит его безопасность. В отличие от встроенной функции автоматических обновлений, SUMo предупреждает о доступных обновлениях перед запуском программы.Язык интерфейса: Русский, Английский, и другие
+A1 Black Trip
+A2 Celebration Of The Fourth
+A3 Son Of Earth
+A4 Till We Meet Again(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:36:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20F3BEC7F655B889B2EC013629283F5F49DED388
+magnet:?xt=urn:btih:B54BBFD6CB7B8F15026F8B2670CC3C6F5B503AAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,25 +390,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973204   (980170) от 08.01.2016
+###  Публикация: 1794476   (67238) от 29.04.2025
 
-День шокирующих гипотез. Вся правда о рептилоидах  (2016.01.07) SATRip
+Corrupter - Gloria in Profundis (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980170.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый день мы получаем информацию, которая способна перевернуть наше представление о мире. Как в глобальном потоке новостей разобраться, какие из фактов являются истиной, и что стоит за самыми важными событиями мировой истории? День шокирующих гипотез - это фестиваль самых актуальных документальных премьер сезона. Свежая и непредвзятая аналитика и прогнозы относительно (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйРежиссер: Глеб Михин, Артемий Гринчевский, Алексей Чистов, Елена Гришина, Михаил ЧернякПродолжительность: 00:47:30
+01. Eucharist
+02. Beating Heart Cadaver
+03. Permanent Storage Down Below
+04. Heading for Afterlife(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD07757B4BAB88060E2E43624326A8D742871FC7
+magnet:?xt=urn:btih:48AC25977C51CBBDD3701FBFB13189A8EC1AE992
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,26 +419,309 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973346   (980171) от 08.01.2016
+###  Публикация: 1794539   (67237) от 29.04.2025
 
-TG Pro (Temperature Gauge Pro) 2.9.5 [En]
+Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980171.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 января 2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+01. So Crazy About You Baby (3:00)
+02. Seminole Blues (3:15)
+03. You Rascal You No. 1 (3:50)
+04. Black Angel Blues (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:355919C9E73A494C02DA6AED8A3732686F946DA3
+magnet:?xt=urn:btih:4A1F9E0ED9CF8E597D52B06F7093CA1DF0088645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794473   (67236) от 29.04.2025
+
+Aryoch - The Passage (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Passage
+02. Brutal Symphony
+03. King of Ellasar
+04. Demonic Psychosis(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 01:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C47EE636426BE5B663459BADBD24E0CF74F998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794529   (67235) от 29.04.2025
+
+Sarah Jane Cion - Summer Night (2001) Naxos [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Never Land/Pure Imagination [5:12]
+02. Walking on the Moon [5:03]
+03. Summer Night [5:25]
+04. Gabrielle [7:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD48D262380C47552DAE31AB6EC86401416DFFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794428   (67234) от 29.04.2025
+
+KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Other Side of the World    [0:03:34.42]
+02. Another Place to Fall    [0:04:11.33]
+03. Under the Weather    [0:03:36.42]
+04. Black Horse and the Cherry Tree    [0:02:52.28](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C20FC898F7142D0BA855F8124251631AF1DD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794584   (67233) от 29.04.2025
+
+Fenson - Cattitude (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attitude Alcohol (2:58)
+02. Taking Back Control (3:03)
+03. Baby Your Wrong (3:18)
+04. Open Doors (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179129128907B03D220EEFA9ED873DFD03067871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794463   (67232) от 29.04.2025
+
+The Absence - Studio Albums (6 releases) (2005-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67232.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Absence - метал-группа из Тампы, Флорида, США. Действует с 2002 года.2005 - From Your Grave
+2007 - Riders Of The Plague
+2010 - Enemy Unbound
+2018 - A Gift For The ObsessedЖанр: Melodic Death MetalПродолжительность: 05:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A5970BA7176B7D569D87FC164325C06F7E7146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794548   (67231) от 29.04.2025
+
+Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish the Blues Had Used a Condom (3:06)
+02. ADD (3:38)
+03. Don't Drink the Kool Aid (4:50)
+04. The Barflies At The Bar (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9043E346F78F21974DAD472FBB71AC52DE0D9F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794931   (67230) от 01.05.2025
+
+Гордый и светский / The Proud and Profane (1956) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67230.jpg" />
+</div>
+
+
+###  Подробнее
+
+На остров Новая Каледония в Тихом океане приезжает Ли Эшли, вдова лейтенанта, погибшего в Битве за хребет Эдсона в 1942 году. Прошел всего год со смерти супруга, рана не зажила. Но Ли сильна духом и присоединяется к американскому Красному Кресту, где собирается давать уроки французского. На самом деле женщине хочется узнать побольше о покойном муже. На остров высаживается (   Читать дальше...   )Производство: США / Perlberg-Seaton ProductionsЖанр: драма, военныйРежиссер: Джордж СитонАктеры: Уильям Холден, Дебора Керр, Тельма Риттер, Дьюи Мартин, Уильям Редфилд, Росс Багдасарян, Адам Уильямс, Мэрион Росс, Теодор Ньютон, Ричард ШеннонПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C3CB20C69F737611D681D88CE2563FAB54AF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794841   (67229) от 01.05.2025
+
+Журнал | Тайны ХХ века №13 (1159) (март 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67229.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1218575FBE468F9CF476FEA5A114FEB87EB297BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794831   (67228) от 01.05.2025
+
+Газета | Загадки истории №18 (644) (2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67228.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BF9D0268E639FF31DFBD4BB6942F46C2E32BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794983   (67227) от 01.05.2025
+
+Midnight Smoke - Retronoir (2023) [FLAC|Lossless|Web-DL|tracks] <Retrowave, Darksynth, Doom Jazz>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pepsi Blue (3:08)
+02. Dance With A Stranger (4:36)
+03. After Hours (5:21)
+04. My Blueberry Nights (3:40)(   Читать дальше...   )Жанр: Retrowave, Darksynth, Dark Ambient, Doom JazzПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7712B32574E0409374758C648FD7A1BD2B0C5CBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

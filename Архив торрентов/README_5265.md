@@ -1,339 +1,31 @@
-###  Публикация: 1096257   (920775) от 23.01.2017
+###  Публикация: 592763   (135715) от 22.12.2012
 
-USDownloader 1.3.5.9 Portable (16.01.2017) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3FAB77AFC690DD3D36853937C1CEFCC17E044B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490211   (920778) от 19.08.2021
-
-Pale Moon 29.4.0.1 + Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с тысячами расширений Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C059551ABAA43734910C32C0655839BFDE89B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490124   (920780) от 19.08.2021
-
-Firefox Browser 91.0.1 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2696D1A70C947B69AC3EEC468AA4E521875C4246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490282   (920783) от 19.08.2021
-
-Downie 4 v4.3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 19.08.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC29828739EABA4D270B84CE5EE173CF80CFC22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490258   (920788) от 19.08.2021
-
-Bootstrap Studio 5.8.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Оно поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2021Разработчик: BootstrapstudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A035EBA4C14C6867B028DD3AE82AA81C5E1DDF2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988471   (920793) от 20.02.2016
-
-AirFoil 5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920793.jpg" />
-</div>
-
-
-###  Подробнее
-
- AirFoil – специальная программа, позволяющая транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую воспроизводит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 февраля 2016Разработчик: Rogue Amoeba Software, IncПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184CFB283B8DAF0D84F825527599542F9F93AAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490288   (920799) от 19.08.2021
-
-NetWorker Pro 7.2.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920799.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 19.08.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89DDB8E066163085E971F48AF7C98BF6B94206B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988658   (920803) от 20.02.2016
-
-Process Lasso Pro 8.9.6.6 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows, по умолчанию, позволяет программам полностью загружать центральный процессор, что ведет к зависанию системы и, соответственно, к неудобству работы. Технология ProBalance (Process Balance) программы Process Lasso аккуратно перераспределяет приоритеты запущенных программ, так что процессы, которые ранее загружали весь центральный процессор, больше не будут (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC1B62F144472779B60EA2E6D209A7BF562BE29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988576   (920805) от 20.02.2016
-
-Ashampoo Snap 8.0.8 RePack (& portable) by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo Snap 8 позволяет пользователям захватывать с точностью до пикселя, редактировать и делиться содержимым скриншотов одним изображением или видео. Содержит графический редактор и позволяет применять различные эффекты к полученным изображениям: добавлять текст, тени; также предусмотрено неограниченное количество отмены действий, изменение размера. Вы можете (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F4CE07A4ED1658AE805447B9BA466907D0CB8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988474   (920810) от 20.02.2016
-
-Advanced Renamer 3.71 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
-Advanced Renamer хоть и бесплатная (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B062F2D9E40796FB98EABA19B0ED4A3F50A57E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988389   (920813) от 20.02.2016
-
-ФБР: Переговорщик / FBI: Negotiator (2005) SATRip [H.264]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переговорщик ФБР Лаура Мартин вынуждена вести переговоры с матерью больной раком девочки, захватившей городскую больницу ради экспериментального препарата для своей дочери. На счету каждая секунда, а ценой одного неверного движения могут стать сотни человеческих жизней…Производство: США, Канада, Nasser Entertainment Group, Nasser GroupЖанр: Триллер, ДрамаРежиссер: Николас КендаллАктеры: Элизабет Рём, Чандра Уэст, Вуди Джеффрис, Джерри Вассерман, Малкольм Стюарт, Мэттью Уолкер, Тейлор Энн Рейд, Бритт МакКиллип, Дорон Белл, Тич ГрантПеревод: Многоголосый закадровыйПродолжительность: 01:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13DBB7F01EC0621A0B76EB9BBB8190185770DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988467   (920815) от 20.02.2016
-
-PowerArchiver 2016 16.00.67 Final Portable by PortableAppZ [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920815.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerArchiver - универсальный архиватор с поддержкой всех популярных форматов. Позволяет производить с архивами самые различные действия: создание, просмотр, извлечение файлов; добавление файлов; создание самораспаковывающихся и многотомных архивов; шифрование методами Blowfish 128-bit, DES 64-bit, Triple DES 128-bit и AES 128-bit; восстановление повреждённых зип-архивов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79041D2741F87086C7D6F149DC861CC79DE259AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288959   (920837) от 30.01.2011
-
-VA - MOS: The Sound Of Trance (2011) [MP3|320 kbps]<Trance, Progressive Trance, Progressive House>
+VA - Vocal Trance Volume 52 (2012) [MP3|320 kbps]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920837.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-1.Signalrunners - "Meet Me In Montauk" -Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 02:33:02
+01. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren
+02. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)
+03. Mike Koglin feat. LCK - Varana (Original Mix)
+04. Ruben De Ronde & Aelyn - She's Already Gone (Progressiv
+05. Space RockerZ feat. Ellie Laws - So Out Of Reach (Original)
+06. Starkillers & Nadia Ali - Keep It Coming (Basto Remix)
+07. Store N Forward - Listen To Life (Cressida Remix
+08. Sunlounger feat. Zara Taylor - Try To Be Love (Original Balea
+09. Max Graham & Susana - Down To Nothing (Original Mix)
+10. Tritonal feat. Cristina Soto - Everafter (Tritonal Club Mix)Жанр: TranceПродолжительность: 03:00:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA3800AB99DC9F64790E0F9F4B1DF75B91273A0C
+magnet:?xt=urn:btih:014DB0326FF0E10EE552670C0491990DE870C8D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,33 +33,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 288936   (920839) от 30.01.2011
+###  Публикация: 592189   (135713) от 22.12.2012
 
-Red Gravity - Mldnrg (2010) [MP3|320 kbps] <Goa Trance>
+Animal Wallpapers (18.12.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920839.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Red Gravity - Mldnrg (2010)
-Год: 2010
-Жанр: Goa Trance
-Лейбл: Not On Label
-Продолжительность: 01:10:21
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Smaple [04:46](   Читать дальше...)
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83C0DD18E87EAF37CBCFDE9447F2E3A7A3F88A71
+magnet:?xt=urn:btih:453733727F270240A62553EF4488423800B96BF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +59,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096228   (920842) от 23.01.2017
+###  Публикация: 592856   (135712) от 22.12.2012
 
-Audirvana Plus 2.6.5 [En]
+Профессия  репортер. Дети джихада (2012.12.22) SATRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920842.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями.
-Преобразование частоты дискретизации происходит при помощи Sound Forge iZotope 64-Bit SRC. Если в кратце — это гибридный низкочастотный фильтр, который обеспечивает полное сохранение качества при переводе цифрового звука из одной частоты дискретизации в другую.
-
-Особенности и преимущества:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 января 2017Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Ее дочь стала русской шахидкой, а ее русские внуки попали в плен к террористам. Но она не сдалась и сама пришла в бандитское логово. Предательство, отчаяние и любовь — в фильме Дениса Арапова «Дети джихада» из цикла «Профессия — репортер».Жанр: ДокументальныйПродолжительность: ~ 00:23:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE5E8F20DAAB5823E965C02CD816499E36FE55CC
+magnet:?xt=urn:btih:9B44AA19913CCA3FD49CCB81AF7BB858E5C2C970
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,31 +85,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 288890   (920843) от 30.01.2011
+###  Публикация: 592843   (135711) от 22.12.2012
 
-The Economist January 29th-February 4th 2011 [2011] [PDF] + [аудио версия]
+Журнал | ТелеMеню №51 (117) [декабрь 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920843.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-The Economist – влиятельный еженедельный англоязычный журнал. Публикуется в Англии с 1843-го года. В 2006 тираж превысил один миллион экземпляров, более половины которых были проданы в Северной Америке. Из-за своей глобальной ориентации, The Economist не считается эксклюзивно английским изданием.
-
-Основные темы, освещаемые журналом – политические события, международные отношения, финансовые, экономические и деловые новости, а также наука и культура.
-
-Статьи Economist обычно несут характерно выраженную точку зрения и поэтому в большинстве случаев не могут считаться нейтральными. Редакция газеты как правило придерживается позиций классического либерализма.
-
-Economist публикуется компанией The Economist Group. С 1928 половина акций компании принадлежит газете Financial Times, в то время как другая половина находится в руках независимых инвесторов, многие из которых являются работниками компании и корреспондентами журнала.Формат: PDFПродолжительность: 07:13:30
+Издание предлагает удобную форму меню на неделю со специально подобранными рецептами блюд на завтрак, обед и ужин, позволяющими разнообразить свою домашнюю кухню, а также рецептами вкусных коктейлей, которыми можно порадовать близких на выходных.
+Из журнала изъяты блоки "Телетоп" - "Гороскоп"Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4279680203F6C9A8AF63002A7D587AF1A6F44367
+magnet:?xt=urn:btih:38A6CFB77ED649EEAA77EB85D7147D57C724AC62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,34 +112,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 288854   (920845) от 30.01.2011
+###  Публикация: 592762   (135710) от 22.12.2012
 
-Salamandra - Time To Change (2010) [MP3|320 kbps]<Melodic Speed Power Metal>
+DJ Feel - TranceMission (17-12-2012) [MP3|320 кб/с]<Progressive Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920845.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Time To Change  - 5:25
-02. Eternal Moon       - 4:38
-03. Crusader             - 4:53
-04. Underworld Tale  - 4:16
-05. Leaving Me          - 5:25
-06. Dark Matter         - 5:35
-07. Lost Life              - 4:10
-08. Masters Of Rock  - 5:40
-09. Factor Zero         - 4:14
-10. The Piano Time   - 0:43Жанр: Melodic Speed Power MetalПродолжительность: 00:45:02
+DJ Feel - TranceMission (17-12-2012) - INTRO
+ 01. Alter Future & Namek - Winter Feeling (Felix Pot Remix) TRANCE ALL STARS
+ 02. DJ Feel - Darklight (Purple Stories Atom Remix) A&R
+ 03. Stoneface & Terminal - Scuderia EUPHONIC
+ 04. Sono - Keep Control (Hydrogen Rockers Vocal Remix) CODE BLUE
+ 05. Gareth Emery & Ashley Wallbridge - DUI (Original Mix) GARUDA
+ 06. Planet Perfecto - Bullet In The Gun (Refracture Remix) PERFECTO
+ 07. Arys - Barocco (Original Mix) TRANCE ALL STARS
+ 08. Matt Millon - So Good (Mike Danis Dub Mix) A&R
+ 09. Rene Ablaze & Jacinta - Secret 2K12 (Fallen Skies Remix) REDUX(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 00:54:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F1925FA118D600347F57F8DC042B7819C508CE7
+magnet:?xt=urn:btih:C92A44FA135FB85EE9787180D6DE424047E9C845
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,34 +147,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 288840   (920847) от 30.01.2011
+###  Публикация: 592879   (135709) от 22.12.2012
 
-Salamandra - Faces Of Chimera (2007) [MP3|320 kbps]<Melodic  Power Metal>
+Butterfly - Favorite Colors Episode 063: End of Year 2012 (Part. 1) (22.12.2012) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920847.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. The Tears Of The Ocean 00:57
-2. Orion 04:56
-3. Dreams of the Fair 05:02
-4. Legacy of the Heroes 05:27
-5. Eternal Injustice 04:51
-6. Heart full of Snow 05:58
-7. Chimera 05:22
-8. Conquest of Paradise 04:24
-9. Atlantis 06:13
-10. Requiem 04:15(   Читать дальше...)Жанр: Melodic  Power MetalПродолжительность: 01:00:35
+01. Lisa Gerrard & Patrick Cassidy -  Sailing to Byzantium (Intro Original Orchestral Mix)
+02. Simon O'Shine -  Lies in Plain Sight (Farhad Mahdavi Remix)
+03. Stonewave -  The Last Time (Original Mix)
+04. Sound Quelle -  Allous (Original Mix)
+05. Stoneface & Terminal -  Scuderia (Original Mix)
+06. Luigi Lusini & Starchaser -  Summer Tale (Dub Mix)
+07. Farid -  Afloat (Original Mix)
+08. Spark7 -  Insania (Original Mix)
+09. Mosahar -  Passion (Original Mix)
+10. Naden -  Cellar Door (Original Mix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:528814586C64F9B5D1BE4A79315A41D2920BFC6D
+magnet:?xt=urn:btih:86BE16CA246F5FCF078C86B4924D457E94782FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,33 +182,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 288879   (920849) от 30.01.2011
+###  Публикация: 592767   (135707) от 22.12.2012
 
-Wizack Twizack - Breeze Of Heaven (EP) (2011) [MP3|320 kbps] <Psytrance>
+DJ Feel - TranceMission (13-12-2012) [MP3|320 кб/с]<Progressive Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920849.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Wizack Twizack - Breeze Of Heaven (EP) (2011)
-Год: 2011
-Жанр: Psytrance
-Лейбл: Digital Distortion Records
-Продолжительность: 00:23:31
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Wizack Twizack - What Are You Doing? [07:46](   Читать дальше...)
+DJ Feel - TranceMission (13-12-2012) - INTRO
+ 01. Betsie Larkin & Lange - Obvious (Serhio Vegas Remix) PREMIER
+ 02. Tomcraft - Loneliness 2K13 (Club Mix) KOSMO
+ 03. Marcus Schossow - Helvete (Original Mix) GARUDA
+ 04. Tiesto & Allure - Pair of Dice (Original Mix) MUSICAL FREEDOM
+ 05. Purple Stories - Path To Nowhere (Ferry Corsten Edit) FLASHOVER
+ 06. Bobina & Betsie Larkin - No Substitute For You (Original Mix) BLACK HOLE
+ 07. Thomas Ulstrup - Bomba HIGH CONTRAST
+ 08. REZarin - Cambodia FLASHOVER
+ 09. Organ Donors - Vajazzle (Original Mix) LANGE(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:53:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F087989E480520815170D215DE07320A616C5995
+magnet:?xt=urn:btih:15D499F3965E9F1616B4450E0BBF4A419BEEB6C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,28 +217,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096204   (920852) от 23.01.2017
+###  Публикация: 592047   (135706) от 22.12.2012
 
-VA - Armada Chill (2017) [FLAC|Lossless|WEB|tracks] <Downtempo, Chillout, Lounge>
+Alien Autopsy - Paranormal (2011) [MP3|320 кб/с]<Industrial death metal/deathcore>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920852.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Lejon - Dusk Till Dawn [03:45]
-02 Pablo Nouvelle - You Don't Understand (feat. ALX) [02:47]
-03 Mashti & Jean von Baden feat. Eivor - Waiting [03:31]
-04 Kinobe - Slip Into Something More Comfortable (Stephan Hague Mix) [03:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:59:56
+[04:18] 01. Abduction
+[03:50] 02. Alien Autopsy
+[03:54] 03. Seek The Core
+[01:51] 04. Hangar 18
+[04:57] 05. An.Un.Na.Ki. (Part I)
+[03:48] 06. Karma
+[02:19] 07. Contact
+[03:57] 08. Abduction (Remix by Stan Alien)Жанр: Industrial death metal/deathcoreПродолжительность: 00:28:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BEEE9D14E4872FD907EE47D16A3FF90CAB506FB
+magnet:?xt=urn:btih:B34650FB7BFE601C40A40E26279EBD03AD8EE592
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,33 +250,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 288867   (920853) от 30.01.2011
+###  Публикация: 592799   (135704) от 22.12.2012
 
-Meteor Burn - Comic Book (2011) [MP3|~199 kbps] <Dark Psytrance>
+Журнал | Народный доктор №24 [декабрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135704.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Народный доктор» - это народные рецепты и советы читателей, травников, физиотерапевтов по профилактике и лечению многих заболеваний.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525E0FE2C00E75D53F5F6ECC292416DFAE8DCB80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592817   (135703) от 22.12.2012
+
+Путь братьев Нобель (2007) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм рассказывает о судьбе семьи Нобель, их жизни в России от начала до момента Октябрьской революции. Основная деятельность братьев Нобель разворачивалась в России, именно в России ими были испытаны их революционные изобретения в области нефтедобычи, в разработке многих изобретений принимали активное участие известнейшие русские ученые, такие как Менделеев, а привлечение русских промышленных партнеров и русского капитала позволило совершить технологический рывок во многих областях промышленности. При создании фильма авторами были использованы уникальные исторические материалы из личных архивов.Жанр: ДокументальныйПеревод: Не требуется (оригинал русский)Продолжительность: 00:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD64960C7713D2C25066FEFE3CFB77C04BEAB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592669   (135702) от 22.12.2012
+
+Astronautalis - This Is Our Science (2011) [MP3|320 кб/с]<Hip-Hop|Experimental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920853.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Meteor Burn - Comic Book (2011)
-Год: 2011
-Жанр: Dark Psytrance
-Лейбл: Geomagnetic.TV
-Продолжительность: 01:12:58
-Кодек: MP3
-Битрейт: ~199 kbps
-Тип битрейта: VBRТрек лист:
-01. Crime Scene [08:20](   Читать дальше...)
+01. The River, The Woods (3:18)
+02. This Is Our Science (Feat. Isaiah Toothtaker & P.O.S.) (3:45)
+03. Thomas Jefferson (Feat. Sims & Mike Wiebe) (3:30)
+04. Measure the Globe (2:59)
+05. Dimitri Mendeleev (3:37)
+06. Midday Moon (4:57)
+07. Contrails (Feat. Tegan Quinn) (2:58)
+08. Holy Water (2:57)
+09. Secrets on Our Lips (4:40)
+10. Lift the Curse (4:45)(   Читать дальше...   )Жанр: Hip-Hop|ExperimentalПродолжительность: 00:37:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1289DD94F8676D75DCBABE2BFFADFF685975D74D
+magnet:?xt=urn:btih:FA7712038E6ADB531BD480FD4BDEB0A7A8D53D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,59 +337,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490287   (920854) от 19.08.2021
+###  Публикация: 592907   (135701) от 22.12.2012
 
-guitarFineTune 8.6.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920854.jpg" />
-</div>
-
-
-###  Подробнее
-
-guitarFineTune - это приложение. это помогает настраивать электрические и акустические гитары.  Все струны можно настраивать одновременно. Измеренный звук для всех 6 струн отображается одновременно и сравнивается со звуками струн, какими они должны быть, когда гитара находится в идеальном состоянии.Тип издания: macOS SoftwareРелиз состоялся: 09.08.2021Разработчик: Eigil KroghПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F689F2CF62891503BAD3A3BACDBB251F6E985417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288873   (920855) от 30.01.2011
-
-Sidhartha - Total Experience (EP) (2010) [MP3|320 kbps] <Full On, Psytrance>
+Indukcia - Free Current (2012) [MP3|320 kbps]<Dubstep>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920855.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Sidhartha - Total Experience (EP) (2010)
-Год: 2010
-Жанр: Full On, Psytrance
-Лейбл: Digital Distortion Records
-Продолжительность: 00:24:25
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Total Experience [08:03](   Читать дальше...)
+01. INtroDUKCIA [02:38]
+02. The Cremation Of Sam McGee [04:57]
+03. Walking Minds [04:52]
+04. What Would You Say [05:15]
+05. Good Morning [05:31]
+06. Freedom [05:52]
+07. Illusions [05:13]
+08. Hasten. Part 3 [04:16]
+09. Summer Is Not Endless [04:21]
+10. Running In The City (Space Cover) [06:02](   Читать дальше...   )Жанр: DubstepПродолжительность: 00:54:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DDB7B6BB84EF140B4CBFD22027615C695CD1B75
+magnet:?xt=urn:btih:A345B70A9BB0A5EFB9EB6D95FEF2EA467FF45875
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,25 +372,248 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096325   (920856) от 23.01.2017
+###  Публикация: 592500   (135700) от 22.12.2012
 
-LibreOffice 5.2.4 Stable Portable by PortableApps [Multi/Ru]
+Лёня Мичтатель и Женя Ка Поник - Жили (ЕР) (2012) [MP3|320 кб/с]<Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135700.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Роисся Вперде !
+2. Жили
+3. Иголки
+4. АлёшкаЖанр: RapПродолжительность: 00:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592754   (135699) от 22.12.2012
+
+DJ Feel - TranceMission (20-12-2012) Best Russian Tracks 2012 [MP3|320 кб/с]<Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+DJ Feel - TranceMission (Best Russian Tracks 2012) (20-12-2012) - INTRO
+ 01. Fedor Smirnoff - Letter To Mary (Intro) DIGITAL MOTION
+ 02. 3rd Planet - Sevas (Original Mix) FLASHOVER
+ 03. D-Mad - All To The Good (Original Mix) INFRASONIC
+ 04. Bobina - Quattro 372 MAGIK MUZIK
+ 05. Arty, Matisse & Sadko - Trio (Original Mix) AXTONE
+ 06. Hard Rock Sofa & Swanky Tunes - Here We Go (Original Mix) AXTONE
+ 07. Inners - Silhouettes (Original Mix) MAINSTAGE
+ 08. Vadim Spark - Odyssey (Original Mix) VENDACE
+ 09. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix) MOONBEAM(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69EDE11A5D14836E0E2D2BECF67F2028A55055C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592692   (135695) от 22.12.2012
+
+Брижит Обер | Карибский реквием [2012] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+"Карибский реквием" можно признать одним из наиболее увлекательных романов Брижит Обер. Действие разворачивается на дивном острове, затерянном в Карибском море. Начало истории не предвещает главному герою, частному сыщику Леруа Дагоберу, плейбою и серфингисту, никаких осложнений. Даже наоборот! Красавица мулатка, которая поручает детективу разыскать ее отца, - чудо как хороша. Настоящая фотомодель! У нее, правда, отвратительный характер и очень опасные друзья, но что с того, дело-то совсем простое. Даг берется за эту работу, не подозревая, что совершает, возможно, главную ошибку в своей жизни. На райском острове Сен-Мартен его ждет настоящий кровавый кошмар и скорое осознание того, что невинное расследование имеет к его собственной персоне самое непосредственное отношение.Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6C9EBF1A8F2B197A55EE59BF274C3B89026E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592833   (135692) от 22.12.2012
+
+Журнал | Tatler №1 [январь 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание, которое сочетает в себе искусство быстрого реагирования на сиюминутные колебания моды с глубоким журналистским анализом ситуации. Модному городу нужен модный журнал.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74138201B437A7162171FE28A0577435CB410C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592897   (135691) от 22.12.2012
+
+Журнал | Автоцентр №52 [декабрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+"Автоцентр" - еженедельный журнал полностью посвящен миру автомобилей. Основные рубрики: Автосалон, Автополигон, Концепции, Авторынок, Автобизнес, События и выставки, Практические технические и юридические советы, Спорт и другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB740968A574B9A6ED7088F63A3CCD0E1B97FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592583   (135687) от 22.12.2012
+
+Лето в Ред Хук / Red Hook Summer (2012) DVDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+История юного мальчика из среднего класса Фрика Рояла из Атланты, который проводит лето со своим глубоко религиозным дедом епископом Енох Роузом, проживающим в историческом промышленном районе Бруклина Ред-Хоук. Проповеди дедушки и встреча с красивой девушкой его возраста меняют мировоззрение Флика.Жанр: ДрамаРежиссер: Спайк ЛиАктеры: Лимари Агосто, Туррон Кофи Аллейне, Куинси Тайлер Бернстайн, Дэниэл БрикерПеревод: ОтсутствуетПродолжительность: 02:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81119726965EEBE70EA328B5E3871C7200E44133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592523   (135682) от 22.12.2012
+
+Armin van Buuren - A State Of Trance Episode 591 SBD (2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+[01:05] 01. A State of Trance - Intro
+ [05:29] 02. Emma Hewitt - Rewind (Mikkas Remix)Жанр: TranceПродолжительность: 02:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689C28CADB16D901936E3925FC3E71CAFB103755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592806   (135675) от 22.12.2012
+
+Журнал | Похудей. Спецвыпуск №1 [январь-февраль 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135675.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Похудей" - журнал для женщин , стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D781DF268E378205A0DA6BEFB33C01AD376A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592850   (135674) от 22.12.2012
+
+Wise Program Uninstaller 1.22.52 Portable [Multi/Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920856.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Wise Program Uninstaller - отличный деинсталлятор, анализирует файлы, папки и записи реестра, для корректного удаления программ. Поможет принудительно удалить программу, которую вы не можете удалить штатным деинсталлятором от Windows, или другими программами.
+Кроме того, он также может удалить остаточные элементы, которые остаются после не очень тщательной деинсталляции.
+Программа бесплатная и совместима с Windows 8.Название программы: Wise Program UninstallerЯзык интерфейса: Multi/Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDDB9833D29A35DA8AE00D1E7390391217F23789
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +621,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490190   (920857) от 19.08.2021
+###  Публикация: 592914   (135673) от 22.12.2012
 
-SRWare Iron 92.0.4700.0 + Portable [Multi/Ru]
+Chromium Portable 26.0.1369.0 [Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920857.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Безопасный, удобный и быстрый в работе браузер на основе исходного кода проекта Chromium. Обладая интерфейсом и многими функциями, знакомыми пользователям по Google Chrome, SRWare Iron отличается своей политикой по отношению к безопасности и конфиденциальности. В нем отсутствуют какие-либо «следящие» модули, в чем неоднократно обвинялся браузер от Google.Язык интерфейса: Русский, Английский, другие
+Chromium - мощный, но простой в использовании браузер с открытым кодом, который был специально создан для обеспечения более безопасной, быстрой и удобной веб-навигации, а также для использования в качестве удобной платформы для веб-приложений. На основе Chromium создается браузер Google Chrome, а также ряд других веб-браузеров.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F9BB505B41223BA3D85826EA7B41D69B6F0D576
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,25 +647,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490218   (920862) от 19.08.2021
+###  Публикация: 592772   (135672) от 22.12.2012
 
-Sensei 1.4.8 [Multi/Ru]
+"Крылов" | Книжная серия "Boutique" [2004-2005] [FB2]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920862.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sensei - это приложение, которое охватывает как программное, так и аппаратное обеспечение, включая гораздо больше функций, чем другие приложения в категории оптимизации Mac. Оно включает в себя функции для очистки вашего диска, удаления приложений, анализа состояния аккумулятора и диска, мониторинга статистики CPU/GPU/RAM, оптимизации скорости загрузки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 19.08.2021Разработчик: Oskar Groth / Cindori ABПоддерживаемая ОС: OS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
+Проект Boutique: модное чтение при любой погоде!
+Стильные, остроумные и современные книги на любой вкус, кроме плохого.
+В проект входят следующие серии:Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A9B39F213CFC6B3B7A7BB849C018F0C4377CC74
+magnet:?xt=urn:btih:69DE2990C8425BD0791018F41BC496322BBFDB3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592737   (135668) от 22.12.2012
+
+Главная дорога (22.12.2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный для массового зрителя, научит водителей уверенно держаться за рулем. Занятия проводит инструктор известного во всем мире Центра высшего водительского мастерства. И в каждом выпуске проекта — моделирование аварийных ситуаций: разбор и рекомендации по предотвращению происшествий, а также советы юристов. В рубрике «$еконд-тест» ведущие программы вместе с автоэкспертами выбирают подержанные автомобили, испытывают их на полигоне и проверяют в сервисе. А в «Федеральной трассе» рассказывается о дорогах нашей страны, их особенностях и достопримечательностях. Показать всю важность соблюдения ПДД и сделать российские дороги безопаснее — цель программы (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: ~ 00:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D5B7CDFA7C1A79EF49AC2376EC3D71C9F41E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592800   (135665) от 22.12.2012
+
+Кинопленка с кровавой баней / Celluloid Bloodbath: More Prevues from Hell (2012) DVDRip  [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданный сиквел к классическому культовому сборнику трейлеров фильмов ужасов "Mad Ron's Prevues from Hell" 1987 года выпуска. Перед нами новая удивительная коллекция трейлеров из более чем 60 фильмов, выходивших в золотые года жанра грайндхаус- малобюджетного коммерческого кино в период с 1960-го по 1980-е годы.
+В сборнике также имеются комментарии режиссеров, актеров, критиков и поклонников данного жанра.Жанр: УжасыРежиссер: Джим Монако, Джеймс Ф. Мюррей младшийАктеры: Джинджер Линн, Мишель Бауэр и Эми ЛиннПеревод: ОтсутствуетПродолжительность: 01:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2AA1F20CC3803E33927C408DFFF2D66C0188BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592986   (135663) от 22.12.2012
+
+Генерал армии Золушек (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В ноябре продюсер самого популярного женского трио "ВИАГра" Константин Меладзе заявил о закрытии проекта...
+Но всего через неделю он передумал и объявил о новом кастинге в группу, в котором сможет принять участие любая девушка из России, Украины и Казахстана. Станет ли "ВИАГра" самой долгоиграющей группой за всю историю российской эстрады? Ведь ей уже 13 лет, и за это время в группе сменилось 13 солисток.
+
+Ни для кого не секрет, что "ВИАГра" стала эффективным социальным лифтом для золушек из провинции. Создатель группы Константин Меладзе, который лично отбирал в группу девушек, не просто помогал им раскрыть талант, а "лепил" из них как из пластилина "идеальных" артисток. Как Пигмалион, он учил их разговаривать, одеваться, двигаться, заставлял читать книги, ввел строгий режим без алкоголя, встреч с мужчинами и развлечений. Сегодня он полностью разочаровался в этой идее. Почему? И чего он хочет теперь? Возобновит ли он работу социального лифта под названием "ВИАГра"? (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673D5DCA21905AC78F62CA2723193D391BBEB7EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

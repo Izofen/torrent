@@ -1,22 +1,22 @@
-###  Публикация: 1456749   (1024834) от 23.03.2021
+###  Публикация: 1801213   (15078) от 10.06.2025
 
-3D Smart materials - Artstation - Poligone - Poligone Smart Material Collection for AAA Character Creation [SPSM]
+3D сцены - Fab - Medieval Gothic Cathedrals -  Modular dark fantasy churchs [UASSET, UMAP]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024834.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-От автора Poligone: Этот пакет представляет собой коллекцию умных материалов, которые я создал за 5 лет моей карьеры профессионального 3D-художника. Эти материалы использовались во всех моих AAA и мобильных проектах для многих известных клиентов (ILM, Microsoft, Lucas, Disney, NCSoft, Nexon, Telltale, Kabam, Gamevil, Digital Legends и многих других).Формат: SPSM
+Средневековые готические соборы - Модульные церкви в стиле темного фэнтези. С этим модульным пакетом вы можете создавать любые соборы и церкви, которые захотите.Формат: UASSET, UMAP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80E22840FC658DD1C9425A28543DD028B5B63407
+magnet:?xt=urn:btih:049F6615227B6AA1CE10CCF8E52D487CA85B63A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456456   (1025030) от 22.03.2021
+###  Публикация: 1801780   (14771) от 13.06.2025
 
-3D Smart materials - Artstation - Zack Maxwell - Stylized Wood - Smart Materials [SPSM]
+3D сцены - Fab - Taiga Biome Environment ( Boreal Forest , Winter Forest , Tundra Biome ) [UASSET, UMAP]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025030.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Умные материалы от автора Zack Maxwell.Формат: SPSM
+Превратите свои виртуальные миры в безмятежную зимнюю страну чудес с Taiga Biome Environment , необыкновенным набором листвы и ресурсов от Entroverse Labs. Эта тщательно созданная коллекция передает суровое очарование северных лесов, дополненное морозным ландшафтом, природными элементами и уютными структурами. Независимо от того, создаете ли вы захватывающий зимний (   Читать дальше...   )Формат: UASSET, UMAP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E387923B2384411DDC390DA344DD0602C4729E9
+magnet:?xt=urn:btih:63D431E1C79ADFCFB011ACC302899096D7BDE71F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456429   (1025031) от 22.03.2021
+###  Публикация: 1804631   (12846) от 01.07.2025
 
-3D Smart materials - Artstation - Zack Maxwell - Stylized Body - Smart Materials [SPSM]
+3D сцены - Fab - Northern Island Landscape Pack 4x4 km ( Landscape ,Scottish , Island Landscape ) [UASSET, UMAP]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025031.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Умные материалы от автора Zack Maxwell.Формат: SPSM
+Northern Island Pack состоит из островного ландшафта площадью 16 км2 с полностью процедурным ландшафтом и расположением листвы. Текстуры ландшафта, растения и скалы фотосканированы нами. Ландшафтные прибрежные скалы моделируются и терпеливо вылепливаются. Они имеют различные размеры и формы для легкого размещения с помощью инструмента спавнера листвы ландшафта Unreal (   Читать дальше...   )Формат: UASSET, UMAP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C38B57BE06619E7FA6A8AD29FA84E0389B7BDEE5
+magnet:?xt=urn:btih:ACC2722977A170E69A615AC66F0770AB04AAC3D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456435   (1025041) от 22.03.2021
+###  Публикация: 1807209   (11227) от 17.07.2025
 
-3D Smart materials - Artstation - Zack Maxwell - Stylized Fabric - Smart Materials [SPSM, SBSAR]
+3D print - Hybris Studios - Bismarck: Azur Lane 2025 [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025041.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Умные материалы от автора Zack Maxwell.Формат: SPSM, SBSAR
+Июльская модель Bismarck: Azur Lane от известной и проверенной студии Hybris Studios для Вашего творчества в 3D печати.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7603698453F0336FC28EB2FBB32D78102BEB908
+magnet:?xt=urn:btih:9AEC3595BC7ADC8387FC71EAA9316237462D821B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456440   (1025042) от 22.03.2021
+###  Публикация: 1807588   (10971) от 19.07.2025
 
-3D Smart materials - Artstation - Zack Maxwell - Stylized Metal - Smart Materials [SPSM]
+3D модели - 2209 | Gardening 01 [BLEND, FBX, C4D, OBJ, MAX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025042.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Умные материалы от автора Zack Maxwell.Формат: SPSM
+3D-модельи от известной студии.Формат: BLEND, FBX, C4D, OBJ, MAX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:521D52928899FBE66C4BF845871D8161B1DDCF69
+magnet:?xt=urn:btih:13B4E70A00FEB27490578130985AF44DA4185C68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456448   (1025046) от 22.03.2021
+###  Публикация: 1808156   (10693) от 22.07.2025
 
-3D Smart materials - Artstation - Zack Maxwell - Stylized Stone - Smart Materials [SPSM]
+3D модели и материалы - ArtStation - Blender 3D Projects Collection by Rui Huang [BLEND]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025046.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Умные материалы от автора Zack Maxwell.Формат: SPSM
+Коллекция sci-fi анимаций от Rui Huang.Формат: BLEND
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B3647768F0440021EEDB20066309619996E99AC
+magnet:?xt=urn:btih:1BBFEF07D6CE4746BE65BC85F982F650C4076D71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456066   (1025162) от 21.03.2021
+###  Публикация: 1808232   (10589) от 23.07.2025
 
-3D модели - Evermotion - Archmodels vol. 209 [V-Ray|*.max]
+3D модели - Craftwork - Wooden Toys [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025162.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Archmodels vol. 209 включает 36 профессиональных высокодетализированных 3D-моделей для архитектурной визуализации. В этой коллекции представлены качественные 3d модели одежды, экспозиции обуви и сумок. Текстуры и материалы присутствуют. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max
+«Wooden Toys» — это набор из 51 объёмного элемента в трёх ракурсах: спереди, в перспективе и сверху. Сочетание натурального цвета и текстуры дерева создаст особое настроение вашей презентации или веб-сайта. 3D-модели доступны в Photoshop. Меняйте цветовую схему или оставляйте натуральное дерево для любого ракурса.Формат: PSD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5243921DA7DA3428085B073F23390DB08389608E
+magnet:?xt=urn:btih:796073EA676C638F912C96714B63873AB2FED030
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456062   (1025165) от 21.03.2021
+###  Публикация: 1808642   (10288) от 26.07.2025
 
-3D модели - Evermotion - Archmodels vol. 211 [V-Ray|*.max]
+3D модели - BM - Summer Pack - People Set [BLEND]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025165.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Archmodels vol. 211 включает 72 профессиональных высокодетализированных 3D-модели для архитектурной визуализации. В этой коллекции представлены качественные 3d модели уличного реквизита. Текстуры и материалы присутствуют. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max
+Summer Pack - 3D Models предлагает комплексное решение для 3D-художников и создателей, желающих дополнить свои сцены разнообразными персонажами в повседневной пляжной одежде. Благодаря разнообразию цветов и дополнений, оптимизированной производительности, разнообразному этническому представительству и совместимости с дополнением Procedural Crowds (на всякий случай (   Читать дальше...   )Формат: BLEND
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B6EE3DDE2CCC48363A2537559195B23B2248CF0
+magnet:?xt=urn:btih:779EC61560B1471862D0D3122C38A012DC9E15E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456102   (1025190) от 21.03.2021
+###  Публикация: 1810054   (9522) от 02.08.2025
 
-3D материалы - ArtStation - Pawel Lyczkowski - All-Purpose Substance Materials Pack [SBSAR]
+3D print - Chibi Station - Jinx [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025190.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Материалы от автора Pawel Lyczkowski.Формат: SBSAR
+Джинкс из известной игры League of Legends.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D52F6F2445791BA6D281918EF2F2E658DF8E0004
+magnet:?xt=urn:btih:7BEFF3852390FBB87EC43E8487230ED0DEAEE7D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +232,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456122   (1025200) от 21.03.2021
+###  Публикация: 1811032   (9030) от 07.08.2025
 
-3D Smart materials - Artstation - Pamir Bal - 50 High Quality Metal Smart Material Bundle [SPSM]
+3D print - Fundrazr - HEROICAS - Complete Collection [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025200.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9030.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Умные материалы от автора Pamir Bal.Формат: SPSM
+3D модели супергероев для принта. В раздаче лишь часть из полного комплекта.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0323CB2EE90317B3E6415FC5B0C17017CAD8BB1
+magnet:?xt=urn:btih:E0DFFF72DAA3DBD432EEA6AA49F4E65A8665A713
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +258,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456270   (1025212) от 21.03.2021
+###  Публикация: 1811440   (8794) от 09.08.2025
 
-3D Smart materials - Artstation - Musaab Shukri - 9 Metal and Rust Smart Materials [SPSM]
+3D сцены - Fab - Bicycle Repair Shop [UASSET, UMAP]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025212.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Умные материалы от автора Musaab Shukri.Формат: SPSM
+Хотите добавить в свой следующий проект детализированную и насыщенную персонажами веломастерскую? Я подготовил для вас то, что нужно! Этот реалистичный набор окружения для веломастерской привнесёт очарование, суровость и функциональность настоящей европейской веломастерской — и готов к использованию в вашей сцене Unreal Engine.Формат: UASSET, UMAP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25FEE4436D37FAB53CE610EA8D1732F77BF19839
+magnet:?xt=urn:btih:092264F5677F926EE270647EC527501AF85FAE03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +284,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455975   (1025364) от 20.03.2021
+###  Публикация: 1812758   (7493) от 16.08.2025
 
-3D модели - CGTrader - 63 Studio Stage Theater Cinema Lighting Collection [V-Ray|*.max, C4D, FBX, MB]
+3D print - Tenshi Figures - Month Releases - JULY [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025364.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция Студийного, Кинотеатра освещения из 63 моделей.Формат: V-Ray|*.max, C4D, FBX, MB
+Все три июльские модели от Tenshi Figures.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAABD52BC930007CE2E503A12AA7A71FB511C2AA
+magnet:?xt=urn:btih:EA96B96397226D93955A988DCE42F74DAD4AF208
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +310,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455586   (1025557) от 19.03.2021
+###  Публикация: 1812992   (7346) от 17.08.2025
 
-3D Smart materials - Gumroad - Pawel Lyczkowski - SP - 65 Industrial Smart Materials [PNG, SBSAR, SPSM]
+3D print - Cults3D - Sexy Videl - Dragon Ball [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025557.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это умный металлический комплект, созданный Pawel Lyczkowski для использования в Substance Painter.Формат: PNG, SBSAR, SPSM
+Видель из Dragon Ball для 3D печати.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7FE9E5745ED37D07A93820F937638B783D973CC
+magnet:?xt=urn:btih:69E6DAE09F2DB59A7A432F941CABAB78F47E49E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,25 +336,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453705   (1026660) от 12.03.2021
+###  Публикация: 1811894   (7313) от 17.08.2025
 
-3D модели - Evermotion - Archexteriors vol. 36 [V-Ray|*.max]
+3D print - GeekSculpt3D (3D Collective) - Collection 3D Printable Miniatures 2020-2025 [STL, 3MF, MTL, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026660.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Archexteriors vol. 36 включает 10 полностью текстурированных внешних сцен ресторанов и кафе. Каждая сцена готова к рендерингу с использованием профессиональных шейдеров и освещения.Формат: V-Ray|*.max
+От автора: Я страстный 3D-художник, который не перестает экспериментировать со свежими формами, смелыми текстурами и чистой современной эстетикой.
+За последние несколько лет я расширил несколько витрин — на Thangs, Makersworld, Printables и других торговых площадках, — каждая из которых была ориентирована на несколько иное творческое направление.
+Некоторые из них (   Читать дальше...   )Формат: STL, 3MF, MTL, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:639F4CC00329664ADB732D6236D2AF5D0D64E323
+magnet:?xt=urn:btih:E1C93D55923759F793D0F09505BC2B378ED72F8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,25 +364,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453274   (1027014) от 10.03.2021
+###  Публикация: 1813443   (6956) от 19.08.2025
 
-3D модели - CGTrader - Truck KAMAZ 6560 [Corona|V-Ray|*.max]
+3D print - Loot Studios - Shadow of Vengeance [STL, LYS]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027014.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки КамазФормат: Corona|V-Ray|*.max
+Десять лет назад великая следопытка Орелла отдала свою жизнь, чтобы победить нежить и закрыть портал в Пенумбрум. Теперь же появился новый прорыв в это тёмное царство, и искажённая форма некогда почитаемой следопытки возглавляет армию существ из-за завесы. Смогут ли её старые последователи и друзья справиться с этой Тенью возмездия?Формат: STL, LYS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7DE268D60F39C4D90519122646295687A47B055
+magnet:?xt=urn:btih:AF7DC499D82F734D13211AFA4649186D199F422F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,28 +390,210 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452748   (1027446) от 07.03.2021
+###  Публикация: 1813614   (6813) от 20.08.2025
 
-3D модели - Свободные 3D модели созданные пользователями Sweet Home 3D [SH3F]
+3D модели - BigMediumSmall - Armor [BLEND, FBX, OBJ, UPROJECT]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027446.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Библиотеки дополнительных моделей 3D.
+ARMOR , разработанный Maarten, — это комплексный набор, созданный для суровых условий. Эта коллекция включает сотни высокодетализированных механических деталей, готовых узлов и полностью текстурированных компонентов техники — идеально подходит для сборки любых моделей: от мощных транспортных средств до тяжелобронированных боевых машин. Независимо от того, модифицируете (   Читать дальше...   )Формат: BLEND, FBX, OBJ, UPROJECT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6D3C6D8133F8BBA77066AB4C80735F6D4DBA20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813864   (6661) от 21.08.2025
+
+3D print - LionRealm Studio - Kaiju 8 - Soshiro Hoshina [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хосина Сосиро, вице-капитан Сил Обороны, известен своими непревзойденными навыками владения двумя мечами и способностью сохранять спокойствие даже перед лицом гигантских угроз. Надевая Броню Кайдзю № 10 , он достигает нового уровня мощи, сочетая свою смертельную точность с грубой силой и выносливостью кайдзю. Броня усиливает его ловкие движения, позволяя ему встречаться (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DE47468C5C74D50EE3EC19D7E622A6A4B37B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809798   (4328) от 05.09.2025
+
+3D print - LionRealm Studio - Gumroad - Solo Leveling - Tusk [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tusk — могущественный персонаж, призванный Джинву в Solo Leveling, известный своей внушительной внешностью орка-шамана и разрушительными магическими способностями. Изначально босс подземелий, Tusk становится одной из самых верных и умных теней главного героя после того, как его победили и обратили. Обладая мистическим посохом и угрожающим видом, он выделяется не (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CF2138C01B1224F38BA21C6482B12BAF945FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818662   (2204) от 18.09.2025
+
+3D print - Cults3D - Inari Figure - Fuwamoco, Hololive, Vtuber [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2204.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Бау-бау» в каждый дом!Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E09760F00B9BC6D1ADF9444C15087A248820C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818760   (2203) от 18.09.2025
+
+3D print - ZEZ Studio - Chibi Wolverine [STL, LYS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Росомаха в камуфляжных штанах, сигарой во рту и когтями наготове пробирается в вашу коллекцию. Эта коллекционная фигурка Marvel Comics/X-Men готовит Логана к бою — доказательство того, что даже в миниатюрном размере он остаётся самым ворчливым и смертоносным карманным берсерком.Формат: STL, LYS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6967D647565DE01274C45EC4F0312866DAA4FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818742   (2181) от 18.09.2025
+
+3D print - Dark Forge Arts - CA 3D Studios - Light Yagami [STL, LYS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оживите темного гения из Тетрадь Смерти с помощью этой 3D-миниатюры, вдохновленной Лайтом Ягами. Известный своим острым интеллектом, холодной решимостью и пугающей силой Тетрадь Смерти, Лайт воплощает в себе как справедливость, так и коррупцию в одной фигурке.
+Это оригинальный коллекционный фан-арт, созданный с глубоким уважением к персонажу - не официальный продукт, (   Читать дальше...   )Формат: STL, LYS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0A02E2E9779AB6130B513D578AA94ACBFD176A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818672   (2172) от 18.09.2025
+
+3D print - Cults3D - Merge Project Figures - Nemesis - RE3 [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моделька Nemesis из знаменитой игры Resident Evil 3 от Merge Project Figures.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEF1BA51B6EEF7066C397D5FE228A46B859D51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818865   (2066) от 19.09.2025
+
+3D print - MyMiniFactory - Black Bird Miniatures - The Ritual of Blood - 430850 [STL, LYS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на The Ritual of Blood, где желание и смерть сливаются в извращённом и гротескном танце. Сможете ли вы выжить?
 
-    Sweet Home 3D позволяет импортировать библиотеки 3D моделей в формате SH3F файлов. Такие файлы группируют модели с описаниями и могут быть легко установлены с помощью двойного щелчка мыши на них, либо через меню Мебель > Импорт библиотеки мебели в Sweet Home 3D.
-    Следующие ZIP содержат в себе файлы SH3F, которые вы можете (   Читать дальше...   )Формат: SH3F
+Для этого проекта мы хотели создать две сцены, вдохновлённые демонической и вампирской тематикой. Надеемся, они вам понравятся и вы захотите присоединиться к нам в этом кровавом приключении...Формат: STL, LYS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:995A33FBED0C9EE188BA4AF8DB63BFA1C843485E
+magnet:?xt=urn:btih:B77A9BE86B99C7F1E7660753FD30E482626AF4A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,25 +601,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452117   (1027814) от 05.03.2021
+###  Публикация: 1818844   (2042) от 19.09.2025
 
-3D модели - Daz 3D - Сборник 3D моделей #24 [DUF]
+3D print - Toon Studios - Ariel [STL, LYS]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027814.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2042.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор 3d моделей для DAZ 3D - из 100шт, категории Clothing, People, Animation, Hair.Формат: DUF
+Мы рады представить детализированную 3D-модель русалочки Ариэль, созданную специально для высококачественной 3D-печати. Эта модель идеально подойдёт для фанатов диснеевской классики, коллекционеров и тех, кто хочет порадовать себя яркой фигуркой для покраски.Формат: STL, LYS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C083D257B9308816F7C7712B2FAC5D857557B9DC
+magnet:?xt=urn:btih:6A4FD7ECCA60B9D4DF0C4243A07F9B8E6B33E53B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,25 +627,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451404   (1028267) от 02.03.2021
+###  Публикация: 1818977   (2022) от 19.09.2025
 
-3D модели - KitBash3D - Veh: Tanks [Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA]
+3D print - Cults3D - Bestiarum - The Alchemic Order Part 2: Collection [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028267.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С помощью этого универсального набора вы можете заполнить свои боевые зоны 10 готовыми танками или построить свой собственный с нуля с десятками люков, корпусов, пушек, гусениц, колес и турелей уникального дизайна, чтобы дать вам бесконечные возможности для создания собственных могучих машина войны!.Формат: Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA
+По выжженным тропам и продуваемым ветрами пустошам Алхимический Орден катит свои скрытые караваны по умирающему миру. Облаченные в сияющие одежды и маскирующиеся, словно идолы, эти странствующие учёные торгуют летучими зельями, целебными настойками и реликвиями странного дизайна. Простому люду они предлагают исцеление и тайну; глупым и жестоким они предлагают быстрый, (   Читать дальше...   )Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F713B40B27180A3C2CE8EE2062B87203056F6C5E
+magnet:?xt=urn:btih:C57A7125245387BA4BEF2D183496A521744B3E68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,208 +653,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447841   (1028600) от 28.02.2021
+###  Публикация: 1818943   (2011) от 19.09.2025
 
-3D модели - Renderosity - Daz3d Genesis 8 SASE Model Collection [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей SASE для Daz Studio от автора Sabby.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4055D325008B9C7261CC51E4B2A408CA759C56D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450892   (1028612) от 28.02.2021
-
-3D модели - Toolfarm - Greyscalegorilla Happy Toolbox Volume II Model Pack [FBX, LIB4D]
+3D print - Epic Miniatures - Succubus Demon Set [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028612.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-180 веселых и удобных 3D-моделей, которые помогут вам создать собственное приключение на открытом воздухе, очаровательный дом, магазин в стиле ретро или очаровательную мастерскую. Эта коллекция 3D-моделей имеет модели Sub-D, UV-карту и готова к работе!Формат: FBX, LIB4D
+Набор демонов-суккуба от Epic Miniatures.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D25C0BAD261124D830B95A4E2AB3994F39DBCC1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450489   (1028943) от 26.02.2021
-
-3D модели - Evermotion - Archmodels vol. 182 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archmodels vol. 182 представляет собой сборник из 56 наборов моделей веток, стволов, шишек и камней - включено более 100 отдельных моделей (с текстурами и материалами). Мы также даем вам полную сцену леса (3DS MAX и V-Ray).Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9D29C69651BE96C209A76CD10AF81A210317B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449125   (1030087) от 20.02.2021
-
-3D модели - 3DDD - 3DSky PRO models - February 1 2021 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 216 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADBEC69DD92A2EBE686786E4B20F6B29862EDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445301   (1033599) от 05.02.2021
-
-3D модели - Evermotion - Archmodels vol. 131 [Mental Ray|V-Ray|*.max, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archmodels vol. 131 включает 3 набора трехмерных частей города с очень разнообразными моделями современных мегаполисов из разных регионов мира. Каждый набор состоит из пары частей, которые можно использовать для быстрого создания большого города. Archmodels vol. 131 включает также простую анимацию движения.Формат: Mental Ray|V-Ray|*.max, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C634112032BF085A23F3572EC2297CC91947ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445287   (1033601) от 05.02.2021
-
-3D модели - Evermotion - Archmodels vol. 238 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archmodels vol. 238 включает 44 профессиональных высококачественных 3D-модели для архитектурной визуализации. В этой коллекции представлены деревья, типичные для биомов Австралии и Океании. Включенные виды: Eucalyptus, Platanus acerifolia, Brachychiton rupestris, Acacia pycnantha, Corymbia ficifolia, Wollemia nobilis, Araucaria heterophylla, Cupaniopsis anacardioides. (   Читать дальше...   )Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6A8BA17FEC4F67BBA041A5342D2269FFAB98CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444516   (1034283) от 02.02.2021
-
-3D модели - Evermotion - Archmodels vol. 198 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archmodels vol. 198 включает 36 профессиональных высокодетализированных наборов моделей для архитектурной визуализации. В коллекцию входят качественные магазинные экспозиционные 3d модели со всеми текстурами и материалами. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D29DEB0D575DA7D61C338EDFC8DFF5B57F8D6A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443236   (1035606) от 28.01.2021
-
-3D модели - Evermotion - Archmodels vol. 204 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archmodels vol. 204 включает 48 профессиональных высокодетализированных 3D-моделей для архитектурной визуализации. В этой коллекции представлены высококачественные модели садовых растений и кустарников. Текстуры и материалы включены. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EECC7BFC129423EEEC5C27693FC317C20BB31B3
+magnet:?xt=urn:btih:B859D63089478207A6AA746FF382110669645AB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

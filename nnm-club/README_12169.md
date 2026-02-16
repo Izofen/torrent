@@ -1,23 +1,25 @@
-###  Публикация: 1166610   (424737) от 17.09.2017
+###  Публикация: 1238239   (547139) от 29.07.2018
 
-Журнал | Тайны и загадки №2 (13) (2016) [PDF]
+Seance - Fornever Laid To Rest (1992) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Журналы
->>Другие журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424737.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несмотря  на то, что уже  вовсю идет XXI век,  и  всякая  нечисть,  типа  вампиров, зомби,  оборотней  и  других не  менее яр­ких  и  живописных  представителей  поту­стороннего  мира,  должна  была  остаться
-в далеком  прошлом (скажем,  где-то веке в XV),  вряд ли  в современном  мире най­дется  человек, который  не  имеет  пред­ставления  о  том,  кто  это  такие.  Множе­ство  фантастических  романов, (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+01.Who Will Not Be Dead
+02.Reincarnage
+03.The Blessing Of Death
+04.Sin(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:549087D742FE9580370561CFCA37586D80128D45
+magnet:?xt=urn:btih:B1FF691E632FD3C9F26A573C50EFB872774F7327
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,224 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166179   (424738) от 17.09.2017
+###  Публикация: 1048297   (547138) от 01.09.2016
 
-Футбол. Лига Чемпионов УЕФА 2017-2018. Группа D. 1-й тур. Барселона (Испания) – Ювентус (Италия) (12.09.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424738.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 сентября 2017 года, вторник. 21:45 МСК
-Лига Чемпионов УЕФА 2017-2018. Групповой турнир
-Группа D. 1-й тур
-Барселона (Барселона, Испания) – Ювентус (Турин, Италия)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F8CD6AF57075B62084E92E480F911BF622EB9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166560   (424739) от 17.09.2017
-
-VA - Who's Afraid of 138 Top 15 - 2017-09 (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Sparks & Joel Fletcher – Acid Rain (Ben Nicky Remix) (02:52)
-02. Svenson & Gielen – We Know What You Did... (Alex M.O.R.P.H. Remix) (03:19)
-03. Standerwick – Into the Deep (03:03)
-04. Sean Tyas – Lift (Sean Tyas Rework) (04:03)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2A1451FCA54DBF6B0637298A231D9035C43119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166644   (424740) от 17.09.2017
-
-Д. Б. Рязанов | Англо-русские отношения в оценке К. Маркса [Историко-критический этюд] (1918) [DJVU]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая теперь вниманию русских читателей работа была предпринята автором осенью 1908 г. Революция 1905—1907 гг. показала, что старая программа внешней политики, которую социал-демократия, вслед за Марксом и Энгельсом, унаследовала от радикальной демократии, нуждается в критическом пересмотре. Чтобы решить эту задачу, требовалось, в первую голову, исследовать (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166638   (424741) от 17.09.2017
-
-К. Маркс | Классовая борьба во Франции с 1848 по 1850 г. (1903) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Введение (Ф. Энгельс):
-
-В предлагаемой работе Маркс сделал первый опыт применения материалистического метода к объяснению современной истории. В Коммунистическом Манифесте эта теория применяется в общих чертах ко всей новейшей истории во всем ее целом; в наших статьях в „Новой Рейнской Газете" Маркс и я постоянно пользовались ею при истолковании событий дня. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4DF63C58CF20888E9677EC1521331D3EC6E1D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166576   (424742) от 17.09.2017
-
-The Clayton-Hamilton Jazz Orchestra - Live at MCG (2005) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Georgia [03:59]
-02. Jody Grind [05:43]
-03. Nature Boy [04:44]
-04. Lullaby of the Leaves [08:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E3BC3AE8A3D11A8B76563D06F3A5DC3D42D64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165988   (424743) от 17.09.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 16-й тур. Колумбия – Бразилия (05.09.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424743.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 сентября 2017 года, вторник. 23:30 МСК
-Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 16-й тур
-Колумбия – Бразилия
-Стадион: Метрополитано Роберто Мелендес (Барранкилья, Колумбия), вместимость: 49612(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83089DF5FF0EB746CA3D6251EDD9A09F95BA79D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165855   (424744) от 17.09.2017
-
-Футбол. РФПЛ. Чемпионат России 2017-2018. Обзор матчей 9-го тура (11.09.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424744.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 сентября 2017 года
-РФПЛ. Чемпионат России 2017 - 2018. Обзор матчей 8-го тура
-08.09.2017, 17:30 МСК	Амкар – ЦСКА
-09.09.2017, 14:00 МСК	Тосно – Анжи(   Читать дальше...   )Телекомпания: Матч! Наш ФутболЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CC57DE9201E8771A2F4B0DDEB3CD3C2761FF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250681   (424745) от 28.09.2018
-
-WiFiSpoof 3 v3.4 [Multi]
+Adobe Bridge CC 2015 6.3 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424745.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WiFiSpoof - небольшая утилита, которая поможет вам легко сменить WiFi Mac-адрес с помощью горячих клавиш или из строки меню. MAC-адрес можно поменять на любой случайный (сгенерированный приложением) или непосредственно заданный вами.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский
+Adobe Bridge — программа для всех, кто сталкивается в своей деятельности с необходимостью работать с графическими файлами в больших количествах.
+Adobe Bridge CC предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, добавлять водяные знаки и даже централизованно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: AdobeПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский, Украинский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F71EF7C5C947303CBE5AEC5A4DDB8E5963D42C9
+magnet:?xt=urn:btih:37C09D288F19AA98BB7BE5D9FFD183E54C75CF22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,25 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250513   (424746) от 28.09.2018
+###  Публикация: 1238264   (547137) от 29.07.2018
 
-Журнал | Forbes [Россия] №10 (175) (октябрь 2018) [PDF]
+Rosicrucian - Silence (1992) [FLAC|Lossless|image + .cue] <Thrash-Death Metal>
 
->>Журналы
->>Другие журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424746.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Forbes" - ведущий деловой журнал в мире. Миссия журнала – обеспечивать читателей информацией, гарантирующей им успех. Журнал Forbes - независимое бизнес-издание. Forbes не публикует информацию, которая уже вышла в других СМИ. Каждый материал в журнале - эксклюзивный. В журнале: статьи экономистов и политиков специально для Forbes, экономические новости, (   Читать дальше...   )Жанр: Деловой журнал, Бизнес и ПолитикаФормат: PDF
+01.Column Of Grey
+02.The Way Of All Flesh
+03.Within The Silence
+04.Esoteric Traditions(   Читать дальше...   )Жанр: Thrash-Death MetalПродолжительность: 00:52:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DCD9921AE74BD1BF82C422FCD9060DD02084049
+magnet:?xt=urn:btih:C4881660C10212DF3DABF1A3EA12AED5ECF8E4FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,28 +83,250 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250602   (424747) от 28.09.2018
+###  Публикация: 1048196   (547136) от 01.09.2016
 
-The Future Sound Of London - From The Archives Vol. 9 (2018) FSOL Digital [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+Брайан Трейси | Сила уверенности в себе (2013) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из этой практической книги, которую автор написал, основываясь на опыте своей работы более чем с пятью миллионами руководителей разного уровня, вы узнаете, как выработать непоколебимую уверенность в себе и повысить самооценку, что позволит вам покинуть комфортную зону и пойти на риск, даже когда нет никаких гарантий. Рекомендации Брайана помогут вам шаг за шагом (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC6CCD115ED826EC4C9D6BB9C3A0694315FAA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238358   (547135) от 29.07.2018
+
+Модест Богданов | Мышка (1902) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5044E7C9C22B814488CC53F27FDB4CE8404B5416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047923   (547134) от 01.09.2016
+
+LP (Laura Pergolizzi) - Death Valley (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative/Indie Rock, Pop Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muddy Waters (3:49)
+02. Lost On You (4:28)
+03. Strange (3:55)
+04. Death Valley (2:52)(   Читать дальше...   )Жанр: Alternative/Indie Rock, Pop Rock, Folk RockПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0650F568CAC384877532C6BA316D24DBBA3F7B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238338   (547133) от 29.07.2018
+
+Иван Горбунов-Посадов, Вера Лукьянская (сост.) | Друг животных. Часть 1 (1902) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов для детей младшего возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEC97D51B397D1078DCBF6AD1C3EB3740CF77A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238376   (547132) от 29.07.2018
+
+VA - Dance Solution Summer Compilation 2018 [MP3|320 Kbps] <Hard House, Hands Up, Hard Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ceres - You Know (Original Mix) 7:09
+02. DJ DBC - Coming Back To You (Original Mix) 4:50
+03. Head Horny's - Your House Is Mine (Original Mix) 6:30
+04. Danny Kobe - What We Wanna Do (PoKy3o FX Remix) 7:19(   Читать дальше...   )Жанр: Hard House, Hands Up, Hard DanceПродолжительность: 01:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FA229970A41E7108CAD07DD092232B7804AF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238299   (547131) от 29.07.2018
+
+Kataklysm - Meditations (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guillotine
+02. Outsider
+03. The Last Breath I'll Take Is Yours
+04. Narcissist(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BCD883C5FB97684857B95808025C4CDF8895C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238395   (547130) от 29.07.2018
+
+VA - Pure Salinas Vol.9 [Compiled by DJ Zappi] (2018) [MP3|320 Kbps] <House, Deep House, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Energy 52 - Cafe Del Mar (Dale Middleton Remix) 9:08
+02. Oliver Dollar - Go Down (Original Mix) 6:18
+03. Serge Devant & Sabb feat. Forrest - Waiting (Original Mix) 7:25
+04. Ordonez - Afternoon Sadness (Original Mix) 6:13(   Читать дальше...   )Жанр: House, Deep House, DowntempoПродолжительность: 02:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F27C6BB7D8468619184C7C67D8E15AB1889C7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238429   (547129) от 29.07.2018
+
+Modd - Phangan Dreams (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phangan Dreams (Original Mix) (7:35)
+ 02. Edem (Original Mix) (6:16)
+ 03. Cyclone (Original Mix) (7:13)Жанр: Deep House, Chill HouseПродолжительность: 00:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B63D4B7E807A5C848929D02491787E736F0811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238311   (547128) от 29.07.2018
+
+Hoon & Ryuichi Sakamoto - CBL [Cd Baby Love] (2003) WEA Japan [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
 
 >>Electronic
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424747.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ocea (06:38)
- 02. Semi Conscious Participant (02:27)
- 03. Silent Midnight (04:12)
- 04. Halfer (04:34)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:04:40
+01. Mother Nature's Children (Original) (05:53)
+02. 夢 (04:36)
+03. 平均律クラヴィア曲集 第1部24の前奏曲とフーガ 1ハ長調 (03:04)
+04. メヌエット ト長調 (03:34)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:49:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FABBF784E46F383154D395CC66D91EEBDEFAD8E4
+magnet:?xt=urn:btih:5E57AFEC14C58B8D09F77F6478F8F06E35D7A08F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,28 +334,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249303   (424748) от 28.09.2018
+###  Публикация: 1238442   (547127) от 29.07.2018
 
-Марк Артур (Marc Arthur) - Feel | Между нами (2007-2008) [MP3|320 Kbps] <Pop, Instrumental>
+Журнал | Elle Decoration [France] №265 (сентябрь 2018) [PDF] [Fr]
 
->>Pop
->>Отечественная поп-музыка
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424748.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. November Rain (3:54)
-02. Love Supreme (4:42)
-03. You Give Me Love (4:15)
-04. Salvation (4:06)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 01:27:44
+Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3858167F568BED402BB1270EDE7EC6DF40109693
+magnet:?xt=urn:btih:41EF5AFACA5F59F04886B2C20EB843BF9C127E24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,25 +360,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250456   (424749) от 28.09.2018
+###  Публикация: 1238444   (547126) от 29.07.2018
 
-Ю.А. Жданов | Закон единства и борьбы противоположностей как суть, как ядро диалектики (1967) [DJVU, PDF]
+Журнал | House Beautiful [USA] №7-8 (июль-август 2017) [PDF] [En]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424749.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Противоречие как единство противоположностей в диалектике берется исторически: с учетом его возникновения, развития и исчезновения как в объективном мире, так и в голове познающего человека. Нетрудно заметить, что каждое природное или общественное явление заключает в себе не одно противоречие, а некоторую их систему. Диалектический метод позволяет обнаружить, как (   Читать дальше...   )Жанр: История, политология, науковедение, логика, философияФормат: DJVU, PDF
+Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D039F44F1F1D710980A2C919A9E06529922ACD9
+magnet:?xt=urn:btih:EBBC7E85B806801B720F3769F5F0AE9A43E8F453
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,25 +386,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250530   (424750) от 28.09.2018
+###  Публикация: 1238326   (547125) от 29.07.2018
 
-GIF'ted 1.1.2 [En]
+Abstract Elements - Join Us EP (2018) Invisible Recordings [FLAC|Lossless|WEB-DL|tracks] <IDM, Drum & Bass, Leftfield>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424750.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Превратите свои фильмы MPEG-4 в анимированные GIF-файлы в кратчайшие сроки. GIF'ted будет анализировать цвета вашего исходного фильма, чтобы лучше всего выглядеть GIF. Или используйте классическую палитру, например, из Gameboy или SNES, для дурацких и забавных результатов. Вы также можете обрезать и обрезать выходной GIF в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский и Шведский
+01. Join Us (04:55)
+ 02. Magnitogorsk (04:15)
+ 03. Posthuman (feat. Subwave) (05:44)
+ 04. Myriapoda (05:44)(   Читать дальше...   )Жанр: IDM, Drum & Bass, LeftfieldПродолжительность: 00:30:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF2860388CF8E3DC022C942D932C2E71967E1F7C
+magnet:?xt=urn:btih:284DFE53359A44FA3F06481DC90E6C359BD475D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,25 +415,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250670   (424751) от 28.09.2018
+###  Публикация: 1238365   (547124) от 29.07.2018
 
-Mozilla Firefox Quantum ESR 60.2.1 Portable by PortableApps [Ru]
+VA - Beach Grooves Maretimo Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424751.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+01. Phil Kinley - Partylife (Glitterpool Cut) 6:45
+02. Housework - Culture Vibes (Drumflow Cut) 6:12
+03. Clublife - Different Things (Poolside Mix) 6:17
+04. Poolwave - Seaside (Laid Back Waves Cut) 5:36(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04D816E05868FD189F0E32E5D12D5761A4C4E106
+magnet:?xt=urn:btih:E5233BA897086968DEB09E773446AC60858A5597
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,28 +444,166 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250573   (424752) от 28.09.2018
+###  Публикация: 1238317   (547121) от 29.07.2018
 
-VA - New Music Releases Week 36 of 2018 (2018) [MP3|320 Kbps] <Dance>
+Ryuichi Sakamoto - Henkaku No Seiki — Century Of Reform (2002) WEA Japan [FLAC|Lossless|tracks] <Neo-Classical, Contemporary, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 変革の世紀 — Opening (04:23)
+02. 変革の世紀 — Clarinet Duo (03:27)
+03. 変革の世紀 — Cello Duo (03:28)
+04. 変革の世紀 — Violin Duo (04:02)(   Читать дальше...   )Жанр: Neo-Classical, Contemporary, AmbientПродолжительность: 00:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8266F1A353985BAA171AA17BD5CD158FBBA8EA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238366   (547120) от 29.07.2018
+
+Вильгельм Гааке | Животный мир, его быт и среда [2 книги] (1902) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животный мир Земли.
+Для среднего и старшего школьного возраста.Жанр: Обучение и развитие детей.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F323E581DF8629CCF0BFE13A28CA5200212AF7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238255   (547118) от 29.07.2018
+
+Мария Ярошевская | Беседы и рассказы о природе. Часть 2 (1902) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомство с окружающим миром. Родная природа.
+Для среднего и старшего школьного возраста.Жанр: Обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8B1B4D582A017A7D9BB5B5621E521DBF6D7E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238271   (547117) от 29.07.2018
+
+Masayoshi Fujita - Book Of Life (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowy Night Tale (05:34)
+ 02. Fog (04:25)
+ 03. It's Magical (04:24)
+ 04. Old Automation (05:54)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFA57DCB6293DD53725B956761AC1BE9F755D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238313   (547112) от 29.07.2018
+
+Sachiko M + Ryuichi Sakamoto - Snow, Silence, Partially Sunny (2012) Commmons [FLAC|Lossless|tracks+.cue] <Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snow, Silence, Partially Sunny (37:30)Жанр: ExperimentalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0111DF531AB67F76F9082FF86718EA282A4E8070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238414   (547110) от 29.07.2018
+
+VA - German Top 100 Single Charts 27.07.2018 [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424752.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Zeds Dead, Dnmo, Tzar - We Could Be Kings
-002. Iman Omari - Another
-003. Just Loud - Diamonds and Dope Boys
-004. High Contrast - God Only Knows(   Читать дальше...   )Жанр: DanceПродолжительность: 11:44:34
+001. Dynoro & Gigi D'Agostino - In My Mind
+002. El Profesor, Hugel - Bella ciao (HUGEL Remix)
+003. Clean Bandit - Solo (feat. Demi Lovato)
+004. Drake - In My Feelings(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82A66068567E64A4D57F402088C4B1831A914606
+magnet:?xt=urn:btih:BC690AE6AACF6F0E52B605DAE76B0C142E50D1A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,25 +611,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250710   (424753) от 28.09.2018
+###  Публикация: 1238399   (547109) от 29.07.2018
 
-Яндекс.Браузер 18.9.1.885 Portable by Cento8 [Ru]
+Danny Elfman - So-Lo  (1984) [FLAC|Lossless|tracks + .cue] <New Wave, Synth-pop>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424753.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский
+01. Gratitude (Short Version) (5:15)
+02. Cool City (3:28)
+03. Go Away (4:03)
+04. Sucker For Mystery (5:19)(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:38:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C2000674BE8C799BFF8D18ABB2A865C3DFB2540
+magnet:?xt=urn:btih:932649C20182BDA82B78A5E7C27B9616CFF93116
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,166 +640,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250564   (424754) от 28.09.2018
+###  Публикация: 1238248   (547108) от 29.07.2018
 
-VA - 10 Years Of Enhanced 2008-2018 (2018) [MP3|320 Kbps] <Trance,Progressive House,Dance>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424754.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Felix Cartal – Get What You Give (03:39)
-002. Madison Mars – All They Wanna Be (feat. Caslin) (02:48)
-003. Vanrip – Music Sounds Better With You (03:38)
-004. Madison Mars – Shuffle Shuttle (03:10)(   Читать дальше...   )Жанр: Trance,Progressive House,DanceПродолжительность: 18:30:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250598   (424755) от 28.09.2018
-
-Path Finder 8.2.3 [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CocoatechПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250726   (424756) от 28.09.2018
-
-Журнал | Профиль №36 (сентябрь 2018) [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250527   (424757) от 28.09.2018
-
-Tim Hecker - Konoyo (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Life
-02. In Death Valley
-03. Is A Rose Petal Of The Dying Crimson Light
-04. Keyed Out(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250669   (424758) от 28.09.2018
-
-VA - Best Resort Chill Playlist (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koronisia - Love Kernels
-02. Sonnenburg - Charmante
-03. Trucker Cobb - Sweet Impatience
-04. Aqua Mundi - At the Poolside(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:42:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250454   (424759) от 28.09.2018
-
-PDF Squeezer 3.9.1 [Multi/Ru]
+Magic - White Eyes (2003) [MP3|320 Kbps] <Rap>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424759.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF-компрессор предназначен для сокращения размеров файлов больших PDF-документов.
-Приложение позволяет сжимать размеры PDF-документов путем сжатия изображений и удаления ненужной информации. Это позволит получить хороший компромисс между параметрами широкополосной сети, необходимым временем передачи файлов по сети и затратами на хранение цифрового контента.Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: Daniel DienerПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+Эйвуд Джонсон (16.08. 1975 – 1.03. 2013), более известный под псевдонимом Magic (или Mr. Magic), был американским рэппером из Нового Орлеана, сотрудничавшим с No Limit  Records в качестве
+сольного исполнителя, в составе 504 Boyz, а также в группе Body Head Bangerz с Роем Джонсом мл. Погиб в 2013 году вместе с женой в автокатастрофе. "White Eyes" - третий (   Читать дальше...   )01. "Intro"- 0:55
+02. "War"- 4:32
+03. "Hustler"- 4:32
+04. "What U Gonna Do"- 4:15(   Читать дальше...   )Жанр: RapПродолжительность: 01:00:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84264C6DBDE6715AE9BCEE2DEA04ACD8466D82CB
+magnet:?xt=urn:btih:EAE736812C5F1303D5F530EB6B17E7CA820065D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,28 +670,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250584   (424760) от 28.09.2018
+###  Публикация: 1238227   (547107) от 29.07.2018
 
-MediaHuman YouTube Downloader 3.9.9.6 [Multi/Ru]
+Волейбол. Лига наций 2018. Женщины. Валбжих (Польша). 5-й тур. Группа 18 (2018) IPTVRip [H.264/720p-1080p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424760.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
-
-Закачка нескольких файлов одновременно
-Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.09.2018Разработчик: MediaHumanПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Итальянский, и др
+12 июня 2018 года - 14 июня 2018 года
+1-й женский турнир Волейбольной Лиги наций 2018 года
+5-й тур. Группа 18.
+12.06.2018 - Россия — Доминиканская Республика(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:31:51 - 02:18:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56B6264626B96DE04621BB2C250E32DC5673B8EE
+magnet:?xt=urn:btih:35A4FDCC8B435F9A5566F4273446B92AD9483BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,53 +699,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250668   (424761) от 28.09.2018
+###  Публикация: 1238440   (547106) от 29.07.2018
 
-Maxthon Browser 5.2.5.500 beta + Portable [Multi/Ru]
+Журнал | Историк №7-8 (43-44) (июль-август 2018) [PDF]
 
->>Архив торрентов
->>Архив Программ
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424761.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Maxthon — это бесплатный веб-браузер для Windows, Linux и OS X, разработанный в Китае компанией Maxthon Ltd.
-MX5 - новая версия веб-браузера от Maxthon для Windows наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех видов онлайн активности.
-MX5 развивает заложенную предшественником концепцию и планирует (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06A8424309F2B1D19E99595884DF03D6971CFBD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250450   (424762) от 28.09.2018
-
-Tri-BACKUP Pro 9 v9.0.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автоматическая защита и сохранение резервных копий ваших документов, файлов и информации с жестких дисков с помощью Tri-BACKUP. Выбор предопределенного действия или планирование периодической операции, такой как резервное копирование диска, синхронизацию папок или дисков и даже дренирование временных кэшей и папок или автоматический запуск сценариев или приложений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2018Разработчик: TRI-EDREПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C0ED7A9CF92D034E7F2E07E71C6F34011A0AA6
+magnet:?xt=urn:btih:30FBAC0E4514B59C3FE700698E508ED0FF66A403
 ```
 
 https://mybot314.ru/tekegram_catalog/

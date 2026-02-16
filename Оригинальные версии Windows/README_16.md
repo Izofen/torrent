@@ -1,12 +1,12 @@
-###  Публикация: 1849072   (1053303) от 20.01.2026
+###  Публикация: 1820097   (854) от 26.09.2025
 
-Microsoft Windows 11 [10.0.26100.7623], Version 24H2 (Updated January 2026) - Оригинальные образы от Microsoft MSDN [En]
+Microsoft Windows 11 [10.0.26200.6584], Version 25H2 (Updated September 2025) - Оригинальные образы от Microsoft OEM/VLSC [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053303.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_854.jpg" />
 </div>
 
 
@@ -16,7 +16,7 @@ Windows 11 - это серия операционных систем, разра
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:394BD066BEC56FC535FF9087D6156E58B2478B11
+magnet:?xt=urn:btih:32FA1A65D83541B4627379473EEFC1A469336D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,15 +24,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852981   (1056276) от 
+###  Публикация: 1820098   (420) от 28.09.2025
 
-Microsoft Windows 11 [10.0.28000.1450], Version 26H1 - Оригинальные образы от Microsoft MSDN [Ru]
+Microsoft Windows 11 [10.0.26200.6584], Version 25H2 (Updated September 2025) - Оригинальные образы от Microsoft OEM/VLSC [Ru]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056276.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_420.jpg" />
 </div>
 
 
@@ -42,7 +42,7 @@ Windows 11 - это серия операционных систем, разра
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9D45FCEC38D51D6386A91D38EFA89776642AD2D
+magnet:?xt=urn:btih:B71D3F00BC27AFF5C02893D11A450CE0E1C359B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852980   (1056279) от 
+###  Публикация: 1820723   (144) от 29.09.2025
 
-Microsoft Windows 11 [10.0.28000.1450], Version 26H1 - Оригинальные образы от Microsoft MSDN [En]
+Microsoft Windows 11 [10.0.26200.6584], Version 25H2 (Updated September 2025) - Оригинальные образы от Microsoft OEM/VLSC [Uk]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056279.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B32255BBE07DDD5B2EE2A0DF5A50293FB0497C92
+magnet:?xt=urn:btih:D1F3B1B0498C14D0054CACAE6EA09197F3F680C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

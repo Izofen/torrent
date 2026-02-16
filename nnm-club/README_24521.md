@@ -1,22 +1,25 @@
-###  Публикация: 1356267   (980502) от 29.01.2020
+###  Публикация: 1795487   (67044) от 05.05.2025
 
-В.И. Нефедов, А.С. Сигов | Радиотехнические цепи и сигналы 2019 (2019) [PDF]
+Froglord - Metamorphosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sludge, doom-metal>
 
->>Научная и техническая литература
->>Учебники
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980502.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящее издание отражает содержание дисциплины «Радиотехнические цепи и сигналы». В учебнике кратко освещены основные вопросы курса. Помимо теоретического материала, в учебнике представлены практические расчеты и примеры. Книга иллюстрирована большим числом рисунков и схем, для лучшего усвоения материала каждая глава сопровождена контрольными вопросами и заданиямиЖанр: РадиотехникаФормат: PDF
+01 – Collision
+02 – Follow The Star
+03 – Herman
+04 – The Swamp(   Читать дальше...   )Жанр: Sludge, doom-metalПродолжительность: 00:37:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9DD5421E07DBFDAEF1FE3C45E0249C14818BB8A
+magnet:?xt=urn:btih:191D32CE610942238ED8A9E98AE6049BEE1F25DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356113   (980503) от 29.01.2020
+###  Публикация: 1795616   (67043) от 05.05.2025
 
-Половина желтого солнца / Half of a Yellow Sun (2013) HDRip [VO]
+Chontaraz - Phantom Of Reality (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980503.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красавица Оланна из богатой семьи никогда не отличалась дерзостью, как ее сестра-двойняшка Кайнене, но именно Оланна решилась оставить полную комфорта жизнь ради любви. Переезжая в маленький городок, где жил и работал ее будущий муж, профессор местного университета, она вряд ли понимала, что бесповоротно меняет свою судьбу. Деревенский мальчик Угву, поступивший в (   Читать дальше...   )Производство: Нигерия, Великобритания / Slate Films, Shareman Media, British Film Institute (BFI)Жанр: Драма, МелодрамаРежиссер: Байи БанделеАктеры: Тэнди Ньютон, Чиветель Эджиофор, Аника Нони Роуз, Джозеф Моул, Джон Бойега, Onyeka Onwenu, Бабу Сизей, Сьюзан Уокома, Jude Orhorha, Genevieve NnajiПеревод: Одноголосый любительский (Barin101)Субтитры: Английские (отдельным файлом)Продолжительность: 01:51:27
+01 - Istanbul (03:42)
+ 02 - Prayer To The Masses (04:00)
+ 03 - You're The One To Blame (02:58)
+ 04 - Phantom Of Reality (03:47)(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:42:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A9D35E01CB8630AADA9B1677C9C9D2B628A3256
+magnet:?xt=urn:btih:CD26EED285736989E585A174AD676DEE4FD78B8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356002   (980504) от 29.01.2020
+###  Публикация: 1795580   (67042) от 05.05.2025
 
-Luminar 4.1.0.5191 RePack (& Portable) by D!akov [Multi/Ru]
+Sarah Jane Cion - Moon Song (2000) Naxos Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980504.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67042.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Luminar - это полнофункциональный набор для редактирования фотографий, состоящий из цифрового редактора, RAW-конвертера и каталогизатора.
-Он предоставляет более 300 надежных инструментов и функций, включая быструю поддержку RAW, слои, пользовательскую кисть для выборочного редактирования,
-маскировку, десятки фильтров для фотографий с настраиваемыми настройками,
-пресетами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. A Pond Beneath the Moon [7:17]
+02. Last Cha-Cha in Longbeach [4:56]
+03. Moon Song [7:20]
+04. Samba Picara [4:36](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9284BC70CC5EACFE6417C95626294DDCB1731E95
+magnet:?xt=urn:btih:DC0BC1BDE091D5BEA77BC85FFC9D5C70B3A12302
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +85,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355758   (980505) от 29.01.2020
+###  Публикация: 1795480   (67041) от 05.05.2025
 
-VA - Мы не оставим города свои! Песни донбасской войны (2017) 2CD [MP3|320 Kbps] <Alternative Rock, Hip-Hop>
+Paradise Slaves - With Hell In His Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – For Those Who Watch The Sea
+02 – Aesthetic Of Serpents
+03 – A Fever To Defeat
+04 – Dreamers(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9952880175B88D0ABF1D4B5304F44E56D7747E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795562   (67040) от 05.05.2025
+
+The Night Eternal - Fatale (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980505.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1:
-01. Александр Ф. Скляр - Миллионы
-02. Зверобой - Едут-едут БТРы
-03. Чичерина - Рвать(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 02:24:52
+1. In Tartarus
+2. Prince Of Darkness
+3. We Praise Death
+4. Ionean Sea(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:249065F5FE832ECD1E5DF920159B81EEC9362EBE
+magnet:?xt=urn:btih:9E7DCA5C748099D845F46572D0E76F3A897B54CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356270   (980506) от 29.01.2020
+###  Публикация: 1795500   (67039) от 05.05.2025
 
-Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Charlie Rich - Behind Closed Doors (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
 
->>Other Styles
->>OST (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980506.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
-02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
-03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
-04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
+A1 Behind Closed Doors
+A2 If You Wouldn't Be My Lady
+A3 You Never Really Wanted Me
+A4 A Sunday Kind Of Woman(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55577E204176F458A41F231A55DDD0243735E190
+magnet:?xt=urn:btih:CA7C6D617671F7FF6F3CC8E4F5A51C1013542E68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356122   (980507) от 29.01.2020
+###  Публикация: 1794730   (67038) от 05.05.2025
 
-Лесная хроника (1970) WEBRip [H.264/1080p-LQ] [PR]
+Валерий Новиков - Здравствуйте, соседи (2025) [MP3|320 Kbps] <Chanson>
 
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980507.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм о том, как жадный волк, который отнимал у зверюшек их собственность, был наказан, попав в капкан, который он принял за ценную вещь.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Петр НосовАктеры: Юрий Хржановский, Анатолий Папанов, Клара Румянова, Юлия ЮльскаяСубтитры: ОтсутствуютПродолжительность: 00:10:04
+01 - Букет из звёзд [00:03:06]
+02 - Милая моя [00:03:20]
+03 - Заблудилось моё счастье [00:03:00]
+04 - Я не забуду наши встречи [00:03:32](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:48:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:506A4CFB12D81FDBFA2D6E256B22206F66BB17BD
+magnet:?xt=urn:btih:8FE2CB590B30BD5C0D8DC6F2706D79B09A1E29BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356237   (980508) от 29.01.2020
+###  Публикация: 1795286   (67037) от 05.05.2025
 
-Журнал | ScrollSaw Woodworking & Crafts №78 (2020) [PDF][En]
+Changeling - Changeling (2025) [MP3|320 Kbps] <Progressive, Technical Death Metal>
 
->>Журналы
->>Хобби (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980508.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для истинных мастеров-резчиков по дереву. Предложено множество идей по созданию игрушек, картин, новогодних украшений, бизнес принадлежностей из дерева. Есть схемы и пошаговые фото сборки и вырезанияЖанр: Резьба по деревуФормат: PDF
+01. Introject
+02. Instant Results
+03. Falling In Circles
+04. World? What World?(   Читать дальше...   )Жанр: Progressive, Technical Death MetalПродолжительность: 01:00:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A26843460DAA553635AEF96F726F23400FB0CF6F
+magnet:?xt=urn:btih:5CAE39CDD118B583AAAEC042918EAD0E9B7247CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,27 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356118   (980509) от 29.01.2020
+###  Публикация: 1794726   (67036) от 05.05.2025
 
-Стефани Стори | Камень Дуччо (2020) [EPUB]
+Андрей Кудин - Моральный кодекс (2025) [MP3|320 Kbps] <Chanson>
 
->>Художественная литература
->>Историческая проза, Мифы и Легенды, Фольклор
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980509.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роман о соперничестве двух, возможно, величайших творцов в истории.
-
-С 1501 по 1505 годы Леонардо да Винчи и Микеланджело Буонарроти жили и работали во Флоренции. Леонардо - знаменитый мастер на пике карьеры, а Микеланджело - молодой, темпераментный и вспыльчивый скульптор, отчаянно желающий сделать себе имя. Микеланджело обходит Леонардо в конкурсе за право изваять (   Читать дальше...   )Жанр: Зарубежная проза, Историческая литератураФормат: EPUB
+01 - А сердце просит тишины [00:04:34]
+02 - Сказка для взрослых [00:05:34]
+03 - Молчит Луна [00:05:52]
+04 - Мы часто стремимся ко святости [00:03:11](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:47:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06A040F7645C4CE60EA3A2842F0F74DAD302000A
+magnet:?xt=urn:btih:B7D9FDB65FE7AC58A4EA3C6F55590F3CF37084D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,27 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356188   (980510) от 29.01.2020
+###  Публикация: 1795453   (67035) от 05.05.2025
 
-Джуд Уотсон | Цикл "Звездные войны. Последний из джедаев" [11 книг] (2005 - 2008) [FB2]
+Gypsy Pistoleros - Welcome To The Church Of The Pistoleros (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Punk, Glam>
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980510.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данная серия повествует о приключениях Феруса Олина и Оби-Вана Кеноби после событий фильма «Звёздные войны. Эпизод III: Месть ситхов».
-
-Данный релиз подготовлен благодаря предоставленным материалам и помощи - lollita4.Жанр: Фантастика, Фэнтези, Боевая фантастика, КосмоопераФормат: FB2
+01 – Church of the Pistoleros
+02 – Shadow Walker
+03 – Whatever happened to the Old Town
+04 – Last train to Nowhere(   Читать дальше...   )Жанр: Alternative Rock, Punk, GlamПродолжительность: 00:36:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA11CD151CE65B0DF0D5379DEC56FAD1ECA40D58
+magnet:?xt=urn:btih:9D38B0D542F51BE75BF92D5F848148D2A59F433A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,26 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356223   (980511) от 29.01.2020
+###  Публикация: 1795547   (67034) от 05.05.2025
 
-Ольга Хорошилова | Мода и гении. Костюмные биографии Леонардо да Винчи, Екатерины II, Петра Чайковского, Оскара Уайльда, Юрия Анненкова и Майи Плисецкой (2020) [EPUB]
+Gormoth - Oh My Bitter Addictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Ambient>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980511.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге собраны костюмные биографии шести великих людей. Разделенные веками, все они были иконами стиля своего времени. Теперь мы можем увидеть их жизни сквозь призму моды и истории костюма – под новым, неожиданным углом. Ведь в одежде отражается и личность ее обладателя, и сама эпоха.
-Безмолвным деталям костюма, запечатленным на старых фотографиях и портретах, (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: EPUB
+01 - I Disappear in My Addictions (08:12)
+02 - Nostalgia (07:39)
+03 - Last Words (07:07)
+04 - The Dreary End (07:27)(   Читать дальше...   )Жанр: Atmospheric Black Metal, AmbientПродолжительность: 00:38:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68F55DD14A7782639B74130A467C52D7276ADDE8
+magnet:?xt=urn:btih:31ADF22ABEE91F41C55EA6028795DA3796C2C30A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355779   (980512) от 29.01.2020
+###  Публикация: 1794731   (67033) от 05.05.2025
 
-VA - Rap & Hip Hop: New Music Releases (2020) [MP3|320 Kbps] <Rap, Hip Hop>
+Евгений Росс - Верность (2025) [MP3|320 Kbps] <Chanson>
 
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980512.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 2fre - Noyade
-002. K. Sparks Feat. Leslie Carron - April In Paris
-003. Dibi - Jd (Feat Shaka)
-004. Tory Lanez - Connection(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 10:00:58
+01 - Живи [00:03:34]
+02 - Антарктида [00:03:03]
+03 - Вне закона [00:03:31]
+04 - Я её не знаю [00:03:55](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7949679DF7E2A261A0E1A1FE9FD42D46D83FF6D
+magnet:?xt=urn:btih:B32044BFD6E99809D2DF5B0509ED5BD04F3C12F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -301,28 +346,228 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356127   (980513) от 29.01.2020
+###  Публикация: 1795778   (67032) от 06.05.2025
 
-Арсений Меркушев | Исповедь палача. Книга 1 (2020) [MP3]
+Avenger - Godless (...Assuming the Throne of Immortality...) (2003) [WavPack|32/192|image + .cue|Vinyl-Rip] <Black, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67032.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Enter My Darkness
+A2 - Even To The Bones Marrow
+A3 - Before Storm
+A4 - The Return Of Apocalypse(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00: 44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AF239EB08C6A19FADE5F73CFB91B2A6101E7B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795772   (67031) от 06.05.2025
+
+Billy Strayhorn's Septet - Cue For Saxophone (1959) 1988, London [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cue's Blue Now [10:07]
+02. Gone with the Wind [4:18]
+03. Cherry [5:55]
+04. Watch Your Cue [3:11](   Читать дальше...   )Жанр: SwingПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980144974277C71360AE0D99D8FC4A5A5E7558D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795769   (67030) от 06.05.2025
+
+Bennie Green - Soul Stirrin' (1958) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Stirrin' [6:53]
+02. We Wanna Cook [6:41]
+03. That's All [6:29]
+04. Lullaby of the Doomed [6:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075506484817A680DA0003A6D0FD3CAC7B7260E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795774   (67029) от 06.05.2025
+
+Death Kommander - Pro Patria Mori (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Tunes of War
+03. Steel Reaper
+04. Incoming Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2326FF20E7F350131CE8E69A87174C652FA2E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795797   (67028) от 06.05.2025
+
+Dredge the Lethe - Blood Metal (2025) [MP3|320 Kbps] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die. Drink. Forget
+02. Blood Metal
+03. Mortal Throne
+04. Triumph Over The Horde(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E616A8B7DF6EA16962CA75AD3EDE4910B6CA4978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795758   (67027) от 06.05.2025
+
+Футбол. Женская СУПЕР-Лига. Рубин (Казань) - ЦСКА (Москва) (26.04.2025) WEBRip [H.264] [50FPS]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67027.jpg" />
+</div>
+
+
+###  Подробнее
+
+В субботу, 26 апреля 2025 года, состоится матч седьмого тура Женской Суперлиги России, в котором встретятся казанский «Рубин» и московский ЦСКА. Столичный клуб обязан добиться успеха в предстоящем поединке и закрепиться в тройке лидеров турнирной таблицы. Смогут ли хозяева поля что-то противопоставить сопернику? Будут ли использовать стандартные положения? В составах (   Читать дальше...   )Телекомпания: СтартЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432AFED30F8B1EE0BF5CF617581FC77844421854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795771   (67026) от 06.05.2025
+
+Dessiderium - Keys to the Palace (2025) [MP3|320 Kbps] <Melodic, Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Midst of May
+02. Dover Hendrix
+03. Pollen for the Bees (Pt. 1)
+04. Pollen for the Bees (Pt. 2)(   Читать дальше...   )Жанр: Melodic, Progressive Death MetalПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1607DF9AE499E2E97CD9E296EBFABAC27C102CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795753   (67025) от 06.05.2025
+
+Леонид Андреев | Ангелочек. Христиане (2015) [MP3, Алексей Емельянов]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980513.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ему далеко за 60. Его зовут Домиций. Его ненавидят многие. Потому что он – «ищущий истину», инквизитор, палач.
-Он служит Ордену, он противостоит Технограду.
-Мир, в котором живет Домиций – это мир, 80 лет назад переживший Конец Света или «Смрадную неделю», разделивший людей на везунчиков, уцелевших в «Технограде», и лузеров, оставшихся на обочине жизни.
-Но 80 лет (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 10:37:01
+Серия/Цикл: Звучащая библиотека. Малая проза.
+Леонид Николаевич Андреев (1871–1919) – русский писатель, прозаик и драматург, один из самых знаменитых писателей России начала 20 века.
+Рассказ Л.Н. Андреева «Ангелочек» впервые опубликованный в газете «Курьер» (1899).
+Рассказ «Христиане» был написан Л.Н. Андреевым в 1905 году. Впервые рассказ был опубликован в «Журнале (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:21:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F9E1396B719A9147BEEB098281AB519C4F1E9F6
+magnet:?xt=urn:btih:AB5FBB0C391F4E04BF7D3AB73D9E68220952D14E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -330,25 +575,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356108   (980514) от 29.01.2020
+###  Публикация: 1795795   (67024) от 06.05.2025
 
-Сколько весит слово (2017) IPTVRip [H.264] (серии 1-2 из 2)
+Безумие Манхэттена / Manhattan Madness (1916) WEBRip
 
->>Документалистика и Телепередачи
->>Личности в истории
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980514.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм-биография одного из самых выдающихся отечественных энциклопедистов в истории. Дмитрий Иванович Менделеев не просто был передовым ученым в определенной сфере знаний - он показывал себя в разных направлениях науки, закрепляя знания в книги и учебники. Менделеев отметился как выдающийся химик, физик, метролог, геолог, технолог, преподаватель и приборостроитель. (   Читать дальше...   )Производство: Россия / Киностудия "Гранат"Жанр: Документальный, БиографияРежиссер: Ефим РезниковАктеры: Игорь ДмитриевЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:45:29 + 00:26:02
+Стив О'Дэйр, состоятельный молодой человек с Запада, по делам приезжает в Нью-Йорк, откуда он родом и где учился в университете. Он встречается с друзьями по студенческой жизни, весело проводит время. Но после многих лет жизни на Западе, жизнь в большом городе кажется ему слишком пресной, без острых ощущений. И он все время ноет об этом, раздражая друзей...
+Качество (   Читать дальше...   )Производство: США / Fine Arts Film CompanyЖанр: боевик, мелодрама, комедия, вестерн, немое киноРежиссер: Аллан ДуонАктеры: Дуглас Фэрбенкс, Джевел Кармен, Джон Ричмонд, Юджин Ормонде, Джордж Беранджер, Рут Дарлинг, Macey Harlam, Норман Керри, Альберт МакКуорри, Адольф МенжуПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:31:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4C2299EC2D292C4E28743A98247E5C32E29E105
+magnet:?xt=urn:btih:9F1227EF33F6A7496C10668D612B99D5D5CA3F10
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,28 +602,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356269   (980515) от 29.01.2020
+###  Публикация: 1795805   (67023) от 06.05.2025
 
-Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [MP3|320 кб/с]<Soundtrack>
+Hyena - About Rock and Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Other Styles
->>OST
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980515.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
-02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
-03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
-04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
+01. Nightriders
+02. About Rock and Roll
+03. The Eternal Zero
+04. Hail the Fire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECF648C077CEA0BCFAC4997BCD2A10D1728F5773
+magnet:?xt=urn:btih:2921AD6FE8F77013F1771E165B42D50EB1E211BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -385,27 +631,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356195   (980516) от 29.01.2020
+###  Публикация: 1795755   (67022) от 06.05.2025
 
-Люси Кристофер | Взаперти (2020) [EPUB]
+Леонид Андреев | Иностранец (1996) [MP3, Сергей Бехтерев]
 
->>Художественная литература
->>Современная поэзия и проза
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980516.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тай похищает 16-летнюю Джемму в аэропорту Бангкока. Первое время девушка пытается защититься и сбежать, но постепенно проникается личностью странного молодого человека и начинает понимать его поступки.
-По ходу развития сюжета читатель преодолевает соблазн воспринимать книгу как романтическую историю, а Джемма борется с чувствами к своему похитителю.
-В книгу включены (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: Ульяна СапцинаФормат: EPUB
+Серия/Цикл: Звучащая библиотека. Малая проза.
+Леонид Николаевич Андреев (1871–1919) – русский писатель, прозаик и драматург, один из самых знаменитых писателей России начала 20 века.
+Рассказ Л.Н. Андреева «Иностранец», написанный осенью 1901 года, и сегодня, более чем через 120 лет после написания, звучит очень остро…
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:51:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE9F28C971250476717C42952E7B7D2095CAF0F1
+magnet:?xt=urn:btih:3CF46A9D1C17E928E592AEFDC35353857B7E398B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,25 +660,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356224   (980517) от 29.01.2020
+###  Публикация: 1795762   (67021) от 06.05.2025
 
-Даниэль Арасс | Взгляд улитки. Описания неочевидного (2020) [EPUB]
+НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 1-й матч) Флорида Пантерз - Торонто Мэйпл Лифс (05.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980517.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один из ярчайших французских историков искусства второй половины XX века Даниэль Арасс (1944–2003) в своей небольшой книге, впервые опубликованной в 2000 году, подвергает пристальному анализу несколько классических произведений живописи XVI–XVII веков, в том числе такие хрестоматийные, как «Венера Урбинская» Тициана и «Менины» Веласкеса. Построенная в форме писем (   Читать дальше...   )Жанр: История, Культурология, ИскусствоведениеПеревод: Елизавета КузнецоваФормат: EPUB
+6 мая 2025, вторник. 03:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 031 зритель (94% при вместимости 20 270)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: setanta sportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:47:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DC907C672C71ED23E3A20B295CC18F8CB327433
+magnet:?xt=urn:btih:B60963C5110715B35B70AD62DAD1B7D04A0E209F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -439,25 +687,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356106   (980518) от 29.01.2020
+###  Публикация: 1795702   (67020) от 06.05.2025
 
-Бездомные домовые (1981) WEBRip [H.264/1080p-LQ] [PR]
+Slizard - Wicked Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980518.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О двух маленьких домовых, которых злая хозяйка прогнала из дома.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Станислав СоколовАктеры: Вячеслав Богачёв, Юрий Волынцев, Нина Русланова, Борис НовиковСубтитры: ОтсутствуютПродолжительность: 00:10:11
+01. Undead Nightmare (07:27)
+ 02. To Neverland (04:31)
+ 03. Outstretched Arms (03:20)
+ 04. No Way Out (03:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B183DE3D5F24293214942BB4785208D7DF1EB43
+magnet:?xt=urn:btih:A58E66C211AFB224445B6FAC11F7F155B78FB471
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,247 +716,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356220   (980519) от 29.01.2020
+###  Публикация: 1795944   (67019) от 07.05.2025
 
-В. Смирнова | Энциклопедия досуга и хобби для мальчиков (2007) [PDF]
+Blood Incantation - Starspawn (2016) Released, 2021, Century Media [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980519.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чем занять детей в часы досуга? Какими играми можно увлечь мальчишек?
-Откройте вашему ребенку чудесный мир захватывающих игр и увлечений - футбола, шахмат и рыбалки. Из этой энциклопедии мальчики узнают о рыбной ловле, о всевозможных видах морских и пресноводных рыб, о правилах и приемах футбола и шахмат.
-В книге даны советы и специальные упражнения, которые позволят (   Читать дальше...   )Жанр: Энциклопедия для детейФормат: PDF
+A1 Vitrification Of Blood (Part 1)
+A2 Chaoplasm
+B1 Hidden Species (Vitrification Of Blood Part 2)
+B2 Meticulous Soul Devourment(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E493C0BB63343D167EF060ED48C381ADCEC1033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356060   (980520) от 29.01.2020
-
-Colin Stetson - Color Out of Space / Цвет из иных миров (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Darkwave>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West of Arkham (03:52)
-02. The Gardners (04:02)
-03. Contact (04:57)
-04. Drawing the Lightning (01:24)(   Читать дальше...   )Жанр: Soundtrack, Score, DarkwaveПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F64D7F6EE39313C326D0FEADDE01D6B5209687C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355851   (980521) от 29.01.2020
-
-VA - Watercolor And Jazz (2020) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980521.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sad Jazz Man - Can We Be Cats
-002. The Funky Knuckles - Blue
-003. Ryan Porter - World On Wheels
-004. Antoine Berjeaut - Shadows(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 10:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8662A55CF354693A1BB0E76D303B631D961E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356176   (980522) от 29.01.2020
-
-Кто виноват? (1964) WEBRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киноплакат о том, к чему приводит неосторожное обращение детей с огнем.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Витольд Бордзиловский, Юрий ПрытковАктеры: Георгий Вицин, Анатолий Папанов, Клара Румянова, Майя Кристалинская, Майя Булгакова, Александр Граве, Евгений ВесникСубтитры: ОтсутствуютПродолжительность: 00:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97A47397AB5F57B65BF193D85EA7CB6F269114A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356031   (980523) от 29.01.2020
-
-Ed Carlsen - Morning Hour (2019) Moderna Records [FLAC|Lossless|WEB-24Bit|tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Light (01:43)
-02. Whisper (03:22)
-03. The Gallery (03:31)
-04. Words (04:52)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36549A0144731C458A2AD5888C5F3F142DE5E213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355986   (980524) от 29.01.2020
-
-Джуд Уотсон | Цикл "Звездные войны. Странствия джедая" [11 книг] (2001 - 2004) [FB2, TXT]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта серия рассказывает об Энакине Скайуокере и его учителе Оби-Ване Кеноби между фильмами «Звёздные войны. Эпизод I: Призрачная угроза» и «Звёздные войны. Эпизод II: Атака клонов».
-
-Оби-Ван Кеноби и Энакин Скайуокер прибыли на планету Рагун VI. Эта планета использовалась Джедаями для тренировочных миссий. Учитель и ученик должны были найти Врена, наставника из Храма. (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастика, КосмоопераФормат: FB2, TXT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668E688BF57C3EC344D9ED96F48E2E1653A2F5E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356095   (980525) от 29.01.2020
-
-Вероника Крымова | Вредная ведьма для дракона (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше семейство всегда любило влипать в неприятности. Взять хотя бы бабушку, которая превратила короля в крысу (бедняга до конца дней не мог оправиться от шока!). Бабулю отправили в ссылку, а род покрыли позором. Сейчас вот мой брат решил соблазнить девушку, предназначенную в жены единственному дракону и стражу королевства, графу де Отерону. Возлюбленная оказалась (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8781D95CF0C20B70D2BBB095B717B19C03E3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356214   (980526) от 29.01.2020
-
-XYplorer 20.70 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980526.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer - удобный мультивкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF4966400EF41ABF2518CF4E089197FC21E1317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356067   (980527) от 29.01.2020
-
-Георг Гегель | Лекции по истории философии. [Книга 3] (2009) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: Гегель Георг Вильгельм Фридрих - один из величайших мыслителей Европы. Творчество Гегеля является вершиной развития немецкой классической философии и одной из поворотных точек развития европейской философии в целом.
-"Лекции по истории философии" Гегеля остаются и сегодня одним из тех трудов без знакомства с которыми невозможно понимание истории (   Читать дальше...   )Жанр: ФилософияПродолжительность: 51:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D083B904E93B9EE007AD2848B17A8527008DFB2
+magnet:?xt=urn:btih:9719182439FBF2997A2730134A356A4698923EB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

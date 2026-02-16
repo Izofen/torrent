@@ -1,22 +1,22 @@
-###  Публикация: 1328560   (363367) от 30.09.2019
+###  Публикация: 1417522   (357685) от 20.10.2020
 
-id Software, Avalanche Studios | Артбук по игре Rage 2 / The Art of Rage 2 (2019) [CBZ] [EN]
+Lucasfilm | Артбук по фильму Хан Соло. Звёздные войны: Истории / The Art of Solo: A Star Wars Story (2018) [CBZ] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363367.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре Rage 2Жанр: АртбукФормат: CBZ
+Артбук содержит эскизы и концепт-арты по фильму "Хан Соло. Звёздные войны: Истории"Жанр: АртбукФормат: CBZ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9ED3B32C46EE07D18E78E5DC97882173B21C385D
+magnet:?xt=urn:btih:3F4E61E8BA91C2F9222FDB8D0F64A3B523FC39D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416862   (364518) от 17.10.2020
+###  Публикация: 1417521   (357681) от 20.10.2020
 
-Croteam | Артбук по игре Serious Sam 4 / The Art of Serious Sam 4 (2020) [PDF] [EN]
+Lucasfilm | Артбук по фильму Изгой-один. Звёздные войны: Истории / The Art of Rogue One: A Star Wars Story (2016) [CBR] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364518.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре "Serious Sam 4"Жанр: АртбукФормат: PDF
+Артбук содержит эскизы и концепт-арты по фильму "Изгой-один. Звёздные войны: Истории"Жанр: АртбукФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDAD209A3B661A496050A2336F4E60B0529F3980
+magnet:?xt=urn:btih:0B84D2E5286B1578C37EA5603F8EC35734810531
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 863867   (367192) от 27.10.2015
+###  Публикация: 951750   (353142) от 02.11.2015
 
-Рик Ремендер | Черная наука / Black Science [Обновляемая] (2013) [JPEG]
+Е. В. Добровольская, Ю. М. Макаров | 1825-й год. Заговор (1990) [CBR]
 
 >>Комиксы и Артбуки
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367192.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эпический сай-фай с путешествиями по параллельным измерениям и монологами в стиле "нуар" от популярного автора Рика Ремендера в изумительной рисовке Маттео Скальера.Жанр: Экшн, фантастикаПеревод: ImperatorsФормат: JPEG
+Ленинград, бывшая Сенатская площадь — ныне площадь Декабристов. 14 декабря 1825 года на эту площадь вышли люди, которые хотели изменить государственный строй России. В память о драматическом декабрьском дне первых русских революционеров называют «декабристами». Что вы о них знаете?
+Движение декабристов является событием, длительное время приковывающим внимание историков. (   Читать дальше...   )Жанр: Быль, детская образовательная литература, рисованная книгаФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:769B50C7549AC0F493BE1EC8AD6CA7201F281034
+magnet:?xt=urn:btih:81208AC15115A5B0C00C955C57DAF0CA754AAF8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327155   (372143) от 26.09.2019
+###  Публикация: 954287   (341677) от 07.11.2015
 
-Михаил Мухин | Управление дебиторской задолженностью. Практическое руководство для разумных руководителей.  (2019) [FB2]
+Мэт Грейнинг / Matt Groening | Домик Ужасов Барта Симпсона / Bart Simpson's Treehouse of Horror (1995) [JPG]
 
 >>Комиксы и Артбуки
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372143.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Столкнувшись со всеми трудностями начинающего предпринимателя, ныне успешный владелец бизнеса Михаил Мухин пришел к парадоксальному выводу: дебиторскую задолженность чаще всего создают сотрудники компании, и очень редко – клиенты. А значит, чтобы оценить и минимизировать риски, не допуская кассовых разрывов, всей управленческой команде нужно слаженно работать, четко (   Читать дальше...   )Жанр: Бухучет,  КомиксыФормат: FB2
+Умеют в Спрингфилде встречать Хэллоуин. То Лизе взбредёт в голову вывести плотоядное растение, то дедок травит байки про своих предков, то Барт, насмотревшись ужастиков, превращается в жуткую пантеру.Жанр: Комедия, пародия, ужасыПеревод: Тигра, Oleg-D, admirable_femme и ImperatorsФормат: JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE05CD7E1B670591EA5CCAC703903F3D0DD371E2
+magnet:?xt=urn:btih:1B9272DCD49E1F41FC7E7106C80EF67ECF95E7A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 949187   (372574) от 25.10.2015
+###  Публикация: 1330392   (341123) от 10.10.2019
 
-Билли Туччи | Shi: East, Wind, Rain / Си: Восток, Ветер, Дождь (1997) [JPG]
+Джереми Хон | Прелесть [2 книги] (2017) [PDF]
 
 >>Комиксы и Артбуки
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372574.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В первом выпуске военный летчик Питер Дэниз во время испытательного полета наталкивается на японский флот с истребителями и докладывает об этом в штаб. Позже его пытаются убить якудза...Жанр: Приключения, БоевикПеревод: admirable_femmeФормат: JPG
+Современные люди одержимы своей внешностью. Но что, если бы нашелся способ день ото дня становиться все красивее? Что, если залог тому – болезнь, которая передается половым путем? В мире «Прелести» от заурядности до физического совершенства – всего лишь один половой акт. На этот путь встали многие, но какова цена? Детективы Вон и Фостер узнают ужасную правду – и (   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастика, Комиксы / манга, Триллеры, УжасыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D43EBDB3C3D201DF03216697C664E90D5A1A5ED
+magnet:?xt=urn:btih:5455608DCE03C4003014463F1C681BFD5047712F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,51 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326267   (382952) от 21.09.2019
+###  Публикация: 1331952   (318076) от 18.10.2019
 
-Nintendo | Артбук по играм Legend of Zelda / The Legend of Zelda: Art Books [3 книги] (2013-2018) [CBR, CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы, концепт-арты, историю и описание по играм Legend of ZeldaЖанр: АртбукФормат: CBR, CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05E2B58B5A0C10555E3FB214D3BF7BBED49B205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564905   (400915) от 25.10.2012
-
-Лисе Мюре | Nemi / Неми [1997-2011] [JPEG]
+Чак Паланик | Бойцовский клуб 2. Спокойный гамбит (2019) [PDF]
 
 >>Комиксы и Артбуки
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400915.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Неми – главная героиня одноименного норвежского комикса, созданного Лисой Михре (Lise Myhre). 25-летняя девушка-гот из Осло, ведущая разгульный образ жизни, перебивающаяся случайными заработками, циничная пьяница, не выпускающая изо рта сигарету и ненавидящая гламур — тем не менее обаяшка и популярный персонаж в интернете. Ее часто можно видеть на аватарах, а переводы комиксов расходятся по Рунету в больших количествах.Формат: JPEG
+После «Проекта Разгром» проходит десять лет. Рассказчик, он же Себастьян, живёт обычной жизнью: он женат на Марле Зингер, вдвоём они воспитывают сына. Марла продолжает ходить в группы поддержки. Она чувствует, что их брак разваливается, и решает выпустить на волю Тайлера. Для этого Марла сокращает дозу лекарств, которые помогают Себастьяну подавить его…Жанр: Контркультура, Триллеры, Комиксы / мангаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCF8DEF94C6F46F647B87B264E0D7E2E303951BB
+magnet:?xt=urn:btih:B75EC4CA3FB4F9751F0FECF8575DF5F67BAE6C17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326107   (407361) от 18.09.2019
+###  Публикация: 1332936   (309364) от 22.10.2019
 
-Lionsgate | Артбук по фильму Хеллбой / Hellboy: The Art of the Motion Picture (2019) [CBR] [EN]
+Top Cow Production | Артбук по комиксам Top Cow / The Art of Top Cow - Volume 1 (2009) [CBR] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407361.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по фильму ХеллбойЖанр: АртбукФормат: CBR
+Артбук содержит рисунки из комиксов Top Cow: Witchblade, The Darkness, Cyberforce и др.Жанр: АртбукФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C97281D62F851F56FE89924B2E07E76604A5FB96
+magnet:?xt=urn:btih:373D2699DA797BC50FADEAC13C19D36FF364C002
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,26 +181,416 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948217   (409119) от 21.10.2015
+###  Публикация: 1422603   (308225) от 09.11.2020
 
-F.J. DeSanto | Hitman: Agent 47: Official Movie Prelude / Хитмэн: Агент 47: Официальный приквел к фильму (2015) [JPG]
+Ice-Pick Lodge | Pathologic 2 Artbook (2019) [PDF]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308225.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Art of Pathologic 2 - взгляд за кулисы загадочного Города и его обитателей. Артбук, состоящий из более сотни страниц скетчей, скриншотов, рендеров и комментариев разработчиков студии Ice-Pick Lodge, логично дополняет историю, рассказанную в игре.Жанр: АртбукФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874D263BFEFECB38CE52840F77E07B2B80A0F8F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333122   (307138) от 23.10.2019
+
+Dynamite | Артбук по комиксу Army of Darkness / The Art of Army of Darkness (2014) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки из комикса Army of DarknessЖанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8CC46A5F1A3C0389FD7DD54331EEAF958C191C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333581   (303281) от 25.10.2019
+
+Eric Joyner | Артбук Роботизированный Экзистенциализм / Robotic Existentialism: The Art of Eric Joyner (2018) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки с роботами художника Eric JoynerЖанр: АртбукФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A986F3F55CA456CC19333A3A145AFA538167F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333376   (303146) от 25.10.2019
+
+DC Comics | Артбук по комиксам с Харли Квинн / Harley Quinn: A Rogue's Gallery - The Deluxe Cover Art Collection (2017) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки из комиксов с Харли Квинн: Harley Quinn, Suicide Squad, New Suicide Squad и др.Жанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE296E64912AF3B1EB09B89632479F40B18C0D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333300   (302984) от 25.10.2019
+
+Dynamite | Артбук по комиксу Рыжая Соня / The Art of Red Sonja [2 книги] (2010, 2016) [CBR, CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки из комикса Рыжая СоняЖанр: АртбукФормат: CBR, CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BC453BC809D52E5C770F7A41FD572634387AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333599   (301347) от 26.10.2019
+
+Frederator Studios | Артбук по мультсериалу Храбрейшие Воины / The Art of Bravest Warriors (2019) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по мультсериалу "Храбрейшие Воины"Жанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655CCD8EE5999BA9FB73C4FF30F2D0B832D24EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333899   (301342) от 26.10.2019
+
+Phoenix Labs | Артбук по игре Dauntless / The Art of Dauntless (2019) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре DauntlessЖанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5A9E5B3D61B16FC6AE3EEA26AE94F137F399D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333826   (301159) от 26.10.2019
+
+Dynamite | Артбук по Нарисованным комиксам / The Art Of Painted Comics (2016) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит историю нарисованных комиксов и рисунки из разных комиксов.Жанр: АртбукФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59491985CB2ACA22381B3EB1A05CE305A9BFF280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334154   (298657) от 27.10.2019
+
+Spicy Horse | Артбук по игре Akaneiro / The Art of Akaneiro (2013) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре AkaneiroЖанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57960E2708CDE071F4AB9BA16408485C4EE90C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334106   (298649) от 27.10.2019
+
+Jean Giraud | Артбук по вселенной Edena / Moebius Library: The Art of Edena (2018) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки Jean "Moebius" Giraud по вселенной EdenaЖанр: АртбукФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EB40CED06A332E44596810F58F7D6BBC33BBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333959   (298577) от 27.10.2019
+
+Frank Miller | Артбук по комиксу Город грехов / The Art of Sin City (2014) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки из комикса Город греховЖанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED271F32889F81AB32C6D65191A800B135FE85F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333957   (298576) от 27.10.2019
+
+Brian Stelfreeze | Артбук художника Brian Stelfreeze / The Signature Art of Brian Stelfreeze (2016) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки художника Brian StelfreezeЖанр: АртбукФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2028D0ECBCEAD3211E14317AC6225E534F41DC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334145   (298574) от 27.10.2019
+
+Zenescope | Артбук по комиксу Grimm Fairy Tales / Grimm Fairy Tales - Art Book [2 книги] (2012, 2014) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки из комикса Grimm Fairy TalesЖанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E3C7DEEC1AB3F138D903CE776EF703F8EEFAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334054   (298570) от 27.10.2019
+
+Aspen Comics | Артбук по комиксу Lola XOXO / The Art of Lola XOXO Vol. 1 (2016) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки из комикса Lola XOXOЖанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96456D9F2CDA066FB4B4D3D5441E05A2D5968D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334314   (296732) от 28.10.2019
+
+Archaia, BOOM Studios | Артбук по миру фильма и комиксов Темный кристалл / Jim Henson's The Dark Crystal Artist Tribute (2018) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит трибьют арт по миру фильма "Темный кристалл" и рисунки из комиксов "The Dark Crystal: Creation Myths" и "The Power of the Dark Crystal"Жанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFD4AA650450A3D9B9D7A25E9DDAD04BF661701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268946   (293203) от 11.12.2010
+
+Star Wars / Звёздные войны (Dark Horse Comics) (464 выпуска)[1977-2010, CBR]
 
 >>Комиксы и Артбуки
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409119.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хороший приквел к плохому фильму.
-Убить человека во время крупного празднования. Казалось бы, обычный заказ. Однако очередное убийство 47-го оборачивается нечто большим, чем простой заказ.Жанр: Преступление, ТриллерФормат: JPG
+Комиксы вселенной Star Wars разных временных эпох и серий, переведённые на русский язык.
+Все номера упакованы в архивы формата CBR (открывается WinRar'ом) и представляют из себя картинки формата JPG.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:550A99023D14DBD2E14587AAFA3D589EAEEE4D2D
+magnet:?xt=urn:btih:CDE82166D062BC1569E0309981F7921FFCF83549
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,25 +598,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325595   (412103) от 15.09.2019
+###  Публикация: 1334327   (293028) от 30.10.2019
 
-BioWare | Артбук по игре Anthem / The Art of Anthem (2019) [CBZ] [EN]
+Matt Wagner | Артбук по комиксу Grendel / The Art of Matt Wagner's Grendel (2007) [CBR] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412103.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре AnthemЖанр: АртбукФормат: CBZ
+Артбук содержит рисунки из комикса GrendelЖанр: АртбукФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4193ED4F460A0CB93D3E7840E80EFE5F24A9E768
+magnet:?xt=urn:btih:44F8C1B31FC4ACC20F295764F7DB95F508C469C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,27 +624,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573415   (412224) от 31.08.2022
+###  Публикация: 1334731   (292804) от 30.10.2019
 
-Ice-Pick Lodge | Артбук по игре Pathologic 2 / The Art of Pathologic 2 (2019) [PDF] [EN]
+Lucasfilm | Артбук по мультфильму Звёздные войны: Войны клонов / The Art of Star Wars: The Clone Wars (2009) [CBR] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412224.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Art of Pathologic 2 - взгляд за кулисы загадочного Города и его обитателей. Артбук, состоящий из более сотни страниц скетчей, скриншотов, рендеров и комментариев разработчиков студии Ice-Pick Lodge, логично дополняет историю, рассказанную в игре.
-
-Артбук на русском языке: Pathologic 2 Artbook (2019)Жанр: АртбукФормат: PDF
+Артбук содержит эскизы и концепт-арты по мультфильму "Звёздные войны: Войны клонов"Жанр: АртбукФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F06E60A592E8A64A10C8AC5C1491CFA2F908F87
+magnet:?xt=urn:btih:FF7C2EEDB9BB3172E8C7E76FC2F14CC3B02B9805
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,389 +650,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573450   (412225) от 31.08.2022
+###  Публикация: 1334732   (292794) от 30.10.2019
 
-Martin Robinson | Артбук по игре Castlevania: Lords of Shadow / The Art of Castlevania: Lords of Shadow (2014) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Castlevania: Lords of Shadow".Жанр: АртбукФормат: CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C140346C421C6647D5BACB41365FE627782A6928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573413   (412368) от 31.08.2022
-
-Storm in a Teacup | Артбук по игре Close to the Sun / Close to the Sun - Artbook (2019) [PDF] [EN]
+Lucasfilm | Артбук по фильму Звёздные войны: Пробуждение силы / The Art of Star Wars: The Force Awakens (2015) [CBR] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412368.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре "Close to the Sun".Жанр: АртбукФормат: PDF
+Артбук содержит эскизы и концепт-арты по фильму "Звёздные войны: Пробуждение силы"Жанр: АртбукФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2929A35E24F3557F7B500FF3CAF9A9720F934242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325353   (414188) от 14.09.2019
-
-Dynamite | Артбук по комиксу Dejah Thoris and the Worlds of Mars / The Art of Dejah Thoris and the Worlds of Mars [2 книги] (2013, 2019) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки из комикса "Dejah Thoris and the Worlds of Mars"Жанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97599605D220E702327B856E85A14394DC6F3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573302   (414396) от 30.08.2022
-
-Deck13 Interactive, City Interactive | Артбук по игре Lords of the Fallen / Lords of the Fallen - Artbook (2014) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Lords of the Fallen".Жанр: АртбукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9DC3E92B8B9676AAE3958722D677004A204BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573301   (414606) от 30.08.2022
-
-Lightbulb Crew | Артбук по игре Othercide / Othercide - Artbook (2020) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре Othercide.Жанр: АртбукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A371811F1CB82FAFD0EE110022B7F853347819C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572968   (416506) от 29.08.2022
-
-Guerrilla Games | Артбук по игре Horizon Zero Dawn / The Art of Horizon Zero Dawn (2017) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Horizon Zero Dawn".Жанр: АртбукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB711CFE422CE2599A08E72F8CFE826DD5778184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572918   (416696) от 29.08.2022
-
-Frozenbyte | Артбук по игре Trine 4: The Nightmare Prince / The Art of Trine 4: The Nightmare Prince (2019) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Trine 4: The Nightmare Prince".Жанр: АртбукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4F2D5FDE54F559C650B292D111CA210A0BD0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324988   (418669) от 12.09.2019
-
-Top Cow Production | Артбук по комиксу Witchblade / The Art of Witchblade (20th Anniversary Edition) (2015) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки из комикса WitchbladeЖанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020EA1C6951A902CC2D7487D8B6E553BF4D4ACEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572849   (418950) от 28.08.2022
-
-Crystal Dynamics | Артбук по игре Tomb Raider / Tomb Raider - Artbook [2 книги] (2013) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре Tomb Raider.Жанр: АртбукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6130F18BB5B7584AF156AFABC4DFEA7C093759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572842   (418966) от 28.08.2022
-
-Benoit Sokal | Артбук по игре Сибирь: Память прошлого / The Art of Syberia: The World Before (2022) [PDF] [EN, FR]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "The Art of Syberia: The World Before"Жанр: АртбукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCF0885B05DA2923914E6F35330607D855903BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572850   (419143) от 28.08.2022
-
-Frozenbyte | Артбук по игре Trine 2 / Trine 2 - Artbook (2011) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре Trine 2.Жанр: АртбукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0599C5FA02B1869CCAD6A2DC653E73C1FFD70B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324771   (420649) от 11.09.2019
-
-Nickelodeon | Артбук по мультсериалу Легенда о Корре / The Legend of Korra - The Art of the Animated Series [4 книги] (2013-2015) [CBR, CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по мультсериалу "Легенда о Корре"Жанр: АртбукФормат: CBR, CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89345756828DF18D3037A6B6EF16947C8243E06B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324616   (422915) от 10.09.2019
-
-Nickelodeon | Артбук по мультсериалу Аватар: Легенда об Аанге / Avatar: The Last Airbender - The Art of the Animated Series (2010) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по мультсериалу "Аватар: Легенда об Аанге"Жанр: АртбукФормат: CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00A542A1C0C561F0CA5670ED7749DD7A98963F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324471   (425299) от 09.09.2019
-
-Rovio Entertainment | Артбук по мультфильму Angry Birds / The Art of the Angry Birds Movie (2016) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по мультфильму Angry BirdsЖанр: АртбукФормат: CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A001623DF3652A22E687EEA589DAAA35502B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324276   (427275) от 08.09.2019
-
-DreamWorks Animation | Артбук по мультфильмам Как приручить дракона / The Art of How to Train Your Dragon - The Hidden World (2019) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по мультфильмам Как приручить драконаЖанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C016290D2CD14C8EFDEB658E9BB0C9E02FEFA8
+magnet:?xt=urn:btih:A11264784636E4316AA044981ECB34ED4B50551B
 ```
 
 https://mybot314.ru/tekegram_catalog/

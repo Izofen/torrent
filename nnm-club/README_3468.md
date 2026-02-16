@@ -1,23 +1,27 @@
-###  Публикация: 1721684   (109942) от 08.05.2024
+###  Публикация: 1365591   (927119) от 09.03.2020
 
-Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP [FLAC|Lossless|image + .cue] <Black Metal>
+U-ka saegusa IN db [one 1 Live] (2005) DVDRip [H.264/480p]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Театр и Музыкальное видео
+>>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109942.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Burning Voice (05:52)
-02 - Hamartia (06:00)Жанр: Black MetalПродолжительность: 11:50 02
+Запись концерта группы U-ka saegusa IN db, прошедшего 26.09.2004 в Namba Hatch (Osaka) и 30.09.2004 в Shibuya-AX (Tokyo).
+
+Источник: лицензионный DVD9Shocking Blue
+I'm in love
+I can't see, I can't feel
+Kokoro ga Tomaranai(   Читать дальше...   )Производство: Япония, B-VisionЖанр: J-PopСубтитры: отсутствуютПродолжительность: 01:27:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:374E950579AC65F654ADA97CC4161270DDBF4D25
+magnet:?xt=urn:btih:5ED937A78A19EBB019B62E7E50A68544B682FF23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +29,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721753   (109943) от 08.05.2024
+###  Публикация: 863225   (927118) от 25.01.2015
 
-Gugun Blues Shelter - Coming Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Принц и Вечерняя Звезда / The Prince and the Evening Star (1978) DVDRip [H.264]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109943.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Coming Out (3:13)
-02. Don't Cry For Me (3:53)
-03. Heart Breaker (4:01)
-04. Bad Politician (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:38
+У принца Велена было три сестры - Хеленка, Еленка и Ленка. Они стали женами трех могущественных королей - Луны, Солнца и Ветра, в сестру которых, по имени Вечерняя Звезда, безнадежно влюблен сам Велен. Чтобы добиться руки прекрасной принцессы, Велену предстоит пройти сложные испытания. Не помогут принцу ни волшебство ни сверхъестественные силы, все ему придется делать (   Читать дальше...   )Производство: ЧехословакияЖанр: СказкаРежиссер: Вацлав ВорличекАктеры: Владимир Меньшик, Либуше Шафранкова, Радослав Брзобохати, Юраш ДурдикПеревод: Многоголосый закадровыйЯзык субтитров: ОтсутствуютПродолжительность: 01:19:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72D4D0D449C1C8E64E288529C5DD4F50CD4AC788
+magnet:?xt=urn:btih:3EE049E9BBB6C2983F3C6243E1ABCAE409F039C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,28 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721613   (109944) от 08.05.2024
+###  Публикация: 1489250   (927116) от 15.08.2021
 
-Joe Metzka - Blues for Daniel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+EMIN - LOVE IS (2021) [MP3|320 Kbps] <Pop>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109944.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Evil (7:00)
-02. Dance with Me Baby (6:09)
-03. B Side Blues (11:16)
-04. Blues for Daniel (2:23)Жанр: BluesПродолжительность: 00:26:48
+1. Таял
+2. Кругами
+3. Не было меня
+4. Love Is(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42C4ABE0DCA3D35FAFE1CFE242172CB1E070CF40
+magnet:?xt=urn:btih:174BB26462EA0034E74543F267FDAEAF1422CF54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,28 +84,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721640   (109945) от 08.05.2024
+###  Публикация: 1365967   (927113) от 09.03.2020
 
-Blazing Eternity - A Certain End of Everything (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death, Doom Metal, Gothic Metal>
+SoundSpot - Union 1.0.3 VSTi, VSTi3, AAX (x86/x64) Repack by R2R + Union Expansion [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109945.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One Thousand Lights (07:30)
-02. The Secrets Of White (06:17)
-03. A Certain End Of Everything (07:09)
-04. The Ghosts Of Another Broken Life (05:17)(   Читать дальше...   )Жанр: Melodic Black, Death, Doom Metal, Gothic MetalПродолжительность: 00:46:13
+Union - это звуковой плагин волнового синтезатора нового поколения SoundSpot, обладающий уникальным волновым генератором, который позволяет создавать гармонически насыщенные волновые наборы из выходных сигналов основных генераторов Union. Этот метод часто используется лучшими мировыми звуковыми дизайнерами для создания насыщенных и глубоких звуков. Union позволяет (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5D9CE11DFE682BDB285358EB27A5E8D8AD6471F
+magnet:?xt=urn:btih:3E3022C100FFDAC68F0FBDF13CE1C5C802175BB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,28 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721764   (109946) от 08.05.2024
+###  Публикация: 1489338   (927109) от 15.08.2021
 
-WailingGita - Mafia's Masquerade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Adobe Substance 3D Sampler 3.0.1 [Multi]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109946.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frolicking Marionette (5:48)
-02. Swoon Buffoon (5:34)
-03. Kumicho's Grand Entrance (4:51)
-04. Malice Palace (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:02
+Оцифруйте и обогатите ресурсы для 3D. Substance 3D Sampler лежит в основе вашего рабочего процесса 3D. Легко трансформируйте реальное изображение в фотореалистичную поверхность или среду HDR.Тип издания: macOS SoftwareРелиз состоялся: 20.07.2021Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AD2467FA55D85D630BC2E0EAAA37C8859CAD5C8
+magnet:?xt=urn:btih:F7A4628CE87C0BE643802086EB0BE55AB785D222
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,28 +136,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721755   (109947) от 08.05.2024
+###  Публикация: 1365795   (927108) от 09.03.2020
 
-Monica Shriver - Unfolding (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+apulSoft - apQualizr2 2.2.4 VST, VST3, AAX (x86/x64) [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109947.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lift (6:05)
-02. Brick By Brick (5:17)
-03. Blue Nile (8:38)
-04. It's Not All On You (5:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:11
+apulSoft apQualizr2 - это аудио плагин, основанный на многополосном эквалайзере, наложенном поверх частотного анализатора с элементами модульной системы эффектов. Он имеет графическое редактирование высококачественных фильтров с низкой задержкой и модульную модуляцию различных параметров фильтра. Он может использоваться для всех стандартных приложений эквалайзера (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DC09E530AF13FD66170223B5D66F739094FDBBA
+magnet:?xt=urn:btih:783844F4C48B8F3C172CE98B44D58A7FB6998520
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,28 +162,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721708   (109948) от 08.05.2024
+###  Публикация: 1489332   (927107) от 15.08.2021
 
-Bloodcum - Arsestabbers (2001) Demo, Reissue, 2020, Brutal Mind [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+Ближе некуда / Достаточно близко / Close Enough (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-15 из 15) TVShows
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109948.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vaginal Butchery
-02. Stabbed In The Arse
-03. Ripping Chainsaw Orgasm
-04. Anal Cum(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:16:13
+История о непростой жизни молодежи между 20-ю и 30-ю годами и об обычных проблемах - работа, друзья, тусовки, дети, клоуны-стриптизеры, монстры, галлюцинации и прочее. Не правда ли, самый что ни на есть обычный набор бытовых проблем?Производство: США | Cartoon Network Studios, Studio TЖанр: Мультфильм, фантастика, фэнтези, драма, комедияРежиссер: Кэлвин Вонг, Дж.Дж. Куинтел, Шон ШелесАктеры: Дж.Дж. Куинтел, Габриэль Уолш, Джейсон МанцукасКимико Гленн, Джессика ДиЧикко, Джеймс Адомиан, Даниэль Брукс, Роджер Крэйг Смит, Джон Эрли, Фред СтоллерПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: ~00:11:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E4DA38C96409187E17A7AACD5BEF85BFAA688F9
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,28 +188,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721756   (109949) от 08.05.2024
+###  Публикация: 862554   (927106) от 25.01.2015
 
-Novelty Five - Rosetta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Эверли / Everly (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109949.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Have Found a New Baby (4:21)
-02. Careless Love (Loveless Love) (3:11)
-03. Basin Street Blues (4:07)
-04. Jitterbug Waltz (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:10
+Женщина пытается выжить в схватке с бойцами якудзы, чтобы спасти своих мать и дочь.
+Действие всего фильма происходит в стенах одной квартирыПроизводство: США |  Crime Scene Pictures, Vega, Baby!, Anonymous ContentЖанр: Боевик, ТриллерРежиссер: Джо ЛинчАктеры: Сальма Хайек, Дженнифер Бланк, Того Игава, Кэролайн Чикези, Габриэлла Райт,
+Энди МакДермотт, Аки Котабе, Уки Сертич, Масаси Фудзимото, Елена ГавриловичПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:32:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:442047F4047E8318CFEA55956DFBC83817B4C264
+magnet:?xt=urn:btih:66BF7B650B50FD95ACDAC777C0C479B2AA1EAD24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,28 +216,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721465   (109950) от 08.05.2024
+###  Публикация: 1365942   (927103) от 09.03.2020
 
-Charles Fambrough - Keeper Of The Spirit (1995) AudioQuest Music [FLAC|Lossless|image + .cue] <Post-Bop>
+Pedometer - GPS Tracker v1.0 [Ru/En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109950.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Angels at Play [4:35]
-02. Pop Pop's Song [5:22]
-03. Life Above the Means [5:52]
-04. A Little This, A Little That [5:16](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:15
+При помощи приложения "Pedometer - GPS Tracker" вы сможете тренироваться с пользой и узнавать все о вашей активности. Простой и удобный шагомер без лишних наворотов, только самое необходимое.Тип издания: PremiumРелиз состоялся: 6.03.2020Разработчик: kotunAppsПоддерживаемая ОС: Android 7.1+Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25D7B16A2DBDBDC372946B9F8161CE00D76AC9D5
+magnet:?xt=urn:btih:99FCF5AC1D049272F792C9FA2B38939B8AF9A3C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,28 +242,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721638   (109951) от 08.05.2024
+###  Публикация: 1489254   (927100) от 15.08.2021
 
-Blazing Eternity - A World to Drown In (2003) [FLAC|Lossless|image + .cue] <Melodic Black, Death, Doom Metal, Gothic Metal>
+Adobe Zii 2021 - Universal Patcher 6.1.5 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109951.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cover Me With Your Eyes (04:22)
-02. To Meet You in Those Dreems (03:40)
-03. A World to Drown in (08:17)
-04. Stars in July (04:23)(   Читать дальше...   )Жанр: Melodic Black, Death, Doom Metal, Gothic MetalПродолжительность: 00:45:54
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией практически всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 008.08.2021Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:108ECB26E784BBAEA8709DBE2D53393C63B29588
+magnet:?xt=urn:btih:1094B6B2B331B1B1CE99E6C88A549AE7B4B4E729
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,28 +268,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721747   (109952) от 08.05.2024
+###  Публикация: 1489350   (927094) от 15.08.2021
 
-Fux Jazz Band - Mi Lugar de Fantasía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Робертсон Дэвис | Убивство и неупокоенные духи (2021) [FB2]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109952.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mi Lugar de Fantasía (3:53)
-02. Los Colores del Blues (3:20)
-03. Vals Bajo La Luna (4:22)
-04. Down The Hill (3:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:12
+Первый роман из неоконченной «Торонтской трилогии».
+
+«Печатники находят по опыту, что одно Убивство стоит двух Монстров и не менее трех Неупокоенных Духов, — писал английский сатирик XVII века Сэмюэл Батлер. — Но ежели к Убивству присовокупляются Неупокоенные Духи, никакая другая Повесть с этим не сравнится». И герою данного романа предстоит проверить эту мудрую (   Читать дальше...   )Жанр: Историческая литература, Мистика, Современная зарубежная литератураПеревод: Татьяна БоровиковаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A53B6448B2F7E64E795F8DC5E0634E9B7324A3C2
+magnet:?xt=urn:btih:27B3A103C64328E454E190CF9E96FBC02CEEB627
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,28 +296,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721679   (109953) от 08.05.2024
+###  Публикация: 1365884   (927093) от 09.03.2020
 
-Shrine of Insanabilis - Disciples of the Void (2015) [FLAC|Lossless|image + .cue] <Black Metal>
+Antivirus Pack [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109953.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - End All
-02 - Ruina
-03 - Acausal Paths
-04 - (...........)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:16
+Набор антивирусов состоящий из 25-и экземпляров. Все антивирусы подобраны с учетом удобства использования и их эффективности. В разделе "Список программ" вы можете посмотреть все антивирусы входящие в этот набор и выбрать себе подходящий исходя из его описания. В разделе "Рекомендованные" указанны наилучшие антивирусы из пака.Тип издания: Оригиналы из Google PlayПоддерживаемая ОС: Android 2.3+Жанр: Набор программЯзык интерфейса: Русский, Английский, Испанский и т.д
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:309AC8B03CB24FC9D3EC46324D09101AE49ABA78
+magnet:?xt=urn:btih:44F13BF11F9E61D530F8F9DF09AE532B0F07CBD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,28 +322,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721739   (109954) от 08.05.2024
+###  Публикация: 287128   (927089) от 26.01.2011
 
-AWaJI Jazz Blues - Superstition (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Фр. Даннеманн | Как создавалась наша картина мира (1920) [DJVU]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Научная и техническая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109954.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Superstition (4:38)
-02. Mr. Cool (8:43)
-03. Jupiter (8:14)
-04. New York (Darkness) (7:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:29:59
+В книге показано, как развивались представления человечества о мироустройстве с древнейших времён до наших дней.
+Собственный сканЖанр: Научно-популярная литератураФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:957CF877280955E82C02C89205B03CD3B8CDD45F
+magnet:?xt=urn:btih:02D5B59AC2B023541A8F946BAEA0E8331C553EB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +349,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721740   (109955) от 08.05.2024
+###  Публикация: 1489208   (927088) от 15.08.2021
 
-Bastardz Music Lab - Episode #64 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Бунтарка / Moxie (2021) WEB-DL [H.264/720p-LQ]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109955.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Small Man (2:53)
-02. Cognac Or Wine (2:38)
-03. A Warning Measure (2:31)
-04. A Petty Lie (2:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:18
+Устав от сексистского и токсичного статус-кво в своей средней школе, застенчивая 16-летняя девушка черпает вдохновение в мятежном прошлом своей матери и анонимно издает журнал, который разжигает общешкольную революцию гнева...Производство: США / Paper Kite ProductionsЖанр: Драма, комедия, музыкаРежиссер: Эми ПолерАктеры: Хэдли Робинсон, Лорен Цай, Алисия Паскуаль-Пенья, Нико Хирага, Сабрина Хэскет, Патрик Шварценеггер, Сидни Парк, Анжелика Вашингтон, Эмили Хоппер, Джози ТотаПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английскиеПродолжительность: 01:51:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A56BB2D527C539ABD124A1676A4CAC32BD98A2E
+magnet:?xt=urn:btih:93AA36AFB4AA532478CDEB0EFD128AF75C82C1DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +375,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721643   (109956) от 08.05.2024
+###  Публикация: 1365873   (927086) от 09.03.2020
 
-Jacky Terrasson & Stephane Belmondo - Mother (2016) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+Вокзалы России: связь времен (2016) WEB-DLRip [H.264/720p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109956.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. First Song [3:16]
-02. Hand in Hand [4:42]
-03. Lover Man [4:52]
-04. La chanson d'Helene [3:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:48:12
+Картина приурочена к 180-летнему юбилею со дня основания крупнейшей в мире российской железной дороги. Словно локомотив, она влекла за собой стремительное развитие промышленности и экономики нашей страны, неоднократно делая Россию мировым лидером по протяженности путей сообщения. Именно стальные магистрали способствовали развитию и процветанию нашей великой страны, (   Читать дальше...   )Производство: Россия / Русская Фильм ГруппаЖанр: Документальный, историяРежиссер: Карина МирзоянСубтитры: ОтсутствуютПродолжительность: 00:50:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E6BA49C12EDF967E29A0CA2D7EB979E15979D0E
+magnet:?xt=urn:btih:82D69890A12ACFCAE04883D7E4CBCB5DA70DA116
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,28 +401,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721636   (109957) от 08.05.2024
+###  Публикация: 1365936   (927081) от 09.03.2020
 
-Blazing Eternity - Times and Unknown Waters (2000) Released, 2001, Irond Ltd [FLAC|Lossless|image + .cue] <Melodic Black, Death, Doom Metal>
+Cleaner by Augustro v4.1PRO [Ru/En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109957.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Concluding the Dive of Centuries (06:18)
-02. Fortabte Horisonter (07:55)
-03. Of Times and Unknown Waters (04:23)
-04. Still Lost in the Autumn Of Eternity (06:06)(   Читать дальше...   )Жанр: Melodic Black, Death, Doom Metal, Gothic MetalПродолжительность: 01:08:31
+Cleaner by Augustro не только автоматически чистит память устройства, оптимизируя его работу, но и сканирует мусорные файлы, увеличивает свободное место. Это мощный и многофункциональный инструмент, который понадобится любому смартфона на базе Андроид. Такие возможности, как очистка кэша и внутренней памяти, подтверждение процесса при помощи всплывающих окон, несколько (   Читать дальше...   )Тип издания: Mod (С вырезанной проверкой лицензии)Релиз состоялся: 6.03.2020Разработчик: AugustroПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0A1AE794EDB5AE9ACA008B7825A7AC0370C96A4
+magnet:?xt=urn:btih:4BB071F8926B12D2745FB6DD533401AD7312F9D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,28 +427,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721399   (109958) от 08.05.2024
+###  Публикация: 1489284   (927080) от 15.08.2021
 
-Fretting Obscurity - Das Ungluckliche Bewusstsein (2024) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom, Melodic Death, Black Metal>
+Оружие / L'arma (1978) DVDRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109958.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. As in Creation Hour
-02. Das Heilige
-03. To Burn Insatiably
-04. Das SchaudernЖанр: Funeral Doom, Melodic Death, Black MetalПродолжительность: 00:50:14
+Герой фильма — инженер Луиджи Компанья. Испытывая постоянный страх перед насилием, царящим в обществе, он приобретает оружие, которое сыграет в его жизни роковую роль.Производство: Италия / MarateaЖанр: Драма, КриминалРежиссер: Джерри Джеймсон, Паскуале СкуитьериАктеры: Клаудия Кардинале, Стефано Сатта Флорес, Бенедетта Фантоли, Клара Колозимо, Дарио Гирарди, Джузеппе Морабито, Сальваторе Билла, Вивиана Полич, Марио Гранато, Паоло БонеттиПеревод: Дублированный, киностудия имени М. ГорькогоСубтитры: РусскиеПродолжительность: 01:23:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A3F84D0DB00151F2B653DB74E78F890BA5CBEFE
+magnet:?xt=urn:btih:C500EA8046D7F2151A06466BFA5AE96A8994D3F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,28 +453,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721457   (109959) от 08.05.2024
+###  Публикация: 1489237   (927078) от 15.08.2021
 
-Bud Freeman - Newport News (1955) 2013, Solid Records [FLAC|Lossless|tracks + .cue] <Swing>
+VA - Simply Late Night Jazz (2008) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109959.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Newport News [2:40]
-02. At Sundown [4:00]
-03. Exactly Like You [4:05]
-04. Let's Do It [3:03](   Читать дальше...   )Жанр: SwingПродолжительность: 00:37:17
+Уже и не помню, почему, когда загружал на трекер двухдисковое издание (см. ссылку внизу), забыл подгрузить и четырех дисковое. А тут недавно товарищи напомнили об этом промахе. Что ж, через шесть лет исправляюсь. Немного повторюсь, но напомню, что судьба этого сборника достаточно интересна. Он вышел в 2008 году в формате 4CD (собственно как большинство релизов из (   Читать дальше...   )CD 1 Sax At Sundown
+01. Lester Young - I Don't Stand A Ghost Of A Chance  (3:29)
+02. Art Pepper - Everything Happens To Me  (3:08)
+03. Stan Getz - Don't Worry 'Bout Me  (2:39)(   Читать дальше...   )Тип издания: Box Set, 4 CDРелиз состоялся: 15 сентября 2008 годаЖанр: Jazz, Smooth JazzПродолжительность: 04:26:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F504039353104C24AFE1F8BF95B8E1DBA8D72C50
+magnet:?xt=urn:btih:A0D0B2B01CC6A4ECC23E1D5EA2348A23D8AF711D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +482,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721558   (109960) от 08.05.2024
+###  Публикация: 1365830   (927075) от 09.03.2020
 
-Blaze of Perdition - The Harrowing of Hearts (2020) [FLAC|Lossless|image + .cue] <Black Metal>
+После полуночи / Past Midnight (1991) WEB-DLRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бен Джордан досрочно освобожден из тюрьмы, где он отбывал пятнадцатилетний срок за зверское убийство беременной жены. Прямых улик злодеяния не было, а косвенных - хоть отбавляй. Реабилитацией Джордана и его трудоустройством занимается сотрудница социальной службы Лора Мэтьюз. Общение с Беном Джорданом наводит Лору на мысль, что он был осуждён из-за судебной ошибки. (   Читать дальше...   )Производство: США / Cinetel Films Inc.Жанр: Триллер, детектив, мелодрамаРежиссер: Ян ЭлиасбергАктеры: Рутгер Хауэр, Наташа Ричардсон, Клэнси Браун, Гай Бойд, Эрни Лайвли, Том Райт, Кибиби Мони, Пол Джаматти, Дэна Эскелсон, Чарльз БосуэллПеревод: Профессиональный двухголосый, профессиональный многоголосый, авторскийСубтитры: английскиеПродолжительность: 01:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982B0BD9D58238957C406ABFDB8BB9340D57E880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489249   (927069) от 15.08.2021
+
+The Killers - Pressure Machine (2021) [MP3|320 Kbps] <Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109960.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Suffering Made Bliss
-02. With Madman’s Faith
-03. Transmutation of Sins
-04. Królestwo Niebieskie(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:29
+1. West Hills
+2. Quiet Town
+3. Terrible Thing
+4. Cody(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:51:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D84458463D475B4D288945882BED33993D2CC20
+magnet:?xt=urn:btih:45EB63A7E973EE37A9B3101C9EE9266ECEE5823B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,28 +537,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721641   (109961) от 08.05.2024
+###  Публикация: 1365820   (927068) от 09.03.2020
 
-Gene Harris - Live At Otter Crest (1981) 2001, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+Г. Шнейкерт | Тайна преступника и пути к ее раскрытию. Выпуск II [К учению о судебных доказательствах] (1925) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109961.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweet Lorraine [5:54]
-02. My Foolish Heart [5:50]
-03. A Little Blues There [11:38]
-04. Battle Hymn of the Republic [11:25](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:47:47
+Печатаемая в русском переводе книжка начальника берлинского бюро по идентификации и преподавателя криминалистки в берлинском университете Ганса Шиейкерта Verheimlichte Tatbestände und ihre Erforschung (Berlin, 1924) представляет собою в развитом виде доклад, прочитанный автором в начале 1924 года в берлинском Психологическом Обществе. Автор ставит своею задачей (   Читать дальше...   )Жанр: История, политология, правоведение, социология, криминалистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E12830A84A2DC7D370BB9F02D23AC005AE0B865
+magnet:?xt=urn:btih:E690A94C5C3F4D5964899C7CC5EBDFEC420B6FA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,28 +563,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721469   (109962) от 08.05.2024
+###  Публикация: 1489288   (927066) от 15.08.2021
 
-Charles McPherson - Charles McPherson (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+Side FX, John Lynch | Houdini 16 Ocean Tools (2017) PCRec [En, Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109962.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What's Going On [3:32]
-02. Serenity [7:28]
-03. My Funny Valentine [7:45]
-04. Another Kind of Blues [7:15](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:37:53
+В Houdini 16 мы переработали инструменты работы с океанами (Ocean tools), теперь у вас будет больше контроля над видом и поведением океанов, также появилась возможность просчета ноды спектра океана (ocean spectra) во время рендера и улучшена интеграция с FLIP симуляциями. В этом мастер-классе мы посмотрим, что такое вообще «спектр» океана, затем посмотрим на новые (   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:05:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F71282E424BA2426C22E870948F0D66258DE57D9
+magnet:?xt=urn:btih:1131E031BCA467FAB1B1EBA92B66E310CF8E4868
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,25 +589,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721443   (109963) от 08.05.2024
+###  Публикация: 1365784   (927065) от 09.03.2020
 
-Maddix Feat. Feles - My Gasoline (2023) [FLAC|Lossless|tracks] <Tech Trance, Peak Time Techno, Electroclash>
+Вильгельм Гауф | Маленький Мук и другие сказки (2018) [EPUB]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109963.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maddix Feat. Fēlēs - My Gasoline (3:57)Жанр: Tech Trance, Peak Time Techno, ElectroclashПродолжительность: 00:03:57
+Вильгельм Гауф – знаменитый немецкий писатель. В. Гауф работал домашним учителем и в плохую погоду рассказывал детям истории об удивительных событиях, превращениях и справедливом возмездии. Так появились сказки, ставшие знаменитыми на весь мир. Наиболее известные из них «Маленький Мук», «Карлик Нос» и «Холодное сердце» вошли в нашу книгу. Рисунки нарисовали известные (   Читать дальше...   )Жанр: Сказки для детейПеревод: Михаил Салье, Юрий КоринецФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03146969A7AB4D3D51A0E572033D6B1FF0D87B1E
+magnet:?xt=urn:btih:82BCEC6E593435C5778003196373FB2309331174
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,28 +615,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721648   (109964) от 08.05.2024
+###  Публикация: 631090   (927050) от 16.03.2013
 
-Deicide - Banished By Sin (2024) [FLAC|Lossless|image + .cue] <Death Metal>
+Заветная мечта (1972) DVDRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109964.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. From Unknown Heights You Shall Fall 03:25
-02. Doomed to Die 03:11
-03. Sever the Tongue 03:25
-04. Faithless 03:26(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:51
+О маленьком ослике, у которого была мечта - спасти кого нибудь.Жанр: Детский, КукольныйРежиссер: Михаил КаменецкийПродолжительность: 00:09:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC16B92D67FFEF5F2E2F59845403C434915E92E2
+magnet:?xt=urn:btih:776F33F65DA624C75D6B1C6373AF4D56AE18C841
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +641,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721717   (109965) от 08.05.2024
+###  Публикация: 1488416   (927049) от 15.08.2021
 
-Семейка Книккерч и охота на копа / Knyckertz & snutjakten (2023) WEBRip [DVO] [AD]
+Легенды кино (2016-2021) DVB (серии 1-91 из ?) (Обновляемая)
 
->>Остальное
->>Фильмы с Рекламой
+>>Документалистика и Телепередачи
+>>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109965.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семейка Книккерч - это родители Фиа и Буве, дети Туре и Эллен, а также очень умный пёс Коп. Туре единственный в семье , кто не нарушает закона. Остальные - прирожденные воры. Но после неудачного ограбления вся семья становится законопослушной. Родители и сестра Туре теперь покупают, а не крадут вещи, и вместе ходят на собрания бывших профи- грабителей. Однако спокойствие (   Читать дальше...   )Производство: Швеция / Unlimited StoriesЖанр: семейныйРежиссер: Лейф ЛиндбломАктеры: Axel Adelöw, Paloma Grandin, Нина Заньяни, David Sundin, Клэс Малмберг, Анна Бьёрк, Heidi Blanck, Serngard Pernfors Melker, Elisabeth Wernesjö, Гуннель Фред и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:28:10Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+Чем была для актера Анатолия Кузнецова звездная роль в «Белом солнце пустыни» - счастливым билетом или актерским наказанием? Почему спустя много лет он согласился повторить образ в эпизоде детского фильма, и как после одного-единственного фильма он стал кумиром миллионов? Как Армену Джигарханяну удалось добиться феноменального успеха в кино и на сцене столичных театров? (   Читать дальше...   )Телекомпания: Россия / ТК "Звезда"Жанр: Документальный, Искусство, БиографияСубтитры: отсутствуютПродолжительность: ~00:39:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EA62B3FA773BAB7A821A779877B20AB1073AA78
+magnet:?xt=urn:btih:C65A0CBD7AF51572CBDA917C2AFA9AA7C18DF082
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,54 +667,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721694   (109966) от 08.05.2024
+###  Публикация: 1489283   (927048) от 15.08.2021
 
-Фруде Гранхус | Рино Карлсен (Книга 3). Раскаянье дьявола (2024) [MP3, Иван Букчин]
+Side FX, Ari Danesh | Houdini 17 Masterclass: Terrains Heightfield Scatter (2018) PCRec [En, Ru]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109966.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Летним днем Ида радостно выбегает из дома со своими куклами, чтобы нарвать цветов для мамы, - и больше не возвращается. Дождя не было целую вечность. Из-за жары маленькое лесное озеро, к которому так часто приходит Эмилия Санде, почти высохло. Уровень воды понижается, и отчаянье женщины нарастает. Под водой спрятано то, что ни в коем случае не должно оказаться на (   Читать дальше...   )Жанр: детектив, триллерИздательство: Издательский дом ГородецПродолжительность: 07:55:04
+Это второе видео, посвященное созданию ландшафтов в Houdini 17, а именно использованию ноды Heightfield Scatter. В этой версии она была полностью переписана, так что мы будем разбирать ее параметры и посмотрим, как присоединять к ней геометрию, чтобы при разбросе учитывалась иерархия.Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:40:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B97B3B26A057EF89B2FD867CFEAFB5A25400795C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721800   (109967) от 08.05.2024
-
-Vhaldemar - Sanctuary of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil´s Child (4:16)
-02. Dreambreaker (3:41)
-03. Deathwalker (4:49)
-04. Sanctuary of Death (4:14)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC68EA324B573821CD7E8AC01569C597C0C9BC8A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

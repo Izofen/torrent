@@ -1,25 +1,25 @@
-###  Публикация: 1177099   (360503) от 26.10.2017
+###  Публикация: 1007789   (819555) от 16.04.2016
 
-ScAnDroid Experiment's - Strange Thoughts (2017) Авторская раздача [MP3|320 Kbps] <Drum & Bass, Dubstep, Trap>
+VA - Blackout: Best of 2015 (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360503.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ambient Just Think
-02. Voices
-03. Filling 1
-04. When the Head Grey Autumn(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, TrapapПродолжительность: 01:12:14
+01. Black Sun Empire - Until the World Ends (feat. PNC) (05:44)
+02. Neonlight & Wintermute - Influx (04:59)
+03. Khronos - The Heavy (04:06)
+04. Telekinesis - Fight Club (feat. Coppa) (04:38)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 02:22:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4F398F11068CC0B2A3F7D527C0B2E9D11BF58FC
+magnet:?xt=urn:btih:C9D5B645F1C3CA79B78A4E9C2280190EB90C7986
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 950927   (363659) от 29.10.2015
+###  Публикация: 1008413   (815827) от 18.04.2016
 
-VA - Chilling On The Couch 02 LP (2015) [MP3|320 кб/с]<Drum & Bass>
+VA - Breaks 4 Humanity Vol.2 (2016) [MP3|320 кб/с] <Drum & Bass, Breaks>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363659.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mav - A Journey Through Skylines (05:38)
-02. Mobility - Sunrays Through Rain (07:15)
-03. Naibu - Bird's Eye View (04:53)
-04. Oscillist - Mono (06:06)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:05:50
+01. Abstract Illusion - Refuge  (05:26)
+02. BBeta - LSB (04:42)
+03. Blue Digital Orchestra - People Come Together (03:54)
+04. CIMA - Wild One (03:56)(   Читать дальше...   )Жанр: Drum & Bass, BreaksПродолжительность: 01:17:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0F0DDA02DDCA7148A2D68ACACEDA9AB56CC00B5
+magnet:?xt=urn:btih:FF9BDE6539E238595E6E06B3B892FF4968CDFD93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328311   (366037) от 29.09.2019
+###  Публикация: 1197670   (811774) от 09.01.2018
 
-A-Mase - Emotions & Dreams (2019) [MP3|320 Kbps] <Atmospheric Breaks, Progressive Breaks>
+VA - Drum & Bass Annual 2018 Sampler (Viper Presents) (2018) [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366037.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (Original Mix) (2:00)
-02. Russian Breaks (Original Mix) (7:22)
-03. Emotions & Dreams (Original Mix) (8:07)
-04. Beyond The Atmosphere (Original Mix) (7:57)(   Читать дальше...   )Жанр: Atmospheric Breaks, Progressive BreaksПродолжительность: 01:30:39
+01. Moby - A Simple Love (BMotion Remix)
+ 02. Matrix & Futurebound - Human
+ 03. Brookes Brothers - Flashing Lights
+ 04. BMotion - Love Blind(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 04:27:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06B23719D1C944966C93B3230243F0DC7F0D75C9
+magnet:?xt=urn:btih:812294F1B09623723670DF424090A7BC8154AEA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255101   (367941) от 16.10.2018
+###  Публикация: 1009512   (810034) от 21.04.2016
 
-Нейромонах Феофан - Сияние (2018) EP [MP3|320 Kbps] <Drum & Bass, Electronic>
+VA - Escapism 3 (Liquicity Presents) (2016) [MP3|320 кб/с] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367941.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Сияние
-2. Знамо были на Руси
-3. Талая
-4. Погнали(   Читать дальше...   )Жанр: Drum & Bass, ElectronicПродолжительность: 00:22:14
+01. Pogo - No Worries (Hybrid Minds Remix)
+ 02. Makoto - YGMYC
+ 03. Championdnb - Stratos
+ 04. Dualistic & Subsequent - Sunrise (feat. Ella)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:59:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23CC0C128B5D20436ADA2C370429DFA84B21E14C
+magnet:?xt=urn:btih:F0B1199131473B5539BD93BE8EC7F89E8CBB4D6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070368   (369254) от 06.11.2016
+###  Публикация: 1010659   (802322) от 25.04.2016
 
-VA - Nothing But... Liquid Drum & Bass Vol.2 (2016) [MP3|320 Kbps] <Drum & Bass>
+Dark Soul - Take Control (2016) [MP3|320 кб/с] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369254.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spyre - Reunion (Original Mix) (5:52)
-02. Soultec - Touch The Sky (Original Mix) (6:19)
-03. IntelliQuid - No Beauty (Tony Future Beautiful Mix) (7:46)
-04. Rolfey - Tranquillity (InnaSelf Remix) (5:38)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:49
+01. Take Control (Original Mix)
+02. Tandem (Original Mix)
+03. Nanotech (Original Mix)
+04. Global (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:54:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF0089A5A8BA6A1F5D9A55B644B77577A34D9FBF
+magnet:?xt=urn:btih:BBF5D5F8726FD48F6A1B3D3A308BFD9F570EA3E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254185   (377277) от 12.10.2018
+###  Публикация: 1012053   (795567) от 29.04.2016
 
-VA - Welcome to the Jungle (Drum & Bass X Jungle) (2018) [MP3|320 Kbps] <Drum & Bass>
+Omauha - Omauha (Remixed) (2016) [MP3|320 кб/с] <Breaks>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377277.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fish feat. Navigator & Blackout JA - Champion Sound (Original Mix)
-02. Ed Solo feat. Navigator - Soundboy Dying (Original Mix)
-03. Ed Solo - Murderer (Deekline & Specimen A Remix)
-04. Ed Solo - King of Bongo (Deekline & Specimen A Remix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 06:09:55
+01. Florida (Cullen Remix) (6:33)
+02. Antananarivo (Platunoff Breaks Remix) (6:43)
+03. The White Nights (Stardesign Remix) (8:38)
+04. Victoria (Rick Tedesco Remix) (7:15)(   Читать дальше...   )Жанр: BreaksПродолжительность: 01:05:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD8D53268E06A7AECA1C4267391A6D1CE38E83B2
+magnet:?xt=urn:btih:1D927FCC8C709ACCFA5C7301C6D094741FAFC3D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165973   (428302) от 15.09.2017
+###  Публикация: 1510321   (791318) от 16.11.2021
 
-VA - Liquid Drum & Bass Essentials Vol 02 (2017) [MP3|320 Kbps] <Drum & Bass>
+Нейромонах Феофан - Древнерусский рейв (2021) [MP3|320 Kbps] <Drum & Bass, Electronic>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428302.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dreamworkers - So Close (Original Mix) (05:18)
- 02. Atmosfear - Travelling Fast (Original Mix) (05:25)
- 03. DROMA - So High (Original Mix) (06:45)
- 04. Kharma Factory - Hidden In The Shade (Original Mix) (04:03)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:18:33
+1. Древнерусский рейв
+2. Небо
+3. До берегу
+4. Дуб(   Читать дальше...   )Жанр: Drum & Bass, ElectronicПродолжительность: 00:30:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5833442D92C713A9100D5064ACB71D9E2B478EEB
+magnet:?xt=urn:btih:3BF78643965875E959C6DAF0D26C5968FE38957E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165671   (432460) от 13.09.2017
+###  Публикация: 1203105   (788634) от 01.02.2018
 
-Bcee - Northpoint (2017) [MP3|320 Kbps] <Drum & Bass>
+VA - Sick Music 2018 [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432460.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788634.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Surfacing
- 02. Little Bird
- 03. More Than Words
- 04. Armed & Dangerous(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:12:35
+01. Keeno – The Comet (05:36)
+02. Danny Byrd – Devil’s Drop (04:11)
+03. London Elektricity – Polymer (04:29)
+04. Logistics – FWD (Feat. Pola & Bryson) (05:23)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:06:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8654BB0B23050603D78EE40B308257953856DAB2
+magnet:?xt=urn:btih:B2A6E46C2EA31050C5688234DB24D40F3BB0271E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165215   (434226) от 12.09.2017
+###  Публикация: 1276978   (787222) от 18.01.2019
 
-Нейромонах Феофан - Плясать. петь. (2017) [MP3|320 Kbps] <Drum & Bass, Electronic>
+VA - Sublime Drum And Bass, Vol.14 (2019) [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434226.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Предсловие
-2. А теперь поёт медведь
-3. Скучно в лесу
-4. Топить за Феофана(   Читать дальше...   )Жанр: Drum & Bass, ElectronicПродолжительность: 00:48:49
+01.  DJ Kurrupt - Traffic Cops (Original Mix)
+02.  Liraxity - Refuse (Dubbage Remix) (Feat Fireflake)
+03.  DJ Tiny M - Sanity Killz Dat (Original Mix)
+04.  Cryogenics - Addictive (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:11:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C05BE8F7B3D54DC41116E9E89BFBC77B4C1A755F
+magnet:?xt=urn:btih:66050068158FFA45AECEF8459C81931633CBEE61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165359   (434426) от 12.09.2017
+###  Публикация: 1124853   (785541) от 12.04.2017
 
-Odesza - A Moment Apart (2017) [MP3|320 Kbps] <Chillout, Downtempo, Future Bass>
+Нейромонах Феофан & Слот - Древнерусская душа (2017) Single [MP3|320 Kbps] <Drum & Bass, Alternative Rock, Electronic>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434426.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (1:04)
-02. A Moment Apart (3:54)
-03. Higher Ground (feat. Naomi Wild) (3:35)
-04. Boy (3:04)(   Читать дальше...   )Жанр: Chillout, Downtempo, Future BassПродолжительность: 00:59:36
+1. Древнерусская душаЖанр: Drum & Bass, Alternative Rock, ElectronicПродолжительность: 00:04:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8AF06C346AC3F0AB024E6A3ADC178988FD490B4
+magnet:?xt=urn:btih:89688398657093F483FE314C0CC425AEC50E3D15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409656   (442547) от 18.09.2020
+###  Публикация: 1277435   (785363) от 20.01.2019
 
-Asian Dub Foundation - Access Denied (2020) [MP3|320 Kbps] <Breakbeat, Electronic>
+VA - Best Of 2018 (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442547.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Can't Pay Won't Pay [02:52]
-02. Stealing The Future [03:47]
-03. Frontline [03:06]
-04. Access Denied [03:38](   Читать дальше...   )Жанр: Breakbeat, ElectronicПродолжительность: 00:52:30
+01. Facade - Division Of The Synth (04:36)
+02. Vecster - Critical Level (04:36)
+03. Sequential - Time Dilation (05:15)
+04. Distributor - Hypertension (05:18)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 00:50:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:208747CC38800862F282BC36E271F62801275838
+magnet:?xt=urn:btih:755DB103C2392D362391F677234455B788901512
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,26 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162307   (459033) от 01.09.2017
+###  Публикация: 1212452   (776086) от 11.03.2018
 
-Physical Illusion - Cosmonaut Training Center (2017) EP [MP3|320 Kbps] <Drum & Bass>
+BCee - Volume Two (2018) [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459033.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Guide to Exploitation Cosmic Ship (04:28)
- 02. A Guide to Exploring the Cosmos (04:56)Жанр: Drum & BassПродолжительность: 00:09:24
+01. Keep The Faith feat. Robert Owens (Marcus Intalex Remix) (05:39)
+ 02. Jewel Quest feat. Lomax (06:21)
+ 03. Regulate feat. Lomax (06:49)
+ 04. Midnight Caller feat. Lomax (06:47)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:52:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71739882795D13C86CE5A4776EFB786DC262BA76
+magnet:?xt=urn:btih:DAE2027C3C5BBDB48F2DB64974D89DE8183F53E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,28 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162303   (459036) от 01.09.2017
+###  Публикация: 1212455   (776056) от 11.03.2018
 
-Physical Illusion - Solitary (2017) EP [MP3|320 Kbps] <Drum & Bass>
+BCee - Volume Three (2018) [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459036.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Solitary (04:24)
- 02. Pensive Mood (Electrosoul System remix) (05:32)
- 03. Deep dive (05:30)
- 04. Pensive mood (05:51)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:32:28
+01. Can't Say No feat. Lomax (Cyantific Remix) (05:20)
+ 02. Cultural Shift (05:47)
+ 03. Diagnosis Murder feat. S.P.Y (Metrik Remix) (04:58)
+ 04. Outlaw (06:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:04:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F18EF0060C646049B0E07252E40134AFB34D92AD
+magnet:?xt=urn:btih:A39FEDA12592BE002BD126CC4C0FBFE7E34D0BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162298   (459147) от 01.09.2017
+###  Публикация: 202924   (766344) от 21.05.2010
 
-Jiva & Fr.om - Saturnine (2017) LP [MP3|320 Kbps] <Drum & Bass>
+Pendulum - Immersion (2010) [MP3|320kbps] <Drum & Bass>
 
->>Electronic
+>>След.
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459147.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Geologic (Original Mix) (07:34)
- 02. Saturnine (Original Mix) (07:22)
- 03. Remote Station (Original Mix) (07:25)
- 04. Interference (Original Mix) (06:34)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:56:59
+1. Genesis 1:09
+2. Salt In The Wounds 6:39
+3. Watercolour 5:04
+4. Set Me On Fire 5:02(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:17:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:281A654D16538A0B9301897758996A4526BA1F17
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162292   (459161) от 01.09.2017
+###  Публикация: 1281491   (751492) от 08.02.2019
 
-VA - Kosmos Gets Harder After Album (2016) EP [MP3|320 Kbps] <Drum & Bass>
+Нейромонах Феофан - Ивушка (2019) EP [MP3|320 Kbps] <Drum & Bass, Electronic>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459161.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Electrosoul System - Insects (04:43)
- 02. HeadRead - Circulation (06:23)
- 03. Storm Crew - Step Off (Green Vibes Remix) (04:56)
- 04. Distant Future - Katharsys (06:32)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:27:42
+1. Ивушка
+2. Намело
+3. Красна девица
+4. ДурьЖанр: Drum & Bass, ElectronicПродолжительность: 00:13:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C22C9F039705F73361F848E1A69E95A84A795503
+magnet:?xt=urn:btih:5AC9FDFF9413967A5A910F8FB52945CAB1EA178F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,25 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 548455   (469652) от 17.09.2012
+###  Публикация: 889057   (750198) от 17.04.2015
 
-Utah Jazz - Vintage (2010) [MP3|320 кб/с]<Drum & Bass / Liquid Funk>
+Alex de Vega - Dark Adaptation (2013) [MP3|320 kbps] <Jungle, Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469652.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Drum & Bass / Liquid FunkПродолжительность: 01:16:54
+1. Corrosive Attack
+2. Dark Adaptation
+3. Genotoxic Transformation
+4. Point of No Return(   Читать дальше...   )Жанр: Jungle, Drum & BassПродолжительность: 00:30:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EE0F65EE2FCB895B4A166F09FD683279CEB95F4
+magnet:?xt=urn:btih:F15804EA000B45CD38531A49B694DD57F39F66E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,28 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161022   (469813) от 27.08.2017
+###  Публикация: 1281910   (748151) от 10.02.2019
 
-Eschaton - Carina (2017) EP [MP3|320 Kbps] <Drum & Bass>
+VA - Sick Music 2019 [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469813.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life Patterns (06:33)
- 02. Sky Portraits (07:07)
- 03. Carina (05:57)
- 04. Dreaming Colours (06:51)Жанр: Drum & BassПродолжительность: 00:26:28
+01. Fred V - Burning Me (Original Mix) [03:23]
+02. Degs - Poveglia (feat. DeTune) (Whiney Remix) [04:08]
+03. London Elektricity - Funkopolis (Original Mix) [05:21]
+04. S.P.Y - Dusty Fingers (feat. Diane Charlemagne) (Metrix Remix) [04:36](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:49:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03687491877162B727B8F91CD5B25D0FCC592F4A
+magnet:?xt=urn:btih:2CB0CC5ADB32CE0E623D5EEC99507012D92E5BA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406506   (470598) от 05.09.2020
+###  Публикация: 1400200   (719018) от 05.08.2020
 
-The Living Tombstone - zero one (2020) [MP3|320 Kbps] <Electronic, Dubstep>
+VA - Minced Meat (2020) [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470598.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What I Want [00:03:26]
-02. Drunk [00:03:25]
-03. Can't Wait [00:02:45]
-04. Lazy [00:03:14](   Читать дальше...   )Жанр: Electronic, DubstepПродолжительность: 00:35:42
+01. Difo - Dark Carnival [04:01]
+02. Badline - Rave [04:50]
+03. Mortuus - Sentinel [05:19]
+04. Nohzo - Drunken Worm [06:24](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:47:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FDEF9C414CDDD4C28D5192C32D5572333FD35E7
+magnet:?xt=urn:btih:280766DA81F3766B62390A1106F67EA51BF1E059
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +517,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160746   (471879) от 26.08.2017
+###  Публикация: 1400197   (719015) от 05.08.2020
 
-K-Chaos - Let The Heat In (2017) LP [MP3|320 Kbps] <Drum & Bass, Breaks, Techno>
+VA - Time Limit (2020) [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471879.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spying Vase (05:51)
- 02. Suspicious Act (04:36)
- 03. Art Explosion (05:04)
- 04. KRSH (06:25)(   Читать дальше...   )Жанр: Drum & Bass, Breaks, TechnoПродолжительность: 01:05:28
+01. System Chaotica - Files [05:10]
+02. Dim Ols - Endless Tunnel [03:08]
+03. Neoid - My Life [06:47]
+04. Quadri - False Life [05:09](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:46:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F408D8740A3E78245AEB20B3F574EBD4F84D0E0D
+magnet:?xt=urn:btih:311442AF204B202ED0B5B00BBF44BD4AAE9BE2FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,28 +546,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159092   (485800) от 19.08.2017
+###  Публикация: 1400199   (719009) от 05.08.2020
 
-Chase & Status - Tribe (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep, Grime>
+VA - Night Abduction (2020) [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485800.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Big Man Skank (feat. Mr. Vegas) (04:20)
-02. Dubplate Original (feat. Kano) (03:45)
-03. Love Me More (feat. Emeli Sande) (04:00)
-04. Step Away (feat. MC Singing Fats) (04:07)(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, GrimeПродолжительность: 01:08:23
+01. Neoid - Alone In The Dark [04:15]
+02. Units Beatz - Deformation of Planets [04:39]
+03. Ravenlore - Oh Yes [03:15]
+04. DJ Vantigo - Sexy Girl [04:28](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:46:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82DFD27F5B981BAB49C2F9219F94BFA81125A6BD
+magnet:?xt=urn:btih:772595A57310A2AA00E90FBAFA37210BC01A0698
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,28 +575,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 937089   (488236) от 15.09.2015
+###  Публикация: 1219299   (715229) от 13.04.2018
 
-VA - Point Of Origin Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass>
+Нейромонах Феофан - Тропа (2018) EP [MP3|320 Kbps] <Drum & Bass, Electronic>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488236.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ed It - Centre Suite
-02. Posij - Shieldbreaker
-03. Karma - Saturation Point
-04. Need For Mirrors - Neverless (Feat. Steo)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:15:47
+1. Тропа
+2. Ремесло
+3. На двореЖанр: Drum & Bass, ElectronicПродолжительность: 00:09:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA5CFF86D9A4E891D564B5CDF3E7955D52E8BE6F
+magnet:?xt=urn:btih:17E2975A91B52D42EDB10C953362A54736F0BB4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,28 +603,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 935980   (489568) от 14.09.2015
+###  Публикация: 147117   (709253) от 12.06.2010
 
-Nero - Between II Worlds (2015) [MP3|320 кб/с]<Drum & Bass, Dubstep, House>
+The Chemical Brothers - Discography - 66 Releases (1994-2010)|320]<Electro/Big Beat>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489568.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Circles
-02. The Thrill
-03. It Comes And It Goes
-04. Two Minds(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, HouseПродолжительность: 00:53:38
+Жанр: Electro/Big BeatПродолжительность: 00:59:09
+01. Setting Sun & Chemical Beats (San Fransico '96) (14:56)
+02. The Sunshine Underground (Woodstock '99) (9:15)
+03. The Private Psychedelic Reel (Open Air Field Festival '02) (17:36)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAA3ABA4AB401CA6A4F6252B8E761217DB3862AB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,28 +632,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 935933   (490189) от 14.09.2015
+###  Публикация: 177882   (699607) от 07.06.2014
 
-VA - Mind Technologies Vol. 5 (2015) [MP3|320 кб/с]<Drum & Bass>
+VA - Covert Operations Record Pres: Global Connections vol. 1-6 (2007-2009) [MP3|192-320 kbps] <Intelligent Drum'n'Bass, Atmospheric Drum'n'Base>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490189.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_699607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ginyu Force - Turn To Dust
-02. Signal - Existence
-03. 4Flexx - Psychological Impact
-04. Flare - Supression(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:26:46
+01. Operon & Lm1 - Lorien(07:01)
+02. JCB - December(08:41)
+03. B.Fuse - Solar Patrol(07:59)
+04. Entharsis - Boundless Wonder(04:18)(   Читать дальше...   )Жанр: Intelligent Drum'n'Bass, Atmospheric Drum'n'BaseПродолжительность: 06:43:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26361FA72248563A329AC2A702D98CC80E76F6E1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,28 +661,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243025   (495896) от 25.08.2018
+###  Публикация: 1139299   (659907) от 02.06.2017
 
-VA - Retrospective Drum 'n' Bass: 10 Years (2018) [MP3|320 Kbps] <Drum'n'Bass>
+VA - Drum&BassArena 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495896.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Simplification - Love Forever (Original Mix) 6:28
-002. Command Strange - One Fine Day (Original Mix) 5:34
-003. Brunno Junglist & j-logic - Leftover Love (Jaybee Remix) 5:39
-004. Stereotype - The Spotless Mind (Original Mix) 6:35(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 09:59:14
+01. Dimension - Generator
+ 02. Sub Focus - Nobody Knows
+ 03. Friction - All Nite
+ 04. The Upbeats - Say Go (feat. Mara TK)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:49:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DEBF7ABDBB2146E0021AEFB49700B1802D80938
+magnet:?xt=urn:btih:2F23863D7C7AE5756BFE60A771B728A7C9228814
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +690,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 933535   (505117) от 02.09.2015
+###  Публикация: 1139716   (659004) от 03.06.2017
 
-Нейромонах Феофан - Притоптать (2015) Single [MP3|320 кб/с]<Drum & Bass>
+Teddy Killerz - Nightmare Street (2017) [MP3|320 Kbps] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505117.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. ПритоптатьЖанр: Drum & BassПродолжительность: 00:02:56
+01. Teddy's Song
+02. Unbelievable
+03. Wasteland (feat. The Qemists)
+04. Bounce(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:56:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1B58CF1B43757BE283FAF1C03A5490F4187826B
+magnet:?xt=urn:btih:CB8DE4CC4E0E2F842533D080A2D10E6EFD92C20D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,28 +719,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 929645   (518513) от 20.08.2015
+###  Публикация: 903636   (656223) от 01.06.2015
 
-VA - Mind Technologies Vol. 6 (2015) [MP3|320 кб/с]<Drum & Bass>
+VA - The Fatboy Slim Collection (2015) 4CD [MP3|320 кб/с]<Breaks, Funk, House, Big Beat, Electro>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518513.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Okuli - Game Over
-02. Invadhertz - Listen Up
-03. Thesys - Brain Data
-04. Double Helix, Host - Velvet Future(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:19:05
+CD 1: 01:19:02
+CD 2: 01:18:40
+CD 3: 01:19:45
+CD 4: 01:18:07Производство: Sony Music / 888750 78432Жанр: Breaks, Funk, House, Big Beat, ElectroПродолжительность: 05:15:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5777AE93073FDA5D2F6F5699E665DBE9759E6816
+magnet:?xt=urn:btih:C2A883CC8D87B659BC59C0230D6F00AA5B537400
 ```
 
 https://mybot314.ru/tekegram_catalog/

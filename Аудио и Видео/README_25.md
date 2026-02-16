@@ -1,25 +1,25 @@
-###  Публикация: 1515156   (170515) от 06.12.2021
+###  Публикация: 984507   (938857) от 09.02.2016
 
-VA - Calm Winter Sea: Chillout Your Mind (2021) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
+Avantasia - Ghostlights (2016) Bonus Version [AAC|256 Kbps]<Power Metal, Hard Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170515.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - Can Summer Last Forever (Original Mix) (5:05)
-02. Michael e - It's Like Floating (Original Mix) (4:45)
-03. Beamy - Daybreak (4:00)
-04. Martin Hiska, Michael Moses - Sandy (4:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:45
+1. Mystery Of A Blood Red Rose
+2. Let The Storm Descend Upon You
+3. The Haunting
+4. Seduction Of Decay(   Читать дальше...   )Жанр: Power Metal, Hard RockПродолжительность: 02:14:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F60E7128EA379CEEBEFC51939C9E368C0CB26559
+magnet:?xt=urn:btih:5ED9EDC21E9A99E04F4B739CD7268789252C41E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515133   (170540) от 06.12.2021
+###  Публикация: 860601   (938809) от 17.01.2015
 
-VA - syncmusic - Essentials, Vol. 1 (2013) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+Убийцы фазана / Fasandræberne (2014) WEB-DLRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170540.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.01. Mano - Castaway Part1 (3:41)
-1.02. Mano - Watching Their Eyes (3:57)
-1.03. Mano - Sunflowers (3:57)
-1.04. Mano - Breathtaking Part1 (3:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:24:48
+В 1994 году двое детей близнецов были найдены зверски убитыми в летнем загородном доме. Ряд фактов указывал на причастность к делу группы молодых студентов, но расследование было прекращено, после того как местный отшельник признал себя виновным в этом инциденте. 20 лет спустя это дело попадает на стол Карлса Мёрка, который начинает подозревать, что в нем что-то не так…Производство: ДанияЖанр: Триллер, криминалРежиссер: Миккель НёргорПродюсер: Йонас Баггер, Луиза Вест, Мадлен ЭкманАктеры: Давид Денсик, Йохан Филип Асбек, Фарес Фарес, Николай Ли Каас, Сара-Софи Бусснина, Даника Куркик, Сёрен Пильмарк, Адам Илд Роведер, Эмма Стехенстед Хеэг, Мортен КирксковПеревод: Любительский (одноголосый) (datynet)Язык субтитров: Русский, АнглийскийПродолжительность: 01:54:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A2B829DC1EA313FA62AC333BE0820C3160223B0
+magnet:?xt=urn:btih:3421C02E274D5211C3F82158834D164E03113447
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515218   (170551) от 06.12.2021
+###  Публикация: 860582   (938807) от 17.01.2015
 
-VA - A Tribe Called Kotori 3 (2019) [AAC|~328 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
+Ярость / Fury (2014) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170551.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Hot Oasis - El Zalaga (6:46)
-02. Oliver Koletzki - Tankwa Town (7:34)
-03. Christos Fourkis - Drunk Salome (5:54)
-04. Nhii - Kasbah De Tarouriert (Señora Remix) (8:47)(   Читать дальше...   )Жанр: Progressive House, Deep House, Downtempo, Afro HouseПродолжительность: 02:27:19
+Стоит апрель 1945 года, и победа над немцами уже близка: союзники уверенно продвигаются вглубь вражеской территории, и оказываемое им сопротивление становится слабее день ото дня. Это, однако, совсем не значит, что на пути к победе союзные войска не потеряют еще множество людей, и многие солдаты сознают, что смерть ждет на расстоянии вытянутой руки. Среди закаленных в бою пессимистов, каждый день ведущих ожесточенные бои во имя победы, экипаж танка, на чьем дуле намалевано слово "Ярость".
+Командир (   Читать дальше...   )Производство: Великобритания, США, Китай /  Columbia Pictures, QED International, LStar CapitalЖанр: боевик, драма, военныйРежиссер: Дэвид ЭйрПродюсер: Дэвид Эйр, Билл Блок, Джон ЛешерАктеры: Брэд Питт, Логан Лерман, Шайа ЛаБаф, Майкл Пенья, Джон Бернтал, Джейсон Айзекс, Джим Пэррак, Брэд Уильям Хенке, Кевин Вэнс, Завьер СэмюэлПеревод: ДублированныйЯзык субтитров: Русский (forced, full), Украинский (forced), Английский (forced, full)Продолжительность: 02:14:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF3D1C7A213F1D783048856E3077FC5FBBB0A7EC
+magnet:?xt=urn:btih:BE882FF8B6916EE72978ED00CD819F8A7B9926F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +80,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515135   (170572) от 06.12.2021
+###  Публикация: 860573   (938805) от 17.01.2015
 
-VA - syncmusic - Essentials, Vol. 3 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+Из темноты / Out of the Dark (2014) WEB-DL [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170572.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-1.01. Atmoman - Russian Spring (3:46)
-1.02. DJ Sleeptalker - You ain´t me (4:02)
-1.03. Velvet Lounge Project - Angkor dreams (Floating RMX) (5:03)
-1.04. Brook Sapphire - My Name in the Sand (Guitar Dust Version) (4:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:39:54
+Пара со своей дочерью переезжают в Колумбию, чтобы заняться делами их семейного обрабатывающего предприятия, но скоро они узнают, что их новый дом населен приведениями…Производство: США, Колумбия, Испания / © 2014 OOTD, LLC. All Rights Reserved.Жанр: триллер, ужасыРежиссер: Йуис КилесПродюсер: Кристиан Конти, Энрике Лопес Лавинье, Белен АтьенсаАктеры: Пикси Дейвис, Алехандро Ферт, Стивен Ри, Скотт Спидман, Джулия Стайлз, Гильермо Моралес ВитолаПеревод: Двухголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:33:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCF65F793F962A1E0687BF3AB56A1DF21C8BF9E1
+magnet:?xt=urn:btih:B087BA5B9128C8E27BCD46DF0EB11CA75BA4049F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515134   (170583) от 06.12.2021
+###  Публикация: 860530   (938801) от 17.01.2015
 
-VA - syncmusic - Essentials, Vol. 2 (2017) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
+Стивен Кинг | Буря столетия (2013) [m4b|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170583.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.01. DJ Sleeptalker - First Contact (Pete Dingon Mix) (5:33)
-1.02. Anthony Island - Open Water (4:50)
-1.03. Eric Driven - Wishful Times (5:50)
-1.04. Velvet Lounge Project - Mi Cielo Azul (Han Solo Remix) (4:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:39:09
+На маленький дальний островок идет буря. Страшная буря, сметающая все на своем пути. И вместе с бурей приходит Зло – странный человек, который убивает по какому-то лишь ему известному плану. Человек, который обладает чудовищной властью. Человек, который не уйдет, пока не получит то, за чем явился...Жанр: Триллер, мистика, ужасыФормат: m4bПродолжительность: 09:02:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40D66A345E8AC2235F9F0BB4E1B68D6C703BDA3F
+magnet:?xt=urn:btih:A061E82EDCAAC7D6038306FEDDABC27ADA5BDEA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +132,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515215   (170591) от 06.12.2021
+###  Публикация: 984758   (938748) от 09.02.2016
 
-VA - A Tribe Called Kotori 2 (2018) [AAC|~333 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
+Анеко Юсаги | Становление Героя Щита [Книга 5] (2016) [m4b|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170591.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Christos Fourkis - Ma Muse (Harri Agnel Remix) (8:14)
-02. Kermesse - Camomille (8:27)
-03. Canu, Alejandro Castelli, Nu - Mariposa (DAVI Remix) (7:45)
-04. Ilu & Aaye - Amrum (8:11)(   Читать дальше...   )Жанр: Progressive House, Deep House, Downtempo, Afro HouseПродолжительность: 03:15:11
+На острове Кальмира грядёт событие под названием Оживление - весь опыт, полученный там в боях с монстрами, значительно увеличен на время действия ивента. А потому королева Мелромарка отправляет туда всех героев, чтобы они как можно выше подняли свои уровни. А Наофуми предстоит знакомство с парочкой необычных и необычайно сильных авантюристов.Жанр: ЛитРПГ, фэнтези, приключенияФормат: m4bПродолжительность: 07:22:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:338086A0E3A9ADF21542CE64EC4453EAAD9F9E88
+magnet:?xt=urn:btih:851E032D5FC12D336A37951C2E96BDBDC34FF3DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +158,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515212   (170608) от 06.12.2021
+###  Публикация: 984400   (938733) от 09.02.2016
 
-VA - A Tribe Called Kotori 1 (2018) [AAC|~330 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
+Ночные Снайперы - Выживут только влюбленные (2016) [AAC|WEB-DL|256 кб/с]<Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170608.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oliver Koletzki - A Tribe Called Kotori (6:10)
-02. Nu - Drug (7:12)
-03. Acid Pauli - Edda's Cumbia (4:14)
-04. Be Svendsen - Voice of Tohe (8:10)(   Читать дальше...   )Жанр: Progressive House, Deep House, Downtempo, Afro HouseПродолжительность: 03:09:31
+01. шагай
+ 02. наотмашь
+ 03. этонемне
+ 04. помолчим(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04DA74BBF15E2E13CB9EDEB09CC143A6048E116A
+magnet:?xt=urn:btih:41E67984B9D45946AEE1BAB7F79DE4174FEC1A53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +187,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430477   (170775) от 10.12.2020
+###  Публикация: 984584   (938715) от 09.02.2016
 
-VA - The Forest Chill Lounge, Vol. 1 (2012) [AAC|~315 Kbps] <Chillout, Lounge, Downtempo>
+Виктор Гюго | Человек, который смеется (2008) [m4b|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170775.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. For Found Future - The Forest Dreams (Artenovum Piano Mix) (5:02)
-02. Marie Therese - Black Swan (3:37)
-03. Jean Mare - Lost Enigma (Smooth Spherical Mix) (7:30)
-04. Artenovum - Far East (Atmospheric Voices Mix) (4:58)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:15:17
+Этот роман принадлежит к числу наиболее известных произведений Гюго. Развитие событий, драматичное и динамичное, неожиданные перемены в судьбах героев, то сулящие счастье, то, повергающие в отчаяние, увлекают вас в мир необыкновенных приключений. А авторские отступления, содержащие рассуждения исторического, философского и общекультурного характера, позволяют вам (   Читать дальше...   )Жанр: РоманФормат: m4bПродолжительность: 26:21:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFD50B74D4EFF7EEF1F378F09FDC885A09456FF4
+magnet:?xt=urn:btih:9A6F1F56CF58F50DCD502FD8CA15B1CB0ED4ED83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +213,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670116   (171720) от 22.10.2023
+###  Публикация: 860663   (938692) от 17.01.2015
 
-Astral Projection - In the Mix (2000) [AAC|329-362 kbps] <Goa Trance, Progressive Trance>
+Федор Михайлович Достоевский | Бесы (2006) [m4b|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171720.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Sundown:
-01. Another World (Floorplay Remix) (6:03)
-02. Ionized (5:31)
-03. Let There Be Light (7:17)(   Читать дальше...   )Жанр: Goa Trance, Progressive TranceПродолжительность: 02:38:45
+В романе "Бесы" со всей мощью и глубиной раскрылся гений Ф.М.Достоевского как писателя-провидца. Название романа символично. В политической, социальной и нравственной жизни России назревали бури и трагедии небывалой силы. Как никогда велик соблазн построения рая без Бога, всеобщего счастья без устаревших нравственных императивов: Душа человеческая перед нами ареной борьбы Добра и Зла как двух мировых порядков. Но под силу ли ей вынести эту титаническую борьбу?...Жанр: Социально-философский романФормат: m4bПродолжительность: 29:28:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86FB799F5CF4EEC497C23EAA06D5ECA114791A40
+magnet:?xt=urn:btih:868E14CFB4C8A51E27D10233F1CC5740FB1EA6DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +239,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430476   (173705) от 10.12.2020
+###  Публикация: 860669   (938678) от 17.01.2015
 
-VA - The Forest Chill Lounge, Vol. 2 (2012) [AAC|~313 Kbps] <Chillout, Lounge, Downtempo>
+Эрих Мария Ремарк | Три товарища (2005) [M4B|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173705.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pascheba - Vi Ser (Chillout Cut) (5:22)
-02. For Found Future - Hypnotic Dreams (Transformation Downbeat Cut) (5:17)
-03. Jean Mare - Space Experience (Electronic Sphere Mix) (5:55)
-04. Houie D. - Sun over Gobi (4:07)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:17:32
+Германия после первой мировой войны. Экономический кризис. Искалеченные судьбы людей и их души. Как говорит один из героев романа, «мы живём в эпоху отчаяния».Жанр: РоманФормат: M4BПродолжительность: 16:50:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BB43432A15DC714448DB0C0E8325196140FBCED
+magnet:?xt=urn:btih:70140A63F43A12080A387262F9F35344DA67A4E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +265,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430421   (173715) от 10.12.2020
+###  Публикация: 627783   (938630) от 09.03.2013
 
-VA - The Forest Chill Lounge, Vol. 10 (2017) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
+Крученый мяч / Trouble with the Curve (2012) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173715.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum, Svetlana - Virus to Heaven (Svetlana Vocal Mix) (5:06)
-02. Jean Mare - Another Orbit (Your Dreams Mix) (3:35)
-03. For Found Future - A Place in the Sun (Sunset Chillout Mix) (4:56)
-04. Richard Bonnee - Frost Point Zero (Deep Space Groove Mix) (7:02)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:44:23
+История пожилого бейсбольного скаута. Герой постепенно теряет зрение и вместе с дочерью в последний раз отправляется на поиски будущих звезд бейсбола.Жанр: комедияРежиссёр: Роберт ЛоренцВ ролях: Клинт Иствуд, Джастин Тимберлэйк, Эми Адамс, Джон Гудмен, Боб Гантон, Мэттью Лиллард, Роберт Патрик, Челси Росс, Джордж Уайнер, Эд ЛотерПеревод: Русский многоголосый закадровыйЯзык субтитров: Отсутствуют
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EED5B2DB0C8080B4F6E32EDF117CD0760CDB672
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +291,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430469   (173730) от 10.12.2020
+###  Публикация: 984425   (938608) от 09.02.2016
 
-VA - The Forest Chill Lounge, Vol. 3 (2013) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
+Scorpions - World Wide Live (2015) 50th Anniversary Deluxe Edition [AAC|256 Kbps]<Hard Rock, Arena Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173730.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Blue Sun (5:34)
-02. Jean Mare - Ageless (Allmira Enigmatic Mix) (4:53)
-03. Lebensart - Atmo Chant (Voices from Nowhere Mix) (6:30)
-04. Richard Bonnee - Voices of the Misty Dream (Soundcloud Chillout Mix) (5:00)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:51:18
+1. Countdown (Live)
+2. Coming Home (Live)
+3. Blackout (Live)
+4. Bad Boys Running Wild (Live)(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 01:19:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B0EF0DF9EB869016ACD7AF25B5603CA8004ACBE
+magnet:?xt=urn:btih:38CC230EE5FC727E503F029A960FB439F5633792
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +320,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430456   (173733) от 10.12.2020
+###  Публикация: 984385   (938589) от 09.02.2016
 
-VA - The Forest Chill Lounge, Vol. 7 (2015) [AAC|~305 Kbps] <Chillout, Lounge, Downtempo>
+Scorpions - Blackout (1982) [AAC|256 Kbps]<Hard Rock, Heavy Metal>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173733.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Waiting for the Horizon (Dreamful Sky Mix) (5:23)
-02. Jean Mare - Sine Cascading (Sunset Chill Mix) (4:24)
-03. The Space Ensemble Project - Galileo in Minds (Great Chillout Mix) (5:48)
-04. Guardians of Secret - Guinean Warmth (Mystic Voice Mix) (4:59)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:55:38
+1. Blackout
+2. Can't Live Without You
+3. No One Like You
+4. You Give Me All I Need(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:611DD723571F58742C4BCFCA32B9CF1179F38A91
+magnet:?xt=urn:btih:3275D3D6278C02A8FE32A0DD4532A1C67F8A4BB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +349,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430464   (173739) от 10.12.2020
+###  Публикация: 984172   (938580) от 09.02.2016
 
-VA - The Forest Chill Lounge, Vol. 5 (2014) [AAC|~318 Kbps] <Chillout, Lounge, Downtempo>
+VA - 100 Essential Soul & Funk Classics (2010) [AAC|256 кб/с] <Soul & Funk>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173739.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938580.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lebensart - Talking Heaven (Lounge Soundscape Mix) (4:36)
-02. Richard Bonnee - Morning Sitar (Atmosphere Mix) (4:43)
-03. Artenovum - Missing You (Beauty Way of Life Instrumental Mix) (4:25)
-04. Sannan, Bogar, Zongeri - Moonrise in Paradise (3:49)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:44:31
+01. Ray Charles - I've Got a Woman 02:52
+02. Ben E. King - Stand By Me 02:52
+03. Aretha Franklin - Respect (Remastered) 02:23
+04. The Marvelettes - Please Mr. Postman (Single Version) 02:27(   Читать дальше...   )Жанр: Soul & FunkПродолжительность: 06:13:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCED5D35D46B988E30F6D507AAE1FDB0B39CCF84
+magnet:?xt=urn:btih:A63115BEF8CE8D3A27B5875AEF51D521C8FAD260
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +378,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430466   (173748) от 10.12.2020
+###  Публикация: 753044   (938467) от 04.02.2014
 
-VA - The Forest Chill Lounge, Vol. 4 (2014) [AAC|~315 Kbps] <Chillout, Lounge, Downtempo>
+Беглецы / Les fugitifs (1986) HDRip [480p] iPhone/iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173748.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Lebensart - My Forest Time (Mystic Gregorian Voice Mix) (5:24)
-02. Artenovum - Timeline (Ambient Deluxe Mix) (4:58)
-03. Jean Mare - Et Cetera (Opus Chillout Mix) (6:31)
-04. Wallenski - Plektronica, Pt. 1 (7:30)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:49:30
+Нескладный грабитель банка захватывает в заложники бывшего «крутого» заключенного. Полиция бросается за ними в погоню, герои меняются ролями. «Заложник» становится нянькой «похитителя» и «отцом» его немой дочери. Теперь «крутой», который сидел за 14 ограблений банков твердо решил «завязать». Он помогает странной семейке скрываться от полиции, навлекая на себя массу новых проблем. Но, в награду ему будет атмосфера семейной любви, о чем он не имел понятия, и даже маленькое чудо, произошедшее с немой девочкой…Жанр: комедия, криминалВ ролях: Пьер Ришар, Жерар Депардье, Жан Карме, Морис Барье, Жан Бенгиги, Ролан Бланш, Анаис Бре, Филипп Лельевр, Ивелин Айо, Дидье ПэнПеревод: Русский многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:29:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69D903E67E9E0CAA347ECCD24E94672C5B177886
+magnet:?xt=urn:btih:47C3571642DD85031B14D73FC870DDA3E09DDE71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +404,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430457   (173809) от 10.12.2020
+###  Публикация: 1092477   (938414) от 12.01.2017
 
-VA - The Forest Chill Lounge, Vol. 6 (2015) [AAC|~305 Kbps] <Chillout, Lounge, Downtempo>
+Бегущая от реальности / Complete Unknown (2016) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173809.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Der Moment (Wellness Deluxe Version) (6:33)
-02. Dream Project - Where Are You (Deep Moods Chillout Mix) (4:13)
-03. Jean Mare - Such a Lonely Time (Groovy Downbeat Mix) (4:11)
-04. Bernon - Waterline (Slow Motion Mix) (6:28)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:53:29
+Во время ужина в день своего рождения Том встречает среди гостей загадочную девушку по имени Элис. Том убежден, что они были знакомы и более чем близки, но таинственная гостья не признается и представляется совершенно другим человеком. Когда Элис сбегает, Том следует за ней, бросается в неизвестность. Вместе они становятся абсолютно свободными, анонимными, теряются (   Читать дальше...   )Производство: СШАЖанр: Драма, детективРежиссер: Джошуа МарстонАктеры: Рэйчел Вайс, Майкл Шеннон, Кэти Бейтс, Дэнни Гловер, Кондола Рашад, Майкл Чернус, Эрин Майя Дарк, Гензель Тан, ФаТай, Зэк АппельманПеревод: Многоголосый закадровый (iTunes)Субтитры: НетПродолжительность: 01:31:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EAB91A559A4639EB96B2EEA5D210A64C16B0C29
+magnet:?xt=urn:btih:D395C06B519202ECC7E426FC2F7CD03B3AEE36EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +430,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430409   (173816) от 10.12.2020
+###  Публикация: 753240   (938375) от 04.02.2014
 
-VA - The Forest Chill Lounge, Vol. 14 (2019) [AAC|~309 Kbps] <Chillout, Lounge, Downtempo>
+Toni Braxton and Babyface - Love, Marriage and Divorce (2014) [AAC|WEB-DL|256 кб/с]<R&B, Pop, Soul>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173816.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Dream Away (Deep Moods Chillout Mix) (5:24)
-02. Jean Mare - Light Score (Mystic Downbeat Mix) (4:45)
-03. Richard Bonnee - Cliffhanger (Deep Electronic Cut) (4:45)
-04. Pascheba - Mentira (Mystic Beat Mix) (5:21)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:45:15
+01. Roller Coaster (04:23)
+ 02. Sweat (04:27)
+ 03. Hurt You (04:11)
+ 04. Where Did We Go Wrong (03:37)
+ 05. I Hope That You're Okay (03:54)
+ 06. I Wish (03:03)
+ 07. Take It Back (04:05)
+ 08. Reunited (03:18)
+ 09. I'd Rather Be Broke (03:38)
+ 10. Heart Attack (03:52)(   Читать дальше...   )Жанр: R&B, Pop, SoulПродолжительность: 00:43:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8675E166579C6948E4968780B295132359D74025
+magnet:?xt=urn:btih:56F41E56525BBEBB67CB24B8D361B2AE22CD0729
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +465,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430412   (173828) от 10.12.2020
+###  Публикация: 984406   (938333) от 09.02.2016
 
-VA - The Forest Chill Lounge, Vol. 13 (2018) [AAC|~311 Kbps] <Chillout, Lounge, Downtempo>
+Olafur Arnalds & Alice Sara Ott - The Chopin Project (2015) [ALAC|Lossless|WEB-DL|tracks]<Modern Classical, Piano>
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173828.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Deep Siberian Landscape (East River Long Mix) (4:35)
-02. Richard Bonnee - Reflecting (Deep Space Mix) (5:11)
-03. Jean Mare - Ns 10 (Deep Space Late Night Mix) (4:14)
-04. Artenovum - Mystic Island (Chilling Time Mix) (4:32)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:24:31
+01. Verses 4:03
+02. Piano Sonata No.3 - Largo 9:17
+03. Nocturne in C sharp minor (feat. Mari Samuelsen) 4:24
+04. Reminiscence 4:28(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:45:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89D6A56C8A625763A9EEEA800105CFDEA130A7D0
+magnet:?xt=urn:btih:8377E684215F1C58A460C852862110E9DAD94ABA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +494,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430448   (173837) от 10.12.2020
+###  Публикация: 860529   (938318) от 17.01.2015
 
-VA - The Forest Chill Lounge, Vol. 8 (2016) [AAC|~323 Kbps] <Chillout, Lounge, Downtempo>
+Ярость / Fury (2014) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173837.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Lebensart - Eastern Sunset (World Colours Mix) (5:03)
-02. Lebensart - Die Leichtigkeit des Seins (Klangteppich Mix) (5:34)
-03. Buddhatronic - Trance Icon (Modern Deep Choir Mix) (4:28)
-04. Jean Mare - Dandelons in Space (Deep Flow Ambient Lounge Mix) (7:21)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:41:22
+Стоит апрель 1945 года, и победа над немцами уже близка: союзники уверенно продвигаются вглубь вражеской территории, и оказываемое им сопротивление становится слабее день ото дня. Это, однако, совсем не значит, что на пути к победе союзные войска не потеряют еще множество людей, и многие солдаты сознают, что смерть ждет на расстоянии вытянутой руки. Среди закаленных в бою пессимистов, каждый день ведущих ожесточенные бои во имя победы, экипаж танка, на чьем дуле намалевано слово "Ярость".
+Командир (   Читать дальше...   )Производство: Великобритания, США, Китай /  Columbia Pictures, QED International, LStar CapitalЖанр: боевик, драма, военныйРежиссер: Дэвид ЭйрПродюсер: Дэвид Эйр, Билл Блок, Джон ЛешерАктеры: Брэд Питт, Логан Лерман, Шайа ЛаБаф, Майкл Пенья, Джон Бернтал, Джейсон Айзекс, Джим Пэррак, Брэд Уильям Хенке, Кевин Вэнс, Завьер СэмюэлПеревод: Дублированный, Одноголосый закадровыйЯзык субтитров: Русский (forced, full), Украинский (forced), Английский (forced, full)Продолжительность: 02:14:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E90F4203C780E602F117450E5D22433073D4BA8
+magnet:?xt=urn:btih:DD964AB970661D5D00498D9188B5B3F83827782C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +521,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430407   (173856) от 10.12.2020
+###  Публикация: 628281   (938264) от 09.03.2013
 
-VA - The Forest Chill Lounge, Vol. 15 (2019) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
+Слияние двух лун / Two Moon Junction (1988) HDTVRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173856.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Jean Mare - Breath of Dawn (Atmosphere Voice Mix) (4:34)
-02. Book of Dreams - Master of Voices (Place of Mystic Sounds Cut) (4:19)
-03. Artenovum - Voyage (Enigmatic Spirit Mix) (5:04)
-04. Guardians of Secret - Endless Movements (Alchemy Mix) (5:06)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:08:43
+Жизнь юной и обворожительной Эйприл похожа на прекрасную сказку - знатные родители, шикарный дом, бабушка - миллионерша и респектабельных жених из богатой аристократической семьи. В высшем обществе они считаются идеальной парой.
+Но за две недели до свадьбы Эйприл, беспокойная и чувственная натура, влюбляется в загадочного мускулистого красавца Перри, работающего в приехавшем в город передвижном парке аттракционов, и они с головой окунаются в омут всепоглощающей страсти...Жанр: драма, мелодрамаРежиссёр: Залман КингВ ролях: Шерилин Фенн, Милла Йовович, Ричард Тайсон, Луиза Флетчер, Берл Айвз, Кристи МакНикол, Мартин Хьюит, Хуанита Мур, Дон Гэллоуэй, Милли ПеркинсПеревод: Русский многоголосый закадровыйЯзык субтитров: Отсутствуют
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60603FF8A4D6A55B2CC45F9786A7853E680FC444
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430419   (173868) от 10.12.2020
+###  Публикация: 628211   (938260) от 09.03.2013
 
-VA - The Forest Chill Lounge, Vol. 11 (2017) [AAC|~313 Kbps] <Chillout, Lounge, Downtempo>
+Старая добрая оргия / A Good Old Fashioned Orgy (2011) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173868.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Sunrays Melody (Piano Clouds Mix) (5:58)
-02. For Found Future - My Book of Dreams (Far Away Mix) (5:35)
-03. Jazzy System - The Next A (Deep Cool Mix) (6:27)
-04. Jean Mare - Vector (Wide Atmoshere Mix) (5:00)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:48:17
+У тридцатилетнего Эрика неприятность: отец решил продать семейный загородный дом в Хэмптоне! Тот самый дом, в котором вот уже много лет подряд Эрик проводит грандиозные тематические вечеринки. Очевидно, теперь Эрику придется наконец-то повзрослеть и «взяться за ум». Но перед тем как дом уйдет с молотка, Эрик и группа друзей решают устроить заключительную, самую сумасшедшую прощальную вечеринку — Старую добрую оргию…Жанр: комедияРежиссер: Алекс Грегори, Питер ХайкАктеры: Джейсон Судейкис, Лесли Бибб, Лэйк Белл, Мишелль Борт, Ник Кролл, Тайлер Лэбин, Анджела Сарафян, Линдсей Слоун, Мартин Старр, Люси ПанчПеревод: ДублированныйФормат: MP4 (контейнер m4v)Продолжительность: 01:34:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3B54577E7C5B6A91B04EAAFBA94F5B690F016AF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +574,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430446   (173893) от 10.12.2020
+###  Публикация: 984277   (938249) от 09.02.2016
 
-VA - The Forest Chill Lounge, Vol. 9 (2016) [AAC|~323 Kbps] <Chillout, Lounge, Downtempo>
+Ludovico Einaudi - Elements (2015) Deluxe Edition [ALAC|Lossless|WEB-DL|tracks]<Modern Classical, Piano>
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173893.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soundset City - Floating Away (Dream Lounge Mix) (5:02)
-02. Marie Therese - Endless Time (4:28)
-03. Artenovum - Siberian Skys (Wide Sphere Cut) (4:43)
-04. Pascheba - Satori (4:11)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:31:47
+01. Ludovico Einaudi & Daniel Hope - Petricor 6:35
+02. Ludovico Einaudi & Amsterdam Sinfonietta - Night 5:31
+03. Ludovico Einaudi - Drop 5:00
+04. Ludovico Einaudi & Amsterdam Sinfonietta - Four Dimensions 4:42(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 01:15:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF0602DD2E7503D76CB1C67E65DA0EA2F2AF15CB
+magnet:?xt=urn:btih:B43532006CAE1B563E0F63FA8941D85AA35B5979
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +603,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430415   (173899) от 10.12.2020
+###  Публикация: 753307   (938246) от 04.02.2014
 
-VA - The Forest Chill Lounge, Vol. 12 (2018) [AAC|~308 Kbps] <Chillout, Lounge, Downtempo>
+Беглецы / Les fugitifs (1986) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173899.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Alexel - Sky Orb (4:43)
-02. Guardians of Secret - Secret Code (Mystic Voices Mix) (5:47)
-03. Artenovum - Garden of Eden (Loon Garden Mix) (4:36)
-04. Jean Mare, Svetlana - Everything (Vocal Soundscape Mix) (5:58)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:42:24
+Нескладный грабитель банка захватывает в заложники бывшего «крутого» заключенного. Полиция бросается за ними в погоню, герои меняются ролями. «Заложник» становится нянькой «похитителя» и «отцом» его немой дочери. Теперь «крутой», который сидел за 14 ограблений банков твердо решил «завязать». Он помогает странной семейке скрываться от полиции, навлекая на себя массу новых проблем. Но, в награду ему будет атмосфера семейной любви, о чем он не имел понятия, и даже маленькое чудо, произошедшее с немой девочкой…Жанр: комедия, криминалВ ролях: Пьер Ришар, Жерар Депардье, Жан Карме, Морис Барье, Жан Бенгиги, Ролан Бланш, Анаис Бре, Филипп Лельевр, Ивелин Айо, Дидье ПэнПеревод: Русский многоголосый закадровый, дублированныйЯзык субтитров: РусскийПродолжительность: 01:29:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFCA8DC8916364B71A398E1736F9A09BB99E6613
+magnet:?xt=urn:btih:D9BC902601FE43897D3665E79BFB845FD9513CE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +629,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429925   (175085) от 08.12.2020
+###  Публикация: 753354   (938241) от 04.02.2014
 
-VA - The Forest Chill Lounge, Vol. 17 (Deep Moods Music with Smooth Ambient & Chillout Tunes) (2020) [AAC|~303 Kbps] <Chillout, Lounge, Downtempo>
+Маленький Принц: "Планета Огненной Птицы"  / Le Petit Prince: La planete de l'oiseau de feu (2010) BDRip [480p] iPhone/iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175085.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Richard Bonnee - Native American (2:21)
-02. Artenovum - A Voyage to Nowhere (4:36)
-03. Jean Mare - Slow Rise (4:31)
-04. Guardians of Secret - Pigments (Voices World Cut) (4:07)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:17:39
+Маленький Принц путешествует по разным планетам. Его ждут необычные встречи...Жанр: мультфильмВ ролях: Гэбриел Бисмут Бьенэмэ, Франк Капиллери, Гийом Гальенн, Брайан Драммонд, Мари Жиллен, Валин ШинейПеревод: Русский дублированныйЯзык субтитров: нетПродолжительность: 00:46:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39E00571CE091FE3F73B5DAD02719FC8E2BD8556
+magnet:?xt=urn:btih:54E889FA8CFB2F74656F750A0991F778F05DE7B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +655,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429930   (175121) от 08.12.2020
+###  Публикация: 753196   (938155) от 04.02.2014
 
-VA - The Forest Chill Lounge, Vol. 16 (Deep Moods Music with Smooth Ambient & Chillout Tunes) (2020) [AAC|~308 Kbps] <Chillout, Lounge, Downtempo>
+VA - Official Album Of Sochi 2014 - Olympic Games (2014) [AAC|WEB-DL|256 кб/с]<Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175121.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Jean Mare - Beau Vallon (Chillout Dreamsphere Mix) (4:44)
-02. Buddhatronic - Ambervox (4:01)
-03. Richard Bonnee - Transmission (5:01)
-04. Artenovum - Near and Far (Return to Gravity Mix) (5:02)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:21:05
+1.Валерия, Дима Билан, София Ротару, Филипп Киркоров, Юлия Савичева, Владимир Пресняков (младший), Макс Покровский & Банда - Гимн Олимпиады - 2014 (2:42)
+2.Алина Артц - Олимпийский Танец (3:40)
+3.Змей & Ёлка - У Неба Есть Мы (3:58)
+4.Анна Сулицына & Валерия - И Снова В России (4:22)
+5.Кирилл Уханов & Дмитрий Колдун - Гимн Олимпийских Игр (3:51)
+6.Олеся Халме & Алёна Свиридова - Олимпиада (4:32)
+7.Teni & Владимир Пресняков (младший) - Время Побед (3:27)
+8.Нафа & Бурановские Бабушки - Олимпийская (3:23)
+9.Сергей Иванов & Жанна Фриске - Олимпийский Огонь (3:32)
+10.Сергей Дёмин & Жасмин - Здравствуй, Олимпиада! (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08A273EA1B0EF40DF02AAFAD0EFC8110872BFEBB
+magnet:?xt=urn:btih:1D5CECB4EF637B2B3EFFB9AD97CB6B66660B0CF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,28 +690,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429932   (175176) от 08.12.2020
+###  Публикация: 753369   (938134) от 04.02.2014
 
-VA - Best of Smooth Lounge, Vol. 1 (A Finest Selection of Chill & Modern Bar Tracks) (2020) [AAC|~296 Kbps] <Chillout, Trip-hop, Lounge>
+Маленький Принц "Планета Времени" / Le Petit Prince-La planete du temps (2010) BDRip [480p] iPhone/iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175176.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Beatwork - Laid Back (5:49)
-02. Audiozoom - Downtown City Lights (4:32)
-03. Nightzoom - Drive in Town (Smoke in the City Mix) (4:14)
-04. Bernon - Short Harmony (Nu Jazz Lounge Mix) (4:56)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:09:58
+Маленький Принц путешествует по разным планетам. Его ждут необычные встречи...Жанр: мультфильмВ ролях: Гэбриел Бисмут Бьенэмэ, Франк Капиллери, Гийом Гальенн, Брайан Драммонд, Мари Жиллен, Валин ШинейПеревод: Русский дублированныйЯзык субтитров: нетПродолжительность: 00:43:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C2C527E6F49AF7F05EA37FA639368F598A1E0C1
+magnet:?xt=urn:btih:855D0DDA4CCBD2C515604051D68E77A9B307C91D
 ```
 
 https://mybot314.ru/tekegram_catalog/

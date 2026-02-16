@@ -1,26 +1,22 @@
-###  Публикация: 469974   (97048) от 18.03.2012
+###  Публикация: 978732   (962103) от 24.01.2016
 
-[Wallpapers] Desktop Wallpapers Pack 96
+Рок на Востоке / Rock the Kasbah  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97048.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 96
-Название: Desktop Wallpapers Pack 96
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Никому не нужный музыкальный продюсер находит последний шанс в спасении молодой девушки с золотым голосом в Афганистане.Производство: США, Shangri-La Entertainment, QED International, Dune Films, Venture ForthЖанр: комедия, музыкаРежиссер: Барри ЛевинсонАктеры: Билл Мюррей, Брюс Уиллис, Кейт Хадсон, Зои Дешанель, Лим Лубани, Ариан Моайед, Скотт Каан, Дэнни МакБрайд, Фахим Фазли, Имран Кхан, Самир Али КханПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанский, французскийПродолжительность: 01:46:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DED8747CD825E3C7E948EECCB2EA4B1148CAD89D
+magnet:?xt=urn:btih:2777679A2BB08C557A82D4CAABF9FB77095F56FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,29 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469973   (97049) от 18.03.2012
+###  Публикация: 978813   (962102) от 24.01.2016
 
-[Wallpapers] Desktop Wallpapers Pack 95
+MEGA Sync Client 2.6.1 (459bd) [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97049.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 95
-Название: Desktop Wallpapers Pack 95
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+MEGA (файлообменник) - безопасный сервис облачного хранения и обмена файлами, который предоставляет 50 ГБ надежного хранилища бесплатно. Вы можете расширить облачное хранилище, используя платный Pro-аккаунт, с 500 ГБ до 4 ТБ. В отличие от многих других провайдеров облачных систем хранения данных, с использованием Mega ваши данные шифруются и расшифровываются только (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23A7A0FBBC819342E415AB93F5D96E2CAEA7D3A7
+magnet:?xt=urn:btih:BCEA521BC4C84B1B8F13355900F3710655478E05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -58,29 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470179   (97050) от 18.03.2012
+###  Публикация: 978868   (962101) от 24.01.2016
 
-[Wallpapers] Nature Pictures №30
+CrystalDiskInfo 6.7.3 Final + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97050.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №30
-Название: Nature Pictures №30
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21E8BEC468C664B09515A7AE868803CFD38DC883
+magnet:?xt=urn:btih:90FA64FB1E030B2ED749A34BD1A6CF0FE6CD6FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,29 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469577   (97051) от 18.03.2012
+###  Публикация: 978873   (962098) от 24.01.2016
 
-[Wallpapers] Desktop Wallpapers Pack 91
+Leibo 5.9.110.11137 [Cn]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97051.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 91
-Название: Desktop Wallpapers Pack 91
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Leibo (Cheetah Browser, KSbrowser, Kingsoft Cheetah Web Browser) - это всё Chromium со специальным мощным антивирусным комплексом, созданный фирмой Kingsoft. Здесь предусмотрены: проверка скачиваемого файла, элементы проактивной защиты, проверка сертификатов сайтов, база известных вредоносных сайтов и другое.Язык интерфейса: Китайский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:524093C96FB89C0207814EE642CC46D126A2AD3C
+magnet:?xt=urn:btih:E120CD5C4BA15FB6AFBAC0F96C431743BFD57B6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -118,29 +102,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470141   (97052) от 18.03.2012
+###  Публикация: 744762   (962066) от 19.01.2014
 
-[Wallpapers] HD Wallpapers Pack 1
+Время / In Time (2011) BDrip [H.264/720p] [hand made 60fps]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97052.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 1
-Название: HD Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Добро пожаловать в мир, где время стало единственной и самой твердой валютой, где люди генетически запрограммированы так, что в 25 лет перестают стареть. Правда, последующие годы стоят денег. И вот богатые становятся практически бессмертными, а бедные, как всегда, обречены сражаться за жизнь.
+
+Уилл, бунтарь из гетто, несправедливо обвинен в убийстве с целью грабежа (   Читать дальше...   )Жанр: Фантастика, Триллер, ДрамаРежиссер: Эндрю НикколАктеры: Джастин Тимберлэйк , Аманда Сайфред , Киллиан Мёрфи , Алекс Петтифер , Винсент Картайзер , Джонни Галэки , Коллинс Пенни , Тоби Хемингуэй , Оливия Уайлд , Шайло УствальдПеревод: ДублированныйЯзык субтитров: Rus (форсированные)Продолжительность: 01:49:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72239D999F5AD95335C68EB4EE064ABAB924A57A
+magnet:?xt=urn:btih:A47E2A36A5C2A10CFA06B84583853C4772B896B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -148,29 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469527   (97053) от 18.03.2012
+###  Публикация: 978847   (962040) от 24.01.2016
 
-[Wallpapers] Desktop Wallpapers Pack 83
+Однажды в России. Сезон 2. Выпуск 23 (2016.01.24) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97053.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 83
-Название: Desktop Wallpapers Pack 83
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680x1050 - 3200х200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуПродолжительность: 00:43:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29881536FC8AA8E472B76ED2F087F6E0A0BCFD60
+magnet:?xt=urn:btih:3EF6F8A70278678F8F030BEFEEEC55814FB037E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -178,29 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469972   (97054) от 18.03.2012
+###  Публикация: 978874   (962033) от 24.01.2016
 
-[Wallpapers] Desktop Wallpapers Pack 94
+Мученицы / Martyrs  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97054.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 94
-Название: Desktop Wallpapers Pack 94
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050/1600х1200 - 2560х1920
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Спустя год после своего исчезновения, десятилетняя Люси неожиданно находится. Девочка так напугана, что не может ни с кем разговаривать и рассказать, что же с ней произошло. Проходит 10 лет. Люси все еще продолжают посещать кошмары и она не оставляет попыток выяснить, что с ней тогда случилось. И когда она, наконец, вместе со своей подругой, приближается вплотную (   Читать дальше...   )Производство: США, Blumhouse Productions, Safran Company, The, Temple Hill EntertainmentЖанр: ужасы, триллер, драмаРежиссер: Кевин Гетц , Майкл ГетцАктеры: Тройэн Эвери Беллисарио, Кэйтлин Кармайкл, Кейт Бёртон, Бэйли Ноубл, Тоби Хасс, Лекси ДиБенедетто, Тейлор Джон Смит, Диана Хоппер, Блейк Роббинс, Питер Майкл Гец, Бориана Уильямс, Эдвин МодлинПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:28:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0490EF0C460819B6B4EFA58B9732DBFAA44D1186
+magnet:?xt=urn:btih:21353F2FCC4EC6B4DFBDBD21D7CCCEDA99AA4D7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,334 +182,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469673   (97055) от 18.03.2012
+###  Публикация: 978259   (962031) от 24.01.2016
 
-VA - Зарубежная Танцевалка (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elena Gheorghe - Midnight Sun
-02. Marquess - Chapoteo
-03. Arash - Melody (Radio Edit)
-04. DJ Mendez - Josephine
-05. DJ San & Wendel Kos - Kiss Of Life
-06. Christopher S feat. Lisa - There For You
-07. Adrian Sina feat. Sandra N. - Angel (Radio Edit)
-08. Shahzoda feat. Akcent - All Alone
-09. Sunstroke Project & Offbeat - Epic Sax
-10. Rihanna - Man Down2012Жанр: Pop,DanceПродолжительность: 06:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B80C1BA26BAE50F160FB1368C00121D56601D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469544   (97056) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 86
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97056.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 86
-Название: Desktop Wallpapers Pack 86
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х800 - 1920x1080
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE9E3E188076F6F216EEC7C00E1D24F45D60AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470005   (97057) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 99
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97057.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 99
-Название: Desktop Wallpapers Pack 99
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C6273204F4B8B8985EA45CA974F2D4C58E660E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469547   (97058) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 87
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97058.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 87
-Название: Desktop Wallpapers Pack 87
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 4000х2500
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9903D6AE293F15E5B0FC8C8E2BFD48D7134985F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468993   (97059) от 18.03.2012
-
-Eric Sneo - Brainhammer EP (2004) [MP3|192 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Big it up (5:11)
-02. Break on through (5:34)
-03.  Bang that brain (6:12)2004Жанр: TechnoПродолжительность: 00:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED2C02C6956984690F447A804E0CE4B2121D871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470004   (97060) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 98
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97060.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 98
-Название: Desktop Wallpapers Pack 98
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07744B588B58F8C1913D1024013A1348C07F086B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469567   (97061) от 18.03.2012
-
-Русские сенсации. Пороховщиковы. Роман со смертью (2012.03.17) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Программа "Русские сенсации" - это еженедельное документальное приложение к "Программе Максимум". Созданная в лучших традициях расследовательской журналистики, программа развивает и углубляет этот жанр, затрагивая темы, о которых раньше никогда не рассказывало отечественное ТВ. Большинство фильмов - уникальные разработки, слишком громкие и масштабные для еженедельной "Программы Максимум". Другие темы продолжают лучшие расследования "Программы Максимум", расширяя их до уровня общенациональной проблемы. Проект "Русские сенсации" сохраняет все особенности стиля "Программы Максимум": актуальность, репортажность, активную работу репортера на месте расследования. Даже в случае с историческими детективами, делается упор на репортажную составляющую, а не на хронику (если только речь не об уникальной хронике). В каждом выпуске мы стремимся найти свой поворот темы, уникальных свидетелей, эксклюзивную информацию, которая раньше хранилась только под грифом "секретно". (   Читать дальше...   )В выпуске: Эту историю своей любви они рассказали сами, еще не зная, что ждет их в финале этого романа со смертью…Жанр: ДокументальныйПродолжительность: ~ 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2CDE5D9032C0606C77A0E23AFFF9CAB1BB2C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469466   (97062) от 18.03.2012
-
-Arkania - La Bestia Dormida (2011) [MP3|320 кб/с]<Heavy Metal, Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Bestia Dormida (03:33)
-02. Hey Tu! (04:19)
-03. Armaggedon (04:41)
-04. Musa Hasta El Alba (04:01)
-05. Gabrielle (04:34)
-06. Que Será De Tí (03:14)
-07. Nadie Más (04:31)
-08. Sirenas (03:23)
-09. XXIV (03:51)
-10. Los Ojos Del Alma (03:48)(   Читать дальше...   )2011Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CC5B5EC717A3D90113680924B37EBAF61CC741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470021   (97063) от 18.03.2012
-
-[Wallpapers] Games Wallpapers Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97063.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Games Wallpapers Pack 1
-Название: Games Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625B6524D9F50BDEFCC4DAF49607F1ED6484DAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469560   (97066) от 18.03.2012
-
-VA - TMP : Vanilla Dreams 063 (2012) [MP3|320 kbps]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andre Visior - Angels (Grey & Frost Club Mix)
-02. Beat Service feat. Neev Kennedy - But I Did (Space Rockerz vs. Daniel Heatcliff Remix)
-03. Lugh Dessire - Hybrid (Original Mix)
-04. Paul Oakenfold feat. Infected Mushroom - I'm Alive (Sonic Element Remix)
-05. Lange feat. Sarah Howells - Let It All Out (Andy Moor Remix)
-06. Aimoon - Leto (Original Mix)
-07. Billy Gillies - Luminous (Original Mix)
-08. Ronski Speed feat. Renee Stahl - Out Of Control (Club Mix)
-09. Andy Duguid feat. Fenja - Strings (Moonbeam Remix)
-10. Matt Lange feat. Cristina Soto - The Other Shore (Tritonal Air Up There Remix)2012Жанр: Vocal TranceПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0267E825E0F929147C1A90B56305C87ADC2DECE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469822   (97067) от 18.03.2012
-
-Журнал | Калининградские дома №3 [2012 март] [PDF]
+Роберт Адамс | Собрание сатсангов (2016) [MP3]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97067.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для всех кто строит дом, делает ремонт и конечно для всех кто только это планирует. Основой каждого номера выступает дом или квартира как своеобразная «персона», «личность» со своей судьбой и характером. Это рассказ о том, как планировалось и строилось то или иное жилье, какие технологии применялись, что из дизайнерских идей удалось воплотить.2012 мартФормат: PDF
+Роберт Адамс (21 января 1928 - 2 марта, 1997) был американским Адвайта учителем.
+В юности он был учеником  Раманы Махарши. В дальнейшей жизни Роберт Адамс провел сатсанги с небольшой группой учеников в Калифорнии, США. В основном его выступления связаны с путем  джняна-йоги «путем знания» с акцентом на практику самоисследования.
+Джняна-йога — один из видов йоги в философии (   Читать дальше...   )Жанр: АдвайтаПродолжительность: 70:02:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D068A03831A1A3456D6BCFDDBAEEC64916548FC
+magnet:?xt=urn:btih:5721C63323E66EAE4BEB50063604C9F92EB42C96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,34 +210,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469569   (97068) от 18.03.2012
+###  Публикация: 1360221   (962002) от 14.02.2020
 
-VA - TMP : Vanilla Dreams 064 (2012) [MP3|320 kbps]<Vocal Trance>
+Affinity Publisher Beta 1.8.0.556 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97068.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
-02. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
-03. Dennis Sheperd & Jonathan Mendelsohn - Bring Me Back (Album Extended Mix)
-04. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix)
-05. Cerf, Mitiska & Jaren - Down To You (Original Mix)
-06. Cressida & Natalie Paris - Easy To Forget (Club Mix)
-07. Benya feat. Emma Lock - Loved To Be (Nuera Remix)
-08. Arty vs. Imogen Heap - Seek Zara (SHato & Paul Rockseek Mashup)
-09. Chris Type & Jay Jacob - Surrender (I Know Shes Lonely) (Original Mix)
-10. Blue Tente feat. Aelyn - You're Not Mine (Balearic Mix)2012Жанр: Vocal TranceПродолжительность: 01:07:16
+Реализуйте свое видение с помощью Affinity Publisher, самого современного профессионального программного обеспечения для публикации от разработчиков отмеченных наградами приложений Affinity Designer и Affinity Photo.
+Это невероятно плавное, интуитивно понятное приложение дает вам возможность комбинировать изображения, графику и текст, чтобы сделать красивые макеты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A915D088ED95EA7C4D4601854531C89312DF6350
+magnet:?xt=urn:btih:6D09C5A0CE0CF3584BE7FAECEDA55ECB476D9316
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,34 +237,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469790   (97069) от 18.03.2012
+###  Публикация: 1360105   (962001) от 14.02.2020
 
-VA - XXXL Союз Record №52 50/50 (2012) [MP3|256 кб/с]<Pop,Dance,Club>
+Athentech Perfectly Clear Complete (St and Plug-in for Lr) 3 v3.9.0.1744 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97069.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Вера Брежнева - Реальная жизнь (DJ Vengerov remix) (3:35)
-2. Knife Party - Internet Friends (original mix) (4:53)
-3. Steel Deluxe - Сердце открой (Johan K remix) (5:31)
-4. Factorfunk - Checkmate (original mix) (5:31)
-5. IKA - Дорогой мой (DJ Vengerov remix) (3:16)
-6. Niels van Gogh vs. Emilio Verdez - Beatrocker (original mix) (5:17)
-7. Shyma - Ветрами (Flashtronica remix) (3:14)
-8. Martin Solveig vs. Arno Cost & Hardwell vs. U2 - Ready 2 New Years Day (Tristan Garner Bootle (4:47)
-9. Quest Pistols - Ты так красива (DJ Vengerov rmx) (2:56)
-10. Lmfao - Sexy And I Know It (Stanislav Shik & Denis Rook remix) (5:19)2012Жанр: Pop,Dance,ClubПродолжительность: 08:35:50
+Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+
+В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF8ADD96A990778E7CD8045AF808566E0BC05CC4
+magnet:?xt=urn:btih:4731E3B2FC811DED90401135D1CB4FA6D8F4AD1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,29 +265,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470001   (97070) от 18.03.2012
+###  Публикация: 1360248   (961998) от 14.02.2020
 
-[Wallpapers] Avto Wallpapers Pack 14
+Antivirus Zap Pro 3.8.9.1 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97070.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 14
-Название: Avto Wallpapers Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Antivirus Zap - небольшая утилита, которая просканирует ваш Mac на наличие различных adware, malware и других вредоносных неприятностей, которые, возможно, могут присутствовать в вашей системе. Процесс сканирования системы проходит весьма быстро и что хочется особенно отметить - почти не загружает CPU. Обновление баз антивирусных сигнатур проходит быстро и не заметно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2020Разработчик: Voros InnovationПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:042B7D59C5FB6B6687360536AA23BF8582054502
+magnet:?xt=urn:btih:B841C70C66495A090C605A1A1309EDFDBEF92A8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,34 +291,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469587   (97071) от 18.03.2012
+###  Публикация: 1360254   (961995) от 14.02.2020
 
-VA - TMP: Clear Sky 063 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+Биатлон. Чемпионат Мира 2020. Антхольц-Антерсельва (Италия). Смешанная эстафета (2020) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97071.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Leonid Gnip - Apocalypse (Original Mix)
-02. Neptune Project - Galatea (Activa vs. Neptune Project Mix)
-03. Mobil - In Loving Memory (Original Mix)
-04. Marco V & Russel G - Kalevala (Original Mix)
-05. Jaytech - New Vibe (Giran's Old Vibe Mix)
-06. Kris O'Neil & JPL - No Porn Intended (Original Mix)
-07. Garry Heaney - Oracle (Luke Bond Remix)
-08. DJ Mikas & DJ Sage - Shaken Not Stirred (Original Mix)
-09. Euphoric Feel - Wonderful Feelings (Original Mix)
-10. Michael Tanner - Zeta (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:09:40
+54-й Чемпионат мира по биатлону 2020 года. Антхольц-Антерсельва (Италия)
+13 февраля 2020 года, четверг. 16:45 МСК
+Смешанная эстафета 2x6 км + 2x6 км
+Стадион: Биатлонная Арена-Южный Тироль (Разун-Антерсельва, Италия)Телекомпания: Первый КаналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:22:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE1CE346137E39283261204F69C8C814A975C016
+magnet:?xt=urn:btih:F5A852E6E853354C6AD19808A3EC92931E5010FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,33 +320,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468358   (97072) от 18.03.2012
+###  Публикация: 1360108   (961994) от 14.02.2020
 
-Yehudi - Groove Technology (2012) [MP3|320 кб/с]<Psychedelic / Full On>
+Librarian Pro 5 v5.1.1 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97072.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 - Neurotronic (8:06)
- 2 - Zorn energy (7:18)
- 3 - Alienform (9:02)
- 4 - The Game Pieces (8:42)
- 5 - Crystal Cave (8:19)
- 6 - What you do (7:57)
- 7 - Stone Flute (8:06)
- 8 - Made of Dreams (Sweet Dreams RMX) (8:45)
- 9 - Flow Rising (8:31)Жанр: Psychedelic / Full OnПродолжительность: 01:14:46
+Приложение для каталогизации и систематизации различных вещей: книг, журналов, музыкальных, видео и игровых дисков и прочее. Вся создаваемая база сортируется отдельно по каждому типу вещей и содержит множество полей для максимального описания. Поля можно заполнить автоматически, скачивая необходимую информацию из интернета, поскольку программа поддерживает тесную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD13EB17A0FCBFCC09E77D25F267183CBBAC2921
+magnet:?xt=urn:btih:B03F4C998279B75F122692AC70640C8D39E6A5BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,34 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469591   (97073) от 18.03.2012
+###  Публикация: 1360257   (961993) от 14.02.2020
 
-VA - TMP: Clear Sky 064 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+Биатлон. Чемпионат Мира 2020. Антхольц-Антерсельва (Италия). Смешанная эстафета (2020) WEB-DL [H.264/720p-LQ] [EN]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97073.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carlos Fox - In The Corner (Carlos Fox B Side Remix)
-02. Ex-Driver & Alex Piletski - Last Rain (Original Mix)
-03. Dave Horne - Light & Dark (Original Mix)
-04. Daniel Wanrooy - Lotus (Original Mix)
-05. Des McMahon - Pure (Original Mix)
-06. Dart Rayne - Sanctum (Original Mix)
-07. Falcon - Saturday Fjord (Original Mix)
-08. Cosmic Gate & Arnej - Sometimes They Come Back For More (Alex ORion Bigger Room Mix)
-09. Eco - We Watched The Sunrise Till Our Eyes Burned Out (Original Mix)
-10. Euphoric Feel - When It All Began (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:07:33
+54-й Чемпионат мира по биатлону 2020 года. Антхольц-Антерсельва (Италия)
+13 февраля 2020 года, четверг. 16:45 МСК
+Смешанная эстафета 2x6 км + 2x6 км
+Церемония награждения медалями  — Медаль Плаза (Антхольц, Италия)(   Читать дальше...   )Телекомпания: Eurovision SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:52:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE4AD5F44ED43E3CAE7402DF04A27ECA68B04A7E
+magnet:?xt=urn:btih:096644C25379AEA145DEEB78C82F70B7B03E4DF5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -747,29 +375,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470022   (97074) от 18.03.2012
+###  Публикация: 1360004   (961992) от 14.02.2020
 
-[Wallpapers] Desktop Wallpapers Pack 101
+Биатлон. Чемпионат Мира 2020. Антхольц-Антерсельва (Италия). Церемония открытия (2020) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97074.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 101
-Название: Desktop Wallpapers Pack 101
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+4 сентября 2016 года на 12-м Конгрессе IBU Антхольц-Антерсельва выиграла голосование (30 голосов) за право проведения Чемпионат мира по биатлону 2020 года, который прошёл в Кишинёве. За право провести чемпионат боролись Поклюка и Оберхоф, а также Ново-Место, который снял свою заявку до начала голосования. Чемпионат мира по биатлону 2020 года пройдет в Антхольце в (   Читать дальше...   )Телекомпания: Eurovision SportsЖанр: Церемония, СпортПеревод: Не требуется, нет голосовых комментариевЯзык озвучки: ИнтершумСубтитры: отсутствуютПродолжительность: 01:22:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C30AFFB9943BB0CB086ED0CAA568E3A2B4AA381
+magnet:?xt=urn:btih:20D33A9BC832DC894870F45D7318900A19BDA379
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -777,29 +401,297 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470142   (97075) от 18.03.2012
+###  Публикация: 1360113   (961991) от 14.02.2020
 
-[Wallpapers] Best Wallpapers Pack 1
+QLab Pro 4 v4.6.1 [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97075.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 1
-Название: Best Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Figure 53, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90D4F96571D5B5AA160FAB0A190F560F144F366F
+magnet:?xt=urn:btih:C232FCE2EF146F81B3C8A8E4518B64901411C71C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360265   (961990) от 14.02.2020
+
+Display Maestro 3 v3.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Maestro - простая утилита, которая дает вам полный контроль над подключенным дисплеем, позволяя вам изменять не только разрешение экрана, но и глубину цвета, что невозможно сделать стандартными средствами Mac OS X (такая возможность была удалена еще в Mac OS X 10.5 Leopard).
+
+Примечание: После окончания работы с утилитой, все настройки возвращаются в первоначальное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DE927945DB8C43AB3007D31877BE29E59E0438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360103   (961988) от 14.02.2020
+
+Хоккей. НХЛ 2019-2020. Вашингтон Кэпиталз - Колорадо Эвеланш (13.02.2020) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961988.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 февраля 2020 года, пятница 05:30 МСК
+Стадион: Пепси-центр (Денвер, США), 18 146 зрителей (100 % при вместимости 18 147)
+Главный судья: Фурман Саут (США); Главный судья: Брайан Почмара (Детройт, США)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117333DD51603261DB1B30BC2DE58C283972C06C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978891   (961948) от 24.01.2016
+
+LINE 4.3.2.730 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961948.jpg" />
+</div>
+
+
+###  Подробнее
+
+LINE - это приложение, позволяющее делать бесплатные звонки и отправлять бесплатные SMS со смайликами где бы Вы ни находились 24 часа в сутки.
+Данное приложение занимает 1-е место среди бесплатных приложений в 52 странах, включая Японию, Тайланд, Тайвань, Испанию, Китай, Индонезию, Сингапур, Гонконг, Малайзию, Швейцарию, Саудовскую Аравию, Мексику, Россию, Макао, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59363E13202FFE9F6499082BB4A92FBFEF355347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978606   (961940) от 24.01.2016
+
+MemTest86 6.2.0/4.3.7 Pro Retail [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Memtest86 - утилита предназначена для высокоэффективного тестирования оперативной памяти на компьютерах с архитектурой х86. Благодаря собственному загрузчику программа осуществляет тестирование из "чистой среды", т.е. может работать даже в том случае, если система не загружается. Memtest86 работает практически со любыми носителями (дискеты, USB, CD), а (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474B7DC37A99EFA1BAF5AE21855B528794BCF347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360200   (961937) от 14.02.2020
+
+SoundSource 4.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961937.jpg" />
+</div>
+
+
+###  Подробнее
+
+SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
+
+Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2020Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057977962771A3232442BF0C1992A51CDE906D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360014   (961933) от 14.02.2020
+
+Prism 8.3.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prism - это мощная комбинация биостатистики, подбора кривой (нелинейная регрессия) и научного построения графиков в одной комплексной программе. Легко организовывать, анализировать и графически повторять эксперименты; выбрать соответствующие статистические тесты и интерпретировать результаты.
+
+Prism представляет новые способы организации, анализа и графического представления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: GraphPad SoftwarПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DBA5D2CC544E47D20CC9CE7CD04278407F6EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360122   (961925) от 14.02.2020
+
+Translatium 10.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Translatium - мощное приложение для перевода для macOS.Тип издания: macOS SoftwareРелиз состоялся: 12.02.2020Разработчик: Quang LamПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAB97E1F9E78583B3602C3673D859D8DFF459DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977067   (961910) от 24.01.2016
+
+1992 / 1992 (2015) HDTV [H.264/1080i-LQ] (сезон 1, серии 1-10 из 10)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонардо Нотте – известный политтехнолог-пиарщик. Марчелло Делл'Утри приглашает его вытащить из кризиса рекламную компанию. Лука Пасторе – полицейский, только заступивший на службу в прокуратуру Милана. Пасторе вместе с командой вице-прокурора Милана Антонио Ди Пьетро принимает участие в громком аресте директора миланского дома престарелых, члена Итальянской социалистической (   Читать дальше...   )Производство: Италия / Wildside, LA7, SkyЖанр: драмаРежиссер: Джузеппе ДжальярдиАктеры: Стефано Аккорси, Гвидо Каприно, Мириам Леоне, Доменико Диэле, Теа Фалько, Алессандро Ройа, Эрос Гальбиати, Пьетро Рагуса, Сильвия Дегранди и др.Перевод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D378C7637A51B8E3D24360F71C31F5812D7DAC0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978791   (961901) от 24.01.2016
+
+Kali Linux 2016.1 (ex. BackTrack) [Аудит безопасности, хакинг] [i386] 2xDVD, CD
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен дистрибутив Kali Linux 2016.1 "Rolling Edition", продолжающий развитие проекта BackTrack Linux и предназначенный для проведения тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
+
+Kali включает одну из самых полных подборок инструментов для специалистов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59ECCD91B66C6A1F848D97720343A8818F9856BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978771   (961900) от 24.01.2016
+
+Runtime GetDataBack Simple 2.00 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961900.jpg" />
+</div>
+
+
+###  Подробнее
+
+GetDataBack Simple - новый продукт известного разработчика Runtime. Это простейшее программное обеспечение для восстановления данных.
+Молниеносно быстрое, для FAT и NTFS. Восстановите свои потерянные данные прямо сейчас.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3780B91417BF762F3D7B2BCE3C0E31E9A9D727
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 859873   (937484) от 18.01.2015
+###  Публикация: 1742763   (105508) от 13.08.2024
 
-Настя Любимова - I Don't Know (2013) WEBRip [H.264/720p-LQ]
+VA - Nahawand: Best of Emotional Trance (2024) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Музыкального Видео
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937484.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:29
+01. Ash K & Junior - The Sound Of Hope (Extended Mix) [8:05]
+02. W!SS with Ash K & Junior - Lonely Path (SounEmot Remix) [8:28]
+03. Iberian - And The Beginning Is Over (DreamLife Remix) [8:04]
+04. DreamLife & Grande Piano - Nemezis (Original Mix) [7:18](   Читать дальше...   )Жанр: TranceПродолжительность: 01:45:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB6E32CC5EF7E3C5131A8D49D803529275970268
+magnet:?xt=urn:btih:6FA9FC0264EA81100013B3682BB4EB932379BF9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,278 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 860793   (937486) от 18.01.2015
+###  Публикация: 1742761   (105507) от 13.08.2024
 
-Чудо техники (2015.01.18) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937486.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых изобретениях. Теперь обо всем, что происходит на передовой научно-технического прогресса, узнают и зрители НТВ. Новинки и открытия со всего (   Читать дальше...   )В выпуске: Телевизоры нового поколения: за что производители просят сотни тысяч?
-Зимняя рыбалка: гаджеты для рыбака и рыбки.
-А также — современные технологии в борьбе с варикозом и 5 впечатляющих способов ухода за волосами.
-Все самое интересное — в программе «Чудо техники».Жанр: ТелепередачаПродолжительность: ~ 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B938DD9A6DFC6D53519F8C3610629569DE441791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860394   (937491) от 18.01.2015
-
-Журнал | Женские секреты №1 (январь 2015) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937491.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Женские секреты» — популярный журнал для самостоятельных, настоящих женщин, которые занимают активную жизненную позицию. Основные рубрики журнала охватывают большую часть интересов современной женщины: взаимоотношения, мода, косметика, здоровье, спорт и многое другое..
-Дайждест самых главных женских секретов.Жанр: женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695DCFC834118A97E98C1474F5E0CD36FF33893B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284522   (937493) от 19.01.2011
-
-VA - House Vip [16.01.2011] (2011) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937493.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. AUtOdiDakT & Electro Ferris - Chainsaw (Dj Antention Remix) (4:51)
-2. BeatauCue - Disque Oh! (High Rankin Remix) (4:24)
-3. Briana - Life keeps on Going (DJ Solovey remix) (5:15)
-4. Chris Decay - Like That (Bigroom Mix) (5:37)
-5. Dj Viduta - You are ready (5:12)
-6. E-Bonit vs. Mike McPower - Set Free (Party NoiserZ & Sound Stylez Remix) (6:07)
-7. Herd & Fitz feat. Abigail Bailey - I Just Can't Get Enough (Audio Brothers Remix) (4:48 )
-8. Kesha - We R Who We R (Fred Falke Club Mix) (6:56)
-9. Manyus & Paolo Di Miro - Midnight (P. Di Miro Elektrorock Mix) (6:07)
-10. The Noisy Freaks - Fast Chased (Drivepilot Remix) (5:00)Жанр: Electro HouseПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E193D35531FBB43E97450F7404B89746E365C4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284452   (937494) от 19.01.2011
-
-Pedro Del Mar - Mellomania Vocal Trance Anthems 140 (17-01-2011) [MP3|256 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii vs. Kings Of Leon - Abow vs. Sex On Fire (Avicii's Bootleg)
-02. Sherry Flavour & Tara Mcdonald - The Grand (Extended Mix)
-03. First State & Sarah Howells - Reverie (Jeziel Quintela, Jquintel & Manufactured Superstar)
-04. Jozhy K & Angel - I Won't Be Crying For You (Jon Median Remix)
-05. Nadia Ali - Point The Finger (Lost Stories Extended Mix)
-06. Eximinds feat. Aelyn - I Feel You
-07. Tucandeo feat. Jennifer Hershman - Only We Know (Estiva Remix)
-08. Lost Witness - Fade Away (Full Vocal Mix)
-09. Randy Boyer feat. Cari Golden - Fragile (Jonas Hornblad Remix)
-10. Novaline feat. Anthya - SirenЖанр: TranceПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CBF6791ED6062F27A47C899F30A319D256CC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284104   (937495) от 19.01.2011
-
-VA - House Vip [15.01.2011] (2011) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Barudi - I Found Love (Electrixx Remix) (06:22)
-02. Candid - Higher (Digital Blush Remix) (05:33)
-03. Hey Baby (Drop It To The Floor) (OMG Remix) (05:18 )
-04. La Musique D'Ordinateur - The Hoover (Mr. Penisman Remix) (03:45)
-05. Love Unit - 2 Times 2011 (Steve Modana Remix) (06:16)
-06. Angel (Bbop & Roksteadi Club Mix) (05:24)
-07. Mr Rox & Mr Simon - Weekend (Original Mix) (06:27)
-08. Twelve11 - Created (Original Mix) (05:15)
-09. Freakin' Perfect (Digital Blush Remix) (06:06)
-10. Weekend Warriors - Firework (City Kicks Mix) (06:16)Жанр: Electro HouseПродолжительность: 00:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4DFA4B51A11DBD5CEB4309696E9B4A9199731BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284454   (937496) от 19.01.2011
-
-Pedro Del Mar - Mellomania Deluxe 470 (17-01-2011) [MP3|256 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937496.jpg" />
-</div>
-
-
-###  Подробнее
-
-PEDRO DEL MAR IN THE MIX:
-
-01. roger shah pres. sunlounger feat antonia lucas - beautiful night (ralph fritsch 5am sunrise remix)Жанр: TranceПродолжительность: 02:0027
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D561418B96A144C59412FF5C46EB631AF7FDB1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283878   (937498) от 19.01.2011
-
-VA - House Vip [14.01.2011] (2011) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top Of The Stars (Houze Bandits Vs. Scott Guscio Remix) (5:21)
-02. Chocolate Puma - Whohadchants (Dj Karasev Remix) (4:48)
-03. Dangersounds - Feel That Thing (Yacine Soufiane Remix) (7:41)
-04. Deep Purple - Smoke On The Water (Bruno Ribeiro The Lost Note Remix) (6:38)
-05. Javi Reina Alex Guerrero Feat. Syntheticsax - Oig (DJ Sayman DJ Layman Remix) (6:52)
-06. I Like The Base (Future Breeze Remix) (5:06)
-07. Round N Round (William Hawk Remix) (6:00)
-08. Mr Rox & Mr Simon - Weekend (Original Mix) (6:27)
-09. Ravers Night (Major Tosh Remix) (6:15)
-10. Rabbit Killer & Steep Bass Project - Electro Birthday Mike (Original mix) (6:35)Жанр: Electro HouseПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6857AFCEF45D021E3E06D5B761F9345E6BB261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859875   (937526) от 18.01.2015
-
-Настя Любимова ft. St1m - Мода На Любовь (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBE450A4E98870ED1CB42657CE39EB33CBFBB50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860943   (937538) от 18.01.2015
-
-Days Of The New - Days Of The New (1997)/Outpost Recordings/ [FLAC|Image+cue]<Post-Grunge>
+My Design Immortal - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937538.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shelf In The Room (4:44)
-	02. Touch, Peel And Stand (4:58)
-	03. Face Of The Earth (5:17)
-	04. Solitude (4:11)(   Читать дальше...   )Производство: 1997, Outpost Recordings/OPRD-30004Жанр: Post-GrungeПродолжительность: 01:12:05
+01. A Tale of Resurgence (4:14)
+02. Truth Unveiled (3:44)
+03. Silent Ruins (3:06)
+04. Taste of Bliss (3:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BB63D1961035120AB647BE0EF72B887A8E38659
+magnet:?xt=urn:btih:6E36949D2C7EC0D6ACE6932755DD991CCAB67F61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003218   (937539) от 02.03.2020
+###  Публикация: 1742771   (105506) от 13.08.2024
 
-Вырезать Вставить Фото Без Шва / Cut Paste Photo Seamless Pro v29.3 [Ru/Multi]
+VA - Essential Selection Ibiza 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937539.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Желаете действительно произвести впечатление на своих подписчиков в Instagram? Создавайте уникальные снимки вырезая объекты из фотографий и вставляя их с применением бесшовного наложения на другие фотографии. Создавайте ваши собственные уникальные фотографии без использования Photoshop. Вы можете вырезать и вставлять любые объекты на фотографии. Бесконечные возможности. (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 01.03.2020Разработчик: Eldar AbdrazakovПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+01. Steve Levi, TuraniQa & Airsand - Love Emotion (Extended Mix) [6:40]
+02. RoelBeat & Anza - Aciliando (Extended Mix) [5:51]
+03. Sedat & Ertan Koculu - Summer Goes (Extended Mix) [6:13]
+04. Andrey Exx & TuraniQa - Touch Me (Hiwater Remix) [5:17](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:49:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCE66430D7A8BA2DB9D9E767DF0B80921A765301
+magnet:?xt=urn:btih:AB6B5B7CA0143D00B2D9F308E4513EA3EC9491A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,25 +85,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364340   (937540) от 02.03.2020
+###  Публикация: 1742878   (105505) от 13.08.2024
 
-Ярды (2019) WEB-DL [H.264/1080p-LQ]
+Вадим Бурлак | Рыцари мадам Авантюры (2005) [MP3, Вадим Бурлак]
 
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937540.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ярик приехал в столицу, чтобы устроить свою жизнь — добиться успеха в любимом деле, построить серьезные отношения, вместе с друзьями двигаться вперед. Но у большого города на Ярика другие планы. Все твердят, что пора смириться, стать «нормальным». Возможно ли отступить, когда на кону мечта?Производство: Россия / Горизонт событий (Magic Production)Жанр: ДрамаРежиссер: Андрей КорыткоАктеры: Роман Евдокимов, Аскар Ильясов, Рафаэль Дурноян, Дмитрий Быков, Григорий Данцигер, Марина Митрофанова, Михаил Шкамаридин, Лана Райдер, Игорь Сергеев, Станислав СергеевПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:32:31
+Серия/Цикл: Романтика приключений и путешествий.
+Более 130 экспедиций совершил по всему миру писатель и путешественник Вадим Бурлак. Поэтому кому, как не ему, подарить нам, оседлым жителям мегаполисов, свои впечатления от необыкновенных путешествий. Легенды, мифы, мистические случаи в фантастических интерьерах загадочной Амазонии – писатель слой за слоем снимает (   Читать дальше...   )Жанр: Русская литература, приключенияИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 06:52:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C58686409660673CFFD95AFC5FE0B5A9581903E
+magnet:?xt=urn:btih:3A7A6D40B7B6BB5AFF67480BE3C31137E4A7601C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -355,27 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363698   (937541) от 02.03.2020
+###  Публикация: 1742835   (105504) от 13.08.2024
 
-ELSA 5.2 VW - 04.2015 5.2 [Multi/Ru]
+Battle Lost - Into The Realms (2024) [MP3|320 Kbps] <Power Metal>
 
->>Автомобили
->>Автомобильные мультимедийные материалы
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937541.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Информационная база (руководство) по ремонту автомобилей концерна VW AG. Содержит описания технологии ремонта и обслуживания автомобиля, электрические схемы, кузовные работы, нормы времени на выполняемые работы и т.д.
-Данная программа не предназначена для работы с диагностическими адаптерами.
-Более подробное описание можно прочитать в прилагающейся документации (ElsaWin_Применение.pdf)Язык интерфейса: Русский, английский, немецкий.
+01. Into The Realms (02:34)
+ 02. Ascension's Call (04:40)
+ 03. Last Warrior's Oath (04:01)
+ 04. Fire In The Heart (04:25)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8EFF1A2B6B7EB11528BAD3279BC031C78E7D9242
+magnet:?xt=urn:btih:5FB4469339F5703D1AB4308C7957AAB262FEF4D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,25 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363948   (937542) от 02.03.2020
+###  Публикация: 1742766   (105503) от 13.08.2024
 
-Сжигая за собой мосты (2020) WEB-DLRip [H.264] (сезон 1, серии 1-4 из 4)
+VA - Anjunabeats pres. Summer House 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progressive House, Deep House, Melodic House & Techno>
 
->>Отечественные сериалы
->>
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937542.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Анна – современная молодая женщина, которая живет здесь и сейчас. Она без особого энтузиазма воспринимает семейную историю, которой пытается увлечь ее пожилой отец. Приводя в порядок архив матери, советской разведчицы Нины Орловой, отец Анны узнает некую тайну. Но дочери он говорит пока немного и в самых общих чертах: у их семьи есть враг, и этого человека им надо (   Читать дальше...   )Производство: Россия | «Леандра Продакшн»Жанр: мелодрама, детективРежиссер: Александра БутькоАктеры: Анна Нахапетова, Антон Багров, Артур Ваха, Пётр Нестеров, Елена Мартыненко, Илья Носков, Александр Солдаткин, Валентина Гарцуева, Дмитрий Лебедев и др.Продолжительность: ~00:40:00 серия
+01. gardenstate & Bien & anamē (SE) - The Best Part (Extended Mix) [6:02]
+02. Above & Beyond feat. Alex Vargas - Blue Sky Action (EDX's Indian Summer Extended Mix) [5:10]
+03. Tinlicker feat. Thomas Oliver - Need You (Extended Mix) [6:58]
+04. Dirty South feat. Anima! - I Swear (Dirty South Extended Mix) [7:26](   Читать дальше...   )Жанр: Progressive House, Deep House, Melodic House & TechnoПродолжительность: 03:03:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15875DE667342346F00420BA3D804FDAAF632DCA
+magnet:?xt=urn:btih:9852B4B27627E8C19F71AF7F2C864AC68447391A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -409,25 +170,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363719   (937543) от 02.03.2020
+###  Публикация: 1742741   (105502) от 13.08.2024
 
-Придуман способ удешевить процессоры вдвое
+Виктория Шорикова | Огненный разум (2024) [MP3, Николай Прокофьев]
 
->>3
->>4
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937543.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В AMD сообщили о новом способе, который позволяет существенно сократить затраты на производство флагманских процессоров. Изготавливая элементы чипа по разным технологиям, можно добиться двукратного снижения стоимости 16-ядерного Ryzen 9 3950X — одного из самых высокопроизводительных процессоров для компьютеров.Об этом представители компании рассказали  на конференции (   Читать дальше...   )
+Захватывающий детективный рассказ, где разворачивается напряженная борьба между служителем Фемиды и изворотливым преступником… Или не преступником? Тогда кто в действительности совершил преступление? И как понять, что является правдой, а что лишь частью хитроумного плана? Дело особенно усложняется, когда речь заходит о помраченном болезнью сознании…Жанр: Интеллектуальный детективИздательство: ЛитРес: чтецПродолжительность: 02:09:17
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6E26DDC2A4184A4D5FB9458FCA69F2C6B16718AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,25 +196,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364245   (937544) от 02.03.2020
+###  Публикация: 1742770   (105501) от 13.08.2024
 
-Джанго освобожденный / Django Unchained (2012) BDRip [H.265/1080p] [10-bit]
+Журнал | Дачный сезон №7 (июль 2024) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937544.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эксцентричный охотник за головами, также известный как Дантист, промышляет отстрелом самых опасных преступников. Работенка пыльная, и без надежного помощника ему не обойтись. Но как найти такого и желательно не очень дорогого? Освобождённый им раб по имени Джанго — прекрасная кандидатура. Правда, у нового помощника свои мотивы — кое с чем надо сперва разобраться.Производство: США / The Weinstein Company, Columbia PicturesЖанр: вестерн, боевик, драма, комедияРежиссер: Квентин ТарантиноАктеры: Джейми Фокс, Кристоф Вальц, Леонардо ДиКаприо, Керри Вашингтон, Сэмюэл Л. Джексон, Уолтон Гоггинс, Деннис Кристофер, Джеймс Римар, Дон Джонсон, Франко НероПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (форсированные, полные), украинские (форсированные), английские (полные, SDH-Colored)Продолжительность: 02:45:23
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаИздательство: ООО Бауэр МедиаФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C55E92601B6EB2C5BA98ADAEBF762A64647AA8BF
+magnet:?xt=urn:btih:449D59E05B65E6D74CBD9FC70523597F4F615106
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,25 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364344   (937545) от 02.03.2020
+###  Публикация: 1742718   (105500) от 13.08.2024
 
-Void Destroyer 2 (2020) [En] (1.0/upd3) Repack Other s
+keldin - There is no future (Будущего нет) (2024) [MP3|320 Kbps] <Industrial>
 
->>Win Игры
->>Simulation (Flight/Space)
+>>Electronic
+>>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937545.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Void Destroyer — гибрид космического симулятора и RTS. Игрок волен взять под контроль любой из кораблей своего флота, будь то истребитель или огромный флагман. Вы станете одним из немногих жителей космического пространства. Учитывая, что футуристический мир уже настал, космические корабли стали обыденным делом, и теперь каждый может без проблем приобрести себе крейсер (   Читать дальше...   )Тип издания: RepackРазработчик: Iteration 11Жанр: Adventure, Strategy (RTS), Simulator (Space), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+01 - Машина [00:02:55]
+02 - Сталь [00:03:10]
+03 - Технобитва [00:03:44]
+04 - Техноконструктор [00:03:04](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:17:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AAA077D426F47C6CCB02B92DE839D545621E026
+magnet:?xt=urn:btih:0FC236E884511CC5997C28F657CFA148CA5A90E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -487,25 +251,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364265   (937546) от 02.03.2020
+###  Публикация: 1742716   (105499) от 13.08.2024
 
-Забудьте про 5G: возможности 6G захватывают воображение
+S.I.N.A - Alte Liebe... (2024) [MP3|~245 Kbps (V0)] <EBM, Industrial, Female Vocal>
 
->>3
->>4
+>>Electronic
+>>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937546.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Беспроводная связь произвела настоящую революцию. Не удивительно, что технологии 5G находятся сейчас в центре всеобщего внимания. Пока в отдельных городах, а скоро и на всей планете сверхскоростная передача данных по оптиковолокнистым кабелям станет реальностью и позволит разместить в мобильных устройствах телевидение, трехмерные изображения и новые приложения, о (   Читать дальше...   )
+1. Nicht Ich [00:04:29]
+2. Little Girl [00:04:36]
+3. Gefühlschaos [00:04:37]
+4. Bauchgefühl [00:03:39](   Читать дальше...   )Жанр: EBM, Industrial, Female VocalПродолжительность: 00:37:57
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CEB76004B41DFB419DF3910CDD926E8C0FC6E94F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,28 +280,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 205976   (937547) от 02.03.2020
+###  Публикация: 1742702   (105498) от 13.08.2024
 
-Europe - The Final Countdown (Upmix) (1986) [DTS]<ROCK>
+moiii - moiii (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial, Experimental>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937547.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Final Countdown (5:13)
-02. Rock The Night. (4:06)
-03. Carrie (4:33)
-04. Danger On The Track (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:13
+01. Tangled Chords [00:04:18]
+02. Turtle Legs [00:04:16]
+03. Shhhhhhhhhhhhh [00:05:01]
+04. You Won't Be Alive To Feel It [00:04:39](   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:30:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBE10AAF1A8C964EA09FE536820BFC5823C6269C
+magnet:?xt=urn:btih:9E2FB37BECF176FBB43ABF26C08B2EDD0CB6A593
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,25 +309,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364227   (937548) от 02.03.2020
+###  Публикация: 1742898   (105497) от 13.08.2024
 
-Видоизмененный углерод / Altered Carbon (2020) WEBRip [H.265/2160p] [4K, SDR, 10-bit] (сезон 2, серии 1 - 8 из 8) HDRezka Studio, Kerob, Gears Media
+Hyperion - Seraphical Euphony (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
 
->>След.
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937548.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Видоизмененный углерод» — это фантастический боевик онлайн-сервиса Netflix, снятый по мотивам романа Ричарда Моргана 2002 года. Сериал вобрал в себя лучшее от жанра киберпанк: размышления о последствиях технологического прогресса, антиутопический мир будущего, эксперименты с человеческим телом и сознанием, конфликты между простыми людьми и мегакорпорациями и многое (   Читать дальше...   )Производство: США /  Mythology Entertainment, Skydance TelevisionЖанр: фантастика, детектив, фильм-нуар, боевикРежиссер: Салли Ричардсон-Уитфилд, Майкл Дж. Бассетт, Джереми Уэбб, Киаран ДоннеллиАктеры: Крис Коннер, Рене Элис Голдсберри, Дина Шихаби, Торбен Либрехт, Энтони Маки, Николас Дохи, Симон Миссик, Джеймс Саито, Лела Лорен, Далиас БлейкПеревод: Профессиональный (многоголосный, закадровый), Профессиональный (двухголосный, закадровый), Любительский (многоголосный, закадровый)Субтитры: русские, английские, арабские и другиеПродолжительность: ~00:47:00 серия
+01. Remnants Of The Fallen (02:08)
+02. Novus Ordo Seclorum (06:59)
+03. Flagellum Dei (05:07)
+04. Seraphical Euphony (08:20)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:52:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1650E960909EDF196475FE7275BBC3BBCF66180D
+magnet:?xt=urn:btih:C0077065CA50CE43D2D87C388E311A5AD011BF77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,25 +338,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364099   (937549) от 02.03.2020
+###  Публикация: 1742738   (105496) от 13.08.2024
 
-Аватар: Легенда об Аанге / Avatar: The Last Airbender (2005-2008) WEB-DLRip [H.265/1080p-LQ] [10-bit] (Сезон 1-3, Серии 1-61 из 61)
+Rahsaan Roland Kirk - The Case Of The 3 Sided Dream In Audio Color (1975) 2004, Atlantic [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937549.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мир разделен на четыре народа: Водные племена, королевство Земли, Воздушные кочевники и страна Огня. В этом мире часть людей из каждого народа обладают способностью к контролю своего элемента, такие люди именуют себя магами Воды, Земли, Воздуха или Огня. Только Аватар является властелином всех четырех стихий. Его роль заключается в поддержке баланса между народами (   Читать дальше...   )Производство: США. Nickelodeon Animation StudiosЖанр: Рисованная анимация, Фэнтези, ПриключенияРежиссер: Джанкарло Вольпе, Этан Сполдинг, Лорен Макмаллен и другиеПеревод: Дублированный (Арт-Дубляж)Субтитры: Русские (отдельными файлами)Продолжительность: ~00:24:00 серия
+01. Conversation [0:59]
+02. Bye Bye Blackbird [2:39]
+03. Horses (Monogram/Republic) [0:19]
+04. High Heel Sneakers [4:49](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC33819A2876A3F820223763B7D0776E4C7D4599
+magnet:?xt=urn:btih:8B8D4385D05F56EEC0E25A1AE5EA22C48D789F05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,25 +367,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087248   (937550) от 02.03.2020
+###  Публикация: 1743002   (105495) от 14.08.2024
 
-Трон: Наследие / TRON: Legacy (2010) BDRemux [H.264/1080p] [IMAX Edition] [hand made 16:9]
+Deville - 20 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Stoner Rock>
 
->>След.
->>hand made * video
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937550.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сэм Флинн, технически одарённый 27-летний сын Кевина Флинна, начинает расследовать исчезновение своего отца и оказывается втянутым в тот же мир жестоких программ и гладиаторских игр, в котором его отец жил на протяжении 25 лет. Вместе с помощницей Кевина, отец и сын пускаются в рискованное путешествие за жизнью по поражающей взгляд кибер-вселенной, которая стала (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: Фантастика, Приключения, ТриллерРежиссер: Джозеф КосинскиАктеры: Оливия Уайлд, Джефф Бриджес, Гаррет Хедлунд, Брюс Бокслейтнер, Бо Гарретт, Майкл Шин, Стивен Лисбергер, Джеймс Фрейн, Серинда Суон, Анис Шерфа и др.Перевод: ДублированныйПродолжительность: 02:05:08
+01. Dust [00:04:35]
+02. The Hand That Feeds [00:02:54]
+03. Lava [00:03:20]
+04. What Remains [00:04:29](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:44:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B825653C856C47EB18874F292043BBE125AB6DF
+magnet:?xt=urn:btih:876CD114421EEC619A851241EFB59885FD16BFC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,26 +396,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152506   (937551) от 02.03.2020
+###  Публикация: 1742989   (105494) от 14.08.2024
 
-Класс 1999 / Class of 1999 (1990) BDRip [H.264/1080p]
+No Love Lost - Bliss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
->>След.
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937551.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Время действия — 1999 год. В школах и вузах США — полный беспредел, творимый молодежными бандами. Департамент Обороны Образования, отчаявшись навести дисциплину в Высшей школе Кеннеди решает воспользоваться услугами фирмы «Мегатек», работавшей на оборону и продолжающей вести разработку различных моделей роботов, в том числе учителей-киборгов.
-Три электронных учителя, (   Читать дальше...   )Производство: США / Lightning Pictures, Original Pictures, Vestron PicturesЖанр: Ужасы, Фантастика, БоевикРежиссер: Марк Л. ЛестерАктеры: Брэдли Грегг, Трейси Линд, Малкольм МакДауэлл, Стейси Кич, Пэтрик Килпэтрик, Пэм Гриер, Джон П. Райан, Даррен Э. Берроуз, Джошуа Джон Миллер, Шэрон УайаттПеревод: Профессиональный (двухголосый, закадровый) х2, Авторский (одноголосый, закадровый) х2Субтитры: русские (full), английские (full)Продолжительность: 01:35:54
+01. Keeping Up With The Jones
+02. Believe In Love
+03. Love Song
+04. Heart Strings(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F9F2F731B514DB3CC3385BC845AC9A7569D7E9E
+magnet:?xt=urn:btih:96BFC1FC7D43AAA6088813EAE3D2D0295C1B9E30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,28 +425,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363993   (937552) от 02.03.2020
+###  Публикация: 1742994   (105493) от 14.08.2024
 
-GoodbyeDPI.0.1.6. Launcher-3.4 [Ru]
+VA - Rated in the Mix with Grant Trowbridge (2024) [MP3|320 Kbps] <Trance>
 
->>3
->>След.
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937552.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
-Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
-
-Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский
+01. Chris Oblivion - Momentum Overdrive (Extended Mix) [6:36]
+02. Drumm & Fletch - Hallucinate (Extended Mix) [5:55]
+03. A-Rival - Meridian (Zach Zlov Remix) [7:47]
+04. Solarshift Project - Echoes Athanasia (Extended Mix) [7:38](   Читать дальше...   )Жанр: TranceПродолжительность: 04:50:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCF7E91320F8FC6C52354105DBC3E817C5A47BED
+magnet:?xt=urn:btih:53F9B95136554805B1A5A8DACEE19173DAABA630
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,25 +454,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364152   (937553) от 02.03.2020
+###  Публикация: 1743019   (105492) от 14.08.2024
 
-Неогранённые драгоценности / Uncut Gems (2019) BDRip [H.264/1080p] [PR]
+Pentagram - Sub-Basement (2001) Remastered, 2024, Heavy Psych Sounds [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, heavy metal>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937553.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Говард Ратнер владеет небольшим ювелирным магазином в Нью-Йорке. Являясь большим фанатом НБА, он жизни не мыслит без ставок на игры, поэтому находится по уши в долгах и постоянно скрывается от кредиторов. Однажды подельник приводит к нему в магазин ведущего игрока «Бостон Селтикс» Кевина Гарнетта, и в это же время из Эфиопии приходит посылка с редкими неогранёнными (   Читать дальше...   )Производство: США / Elara Pictures, Scott Rudin Productions, Sikelia ProductionsЖанр: Триллер, драма, криминалРежиссер: Бен Сэфди, Джошуа СэфдиАктеры: Адам Сэндлер, Джулия Фокс, Идина Мензел, Лакит Стэнфилд, Кевин Гарнетт, Эрик Богосян, Кит Уильямс Ричардс, Джадд Хёрш, Майк Франчеза, Ноа ФишерПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:15:51
+01. Bloodlust [00:02:28]
+02. Buzzsaw [00:02:29]
+03. Drive Me To The Grave [00:04:28]
+04. Sub-Intro [00:03:54](   Читать дальше...   )Жанр: Doom Metal, heavy metalПродолжительность: 00:54:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4377BD3B05085D3F8A0D7ED571BD52F63B1D19D
+magnet:?xt=urn:btih:DE3E521D6DA7B650EAC602426E39FF38A6CE8CFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,25 +483,252 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364423   (937554) от 02.03.2020
+###  Публикация: 1743106   (105491) от 14.08.2024
 
-Неогранённые драгоценности / Uncut Gems (2019) BDRip [H.264/1080p]
+My Dying Bride - A Mortal Binding (2024) [FLAC|Lossless|image + .cue] <Gothic, Doom Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937554.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Говард Ратнер владеет небольшим ювелирным магазином в Нью-Йорке. Являясь большим фанатом НБА, он жизни не мыслит без ставок на игры, поэтому находится по уши в долгах и постоянно скрывается от кредиторов. Однажды подельник приводит к нему в магазин ведущего игрока «Бостон Селтикс» Кевина Гарнетта, и в это же время из Эфиопии приходит посылка с редкими неогранёнными (   Читать дальше...   )Производство: США | Elara Pictures, Scott Rudin Productions, Sikelia ProductionsЖанр: Триллер, драма, криминалРежиссер: Бен Сэфди, Джошуа СэфдиАктеры: Адам Сэндлер, Джулия Фокс, Идина Мензел, Лакит Стэнфилд, Кевин Гарнетт, Эрик Богосян, Кит Уильямс Ричардс, Джадд Хёрш, Майк Франчеза, Ноа ФишерПеревод: Дублированный | ПифагорСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:15:08
+01. Her Dominion 06:13
+02. Thornwyck Hymn 06:50
+03. The 2nd of Three Bells 06:54
+04. Unthroned Creed 07:03(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:55:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0B244CE9BF37FADB413CB1A0E6056E8582ED559
+magnet:?xt=urn:btih:CC967715D417B19A2D867FC0ABD900CDDEBDDC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742793   (105490) от 14.08.2024
+
+Fernruf.Berlin (Дистанционный Звонок В Берлин) - 1 Album, 4 Singles (2024) [MP3|~245 Kbps (V0)] <Ebm, Electro, Darkwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Dystopie Und Tr​a​umerei (2024)
+Allein (Single) 2024
+Immer Lieben 80s Maxi Mix (Single) 2024(   Читать дальше...   )Жанр: Ebm, Electro, DarkwaveПродолжительность: 5 CD, 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0697DD2D590D02641CB1999AC994D0802489CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742781   (105489) от 14.08.2024
+
+Ian - Minden Eletemben (2024) [MP3|~245 Kbps (V0)] <Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Szállok Csendben [00:04:20]
+02 - Legyél Nekem [00:03:36]
+03 - Látni Fogják [00:03:52]
+04 - Minden Életemben [00:03:39](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA176B07AC1974FB890FC7BB73ABB7AE60D8B37A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742713   (105488) от 14.08.2024
+
+Mondmann - Celestial Shifts (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride Away [00:04:44]
+02. We Got the Fire [00:04:02]
+03. I Like That [00:04:11]
+04. Moonlight [00:04:24](   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B508A7F8BC3CCB9948CDE8C0BEF4298D79C8F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743048   (105487) от 14.08.2024
+
+Matt Mitchell & the Coldhearts - Mission (2022) Ultimate Edition, 2024, Matt Mitchell[FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mission [00:03:53]
+02. Razor Tongue [00:03:34]
+03. Someone New [00:03:14]
+04. Just Like I knew You Would [00:03:00](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25870CF825D5825B437C4A775FB87F909D41CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742961   (105486) от 14.08.2024
+
+Журнал | Лечитесь с нами №8 (224) (август 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30860BB65F4F9599A50C4D892D480E770383977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742960   (105485) от 14.08.2024
+
+Журнал | Лечитесь с нами №7 (223) (июль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1B5D4E2BBDA6843EDFB326B9DA28D700DF459F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742822   (105484) от 14.08.2024
+
+VA - SkyFall Summer 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al.ER - New Vibrations (Extended Mix) [7:02]
+02. Tony Godzen - Gdevolk (Extended Mix) [6:09]
+03. St.Ego - Let Me Know (Extended Mix) [7:09]
+04. Devaloka - Valley (Extended Mix) [7:29](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 01:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD095DAEF1FE4C57AC6268CC329A46B4CAC5648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743112   (105483) от 14.08.2024
+
+Органчик (1933) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсатира.
+По мотивам произведений М.Е.Салтыкова-Щедрина.Производство: СССР / Московский кинокомбинатЖанр: корткометражный, анимация, экранизацияРежиссер: Николай ХодатаевСубтитры: русские (интертитры)Продолжительность: 00:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2D8E0E86EA4CB3A2AAD640DDD10CCCC89CB0FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

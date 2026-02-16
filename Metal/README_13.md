@@ -1,25 +1,31 @@
-###  Публикация: 1737316   (106570) от 16.07.2024
+###  Публикация: 616927   (974182) от 11.02.2013
 
-Thunderlord - Destroyer (2024) [MP3|320 Kbps] <Heavy Metal>
+Tierra Santa - Mi Nombre Sera Leyenda (2013) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106570.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01 - Destroyer (04:51)
- 02 - Cimmerian Sword (05:08)
- 03 - Motherland (05:09)
- 04 - Black Spirit of the Forest (05:47)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:00
+01. Mi Nombre Sera Leyenda
+02. Mas Alla de la Vida
+03. Solo se Vive una Vez
+04. Heroe
+05. El Cielo Puede Esperar
+06. Perdido en el Paraiso
+07. Si Estas Alli
+08. Genghis Khan
+09. Hasta el Amanecer
+10. El Utimo(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CDCEB0B308522BF1676F079F7593C396087C76C
+magnet:?xt=urn:btih:48EC8537808FA374D9638D71B082852A133DCDDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +33,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736665   (106589) от 14.07.2024
+###  Публикация: 616175   (973975) от 11.02.2013
 
-Axxis - Coming Home (2024) [MP3|320 Kbps] <Melodic Heavy, Power Metal>
+Ammen - Que asi sea (2011) [MP3|320 кб/с]<Industrial Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106589.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Blackest Vision (03:27)
- 02. Coming Home (03:13)
- 03. Atlantica (03:42)
- 04. Moonlight Bay (04:02)(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:41:34
+01. La Regla De La Vida (4:20)
+02. Praxis Vital (4:14)
+03. Tiempo (3:38)
+04. Fábrica De Emociones (3:50)
+05. Sangre Ardiente (3:46)
+06. Más Allá (5:33)
+07. Caen Mis Alas (4:49)
+08. Otse Achucse (3:51)
+09. Fuga (4:02)
+10. Lo Siento (5:22)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:53:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:455C8E40CF73F179C9ECD1FBF8A97B14C6B72813
+magnet:?xt=urn:btih:EE721C47B5F512277F75D53635BEEB31826C1788
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +68,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735656   (106758) от 10.07.2024
+###  Публикация: 616900   (973756) от 11.02.2013
 
-Troyen - Unfinished Business (2024) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
+Saxon - Sacrifice (2013) [MP3|320 кб/с]<Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106758.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Man I Used To Be (03:42)
- 02. Twist Of Fate (04:27)
- 03. Hoax (03:38)
- 04. On The Outside (Don't Go!) (04:15)(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:51:21
+01. Procession
+02. Sacrifice
+03. Made In Belfast
+04. Warriors Of The Road
+05. Guardians Of The Tomb
+06. Stand Up And Fight
+07. Walking The Steel
+08. Night Of The Wolf
+09. Wheels Of Terror
+10. Standing In A QueueЖанр: Heavy MetalПродолжительность: 00:39:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB4F427548219FF34C8139A60C1F1C3424EC3200
+magnet:?xt=urn:btih:3620DFD294A4A7EC4AC162317CB4B3EF3BAD7578
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735487   (106895) от 08.07.2024
+###  Публикация: 616871   (973621) от 11.02.2013
 
-Sabïre - Jätt (2024) [MP3|320 Kbps] <Heavy Metal>
+Tanzwut - 6 albums + 1 live (1999 - 2011) [MP3|256-320 кб/с]<Folk/Industrial Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106895.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. The Doorway (Entry) (03:43)
- 02. Pure Fucking Hell (03:56)
- 03. Ice Cold Lust (05:02)
- 04. I'm A Rock (04:40)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:38
+...И было это в году 1353 от рождества Христова, когда Черный Всадник мчался по Европе, собирая богатый урожай. Тогда в город пришли музыканты с волынками и барабанами, и народ, особенно женщины, стал превращать ощущение близкого конца в днями длящееся неистовство, в ярость танца - Tanzwut. На пороге нового тысячелетия TANZWUT вновь возвращается в "здесь и сейчас", воплотившись в музыке одноименной берлинской команды.Жанр: Folk/Industrial MetalПродолжительность: 00:53:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C9E392F24F65F2CDF3D02210C8781F8FE8C73A3
+magnet:?xt=urn:btih:FEB613C2F072ECC592F61525CF91CD685B6E87EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +129,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735469   (106896) от 08.07.2024
+###  Публикация: 975202   (973434) от 14.01.2016
 
-Sunbomb - Light Up The Sky (2024) [MP3|320 Kbps] <Heavy Metal>
+Ewigheim - Nachruf (2013) [MP3|320 кб/с] <Industrial Metal, Gothic Metal, Dark Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106896.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unbreakable (03:56)
- 02. Steel Hearts (03:38)
- 03. In Grace We'll Find Our Name (06:00)
- 04. Light Up The Skies (04:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:12
+01.Zwischen Menschen
+02.Die Augen zu
+03.Am Meer
+04.Heimweh(   Читать дальше...   )Жанр: Industrial Metal, Gothic Metal, Dark MetalПродолжительность: 00:39:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0B8490064FBC20058A54BB693BD2336E4288814
+magnet:?xt=urn:btih:BD0A9DE7F646CDA01FAE249921A0720C3DC2CFBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +158,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735477   (106903) от 08.07.2024
+###  Публикация: 975375   (973362) от 14.01.2016
 
-Sear Bliss - Heavenly Down (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
+Ecliptica - Ecliptified (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106903.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973362.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Infinite Grey (06:17)
- 02. Watershed (04:42)
- 03. The Upper World (05:56)
- 04. Heavenly Down (04:36)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:16
+1. Welcome To The Show
+2. Hate The Pain
+3. Round 'n' Round
+4. Road To Nowhere(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC50686C490914AAD66EE7913A90209B9989A950
+magnet:?xt=urn:btih:4E0A5C3A625F682CA489977624CFA741D492BE4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +187,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735578   (106917) от 08.07.2024
+###  Публикация: 975236   (973360) от 14.01.2016
 
-Isle of the Cross - Faustus The Musical (2024) [MP3|320 Kbps] <Progressive Metal, Symphonic Metal>
+Mr. Ego - Se7en (2015) [MP3|320 кб/с] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106917.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prologue (01:01)
- 02. Wittenberg, 1587 (01:59)
- 03. Metaphysics Of Magicians (05:43)
- 04. The Divine Apostate (07:42)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic MetalПродолжительность: 00:58:12
+01. 16:2
+02. Fall On Our Knees
+03. Broken Walls
+04. 1917(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:52:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA7401AAC3FD5A9E19C30A6D2E30650BDD943E68
+magnet:?xt=urn:btih:2AB28A7AA74E48B146F9D57800CB73269E5845EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +216,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735429   (106941) от 08.07.2024
+###  Публикация: 975318   (973275) от 14.01.2016
 
-Triddana - Breaking From The Fold (2024) [MP3|320 Kbps] <Celtic Folk, Power Metal>
+Rhapsody Of Fire - Into the Legend (2016) [MP3|320 кб/с] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106941.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Breaking From The Fold (04:02)
- 02. Wasted Paradise (04:24)
- 03. The Ground Of The Fallen (04:04)
- 04. Son Of Your Deeds (04:40)(   Читать дальше...   )Жанр: Celtic Folk, Power MetalПродолжительность: 00:47:20
+1. In Principio
+2. Distant Sky
+3. Into the Legend
+4. Winter's Rain(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:06:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:327A822C65F7B1E0BF1D8BB7ABFF3B9A828217BB
+magnet:?xt=urn:btih:27C740EFF9DE473BB16640C4C8E35A38F8C58BA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +245,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733285   (107306) от 28.06.2024
+###  Публикация: 617604   (972591) от 12.02.2013
 
-Pryne - Gargantuan (2024) [MP3|320 Kbps] <Progressive Metal>
+Leviathan - The Aeons Torn (2013) [MP3|320 кб/с]<Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107306.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Can'-Ka No Rey
-02. Ramification
-03. Hollow Sea
-04. Abordan(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:46:51
+01. The Crescent Moon
+02. The Rising Darkness
+03. The Sacred Fire
+04. The Restless Wind
+05. Elysium
+06. Towards The Storm
+07. When Only Despair Remains
+08. Last Laugh At My Existence
+09. A Symphony For No TomorrowЖанр: Melodic Death MetalПродолжительность: 00:49:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FF150A206F536805327635CAE383F5E1F1E128E
+magnet:?xt=urn:btih:35F3CC28D14C2B16C8B73964EBE4D4D59B2222FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +279,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732982   (107383) от 27.06.2024
+###  Публикация: 617606   (972525) от 12.02.2013
 
-Anvil - One And Only (2024) [MP3|320 Kbps] <Heavy Metal>
+Raven Lord - Descent To The Underworld (2013) [MP3|320 кб/с]<Heavy Metal/Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107383.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01 - One and Only (03:59)
- 02 - Feed Your Fantasy (03:50)
- 03 - Fight for Your Rights (02:47)
- 04 - Heartbroken (03:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:30
+1. The Rebel
+2. Attila the Hun
+3. Let the Show Go On
+4. Seal of the Cross
+5. Settle the Score
+6. Promised Land
+7. Black Friar
+8. World out of Steel
+9. Revelation
+10. Metal Knights(   Читать дальше...   )Жанр: Heavy Metal/Power MetalПродолжительность: 00:45:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:200D3E414FB68E17055D4010A04C993D17ACBB7F
+magnet:?xt=urn:btih:8F878F3ECCAD0731DFA22C311C2D4CA260198C97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +314,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732614   (107406) от 27.06.2024
+###  Публикация: 617471   (972300) от 12.02.2013
 
-Borne of Ash - From the Dark, They Came (2024) [MP3|320 Kbps] <Atmospheric Death, Doom Metal>
+Optical Faze - The Pendulum Burns (2013) [MP3|320 kbps] <Modern Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107406.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. From The Dark, They Came
-02. The Age Of Fire
-03. The Bells Of Awakening
-04. Asylum(   Читать дальше...   )Жанр: Atmospheric Death, Doom MetalПродолжительность: 01:02:40
+01. Trail Of Blood (04:00)
+02. Pressure (04:05)
+03. Moment Of Nothing (07:26)
+04. One Way Path (04:34)
+05. Lie To Protect (04:01)
+06. Mindcage (07:07)
+07. Carved (04:16)
+08. Red Sun (04:07)
+09. The Collapse (04:13)
+10. Ghost Planet (06:26)Жанр: Modern MetalПродолжительность: 00:50:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:300AFFC14A610B428666F456F54D8C63C6656974
+magnet:?xt=urn:btih:26C21E0AE8D76B8B0B6AE92D071BFE18A285031C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +349,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732569   (107423) от 26.06.2024
+###  Публикация: 744196   (972291) от 11.01.2014
 
-Aggressive By Nature - Rebirth (2024) [MP3|320 Kbps] <Heavy Metal, Thrash Metal, Death Metal>
+Suicidal Angels - Divide And Conquer (2014) [MP3|320 кб/с]<Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107423.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01 - Sound Check (intro) (00:22)
- 02 - Hand It Out (06:28)
- 03 - Necropolis Regent (05:18)
- 04 - Out For Blood (04:58)(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, Death MetalПродолжительность: 00:43:43
+1. Marching Over Blood
+2. Seed Of Evil
+3. Divide And Conquer
+4. Control The Twisted Mind
+5. In The Grave
+6. Terror Is My Scream
+7. Pit Of Snakes
+8. Kneel To The Gun
+9. Lost Dignity
+10. White WizardЖанр: Thrash MetalПродолжительность: 00:49:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A588003D9B2F8FD002976B2E113D6C1FD19CDE8
+magnet:?xt=urn:btih:0791F384667A8FF1F3BEBFEE891B1F0C355C9EF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +384,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732180   (107486) от 24.06.2024
+###  Публикация: 744038   (972272) от 11.01.2014
 
-Within Temptation - Worlds Collide Tour (Live in Amsterdam) (2024) [MP3|320 Kbps] <Symphonic-Metal>
+Suncrown - You Are Not Alone (2014) [MP3|320 кб/с]<Symphonic / Epic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107486.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Our Solemn Hour
-02. Faster
-03. Paradise (What About Us?)
-04. Stand My Ground(   Читать дальше...   )Жанр: Symphonic-MetalПродолжительность: 01:10:43
+01. The Beginning Is Near
+02. Who Are You
+03. You're Not Alone
+04. Grandfather's Song
+05. Primordial Call
+06. Open The Winds
+07. Victory Inside You
+08. Just Like You
+09. Sometimes This Life
+10. Push(   Читать дальше...   )Жанр: Symphonic/Epic MetalПродолжительность: 00:51.07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79DBF9227D283384E563C9417962068C1FF25951
+magnet:?xt=urn:btih:2E6FA84EC16EA2A7F362499E7E769CBBF5B2D830
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +419,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730753   (107827) от 17.06.2024
+###  Публикация: 975674   (972259) от 15.01.2016
 
-Vesperian Sorrow - Awaken the Greylight (2024) [MP3|320 Kbps] <Symphonic Black Metal>
+Dissfigured - Thousand Yard Stare (2016) [MP3|320 кб/с] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107827.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. As The Pillars Were Raised (06:26)
- 02. Antediluvian Proceeding The Unshaping (05:52)
- 03. An Epistle To The Prime Vivified (05:06)
- 04. Traverse The Vorthonian Passage (05:14)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:59
+01. Shadow Man 4:07
+02. Down 3:08
+03. Stomping Grounds 4:16
+04. One of Us 4:08(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BF238AB5406E734110343A935E8CDC92E85F3F0
+magnet:?xt=urn:btih:115D4674360A3828ABF06DB95DD9B7CF26438778
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +448,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730419   (107846) от 16.06.2024
+###  Публикация: 975319   (972257) от 15.01.2016
 
-Jet Engine Dragons - Ronin (2024) [MP3|320 Kbps] <Progressive Death, Groove Metal>
+Non Divine Sun - Non Divine Sun (2016) [MP3|320 кб/с] <MDM>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107846.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prelude
-02. Cursed Gods Reborn
-03. The Oracle
-04. Severed(   Читать дальше...   )Жанр: Progressive Death, Groove MetalПродолжительность: 00:39:42
+01. Dawn Of A New Error
+02. Struggle
+03. The Feasting
+04. War In Glory(   Читать дальше...   )Жанр: MDMПродолжительность: 00:45:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C14AEFD92192B8673E684D7B974E7716FADFAF3
+magnet:?xt=urn:btih:7E52567F7A107A6526C56C5DCA24C6D7B249701F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +477,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730551   (107864) от 16.06.2024
+###  Публикация: 975472   (971941) от 15.01.2016
 
-Rascal - Rascal (1990) [MP3|192 Kbps] <AOR>
+Brainstorm - Scary Creatures (2016) [MP3|320 кб/с] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107864.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Is It Over
-02 - Knock Me Off My Feet
-03 - My Love's Not The Same
-04 - Days Gone By(   Читать дальше...   )Жанр: AORПродолжительность: 00:31:37
+01. The World to See
+02. How Much Can You Take
+03. We Are...
+04. Where Angels Dream(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6431DB090F5483CBE883D864E33806E1B2B6B033
+magnet:?xt=urn:btih:937DBBB6BDC51F22FC4E5A5F8B65ED3FE00F4473
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +506,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729097   (108100) от 10.06.2024
+###  Публикация: 440582   (971544) от 22.01.2012
 
-Gone til Winter - The First Season (2011) Compilation [MP3|320 Kbps] <Gothic Metal, Rock>
+Ecliptica - Journey Saturnine (2012) [MP3|320 kbps]<Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108100.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Solemnise
-02. Heat Signal
-03. Kill Me
-04. Utopia(   Читать дальше...   )Жанр: Gothic Metal, RockПродолжительность: 00:34:10
+01. ђ (Saturn's Theme) (01:20)
+02. Journey Saturine (03:55)
+03. Fire! Burn! (04:00)
+04. Love & Misery (03:51)
+05. Dreamland (04:41)
+06. Blackened Day (03:40)
+07. Ready For A Ride (03:53)
+08. Kingdom Of Heaven (04:15)
+09. The Shadow (04:34)
+10. Condition Crest Fallen (04:45)(   Читать дальше...   )2012Жанр: Power MetalПродолжительность: 00:46:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C72058395867BB6434F5E9AD2687DFBDDF5EA94
+magnet:?xt=urn:btih:1F7AAC60451536561EE4CE1AF690CAA0AB03926F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +541,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729091   (108102) от 10.06.2024
+###  Публикация: 439057   (971464) от 22.01.2012
 
-Gone til Winter - Gone til Winter (2009) Demo [MP3|320 Kbps] <Gothic Metal, Rock>
+Jack Starr's Burning Starr - Land Of The Dead (2011) [MP3|320 kbps]<Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108102.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Constant Retreat
-02. Hear Me
-03. Violated Within
-04. Ultimate Reality(   Читать дальше...   )Жанр: Gothic Metal, RockПродолжительность: 00:31:12
+01. Land Of The Dead (06:29)
+02. Sands Of Time (05:12)
+03. Twilight Of The Gods (02:33)
+04. Stranger In Paradise (05:30)
+05. Here We Are (04:38)
+06. Warning Fire (feat. Ross The Boss) (05:23)
+07. Daughter Of Darkness (06:57)
+08. When Blood And Steel Collide (06:39)
+09. On The Wings Of The Night (04:40)
+10. Never Again (feat. David Shankle) (05:47)(   Читать дальше...   )2011Жанр: Heavy MetalПродолжительность: 01:00:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:289D0CA16A0B7160FBAE169681F69DAF62398B48
+magnet:?xt=urn:btih:42C3D0341CBD9C2293EC06841F6EF2E32F8E8A5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +576,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729068   (108121) от 10.06.2024
+###  Публикация: 439966   (971046) от 22.01.2012
 
-Humanity Gone - Everything Nothing (2024) [MP3|320 Kbps] <Progressive Metal>
+Pain - Nothing Remains The Same (2002) [MP3|320 kbps]<industrial metal\cyber metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108121.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Everything (07:53)
- 02. Nothing (09:39)
- 03. Tossing Stones (05:55)
- 04. EMP (07:06)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:52
+1. It's Only Them
+2. Shut Your Mouth
+3. Close My Eyes
+4. Just Hate Me
+5. Injected Paradise
+6. Eleanor Rigby (Beatles cover)
+7. Expelled
+8. Pull Me Under
+9. Save Me
+10. The Game(   Читать дальше...   )2002Жанр: industrial metal\cyber metalПродолжительность: 00:45:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25BE1B49C5D5FF5CCE36B4006098C30C3A208FB4
+magnet:?xt=urn:btih:6495C451FF5366D1253287107EF480AF4E5F3103
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,25 +611,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729093   (108127) от 10.06.2024
+###  Публикация: 1358130   (970733) от 06.02.2020
 
-Gone til Winter - Hear Me (2009) Single [MP3|320 Kbps] <Gothic Metal, Rock>
+Shok Paris - Full Metal Jacket (2020) [MP3|320 Kbps] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108127.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hear Me (Radio Edit)Жанр: Gothic Metal, RockПродолжительность: 00:04:01
+1 - The Creed [1:22]
+ 2 - Full Metal Jacket [3:14]
+ 3 - Nature of the Beast [4:20]
+ 4 - Do or Die [2:58](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF0E7795C523453821EDAE8FD559C5ED6C764E6D
+magnet:?xt=urn:btih:26452CF72926CDBDE01E790B8E8CE747FD6C1B62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +640,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728981   (108130) от 10.06.2024
+###  Публикация: 1358059   (970730) от 06.02.2020
 
-Gangruel - The Harvest Withers (2024) [MP3|320 Kbps] <Melodic Death Metal>
+Delain - Apocalypse & Chill (2020) [MP3|320 Kbps] <Symphonic Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108130.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Harvest Withers
-02. Starvation
-03. Forlorn
-04. Faltering(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:30
+1. One Second
+2. We Had Everything
+3. Chemical Redemption
+4. Burning Bridges(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:56:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:749855B0E4745CF6DC3D5AFAA454D7F8D7A488CE
+magnet:?xt=urn:btih:8CA157992B4D819DF3F2C47BB7E3189F2E9AB3C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +669,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728546   (108183) от 09.06.2024
+###  Публикация: 1358058   (970641) от 06.02.2020
 
-Haldun Lenger - Chaos War (2024) [MP3|320 Kbps] <Power Metal>
+Sepultura - Quadra (2020) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108183.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970641.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Dragons [00:01:30]
-02 - Queen of Lies [00:04:22]
-03 - Hero's Fall [00:03:45]
-04 - Fair Lady's End [00:04:31](   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:10
+1. Isolation
+2. Means to an End
+3. Last Time
+4. Capital Enslavement(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:51:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1CDE454B0968B6C07A418DFAD366DECC5D8C703
+magnet:?xt=urn:btih:B6D6F0D3438F9CBFE7A7C99DC0EEC61B4B5242E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +698,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728580   (108186) от 09.06.2024
+###  Публикация: 167892   (970136) от 20.01.2010
 
-Escarlathia - Escarlathia (2024) [MP3|320 Kbps] <Gothic Metal>
+Mnemic - Sons Of The System (2010) [MP3|320 kbps]<Modern Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108186.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Delirium
-03. Misantropía
-04. Agonía(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:39:53
+01. Sons Of The System (5:36)
+02. Diesel Uterus (4:32)
+03. Mnightmare (4:55)
+04. The Erasing (4:08)
+05. Climbing Towards Stars (4:41)
+06. March Of The Tripods (6:54)
+07. Fate (3:35)
+08. Hero(in) (5:15)
+09. Elongated Sporadic Bursts (3:51)
+10. Within (4:45)(   Читать дальше...)Жанр: Modern Metal
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71CEEBEEF145F54F3806E82ABE3A625ADA3632FC
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +733,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728521   (108226) от 09.06.2024
+###  Публикация: 618453   (969891) от 14.02.2013
 
-Endangered Reign - The Forester Awakens (2024) [MP3|320 Kbps] <Power, Progressive Metal>
+Hanging Garden - At Every Door (2013) [MP3|320 кб/с]<Doom Metal, Post-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108226.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Firesailing
-02. Through Your Fear
-03. Ethereal Skies
-04. Defending The Realm(   Читать дальше...   )Жанр: Power, Progressive MetalПродолжительность: 01:10:23
+01. Ten Thousands Cranes (6:21)
+02. Ash And Dust (6:25)
+03. Heigra (6:33)
+04. Wormwood (6:23)
+05. At Every Door (4:24)
+06. The Cure (8:20)
+07. Evenfall (4:53)
+08. To End All Ages (10:33)Жанр: Doom Metal, Post-MetalПродолжительность: 00:54:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:318045458065D2EDA1DB338E96193C6D5821A410
+magnet:?xt=urn:btih:26E24450E78D27AD1E76D8089E8595372128DAED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +766,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727982   (108370) от 05.06.2024
+###  Публикация: 618780   (969848) от 14.02.2013
 
-Spleen - Dead Creature (2024) [MP3|320 Kbps] <Progressive Thrash Metal>
+Suffocation - Pinnacle of Bedlam (2013) [MP3|320 кб/с]<Technical Brutal Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108370.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. The End (06:42)
- 02. Barren Land (03:49)
- 03. Knee Deep In The Dead (05:59)
- 04. Dead Creature (04:09)(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:53:30
+01. Cycles of Suffering
+02. Purgatorial Punishment
+03. Eminent Wrath
+04. As Grace Descends
+05. Sullen Days
+06. Pinnacle of Bedlam
+07. My Demise
+08. Inversion
+09. Rapture of Revocation
+10. Beginning of SorrowЖанр: Technical Brutal Death MetalПродолжительность: 00:38:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53BCE07C3FDAF3EB9325095DD59F2BC8B3DC5283
+magnet:?xt=urn:btih:37AE9E550D90E3603DCCA24CB4B24F70087F6203
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +801,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727938   (108377) от 05.06.2024
+###  Публикация: 745232   (969576) от 13.01.2014
 
-Duality - Elektron (2016) [MP3|320 Kbps] <Death Metal, Progressive Metal, Experimental>
+Skydancer - Land Of The Grim (2013) [MP3|320 кб/с]<Melodic Death Metal \ Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108377.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Six years locked clock (07:02)
-02. Azure (03:37)
-03. Chaos introspection (01:26)
-04. Along the crack (06:19)(   Читать дальше...   )Жанр: Death Metal, Progressive Metal, ExperimentalПродолжительность: 00:46:43
+01 - Swamp Tomb [00:05:16]
+02 - Ancares [00:05:00]
+03 - Ancestral Lands [00:04:37]
+04 - L'Even [00:02:14]
+05 - The Ferryman [00:03:57]
+06 - O Paso Do Tempo [00:03:34]
+07 - The Galician Exile [00:05:10]
+08 - Lembranza [00:01:32]Жанр: Melodic Death Metal \ Thrash MetalПродолжительность: 00:31:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E869D998EB1D073F14FB74E867D4E6BC3EEC858
+magnet:?xt=urn:btih:87044D26A32B1EFDD12CBAFA3C5ACC53C1563695
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 1092414   (940264) от 11.01.2017
+###  Публикация: 1750798   (104103) от 22.09.2024
 
-60 минут. Гудбай, Америка! (11.01.2017) HDTVRip  [H.264/720p-LQ]
+Andreas Diehlmann Band - That Old Blues Again (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940264.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ток-шоу с Ольгой Скабеевой и Евгением Поповым. В новом социально-политическом ток-шоу каждый день ведущие и гости программы обсуждают главную тему текущего дня. В студию приглашаются политические и общественные деятели, эксперты по актуальной проблематике.Телекомпания: Россия 1 HDЖанр: Телепередача, политическое ток-шоуПродолжительность: 01:00:20
+01. Whiskey Intro (1:12)
+02. Whiskey And Women (3:45)
+03. Gypsy Woman (3:37)
+04. That Old Blues Again (6:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F287259E61267F533DC23E94DAE7FB9D8FD5696
+magnet:?xt=urn:btih:6B39E60AEDDB812C10FF86A9D0713430036E84A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092264   (940265) от 11.01.2017
+###  Публикация: 1750796   (104102) от 22.09.2024
 
-VA - 30 Stars: Chillout (2016)2CD [FLAC|Lossless|tracks] <Chillout>
+Aetherwind - Ethereal Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940265.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Pharrell Williams - Gust Of Wind [04:45]
-02 Leon Bridges - River [03:59]
-03 MO Feat. Diplo - XXX 88 [03:41]
-04 Groove Armada - At The River [03:04](   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:57:59
+01. Aetherwind Prelude (3:29)
+02. Ethereal Wind Interlude (5:59)
+03. Ethereal Wind Postlude (4:01)
+04. Dark Skies (5:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5CEFAE00708C20A08B5E79BF97DED818D453433
+magnet:?xt=urn:btih:061B1985E8C561F04B77D2F06FBE0161D33EFCA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,306 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089587   (940266) от 11.01.2017
+###  Публикация: 1751065   (104101) от 22.09.2024
 
-Антуан де Базилевич | Роковая любовь короля Сигизмунда (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алчность, зависть, жажда власти всегда окружают королевский трон. Эти демоны царят и в королевской опочивальне. Очередной династический брак под угрозой. Король Трансильвании Сигизмунд полюбил хитрую и обольстительную Елену Родней. Королева, беременная вторым ребенком, в отчаянии. Сможет ли она спасти свой брак и вырвать мужа из когтей коварной и жестокой фаворитки?Жанр: Исторический романПродолжительность: 07:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EAE5B04094D2BF12D3C8E7F83B7DCE6ADA9F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092178   (940267) от 11.01.2017
-
-The Robert Cray Band - Too Many Cooks (1980) 1989, TOMATO, авторская раздача [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое смешное случилось с Robert Cray после завершения этого его первого релиза в 1980 году: он стал звездой! Он что называется оседлал  волну музыкального признания. Для тех, кто знал работу Крея в конце 70-х годов, кто следил за его ранним карьерным путем в качестве современного и самостоятельного блюзмена, не было ничего удивительного. Ведь он не просто продолжил (   Читать дальше...   )01. Too Many Cooks  (2:50)
-02. The Score  (4:08)
-03. When The Welfare Turns Its Back On You  (3:21)
-04. That's What I'll Do  (2:38)(   Читать дальше...   )Релиз состоялся: 1980, на LP под названием Who's Been Talkin'Жанр: BluesПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776697E4BB56DA006462DB96735830D1FA40D104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092146   (940268) от 11.01.2017
-
-VA - Official House Around Hits (2017) [MP3|320 Kbps] <House, Future House, Tropical, Funky, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maddix & Jayden Jaxx - Voltage  3:05
-02.  Naxwell - The Game (Radio Mix)  3:21
-03.  DLC - Found (Original Mix)  6:35
-04.  Dave Winnel - Old School (Extended Mix)  4:18(   Читать дальше...   )Жанр: House, Future House, Tropical, Funky, ElectroПродолжительность: 04:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC993B8B8A11238C206BC76C98E3997925335836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092070   (940269) от 11.01.2017
-
-VA - Best Of Electronic And Progressive Sound (2017) [MP3|320 Kbps] <Big Room, Drum & Bass, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940269.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.&ME, Rampa, Nomi Ruiz, NR& - Taste Like (Original Mix)
-002.&ME - Cape Coast (Original Mix)
-003.808 State - In Yer Face (Bicep Remix)
-004.Above & Beyond, Justine Suissa - Little Something (Super8 & Tab Remix)(   Читать дальше...   )Жанр: Big Room, Drum & Bass, Future HouseПродолжительность: 23:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEFD5BA49E8D6A6C3641C3D68A96022AA2ED802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092150   (940270) от 11.01.2017
-
-Ruaidhri - Celtic Landscapes (2013) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castlerigg [00:06:16]
-02. Glendalough [00:07:59]
-03. Iona [00:06:45]
-04. Lindisfarne The Holy Isle [00:05:58](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBD96D91C99D97FEB25AE231B90077967669380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091960   (940271) от 11.01.2017
-
-VA - Убойные хиты от радио Шансон Выпуск № 8 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Валерий Юг - Колея 3:22
-002. Александр Дадали - Бродяга 5:52
-003. Александр Келеберда - Мы Как Яблоки В Снегу 4:14
-004. Слава Прибрежный - Собрались Зверье В Лесу 3:30(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027261DE9324E52B3B348966E99B7BEB1C146BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090523   (940272) от 11.01.2017
-
-Светлана Феоктистова | Наследник (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940272.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Питере похищен наследник древнего кавказского рода. Разгневанные родственники проводят свое расследование, повлекшее за собой целую цепь таинственных исчезновений. Кто этот таинственный похититель? Бандит из `отморозков`, сумасшедший спецназовец или бывший сотрудник Конторы? За дело берется неустрашимый Леха Николаев. У агента национальной безопасности только 48 (   Читать дальше...   )Жанр: ДетективПродолжительность: 11:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146F3AAD5FA6043B35F001C531FB2B635983A4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091949   (940273) от 11.01.2017
-
-VA - Масть крестовая от радио Шансон Выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940273.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дуэт Золото - Непрошеная Любовь 4:25
-002. Иван Смелик - Температура 3:25
-003. Сергей Куприк - Какая Ты Красивая 3:12
-004. Евгений Миха - Моя Колючечка 3:19(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC7D4271FF68CFD98370B0A31D133ABE47767C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984122   (940274) от 08.02.2016
-
-Иоанна Хмелевская | Проза жизни (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестнадцатилетняя Тереска не представляет себе жизни без сильных переживаний и захватывающих дух приключений. В этом смысле ей повезло — похоже, она как магнит притягивает к себе всякие удивительные и загадочные приключения. А уж от переживаний просто голова кругом идёт. Взять хотя бы её Великую Любовь или случайно подслушанный разговор о замышляемом убийстве. В (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF6485A76FDF9D94AFFF3B2B9F23376DFAACB09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092292   (940276) от 11.01.2017
-
-Шерил Андерсон | Роковые шпильки (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молли Форрестер, ведущая в глянцевом журнале колонку для женщин, грезит о том, чтобы какой-нибудь случай помог ей вырваться из круга скучных дамских проблем. И вот, пожалуйста: придя вечером в редакцию, Молли наступает в темноте на кровавое пятно, загубив при этом свои сногсшибательные туфельки. Воодушевившись возможностью написать сенсационный репортаж, она предпринимает (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4CBEF1B6DCF82ECA37472D1093252154F759B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984284   (940277) от 08.02.2016
-
-Status Quo - Piledriver (1972) 2CD, remaster, 2016, Vertigo, Japan [FLAC|Lossless|image + .cue] <Classic Rock>
+Eradicator - The Paradox (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940277.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BBC Sounds Of The Seventies 1972
-01. Don't Waste My Time / BBC Sounds Of The Seventies 1972 (4:24)
-02. Oh Baby / BBC Sounds Of The Seventies 1972 (4:26)
-03. Unspoken Words / BBC Sounds Of The Seventies 1972 (5:06)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:59:18
+01. Beyond The Shadow's Void
+02. Drown In Chaos
+03. When The Shooting Begins
+04. Kill Cloud(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A462A32E2B4C6705DAA3B8419F54107B3D298EE
+magnet:?xt=urn:btih:5624CF0F3B0A135A1A005A5823827F2411202F2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091955   (940279) от 11.01.2017
+###  Публикация: 1750811   (104100) от 22.09.2024
 
-VA - Полный отрыв. Зимние хиты. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
+Patrick Bradley - Gratitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz, Latin Jazz>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940279.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Evidelle - Ну Почему 3:40
-002. Olstan Van Guard - Капли Дождя 4:52
-003. Rae Sremmurd - Black Beatles 4:52
-004. John Legend - Start A Fire 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+01. Narrow Path (4:33)
+02. Nothin' Ain't (4:00)
+03. Road Trippin' (4:20)
+04. Gratitude (4:01)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, Latin JazzПродолжительность: 00:44:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAD3AA4CA3E13F7AE26005F7ACDD7E7C5FD93B9B
+magnet:?xt=urn:btih:96263EA1528EAECE565B676812DF4F3073DBB372
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,26 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984405   (940281) от 08.02.2016
+###  Публикация: 1750810   (104099) от 22.09.2024
 
-Познер. Интервью с Аллой Грязновой (08.02.2016) SATRip
+LeSoir - Push Back The Horizon (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive-Rock>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940281.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Познер» - это программа-интервью. Владимир Познер задает вопросы политикам, общественным деятелям, деятелям культуры, искусства, науки, спорта. Беседа может быть как привязана к актуальным событиям недели, так и не связана с последними событиями.
-Обязательным условием каждого выпуска ведущий считает рубрику «vox populi» (глас народа). Вопросы гостю программы задают (   Читать дальше...   )В этом выпуске: Какова роль Сталина в истории России? Какой была бы Россия, если бы не было Революции и Первой мировой войны? В чем были ошибки реформ 90-х годов? Каково качество финансового образования в сегодняшней России? Как модернизировать российскую экономику? На вопросы Владимира Познера отвечает российский экономист, профессор, президент Финансового университета при Правительстве (   Читать дальше...   )Телекомпания: Первый КаналЖанр: ТелепередачаПродолжительность: 00:55:30
+01. Push Back The Horizon (5:19)
+02. Under The Stars (4:53)
+03. Fireflies (5:00)
+04. You Are The World (5:33)(   Читать дальше...   )Жанр: Progressive-RockПродолжительность: 01:08:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EDC3868187F1FA1D7FC9A8C88FBED4C762A0E14
+magnet:?xt=urn:btih:A0016CCA0719DF91BEAA285EADD2E49E495901AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091999   (940282) от 11.01.2017
+###  Публикация: 1751045   (104098) от 23.09.2024
 
-Together 3.7.2 [En]
+Dell Solano - Músicas Autorais (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940282.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Together - Программа для хранения и организации файлов.
-Благодаря поддержке функции drag-and-drop, Together позволяет собирать изображения, текст, закладки и другие файлы, и хранить их в порядке. Все файлы можно делить на группы и папки, добавлять теги и ярлыки. А встроенная функция поиска поможет быстрой найти нужный файл.
-
-Приложение может хранить в своей базе (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 января 2017Разработчик: ReinventedSoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+01. Te Amo (4:17)
+02. Vou Morar no Rio (3:53)
+03. Corpo Coração (5:05)
+04. Águas Passadas (3:35)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7A806035F63C703D961941F020CB57CBB61F37D
+magnet:?xt=urn:btih:5404A045D3133DE9969E8EF33D663B6CB4F92B7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984218   (940285) от 08.02.2016
+###  Публикация: 1751032   (104097) от 23.09.2024
 
-VA - SuperBomb Club Music Pack 52 (2016) [MP3|320 кб/с] <Club, Electro House, Progressive House, Trance>
+Bones Owens - Love out of Lemons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940285.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Allen & Envy - Virtuous (Original Mix) (8:47)
-02. Andy Moor - Resurrection (Mike Saint-Jules Interstellar Mix) (6:27)
-03. APA - Johnny (Original Mix) (4:00)
-04. Audio Bastardz - Unicorn (Original Mix) (5:37)(   Читать дальше...   )Жанр: Club, Electro House, Progressive House, TranceПродолжительность: 03:09:24
+01. Love out of Lemons (3:32)
+02. Devil Gonna Getcha (2:36)
+03. For Keeps (2:45)
+04. Get It On (2:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8243D0367B4CBCF514C538193E175B2E5DD14006
+magnet:?xt=urn:btih:E152CBE7F64015ED4B5396FD88E116EE21DAF935
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092085   (940286) от 11.01.2017
+###  Публикация: 1751041   (104096) от 23.09.2024
 
-VA - Magic Wind: Psychedelic Trance Mix (2017) [MP3|320 Kbps] <Psy, Goa Trance>
+Choca Blues - The Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940286.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Norma Project - Day For Dance
-002. Galactrixx - Supernova
-003. Electit - Sweet Bitches
-004. Bionic Delay - Tetrahedron Grid(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 13:12:04
+01. The Wind (4:51)
+02. Illinois Blues (4:49)
+03. Wild Ox Moan (4:29)
+04. Two Trains Running (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B047E25E416B38A585B9A89EB2AE78F254A21670
+magnet:?xt=urn:btih:72E3D48D839D53BA78D4ECE64BC95222DE049660
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984329   (940288) от 08.02.2016
+###  Публикация: 1751129   (104095) от 23.09.2024
 
-А. М. Гинзбург (ред.) | Частный капитал в народном хозяйстве СССР (1927) [DJVU]
+Klaus B. Jensen - In Memory of a Great Dane - The lost recordings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Научная и техническая литература
->>Историческая литература
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940288.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящая работа представляет собой сводку материалов, собранных и разработанных Особой комиссией ВСНХ СССР, учрежденной в феврале 1926 года по распоряжению покойного председателя ВСНХ Ф. Э. Дзержинского.Жанр: История, политология, экономикаФормат: DJVU
+01. Baby, What Do You Want Me To Do? (3:26)
+02. I Want To Go (2:36)
+03. Candy Man (3:20)
+04. The Sky Is Crying (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B393CACFFE736E08C9CEF553D0614FFCAC6B47AC
+magnet:?xt=urn:btih:AD710740585F7F722373C03DD73E3EAB6219BB8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,27 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 175442   (940291) от 14.02.2010
+###  Публикация: 1751049   (104094) от 23.09.2024
 
-Андрей Сидерский | Хатха йога "Киев Спорт Клуб" (1-12 занятия) [2004] DVDRip
+Ed Neumeister - Covers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940291.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-КИЕВ СПОРТ КЛУБ / ХАТХА ЙОГА / АНДРЕЙ СИДЕРСКИЙ / занятия 1-12
-Киев Спорт Клуб - фитнес-центр, известный в СНГ как предприятие, собравшее под своей крышей команду лучших профессионалов - тренеров и инструкторов по различным направлениям современной фитнес-культуры.
-Видеоматериалы серии "КИЕВ СПОРТ КЛУБ / ХАТХА ЙОГА / АНДРЕЙ СИДЕРСКИЙ / занятия" - выполненные (   Читать дальше...   )Жанр: Йога
+01. Rocky Raccoon (5:58)
+02. Try A Little Tenderness (7:33)
+03. Black Dog (6:48)
+04. The Last Great American Dynasty (3:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:19
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:DA1E71C80624961B6F4D5EA347F747487C535AB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,25 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984334   (940292) от 08.02.2016
+###  Публикация: 1751053   (104093) от 23.09.2024
 
-Грэм Грин | Конец одного романа (2015) [MP3]
+Francesco Bearzatti, Stefano Risso and Mattia Barbieri - Behind Anatomy (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940292.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Конец одного романа» — одино из лучших произведений Грэма Грина. Роман про человеческую любовь, в которую вторгся Бог. Чудо ли это или «кража», как считает главный герой? Он говорит, что пишет историю ненависти, ненависти к своей возлюбленной и Богу. Но не окажется ли эта история житием?Жанр: Зарубежная литература, романПродолжительность: 07:00:32
+01. OneEmo (6:28)
+02. Anatomie Equilibriste (6:24)
+03. Lee's Dance (4:42)
+04. A La Guy Lombardo - More Blues - A La Guy Le Querrec (4:43)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81DE90903926C846B9BE58B4F9565B2FF69DA049
+magnet:?xt=urn:btih:B39A89303F1AE6719B501192C8F31D4496873F17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,27 +317,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092343   (940293) от 11.01.2017
+###  Публикация: 1751218   (104092) от 23.09.2024
 
-Downie 2.6.4 [Multi/Ru]
+Джон Банни. Алмаз режет алмаз / Diamond Cut Diamond (1912) WEBRip
 
->>Архив торрентов
->>Архив 4Apple
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940293.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
-
-Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11 января 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
+Ревнивая женушка постоянно подозревает благоверного в изменах. Тем более он частенько задерживается на работе. Она решила разоблачить его, придумав целый сценарий с переодеванием. Муж обо всем догадался, но решил подыграть ревнивице...
+В кадре имеется логотип киноархива.Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, комедия, немое киноРежиссер: Вилфрид НортАктеры: Джон Банни, Флора Финч, Мэй Костильо, Уоллес Рид, Ричард Россон, Рэй Форд, Кейт ПрайсПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5620705FDB9A108FF38C77CA5D8A16AF30E5C72
+magnet:?xt=urn:btih:75611358B52DF0C2C5C4BD2DCCC08DE935C5F3A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,27 +344,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092202   (940295) от 11.01.2017
+###  Публикация: 1751130   (104091) от 23.09.2024
 
-Direct Message for Instagram Pro 4.0.1 [Multi/Ru]
+Lady Adrena - Recipe For The Blues (Deluxe Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив 4Apple
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940295.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отправка и получение прямых сообщений для Instagram с вашего Mac. Первое и единственное приложение для Mac, которые может это сделать!
-
-Примечание: Аккаунт Instagram требуется для использования этого приложения. Если его у вас нет, пожалуйста, зарегистрируйтесь из Instagram приложения на вашем смартфоне.Тип издания: macOS SoftwareРелиз состоялся: 10 января 2017Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский и др.
+01. Blues Chose Me (3:37)
+02. Borrow My Pans (2:55)
+03. Traveling Woman (3:34)
+04. Good Girl Gone Bad (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E6E9C74044C57B34611E7C00CE3CC400B300120
+magnet:?xt=urn:btih:ACF75FD3ED6F83EC908CB213EF51968AFFE72440
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,25 +373,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 283797   (940296) от 17.01.2011
+###  Публикация: 1751043   (104090) от 23.09.2024
 
-Queen + Paul Rodgers: Super Live in Japan (2006) DVD5
+Dear Robin - Timebound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Театр и Музыкальное видео
->>Концерты (DVD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940296.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Super Live in Japan — второй DVD группы Queen + Paul Rogers. Раритет видео вышло только в Японии 28 апреля 2006 года. На DVD показан концерт группы в городе Саитама 27 октября 2005 года. В хорошем качестве. На котором исполнены вживую "Teo Torriate" и "I was born to love you" исполнялись не на всех концертах тура а только на японских!Жанр: RockПродолжительность: 0:58:40
+01. Good Times (4:46)
+02. Timebound (4:14)
+03. Flower (5:26)
+04. Breakout (4:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:39
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:50978BDF63C154A6799FC2CD53D9E5E824166639
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,25 +402,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984250   (940297) от 08.02.2016
+###  Публикация: 1751132   (104089) от 23.09.2024
 
-Картинки - Олени [JPG]
+Lovesick - Remember My Name (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Графика, Арт, Разное
->>Картинки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940297.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Картинки с оленямиФормат: JPGРазрешение файлов: 1920x1379 - 7360x4912
+01. Until I'm Done (3:37)
+02. Remember My Name (2:50)
+03. You And I (2:55)
+04. Goin' Back For More (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E654C2E83B888E811F254827AAA9C8B7C69E29A7
+magnet:?xt=urn:btih:97EEAD30AD30F250D703C9E50D80AF67DCCD673A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +431,315 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092094   (940301) от 11.01.2017
+###  Публикация: 1751062   (104088) от 23.09.2024
 
-VA - Sun Goes Down: Chillout Party (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+Herb Alpert - 50 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940301.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Agent Juno - Sunstorm - Soundtrack Version
-002. Sansinena - Complicate
-003. Chiffre 100 - Jolly
-004. Lukas Termena - Feelings(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 11:12:56
+01. Dancing Down 50th Street (2:19)
+02. Sh-Boom (2:17)
+03. Are You Lonesome Tonight? (4:27)
+04. Baubles, Bangles And Beads (3:30)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1D3DF2F6707906CC58BA86FCBFBC86CA672112F
+magnet:?xt=urn:btih:32A884C63C787BDE630CD8633B9978A3579C0990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751058   (104087) от 23.09.2024
+
+Greg Izor - Sustained Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Ahead On (2:37)
+02. Untrue (2:42)
+03. Here On Ice (5:48)
+04. Lies Of Omission (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81915F1E6FAEA46E6B47D1DA905C5DC365701E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751147   (104086) от 23.09.2024
+
+Doomsday Outlaw - Hard Times (Redux) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Times (5:56)
+02. Over and Over (3:37)
+03. Spirit That Made Me (5:21)
+04. Into The Light (3:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3674980C6FD30EF1D3A7AB61136EA3AB84666038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751060   (104085) от 23.09.2024
+
+Hard-on Blues - Hard-on Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Precious vicious (3:49)
+02. Thank you. (3:57)
+03. Sunday Morning Mood (4:00)
+04. You turn me on (3:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE8BE8E9816A5B8003CE7CB4D8F7707B984060F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751151   (104084) от 23.09.2024
+
+Duo Holistique - FUTURISTIQUE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le jour se lève (6:31)
+02. Bienvenue dans le club progressiste du futur (6:18)
+03. Hymne pour l'avenir (4:09)
+04. Le silence en dit plus que mille mots (9:36)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C373E69F8DBAAED3680DAF47583339D857CB783D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751191   (104083) от 23.09.2024
+
+Хоккей. КХЛ 2024-2025. Ак Барс (Казань) - ХК Сочи (Сочи) (22.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Ак Барс (Казань) - ХК Сочи (Сочи) (22.09.2024)
+СУДЬИ Кочетов Евгений (Россия) Кулаков Сергей (Тверь, Россия)
+СТАДИОН «Татнефть Арена» (Казань) Зрителей: 8223Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562A314395065F8BA5860CF6AA30C8A22A3287DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751116   (104082) от 23.09.2024
+
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - Динамо (Москва) (22.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - Динамо (Москва) (22.09.2024)
+СУДЬИ Лаврентьев Антон (Казань, Россия) Спирин Виктор (Россия)
+СТАДИОН «Платинум Арена» (Хабаровск) Зрителей: 7100Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC649633ADD0D1DA000258DB134B170D6E473BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751112   (104081) от 23.09.2024
+
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - ЦСКА (Москва) (22.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - ЦСКА (Москва) (22.09.2024)
+СУДЬИ Бирин Виктор (Москва, Россия) Раводин Алексей (Москва, Россия)
+СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 5520Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99272E5B2D3D4111FE8F733952C0FE7EFA0C943F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751037   (104080) от 23.09.2024
+
+Cek & The Stompers - Mr. Red (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Peach & The Snake (2:48)
+02. Mr. Red (3:05)
+03. Juanita (3:26)
+04. Please Me (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739BED6F4EC1E4E3BAD7AC6A85E22906B3BDC899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751048   (104079) от 23.09.2024
+
+Dred Scott Trio - Cali Mambo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moses Patrou - Cali Mambo (4:38)
+02. Tom Beckham - Star Eyes (6:33)
+03. Tom Beckham - Poinciana (5:46)
+04. Tom Beckham - La Enganadora (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A775B916486B4B5DBBCA0DA07237E918CDF070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751054   (104078) от 23.09.2024
+
+Frankywright - Echoes of Sorrow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Did You Go (5:30)
+02. Goodbye, My Love (3:21)
+03. Midnight Tears (5:51)
+04. Echoes of Sorrow (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DCC94CBC52640BBA9A735F701D980AD3ADAC74
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,54 +1,31 @@
-###  Публикация: 1025666   (707843) от 13.06.2016
+###  Публикация: 540755   (498149) от 03.09.2012
 
-Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Soundtrack, New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening [00:04:08]
-02. Code 44 [00:04:32]
-03. The Arrival [00:02:50]
-04. Future Noir [00:03:25](   Читать дальше...   )Жанр: Electronica, Soundtrack, New Age, Synthwave, ElectroПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BEC82D45E9E399BA21BE16792621463BE9C7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025882   (707939) от 13.06.2016
-
-Blue Tribe - Deep Sentiment (2006-2011) (6 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
+Shiva feat. Magdalena - Shivas Dance (1996) [MP3|320 кб/с]<New Age, Relax, Electronic>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707939.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Way Of Sakayama (5:51)
-02. Free Tibet (6:38)
-03. Temple Lounge (4:52)
-04. Lhasabeats (6:00)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 04:55:53
+01. Intro Ropes, Ribbons And A Ball
+02. Far Behind The Skies
+03. Fly Away
+04. Shiva's Dance
+05. White Flower, Blue Flower
+06. We'll Be With The Stars Tonight
+07. Brahmane's Prayer
+08. Miracle Of Love
+09. Take Me Higher
+10. Karma(   Читать дальше...   )Жанр: New Age, Relax, ElectronicПродолжительность: 00:59:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BE566EB8E1827EF4B94C81E55BAD2E92DA64FB2
+magnet:?xt=urn:btih:8E78617A3E99144E58C9A0C04DF9B0B649AFB89F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,55 +33,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025753   (707940) от 13.06.2016
+###  Публикация: 542568   (498148) от 03.09.2012
 
-Eloy Fritsch (ex.Apocalypse) - 8 альбомов (1997 - 2012)[FLAC|Lossless|image + .cue]<Modern Classical, Ambient, New Age, Experimental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaia
-02. Neutron Star
-03. Sunshine
-04. Exogenesis Part I(   Читать дальше...   )Жанр: Modern Classical, Ambient, New Age, ExperimentalПродолжительность: 08:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FAC25CB0FBA3C1B1E41166D80A4028B131BA74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026014   (707946) от 13.06.2016
-
-Llewellyn - Native American Gold (2016) [MP3|320 кб/с] <New age, Relax, Meditative>
+VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707946.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The River Mermaid (32:33)
-02. The Old Woman of the Sea (16:07)Жанр: New age, Relax, Meditative |Продолжительность: 00:48:43
+(7:37) 01. Chinmaya Dunster - Moonsong
+(8:00) 02. Terry Oldfield & Soraya - Om Shanti
+(5:23) 03. Cybertribe - Across The Magic Mountains
+(8:18) 04. Terry Oldfield - Earth And Sky
+(6:48) 05. Chinmaya Dunster & Niladri Kumar - Innergy
+(7:12) 06. Terry Oldfield - Aum
+(7:32) 07. Rasa - He Krishna
+(8:16) 08. Rasa - Jaya Radha
+(6:33) 09. Chinmaya Dunster & Niladri Kumar - Arunavachana (Promise of the Dawn)
+(7:59) 10. Rasa - Gayatri Mantra(   Читать дальше...   )Жанр: New ageПродолжительность: 01:25:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C58D7E760473D25C2AE0E56B8A18AEDE8DB3513B
+magnet:?xt=urn:btih:22AE69FF159AACF83E31669AAE9387E7BB50B1CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,57 +68,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219793   (707998) от 17.04.2018
+###  Публикация: 541284   (498090) от 03.09.2012
 
-VA - Fitness Latino Party Vol. 2, 3CD (2018) [MP3|320 Kbps] <Reggaeton, Zumba, Merengue, Other>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Fonsi - Echame La Culpa 2:54
-02. Mc Fioti - Bum Bum Tam Tam 3:34
-03. Daddy Yankee - Dura 3:21
-04. Joey Montana - Suena El Dembow 3:16(   Читать дальше...   )Жанр: Reggaeton, Zumba, Merengue, OtherПродолжительность: 03:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721C3E354321A56B7C6E4EB4CA57D65364EB4B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025690   (708018) от 13.06.2016
-
-Blue Tribe - Deep Spirit (2006-2012) 3CD [MP3|320 кб/с] <Native American, Enigmatic, World>
+Perry Wood - Chakra Balancing (2004) [MP3|320 кб/с]<New age, Meditative, Relax>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708018.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Little Sun (5:14)
-02. The Medicine Wheel (5:16)
-03. Yellow Moon Woman (5:50)
-04. Spirit Wolf Calling (5:05)(   Читать дальше...   )Жанр: Native American, Enigmatic, WorldПродолжительность: 02:57:13
+(9:48) 1. Root - Embodiment
+(9:21) 2. Sacral - Home of the Self
+(9:48) 3. Solar Plexus - Inner Sun
+(6:42) 4. Heart - Compassion
+(6:07) 5. Throath - Stillness
+(9:16) 6. Brow - Perception
+(7:20) 7. Crown - OnenessЖанр: New age, Meditative, RelaxПродолжительность: 00:58:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2EC2F3782050A5F31C165482BA0C2232164A41B
+magnet:?xt=urn:btih:85B45B0D68A23EDF409BDA9AA5DDF3D5D57F96FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,28 +100,63 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025953   (708021) от 13.06.2016
+###  Публикация: 542373   (498048) от 03.09.2012
 
-Spirit Nation - 2 альбома (1998-2006) [MP3|320 кб/с] <Native American, Enigmatic, World>
+Микаэл Таривердиев - Ночные забавы тихая музыка (2004) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. музыка к к-ф ''Ночные забавы'' (4:16)
+ 2. музыка к к-ф ''Летние люди'' (1:48)
+ 3. музыка к к-ф ''Я обещала-я уйду'' (3:41)
+ 4. музыка к к-ф ''Воровка'' (1:13)
+ 5. музыка к к-ф ''Летние люди'' (5:20)
+ 6. музыка к к-ф ''Я обещала-я уйду'' (4:38)
+ 7. музыка к к-ф ''Ночные забавы'' (2:56)
+ 8. музыка к к-ф ''Воровка'' (2:06)
+ 9. музыка к к-ф ''Русский регтайм'' (1:23)
+ 10. музыка к к-ф ''Русский регтайм'' (1:34)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24254D12651AC8D84477AC6071D43C413D7686D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317935   (497678) от 04.08.2019
+
+Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708021.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Celebration (4:45)
-02. Animal Clans (5:04)
-03. Earthwalk (5:29)
-04. Yaneeha Sweet Daughter-Moon (5:22)(   Читать дальше...   )Жанр: Native American, Enigmatic, WorldПродолжительность: 01:54:14
+01. Wonderful
+02. I Told You So
+03. Girl You Confuse My Mind
+04. Me and My Old Car(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:41:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B54CB00E4B6CB9E8B0E1AA1472D12F27DDF46F04
+magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,86 +164,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025592   (708113) от 13.06.2016
+###  Публикация: 935945   (497520) от 10.09.2015
 
-Liquid Mind - XI: Deep Sleep (2016) [FLAC|Lossless|tracks] <New-age, Ambient, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Whispers (9:08)
-02. Teach Me to Love (Pt. 1) (5:00)
-03. Teach Me to Love (Pt. 2) (7:02)
-04. Dreamland (8:01)(   Читать дальше...   )Жанр: New-age, Ambient, RelaxПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5858F5D834E4F7FC2A88886BF1F5784A1D285027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025537   (708123) от 13.06.2016
-
-Robin Spielberg - Another Time, Another Place (2015) [FLAC|Lossless|tracks] <New-Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Dance (4:35)
-02. Ship to Shore (4:23)
-03. Another Time, Another Place (5:54)
-04. Cherry Blossom (4:07)(   Читать дальше...   )Жанр: New-Age, Instrumental, PianoПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F20145F4C945A012E890EAECD8FC8820FCFB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025614   (708203) от 13.06.2016
-
-Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <Ambient, New Age, Space>
+VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge, Easy Listening, New Age, World>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708203.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Flightpath (4:35)
-02. Sky Safari (10:28)
-03. Muroc (6:46)
-04. Outreach (4:30)(   Читать дальше...   )Жанр: Ambient, New Age, SpaceПродолжительность: 00:47:03
+01. Dj Lorenzito - Cika (feat. Mario)
+02. Nizam Kharda - One Love (feat. The Choir of Hyderabad)
+03. Northbound - Holy Road
+04. Graddus - Novbahor(   Читать дальше...   )Жанр: Lounge, Easy Listening, New Age, WorldПродолжительность: 02:22:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C73CE757D09D2F8CCAF605AEBDA548B76027877C
+magnet:?xt=urn:btih:1E1DEB0425ECA008F415C15FB6C1DF64D67AAA72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,57 +193,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131361   (708561) от 05.05.2017
+###  Публикация: 543115   (496433) от 05.09.2012
 
-Jed Kurzel - Alien: Covenant / Чужой: Завет (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jed Kurzel - Incubation (01:07)
-02. Jed Kurzel - The Covenant (03:25)
-03. Jed Kurzel - Neutrino Burst (02:57)
-04. Jed Kurzel - A Cabin on the Lake (01:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0413B49AC1FE70E8B02298BACE17326B1D05F8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131300   (708908) от 05.05.2017
-
-VA - 50 Vinyasa Chill Yoga: Healing & Relaxing Yoga Exercises (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708908.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Yoga Healing Sounds Unit - Vinyasa Chill Yoga  3:57
-02.  Kundalini Yoga Group - Emotional Healing  4:01
-03.  Yoga Music Masters - Relaxing Yoga  4:02
-04.  Chakra Healing Music Academy - Basic Yoga  3:36(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 03:06:33
+(4:18) 01. Too Late
+(3:56) 02. The Tree In The Heaven
+(3:03) 03. Beautiful Bride
+(4:29) 04. In Love With You
+(4:14) 05. A Letter To Myself
+(3:40) 06. Just When I Needed You Most
+(4:54) 07. There Is Not So Easy
+(4:34) 08. Zhuyingtai
+(4:28) 09. Flower Sea
+(4:23) 10. Song Of Praising For Love(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:54:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4514D4B8632D8C5E2801D8D0ECC9A672196837BE
+magnet:?xt=urn:btih:B8D47CCFB8DA80C29A45312DD8D40D994BA50A04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,28 +228,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131372   (708917) от 05.05.2017
+###  Публикация: 543094   (496339) от 05.09.2012
 
-Jim Beckwith and Hans Christian - Be Love (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, World>
+Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
 
 >>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708917.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496339.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Open Me (feat. Hans Christian) 9:53
-02. Om Namah Shivaya (feat. Hans Christian) 6:14
-03. Jai Ma (feat. Hans Christian) 5:59
-04. Be Love (feat. Hans Christian) 6:56(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:48:55
+(5:40) 01. Preludes
+(6:34) 02. April Morning
+(6:24) 03. Bubbles
+(5:07) 04. Aurora
+(5:31) 05. Healing Waters
+(6:23) 06. Rebirth
+(5:43) 07. Bliss
+(5:28) 08. Kama
+(6:29) 09. Aqua
+(3:36) 10. Sanctuary(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90824202E9EDD076ACCBA249B2464D5064726E4F
+magnet:?xt=urn:btih:19D784693FC50CC7851089B3EA1070AB308DB596
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +263,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 894230   (708949) от 01.05.2015
+###  Публикация: 543054   (496086) от 05.09.2012
 
-VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance, Rock, Pop-Rock>
+WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<Parody, Country, Bluegrass, Western-and-Country>
 
 >>Other Styles
->>Other (Lossless)
+>>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708949.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжаем начатую здесь серию. На очереди - Исполнители одного хита. Да уж бывает так, что всего один хит у исполнителя, но зато какой! И все его помнят. Вот и получается, что все три диска - это 100% хиты.CD1:
-01. Crazy Town - Butterfly  (3:36)
-02. Dante Thomas - Miss California  (4:09)
-03. Toploader - Dancing in the Moonlight  (3:48)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Pop-RockПродолжительность: 03:50:32
+01. Let's Twist Again (3:04)
+02. Peppermint Twist (3:20)
+03. Blackbird (2:18)
+04. Jailhouse Rock (2:32)
+05. For You (3:17)
+06. Hello, Mary Lou (3:29)
+07. Heart of the Country (2:39)
+08. Bad Case of Lovin' You (Doctor, Doctor) (3:12)
+09. Baby Boy (3:12)
+10. AC/DC (3:25)(   Читать дальше...   )Жанр: Parody, Country, Bluegrass, Western-and-CountryПродолжительность: 00:41:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B8D26B15CDAB9E81FC2F288BFE248B56241FB0A
+magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +298,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286397   (708971) от 04.03.2019
+###  Публикация: 381868   (495301) от 31.08.2011
 
-Sam Taylor - Ketteiban Sam Taylor Natsumero Best (2016) 2CD [MP3|320 Kbps] <Instrumental, Sax>
+Anthony Ventura And His Orchestra - 5 альбомов (1979-1993) [MP3|320 kbps]<Instrunental, Easy Listening>
 
 >>Other Styles
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708971.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1
-01. Kage Wo Shitai Te
-02. Sendou Kouta
-03. Sake Ha Namida Ka Tameiki Ka(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:55:57
+1979 - Music For Making Love
+01. I Can't Stop Loving You 	(04:21)
+02. I'd Love You To Want Me 	(03:38)
+03. Don't Cry For Me, Argentina (02:20)(   Читать дальше...   )Жанр: Instrunental, Easy ListeningПродолжительность: 03:46:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4060A685E62962053581E2A39A4F21A76A049D9
+magnet:?xt=urn:btih:D2CD5416FD3FB3D17EA01094EB4E84BA4EC7B06A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,230 +327,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286402   (709083) от 04.03.2019
+###  Публикация: 936736   (494267) от 12.09.2015
 
-Jim Brickman - Soothe, Vol. 4: Subzero - Sounds That Spark the Senses (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starbeam (4:30)
- 02. Cool Vibes (3:54)
- 03. Poolside Chill (3:49)
- 04. Drive North (3:33)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27825A2BF16276605F24D51FF5D2AD0CC908646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286288   (711138) от 03.03.2019
-
-Бурановские бабушки - Внучка (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Иван-чай
-03. Внучка-сучка
-04. Мне снова 18(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A826178750883806A742D16CFA7CCAA7A491A8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286729   (711188) от 03.03.2019
-
-Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	How Do You Like Me Now?! 	3:27
-2 	When Love Fades 	3:04
-3 	Blue Bedroom 	3:28
-4 	New Orleans 	4:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C609A47F216293D0BFB79E46304B942B6A66BD9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286738   (711206) от 03.03.2019
-
-Toby Keith - Greatest Hits 2 (2004) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711206.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	How Do You Like Me Now?! 	3:27
-2 	Country Comes To Town 	3:38
-3 	You Shouldn't Kiss Me Like This 	3:42
-4 	I'm Just Talkin' About Tonight 	2:45(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963D425B830B635F8A6840EE38BF9A0B2FF328EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286736   (711283) от 03.03.2019
-
-Toby Keith - Greatest Hits Volume One (1998) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Getcha Some 	3:16
-2 	If A Man Answers 	3:36
-3 	Should've Been A Cowboy 	3:30
-4 	Dream Walkin' 	3:56(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD87F7878A3A3264DDD51D65BDCBD45E2D09E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286727   (711297) от 03.03.2019
-
-Toby Keith - Pull My Chain (2001) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	I'm Just Talkin' About Tonight 	2:45
-2 	I Wanna Talk About Me 	3:04
-3 	I Can't Take You Anywhere 	3:33
-4 	You Leave Me Weak 	3:22(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66909DEEA2AD6F9A5C75D21B57758DAFAD3A2C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286660   (711311) от 03.03.2019
-
-Vince Gill - Pocket Full Of Gold (1991) [FLAC|Lossless|tracks + .cue] <Folk, World, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711311.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	I Quit 	2:30
-2 	Look At Us 	3:59
-3 	Take Your Memory With You 	2:34
-4 	Pocket Full Of Gold 	4:04(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6608F27F61546E2142399D121DFEFEB87B340902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219570   (711832) от 15.04.2018
-
-Ajeet Kaur - Shuniya: Healing Chants (2018) [MP3|320 Kbps] <New Age>
+Myriam Cannas - Imana. Chants Arameens (2015) [MP3|320 кб/с]<New Age, World Music, Vocal>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711832.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maha Mrityunjai (31:02)
-02. Adi Shakti - Bhakti Mantra (12:42)
-03. Ra Ma Da Sa (10:59)Жанр: New AgeПродолжительность: 00:54:47
+01. Imana Piano
+02. Nafsha
+03. Manau Gavra
+04. Alma(   Читать дальше...   )Жанр: New Age, World Music, VocalПродолжительность: 00:57:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C43E63EB07CC0685BF251C89B5620378DC7880D0
+magnet:?xt=urn:btih:9F95216BDC3CFF190A85EF39B8DDDFBB58EC3387
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +356,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 791733   (711938) от 01.06.2014
+###  Публикация: 1242911   (493966) от 26.08.2018
 
-VA - Pure... Country (2010) Box Set, 4 CD [FLAC|Lossless]<Country>
+VA - Ska Anthems - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Jamaican Mento, Calypso, Reggae>
 
 >>Other Styles
->>Folk (Lossless)
+>>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711938.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ну что ж, общими усилиями мы продвигаемся к пополнению списка релизов под общим лейблом Pure... от Sony. Думаю, что уже сегодня в клубе наиболее полная коллекция этой серии. Здесь же представлен четырех-дисковый сет, посвященной музыке Country. И хотя в аннотации к сету пишется, что он охватывает множественные стили и эры кантри, на мой взгляд коллекция все-таки (   Читать дальше...   )01. Johnny Cash - I Walk the Line  (2:36)
-02. Willie Nelson - On the Road Again  (2:33)
-03. John Denver - Take Me Home, Country Roads  (3:12)
-04. Lynn Anderson - (I Never Promised You a) Rose Garden  (2:56)(   Читать дальше...   )Жанр: CountryПродолжительность: 03:31:09
+CD 01:
+
+01. Madness - The Prince
+02. The Maytals - Monkey Man(   Читать дальше...   )Жанр: Jamaican Mento, Calypso, ReggaeПродолжительность: 00:54:35
+
+01. Bob & Marcia - (To Be) Young, Gifted & Black
+02. Nicky Thomas - Love Of The Common People(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E360BB6FC01B37FA69994FEC54217B0C35AD6551
+magnet:?xt=urn:btih:B9D90D5A55B7FB94F55590B60CC11D367B6445EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,57 +388,420 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130632   (712277) от 03.05.2017
+###  Публикация: 543785   (493898) от 06.09.2012
 
-Kitaro - Sacred Journey of Ku-Kai, Volume 5 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul From Ocean (5:57)
-02. Breath Of Light (6:31)
-03. Reflection Of The Heart (5:36)
-04. Wave Rotation (5:03)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED82BC411E27F4DA7446A4BA802AFAD68976260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130588   (712678) от 03.05.2017
-
-VA - Your Own Personal Buddha: Cafe Ethnic Lounge (2017) [MP3|320 Kbps] <New Age>
+Karin Nobbs & Philip N'bess - Avel & Roc'h (2006) [MP3|320 кб/с]<New age, Relax>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712678.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweet Velvet - Shaking the Spirits - Mykonos Sunset Mix
-02. Milews - Cafe Del Mar Dreams - Tabla Buddha Ibiza Mix
-03. Moonflower - Buddha in the Lounge - Bar Cafe Night Mix
-04. Blue Crisp - African Skies - Sunset Del Mar Lounge Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:25:14
+(7:22) 1. L'ordre Du Depart
+(9:02) 2. Les Heritiers Du Courage
+(7:44) 3. La Mer Et L'amant
+(7:27) 4. La Tempete Du Diable
+(4:31) 5. Le Pacte
+(7:30) 7. Les Bienfaits De La Terre
+(8:09) 8. Les Sanglots De Roc'hЖанр: New age, RelaxПродолжительность: 00:56:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F85175B6874E57853AD25468FA5BD29CBA04400D
+magnet:?xt=urn:btih:0306A8AF78300E8348A2AA2589316C296E64F501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157696   (493694) от 15.08.2017
+
+VA - New Age Sensation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnific Senses – Spirit 02:11
+02. Xavier Boscher – A New Child Is Coming 05:11
+03. Mlle Julie – Petite chanson pour un ange 03:19
+04. Deborah Hofer – Pour l’eternite 03:14(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219F903BFDA40974EFFC906AE11A699A2512D860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543864   (493411) от 06.09.2012
+
+VA - Best Of Chill Out 2012 (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stj Ft Liba - She Believes (Lazy Hammock Sunset Chill Mix) (05:25)
+002. Shympulz - Garten Der Erinnerung (Chillout Version) (04:56)
+003. Off Land - View Point (Recon) (10:15)
+004. Finist - Boat Trip (05:29)
+005. V I F & Lola Palmer - Hot Game (Olej Remix) (07:11)
+006. Marco Merelli & Massimo Salustri - Mental Reverse (07:20)
+007. Abendrot - Sonnenaufgang (04:41)
+008. Dj Inva - I Miss You (Radio Edit) (04:42)
+009. Bantunani - Decomposition (01:28)
+010. Aldo Brizzi - Holodrum (04:06)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE515BCE39A2800996CE3F78329533928F72AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318716   (492711) от 07.08.2019
+
+The Gino Marinello Orchestra - Digital Melodies: 16 Synthesizer Melodies (1988) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Electro>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene (2:38)
+02. Chariots of Fire (3:21)
+03. Tubular Bells (2:35)
+04. Aurora (2:15)(   Читать дальше...   )Жанр: Instrumental, Pop, ElectroПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02985FD0F2A0CC18B1C043B61CB97FA8FB7D8905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054906   (492485) от 20.09.2016
+
+Bernward Koch - Touched by Love (2016) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking through Clouds [00:02:39]
+02. Touched by Love [00:03:22]
+03. Long Way Home [00:04:12]
+04. Back to Myself [00:03:46](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FD3BF7FC474F24AF7B7576733913107F0535DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936937   (492265) от 13.09.2015
+
+Kevin Kendle - Illumination (2015) [MP3|320 кб/с]<Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emergence
+02. Divine Connection
+03. Arc
+04. Celestial Heart(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC565E6B60A3F88C883AAEB08C836DE0B4AEA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243265   (492107) от 27.08.2018
+
+Lynn Tredeau - Fellowship of Solitude (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Fellowship of Solitude
+02 Traces of Daylight
+03 Land of Forgotten Dreams
+04 Call of the Owyhees(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD165DE750C251B099B5960985BCDBD854AC2A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382616   (491463) от 02.09.2011
+
+Pilgrimage (Simon Cloquet & Eric Calvi) - 9 Songs of Ecstasy (1997) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск содержит интерпретации песен средневековых паломников, странствовавших по северо-западу Испании 13-го века. Проект французских композиторов - продюсеров (Simon Cloquet, Eric Calvi), в рамках которого был выпущен только данный единственный альбом. С одной стороны, работа весьма концептуальная и представляет собой звуковое отображение исторических баллад о странниках-пилигримах (   Читать дальше...   )01. Campus Stella/Field of Stars (5:14)
+02. Through the Seas of Life (4:56)
+03. Pilgrimage (4:25)
+04. Land of Ecstasy (5:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA62FB7CABE60A1C66F84DCFD76F1B4C29C40388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318954   (490886) от 08.08.2019
+
+Bon Iver - i,i (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yi (00:31)
+02. iMi (03:16)
+03. We (02:22)
+04. Holyfields, (03:07)(   Читать дальше...   )Жанр: Folk-Rock, Indie FolkПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49731ADAEF42674A5B0F6BE589F178EC8E1675DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318702   (490757) от 08.08.2019
+
+Audiomachine - Life (2017) [FLAC|Lossless] <Soundtrack, Trailer music, Classical Crossover>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promises to Keep [02:17]
+02. Reunited [02:36]
+03. Remember Not to Forget [03:13]
+04. Try Again Tomorrow [03:09](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 01:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB038A47B762FDF952AF05001CE049EB6C49020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544424   (490629) от 07.09.2012
+
+VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audiophile Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Longtenghuyue - Roaring of the Tiger and Dragon [03:36]
+02. Oyster Sisters and Gary Karr Gairuikaer - A Melody of Hong Chun [03:22]
+03. New Age - Flower Woman [04:46]
+04. Johanne Blouin - Les enfants oublies [03:33]
+05. Jotka Hosprova - Csardas [05:08]
+06. Rossini 'Mr. Chino Bruce' - I1 Signor Bruschino [04:33]
+07. Puccini - La Boheme: Introduction [00:32]
+08. Puccini - La Boheme: Non Sono in Vena [04:10]
+09. Mikis Theodorakis Duolaijisi - Delicate Dawn [02:58]
+10. Mighty Echoes Quartet - Under the Boardwalk [03:26](   Читать дальше...   )Жанр: High-End Audiophile Test ( Pop, Rock, Classical, Jazz Compilations )Продолжительность: 01:08:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055033   (490338) от 21.09.2016
+
+Greg Joy - Light of Day (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journey to Camelot [00:04:06]
+02. Doreen's Tune [00:04:10]
+03. Lost Time [00:04:03]
+04. Hummingbird [00:04:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26DA5569D51F18591DEA3DEBF4A269114725EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937411   (490180) от 14.09.2015
+
+Neil Harvey - Beautiful Day (2010) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antigua
+02. Darkness Falls
+03. Dreamscape
+04. Renaissance(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56A55A26789CF15936A12849D23CB4877DEF318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937359   (490071) от 14.09.2015
+
+Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Hartnoll - Where Do You Want to Begin? (01:40)
+02. Marcelo Zarvos - Hawaii (01:29)
+03. Marcelo Zarvos - Rivalry Call (01:17)
+04. Paul Hartnoll - Killing Time (01:08)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A264F9F7B544FB4CE42F3ECA50C6783AC2877486
 ```
 
 https://mybot314.ru/tekegram_catalog/

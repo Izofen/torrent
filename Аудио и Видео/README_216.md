@@ -1,25 +1,25 @@
-###  Публикация: 1508127   (798014) от 07.11.2021
+###  Публикация: 1407229   (376700) от 12.10.2020
 
-VA - Bar Essentials, Vol. 4 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Jazz Ballads, Vol. 2 (2018) [AAC|~300 Kbps] <Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798014.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Room - Waikiki Beach Dreaming (2:10)
-02. Roberto Bronco - Monkeys (4:51)
-03. Pier-O - Humble Bumblebee (5:38)
-04. Chillson - Pappas do Pappas Don t (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:46
+01. Diana Panton - Moon River (From Breakfast at Tiffany's) (3:28)
+02. Polly Gibbons - Midnight Prayer (3:43)
+03. Shirley Horn - Just for a Thrill (5:01)
+04. Ben Webster - Strike Up the Band: The Man I Love (5:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:08:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B4B61F77A866964FF999F6B3497972E88FEE6E2
+magnet:?xt=urn:btih:2CF5E7EDA47C4E3077A3D6E5713B3A4A000D0EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508132   (798015) от 07.11.2021
+###  Публикация: 1413609   (376699) от 12.10.2020
 
-VA - Beach Grooves Maretimo, Vol. 3 - House & Chill Sounds to Groove and Relax (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
+Монеточка - Декоративно-прикладное искусство (2020) [AAC|~311 Kbps]<Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798015.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Phil Kinley - I Got the Feeling (Rock da Pool Cut) (6:32)
-02. Adriatic Grooves - Ibiza Overflight (Vibes & Bytes Mix) (6:14)
-03. Pascal Dubois - House on the Beach (Chillers Mix) (4:36)
-04. Groove Gauchos - Conga Morena (Latin Bossa Cut) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:42:39
+01. Крошка (4:31)
+02. Папина любовница (3:29)
+03. Ириски и риски (3:07)
+04. Лёд (2:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54F50061E9897060F34E980775FBD00CD3F1DCE9
+magnet:?xt=urn:btih:7420E4C8DAB70925BD996BBFCBBEEE30DED40D3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508196   (798016) от 07.11.2021
+###  Публикация: 1414853   (376697) от 12.10.2020
 
-VA - Chilling Winter Best Playlist (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
+Роман Карцев, Виктор Ильченко - Раки (2003) [AAC|~288 Kbps]<Humour>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798016.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aktnuance - Beautiful Beginning (5:53)
-02. Habermohl - An Immense Feeling (5:44)
-03. Performative Mode - Morning Air (6:24)
-04. Cesar Martinez Ensemble - Sol y Sombra (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:45
+01. День (9:37)
+02. Ты, Витя (4:14)
+03. Слова, Слова (2:36)
+04. Дурочка (6:49)(   Читать дальше...   )Жанр: HumourПродолжительность: 01:08:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:476D92F955DBC2EE18464B45BC943248E9A6C399
+magnet:?xt=urn:btih:874930F7E132E0B19153D9DFC611FD6651079B4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508124   (798017) от 07.11.2021
+###  Публикация: 1412783   (376695) от 12.10.2020
 
-VA - Bar Essentials, Vol. 3 (2020) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
+Secret Garden - Nocturne: The 25th Anniversary Collection (2020) [AAC|~319 Kbps]<Classical, Neo-Classical>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798017.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Area Code 51 - Hurt Again (3:14)
-02. Charles Edison - Find You (3:18)
-03. Peter Pearson - Distant Waves (4:38)
-04. The Soul Crusaders - Open Sea (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:15
+01. Nocturne (3:14)
+02. Song From A Secret Garden (3:33)
+03. Adagio (2:55)
+04. Serenade To Spring (3:15)(   Читать дальше...   )Жанр: Classical, Neo-ClassicalПродолжительность: 01:34:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2694935749C0357E44FA79D2BCCDD7D2088F8EE6
+magnet:?xt=urn:btih:4D288E617F89673A97BA4DF5548AD9F515C1BBCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508123   (798018) от 07.11.2021
+###  Публикация: 1413217   (376693) от 12.10.2020
 
-VA - Bar Essentials, Vol. 2 (2019) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+Александр Кальянов - Лучшие песни (1999) [AAC|~339 Kbps]<Pop, Chanson>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798018.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vovich, Sexy Girl - Don t Break my Heart (Victor Vine Remix) (3:19)
-02. The Groover - Show Me (Playa D'en Bossa Edit Mix) (4:02)
-03. King Bizza Keys - Ticket to Europe (5:54)
-04. Monodeluxe - Playa del Sol (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:47
+01. Здравствуйте (3:08)
+02. Старое кафе (3:43)
+03. Плохая примета (2:25)
+04. Жизнь московская (4:14)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:12:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BCCB014A4F1A078EDCBE78B64925A8764C91CC6
+magnet:?xt=urn:btih:3DD6B08B913A8C609E7E751A4CC3BBF7B837A92F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508142   (798019) от 07.11.2021
+###  Публикация: 1412943   (376688) от 12.10.2020
 
-VA - Lounge Theme (Sofa Grooves), Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+Mariah Carey - The Rarities (2020) [AAC|~334 Kbps]<Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798019.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Two Elements - Let's Start (Sun Rising Mix) (3:40)
-02. Marc Hartman - Into the Stone (Original Mix) (4:16)
-03. Worldtraveller - The Rory Glory Smokadelic Bloomdub (Living Room's Dubalicious Edit) (4:11)
-04. Peter Pearson - Chilled to the Heart (Original Mix) (4:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:11
+1.01. Here We Go Around Again (1990) (3:55)
+1.02. Can You Hear Me (1991) (4:06)
+1.03. Do You Think of Me (1993) (4:48)
+1.04. Everything Fades Away (1993) (5:26)(   Читать дальше...   )Жанр: PopПродолжительность: 02:16:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4283A2228553D6010E51B02AB17AEA48D33C6B89
+magnet:?xt=urn:btih:8F57066DDE2FEB8B60DEBFA261597E6C9B9FB67B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,54 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507841   (798115) от 06.11.2021
+###  Публикация: 1327338   (376610) от 24.09.2019
 
-Electric Light Orchestra - ELO 50th Anniversary Vol. 1 (2021) [AAC|~342 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Radio (5:04)
-02. Do Ya (2012 Version) (3:56)
-03. 10538 Overture (40th Anniversary) (2012 Version) (4:42)
-04. Strange Magic (2012 Version) (3:53)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC939AEC37D560EA1780584DF79B1FC6D172A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507993   (798122) от 06.11.2021
-
-Паника в Нидл-парке / Паника в Шприц-парке / The Panic in Needle Park (1971) BDRip [1080p] ATV
+Золотые яйца / Huevos de oro (1993) BDRip [1080p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798122.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бобби — наркодилер, Хэлен — молодая художница. Они знакомятся и влюбляются друг в друга. Вскоре Хэлен тоже становится наркозависимой. Отношения молодых людей далеки от романтичных — грязные притоны, стычки со служителями закона и постоянная нехватка денег. Они мечтают завязать, уехать и начать жизнь с чистого листа. Но сделать это оказывается не так легко…Производство: США / Didion-Dunne Inc., Gadd Productions Corp.Жанр: драмаРежиссер: Джерри ШацбергАктеры: Аль Пачино, Китти Уинн, Алан Винт, Ричард Брайт, Кил Мартин, Майкл МакКлэнатан, Уоррен Финнерти, Марсия Джин Кертц, Рауль Хулиа, Энджи ОртегаПеревод: ДвухголосыйСубтитры: английские (full, SDH)Продолжительность: 01:49:43
+Он жесток, обидчив и очень тщеславен. Девиз его жизни — если у меня два яйца, то почему не может быть двух машин «Порше», двух золотых «Ролексов» и двух умопомрачительных женщин. Никто не может стоять у него на пути, ничто не помешает его планам. Он добьется всего и неважно как. Но что дальше?Производство: Испания, Италия, Франция / Antena 3 Televisión, Filmauro, Hugo Films S.A.Жанр: Драма, КомедияРежиссер: Бигас ЛунаАктеры: Хавьер Бардем, Мария де Медейруш, Марибель Верду, Элиза Товати, Рэкуэл Бьянка, Алессандро Гассман, Бенисио Дель Торо, Франческо Доминедо, Альберт Видаль, Анхель де Андрес ЛопеПеревод: Профессиональный двухголосый, авторский одноголосыйСубтитры: Английские, Испанские (вшитые, отключаемые)Продолжительность: 01:32:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:433C3AB2782898881C62E521E5BCF3694EF94481
+magnet:?xt=urn:btih:6DCEDBDF555BA776FC6871B01DB9082932E77463
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,28 +198,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507941   (798138) от 06.11.2021
+###  Публикация: 1174584   (376466) от 19.10.2017
 
-VA - 50 Italian Standards, vol. 1 (2018) [AAC|~326 Kbps] <Nu Jazz, Lounge, Easy Listening>
+Клятва / Eidurinn (2016) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798138.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Papik - E la chiamano estate (3:12)
-02. Melania - Tu Vuo Fa L'americano (4:04)
-03. Sugarpie And The Candymen - Volare (Nel Blu Dipinto di Blu) (2:48)
-04. Sweet Caterina - Parole Parole (4:22)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy ListeningПродолжительность: 03:15:07
+В жизни известного хирурга Финнура наступила черная полоса — он подозревает, что его старшая дочь Анна попала в дурную компанию, что ее новый бойфренд Оттар, на котором клейма негде ставить, приторговывает наркотиками и тянет дочь в пропасть. Необходимо предпринимать срочные меры — сделать всё, чтобы отвадить подонка от дочери. Сказано — сделано: и в доме у Оттара (   Читать дальше...   )Производство: ИсландияЖанр: Триллер, драма, криминалРежиссер: Бальтасар КормакурАктеры: Бальтасар Кормакур, Гисли Орн Гардарссон, Гера Хилмарсдоттир, Ингвар Эггерт Сигюрдссон, Торстейнн Бахман, Торстейнн Гуннарссон, Сигрун Эдда Бьёрнсдоуттир, Джои Йоханнссон, Thelma Gudmunds, Kristján Franklin MagnússПеревод: Многоголосый закадровый (iTunes)Субтитры: Русские (полные, отключаемые)Продолжительность: 01:43:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D413D12EC02267F57C594FE9D320CAA7178CDF67
+magnet:?xt=urn:btih:E08E62488B385066BB9A03655008C829AF41FA61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +224,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507946   (798142) от 06.11.2021
+###  Публикация: 1415406   (376332) от 12.10.2020
 
-VA - 50 Italian Standards, vol. 3 (2021) [AAC|~316 Kbps] <Nu Jazz, Lounge, Easy Listening>
+Анонимные убийцы / Anonymous Killers (2020) WEB-DL [1080p] ATV [MVO]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798142.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Papik, Francesca Gramegna - Nel Blu Dipinto Di Blu (Volare) (4:21)
-02. Papik, Walter Ricci - Viento 'e Terra (4:18)
-03. Papik, Alan Scaffardi - Canzoni Stonate (4:00)
-04. Papik, Danny Losito - Figli Delle Stelle (3:53)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy ListeningПродолжительность: 03:22:17
+Четверо хладнокровных убийц и один незадачливый профессор оказываются в лапах таинственного похитителя. Все они стали частью его безумного эксперимента.Производство: США / Amirah Films, Boston Dutch ProductionsЖанр: Ужасы, криминалРежиссер: А.Р. ХилтонАктеры: Эндрю Бонджорно, Ману Интирэйми, Натассия Халаби, Доминик Паке, Стефани Рохас, Эрика Манни, Алена Савостикова, Майк Фергюсон, Эмили Бейдер, Сандра СтэггсПеревод: Любительский многоголосый (@MUZOBOZ@)Субтитры: Английские (Forced)Продолжительность: 01:39:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC27E3263D1A4B387112A27B88CD2D9A142CCD99
+magnet:?xt=urn:btih:85AD7565EC6C54189CB57C9B218E4A4FD749CC19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,28 +250,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507943   (798144) от 06.11.2021
+###  Публикация: 1414628   (376329) от 12.10.2020
 
-VA - 50 Italian Standards, vol. 2 (2020) [AAC|~318 Kbps] <Nu Jazz, Lounge, Easy Listening>
+Linkin Park - Hybrid Theory (20th Anniversary Edition) (2020) [AAC|~320 Kbps]<Rock, Alternative>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798144.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Papik, Alan Scaffardi - Ancora Tu (5:12)
-02. Cristiana Polegri - Cocktail D'Amore (3:39)
-03. Melania, Christian Lisi - Maramao Perchè Sei Morto (3:56)
-04. Walter Ricci, Stefano Di Battista - Guarda Che Luna (3:36)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy ListeningПродолжительность: 03:19:03
+1.01. Papercut (3:05)
+1.02. One Step Closer (2:37)
+1.03. With You (3:23)
+1.04. Points of Authority (3:20)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 04:22:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E5FCDD6A8B036DFDD3760A5043FD53F7B0A953C
+magnet:?xt=urn:btih:2F89795231AEFA5CF34CC677ACAC7B67ADCE81DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,28 +279,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507889   (798145) от 06.11.2021
+###  Публикация: 1413949   (376170) от 12.10.2020
 
-VA - Chill Out Nation, Vol. 2 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+Bisquit - Zoo Zoo (1981) [AAC|~368 Kbps]<Pop, Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798145.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steen Thottrup - Diversities (4:11)
-02. Lemongrass, Jane Maximova - Grapes (Roberto Bronco Remix) (6:20)
-03. Marc Hartman - Mirror Of Love (5:17)
-04. Five Seasons - Caribbean Aquanauts (4:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:04
+01. Zoo Zoo (3:31)
+02. Zoo Zoo (Instrumental) (3:21)Жанр: Pop, DiscoПродолжительность: 00:06:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFED980081E9ECE00535060A489BFABA23DEDC41
+magnet:?xt=urn:btih:739176FCAF1C6282EAD9083054C43CBE042D088F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,28 +306,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507908   (798148) от 06.11.2021
+###  Публикация: 1175749   (376130) от 19.10.2017
 
-VA - Café De La Cita, Vol. 5 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2021) [AAC|~296 Kbps] <Lounge, Chill Out, Jazz>
+Планета обезьян: Война / War for the Planet of the Apes (2017) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798148.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jazzy System - China Town (3:46)
-02. Audiozoom - So Beautiful (3:25)
-03. Cuetec - Around Midnight (4:23)
-04. Jean Mare - Metropolitan Nights (Lounging Electro Cut) (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:10:56
+Армию генетически модифицированных обезьян ожидает новый вызов: они вынуждены вступить в смертельную схватку с армией людей под руководством безжалостного полковника. После невообразимых потерь среди своих воинов вождь обезьян Цезарь начинает личную борьбу с темными инстинктами и собирается отомстить за весь свой вид. В конце концов он и полковник должны будут сойтись (   Читать дальше...   )Производство: США, Канада, Новая ЗеландияЖанр: Фантастика, боевик, триллер, драма, приключенияРежиссер: Мэтт РивзАктеры: Энди Серкис, Вуди Харрельсон, Стив Зан, Карин Коновал, Амайя Миллер, Терри Нотари, Тай Олссон, Майкл Адамуэйт, Тоби Кеббелл, Гэбриел ЧаварриаПеревод: Дублированный (Blu-ray EUR)Субтитры: Русские форсированные,  Английские форсированные,  Украинские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 02:20:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F85E4F8B3F2EC0A4B1B604418BEC80EDDE7768F
+magnet:?xt=urn:btih:ACA65E18AA4550E3EAB6C33C89AAEC1E17E5DC96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,28 +332,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507878   (798149) от 06.11.2021
+###  Публикация: 1413968   (376018) от 12.10.2020
 
-VA - Luxury Buddha Lounge, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+Игорь Тальков - Лучшее (?) [AAC|~356 Kbps]<Pop, Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798149.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sylvering - The Power of Love (4:35)
-02. Smooth Deluxe - My Sweet Aimée (5:36)
-03. Guenter Haas - Lost in a Dream (6:42)
-04. E-Love - You Take My Heart (Gardenhouse Chill Out Edit) (6:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:42
+1.01. Моя любовь (6:04)
+1.02. У твоего окна (5:19)
+1.03. Летний дождь (8:19)
+1.04. Ностальгия (5:20)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:38:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F335974E6B114CBAA57F6FF92A3039D380960A35
+magnet:?xt=urn:btih:956CD2404B73BDD55B78196CB947222891C8BF9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,28 +361,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507887   (798150) от 06.11.2021
+###  Публикация: 949628   (374862) от 24.10.2015
 
-VA - Chill Out Nation, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+Amaranthe - The Nexus (2013) [AAC|256 кб/с]<Metalcore, Modern Metal, Power Metal>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798150.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lounge Groove Avenue - Next to the Sun (4:20)
-02. Peter Pearson - Chilled To The Heart (4:34)
-03. Marga Sol - What I Long For (Chill Mix) (5:24)
-04. D-Chill, Paola Cordoni - Are You Still (5:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:01
+1. Afterlife
+2. Invincible
+3. The Nexus
+4. Theory of Everything(   Читать дальше...   )Жанр: Metalcore, Modern Metal, Power MetalПродолжительность: 00:44:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:326B3BF56957595E18D48812281F1E27F901C1DC
+magnet:?xt=urn:btih:F165124A0D2DA0EE09BE1534453BD7EC40D12DBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,28 +390,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507880   (798151) от 06.11.2021
+###  Публикация: 1254340   (374838) от 13.10.2018
 
-VA - Luxury Buddha Lounge, Vol. 3 (2014) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+Счастья! Здоровья! (2018) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798151.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374838.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jasmon - Oriental Cafe (4:06)
-02. Man In A Room, Natasha Tsirou - Marveland (5:22)
-03. SoulAvenue - Padmasundari (5:56)
-04. Aqualise - Sonar (Original Version) (7:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:40:56
+Три влюблённые пары — татарская, армянская и русская — готовятся сыграть свадьбы. Но выясняется, что для Рината и Гузельки свадьба — это способ добыть деньги, чтобы вернуть дорогую скрипку, для отца Артура важнее всего, чтобы свадьба его сына и москвички-Юли прошла в Армении, а у Светы есть «скелет в шкафу» — её «бывший» Андрей в день свадьбы с Олегом вышел из тюрьмы. (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Марк Горобец, Арман Марутян, Леонид МарголинАктеры: Зоя Бербер, Камиль Ларин, Марина Федункив, Сергей Аброскин, Наталья Рудова, Грант Тохатян, Даниил Вахрушев, Олег Верещагин, Дарья Пынзарь, Стася МилославскаяПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:23:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FE789E1E647C4A6805EDC1035D9FBCBB70FEC4B
+magnet:?xt=urn:btih:A70FC407D714C37F7E7DD81C6C0B08B1AC58EEDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +416,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507903   (798153) от 06.11.2021
+###  Публикация: 1254346   (374834) от 13.10.2018
 
-VA - Café De La Cita, Vol. 1 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2017) [AAC|~312 Kbps] <Lounge, Chill Out, Jazz>
+Счастья! Здоровья! (2018) WEB-DLRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798153.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374834.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Galactic Highway (Nu Chillgroove Mix) (5:03)
-02. Bernon - Suitcases to Space (Jazzy Chillout Version) (5:19)
-03. Dave Neville - The Sun Is Coming (Smooth Jazz Mix) (6:47)
-04. Avalon Project - I Can Read Your Mind (Chill Breeze Mix) (5:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:50:41
+Три влюблённые пары — татарская, армянская и русская — готовятся сыграть свадьбы. Но выясняется, что для Рината и Гузельки свадьба — это способ добыть деньги, чтобы вернуть дорогую скрипку, для отца Артура важнее всего, чтобы свадьба его сына и москвички-Юли прошла в Армении, а у Светы есть «скелет в шкафу» — её «бывший» Андрей в день свадьбы с Олегом вышел из тюрьмы. (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Марк Горобец, Арман Марутян, Леонид МарголинАктеры: Зоя Бербер, Камиль Ларин, Марина Федункив, Сергей Аброскин, Наталья Рудова, Грант Тохатян, Даниил Вахрушев, Олег Верещагин, Дарья Пынзарь, Стася МилославскаяПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:23:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A2009BDE91A7B5263CF0613FFB8B652E2F3DA17
+magnet:?xt=urn:btih:A28AF7F79421EAEE40569C3E8BA53A9422451C4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +442,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507904   (798155) от 06.11.2021
+###  Публикация: 1327537   (374240) от 25.09.2019
 
-VA - Café De La Cita, Vol. 2 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2018) [AAC|~304 Kbps] <Lounge, Chill Out, Jazz>
+Самоизоляция / Час волка / The Wolf Hour (2019) WEB-DL [1080p] ATV [AVO]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798155.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Dulcimers Vibes (Chillout Mix) (4:10)
-02. Jean Mare - Down to Underground (Nu Jazzy Smooth Mix) (3:51)
-03. Bernon - Crying (Deep Drive Mix) (5:27)
-04. Nightbar Jazz - Late Night (Drum & Bass Downbeat Mix) (3:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:44:54
+После трагических событий, связанных с последней книгой, Джун Ли - известная писательница и лидер антиэлитарного движения США добровольно становится затворницей в своей квартире в Южном Бронксе. На несколько лет она выпадает из новостной повестки и ведёт такую не слишком радостную жизнь, всячески стараясь изолироваться от окружающих. А за её окнами разворачиваются (   Читать дальше...   )Производство: США / Automatik, Bradley Pilz Productions, HanWay FilmsЖанр: Триллер, Драма, ДетективРежиссер: Алистэр Бэнкс ГриффинАктеры: Наоми Уоттс, Дженнифер Или, Эмори Коэн, Джереми Бобб, Бреннан Браун, Келвин Харрисон, Марица Веер, Педро Халливуд, Джастин Кларк, Энджел Кристиан РоманПеревод: Авторский одноголосый (BadBajo)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:39:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2435EB6A80BF2A5CAFB0430418CED01D65EFB55A
+magnet:?xt=urn:btih:460DFE7F2E465FF06389F6D303F50359878F21D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,28 +468,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507907   (798161) от 06.11.2021
+###  Публикация: 1176014   (374222) от 20.10.2017
 
-VA - Café De La Cita, Vol. 4 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2020) [AAC|~288 Kbps] <Lounge, Chill Out, Jazz>
+Овердрайв / Overdrive (2017) WEB-DLRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798161.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nightview - Cityscape (Lounge Sound Mix) (3:28)
-02. Soundset City - Break in the City (3:43)
-03. CiYou - I'm Driving (3:21)
-04. Nightzoom - Cool Mixture (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:10:10
+Эндрю и Гаретт Фостеры — братья-авантюристы, промышляющие угоном самых редких и роскошных автомобилей. До сих пор им легко удавалось избегать неприятностей, но во время очередного дела они попадают под прицел жестокого криминального босса. Теперь в обмен на свои жизни они должны украсть для него самый ценный автомобиль его злейшего врага.Производство: СШАЖанр: Боевик, триллерРежиссер: Антонио НегретАктеры: Ана де Армас, Скотт Иствуд, Гайя Уайсс, Клеменс Шик, Фредди Торп, Симон Абкарян, Мусса Мааскри, Фредерик Анскомбре, Филипп Орель, КаарисПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:29:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:820B5BFE78DD68007B077947A1D35A1B885B3150
+magnet:?xt=urn:btih:0750EE227DC9E10D5C03618492CAEABB3AACD055
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +494,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507877   (798168) от 06.11.2021
+###  Публикация: 1175933   (374211) от 20.10.2017
 
-VA - Luxury Buddha Lounge, Vol. 1 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+Овердрайв / Overdrive (2017) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798168.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Metaharmoniks - From Soul to Soul (3:15)
-02. Sylvering - Domino Dancing (2:47)
-03. 351 Lake Shore Drive, Blueberry - Soirée Rouge (6:47)
-04. Simon Le Grec, Kelly Johnson - Tell Me What Love Can Do (Jorgensen Remix) (8:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:47
+Эндрю и Гаретт Фостеры — братья-авантюристы, промышляющие угоном самых редких и роскошных автомобилей. До сих пор им легко удавалось избегать неприятностей, но во время очередного дела они попадают под прицел жестокого криминального босса. Теперь в обмен на свои жизни они должны украсть для него самый ценный автомобиль его злейшего врага.Производство: СШАЖанр: Боевик, триллерРежиссер: Антонио НегретАктеры: Ана де Армас, Скотт Иствуд, Гайя Уайсс, Клеменс Шик, Фредди Торп, Симон Абкарян, Мусса Мааскри, Фредерик Анскомбре, Филипп Орель, КаарисПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:29:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E055005559B152589A4F9A32E47D7817768B5C02
+magnet:?xt=urn:btih:FDB59C2A9EFEEF91B19C68C42EBD7F7764617F98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +520,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507852   (798169) от 06.11.2021
+###  Публикация: 1327384   (374121) от 25.09.2019
 
-VA - Best Sound of Chill & Lounge 2021 - Summer Edition (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
+Под подозрением / Bent (2018) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798169.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nightbar Jazz - Breath of the City (4:50)
-02. Soundset City - Shine On (Funky Lounge Mix) (3:53)
-03. Audiozoom - So Beautiful (3:25)
-04. Jazzy System - China Town (3:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:38
+Бывший полицейский из отдела по наркоконтролю Дэнни Галлахэр, выйдя из тюрьмы, стремится отомстить лжесвидетелю и убийце своего напарника. Нити расследования выводят Дэнни на другое загадочное убийство и масштабный государственный заговор.Производство: Испания, США / AMBI Group, Grindstone Entertainment Group, Primary Wave ManagementЖанр: Триллер, КриминалРежиссер: Роберт МорескоАктеры: Карл Урбан, София Вергара, Энди Гарсиа, Винсент Спано, Джон Финн, Грейс Байерс, Трэй Байерс, Тоня Корнелисс, Патрик Бреннан, Мэттью РейнольдсПеревод: Профессиональный многоголосый  (iTunes)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:36:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C7E69658AD1894FD49AA7BEF217F3B546E656B0
+magnet:?xt=urn:btih:900F679666232C9B273B6FD67EA9663AAA64A45A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +546,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507845   (798170) от 06.11.2021
+###  Публикация: 1175750   (374075) от 20.10.2017
 
-VA - Best Sound of Chill & Lounge 2021 – Winter Edition (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+Планета обезьян: Война / War for the Planet of the Apes (2017) BDRip [480p] iPod
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798170.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Audiozoom - Smooth Mover (3:49)
-02. Soundset City - Nu City (3:43)
-03. Bernon - Around the World (4:15)
-04. Jean Mare - Blue Cascades (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:33
+Армию генетически модифицированных обезьян ожидает новый вызов: они вынуждены вступить в смертельную схватку с армией людей под руководством безжалостного полковника. После невообразимых потерь среди своих воинов вождь обезьян Цезарь начинает личную борьбу с темными инстинктами и собирается отомстить за весь свой вид. В конце концов он и полковник должны будут сойтись (   Читать дальше...   )Производство: США, Канада, Новая ЗеландияЖанр: Фантастика, боевик, триллер, драма, приключенияРежиссер: Мэтт РивзАктеры: Энди Серкис, Вуди Харрельсон, Стив Зан, Карин Коновал, Амайя Миллер, Терри Нотари, Тай Олссон, Майкл Адамуэйт, Тоби Кеббелл, Гэбриел ЧаварриаПеревод: Дублированный (Blu-ray EUR)Субтитры: Русские форсированные,  Английские форсированные,  Украинские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 02:20:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:162C5FBD4F03CC3805B4C950C0DC19E3A1B36C61
+magnet:?xt=urn:btih:1276FE063E8586F62127E37CF9B6C90B657EF839
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +572,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507842   (798171) от 06.11.2021
+###  Публикация: 1415707   (374066) от 13.10.2020
 
-VA - Luxury Lounge Sunset, Vol. 4 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+Анатолий Казьмин | Звездолёт «Серёга» (2020) [M4B|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798171.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dreamhunter - Hurricane Bay (3:35)
-02. Lazy Hammock, Ivan M-sax - Clean Slate (5:06)
-03. Schwarz, Funk - Keep On (Remastered Version) (5:49)
-04. Corrado Saija - Sommeil Noir (Extended Version) (14:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:52
+Обычный парень Иван с обычной фермерской планеты, всего лишь мечтавший о звёздах и приключениях, оказывается втянутым в поиски клада древней цивилизации и уж приключений теперь ему хватит надолго. А тут ещё и команда соратников подобралась на удивление необычная…Жанр: ФантастикаФормат: M4BПродолжительность: 08:11:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AA9514DA41F682F8B5871CFA48B22192958B58E
+magnet:?xt=urn:btih:788802F0FCFB6EEF0EC15AB349883017A89757AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +598,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507629   (798275) от 05.11.2021
+###  Публикация: 1415745   (374056) от 13.10.2020
 
-Jean‐Michel Jarre - Welcome To The Other Side - Live in Notre-Dame VR (2021) [AAC|~345 Kbps] <Electronic>
+Пока не сыграл в ящик / The Bucket List (2007) BDRip [1080р] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798275.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Opening (VR Live) (3:30)
-02. Oxygene 2 (VR Live - JMJ Rework of Kosinski Remix) (4:33)
-03. The Architect (VR Live) (3:23)
-04. Oxygene 19 (VR Live) (3:46)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:45:20
+Именно так решили два больных раком соседа по больничной палате, когда услышали свой приговор. Один из них вспыльчивый миллиардер, а второй эрудированный автомеханик. Они составляют список дел, которые необходимо сделать прежде, чем они сыграют в ящик, и отправляются в кругосветное путешествие, путешествие всей своей жизни. Прыжки с парашютом? Посмотрим. Гонки на (   Читать дальше...   )Производство: США / Warner Bros., Zadan / Meron Productions, Two Ton FilmsЖанр: Драма, комедияРежиссер: Роб РайнерАктеры: Джек Николсон, Морган Фриман, Шон Хэйес, Беверли Тодд, Роб Морроу, Альфонсо Фриман, Роуэна Кинг, Эннтон Берри мл., Верда Бриджес, Дестини БраунриджПеревод: Дублированный, авторский одноголосыйСубтитры: Русские (full), Украинские, Английские (Light, SDH)Продолжительность: 01:37:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6038A7FC5B01D5BD649334D9D3C9BA00B5340021
+magnet:?xt=urn:btih:1D39CB285F42744B60B9A025E74BB38A2050EA24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +624,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507645   (798312) от 05.11.2021
+###  Публикация: 1069515   (373558) от 04.11.2016
 
-VA - Urban City Vibes, vol. 8 (Urban Funk, Soul and Lounge Music) (2021) [AAC|~318 Kbps] <Chillout, Lounge, Trip-hop>
+Петербург. Только по любви   (2016) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798312.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lounge Groove Avenue - Diamonds (Original Mix) (2:36)
-02. Digby Jones - El Corazon (3:45)
-03. Living Room - Dr Rockit (3:28)
-04. Ibiza Chilled - Azul Aqua Blancas (Original Mix) (7:37)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:06:47
+В Петербурге легко почувствовать себя влюбленным. Здесь запросто решаются на авантюры, вмиг меняют рабочий комбинезон на вечернее платье и готовы доверить свою судьбу шаману. В этом городе иногда кажется, что если прыгнуть с крыши, то можно взлететь, что бронзовые скульптуры вот-вот оживут, а Иосифа Бродского еще можно спасти, если снять про него кино.Производство: РоссияЖанр: Комедия, мелодрамаРежиссер: Аксинья Гог, Наталья Назарова, Оксана БычковаАктеры: Рената Литвинова, Анна Михалкова, Надежда Маркина, Анна Уколова, Полина Кутепова, Светлана Камынина, Александр Паль, Михаил Боярский, Максим Виторган, Ульяна ДобровскаяПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:51:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F5842056570F3666D1585C70A7BC7745D8C429D
+magnet:?xt=urn:btih:D1133CC8B24770659F580351FCDF0ABA3E74C488
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +650,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507644   (798315) от 05.11.2021
+###  Публикация: 949655   (372460) от 25.10.2015
 
-VA - Havana Highway: Urban Chillout Vibes (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+Конец прекрасной эпохи  (2014) WEB-DL [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798315.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Digby Jones - Havan Highway (5:50)
-02. Living Room - From Suspicious Mind (Original Mix) (3:49)
-03. Marga Sol - Follow You (Original Mix) (4:10)
-04. Marie Therese - Walk in the Rain (Original Mix) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:03:34
+Молодому журналисту и писателю Андрею Лентулову, известному прямотой своих взглядов, свободой мысли и дерзостью суждений, предлагают переехать из Питера в Таллин, чтобы работать в местной газете. Там Андрей с головой уходит в полный противоречий роман с редактором Мариной, бесконечные случайные связи, но, что самое главное — яростное сопротивление системе. Какой (   Читать дальше...   )Производство: РоссияЖанр: Драма, комедияРежиссер: Станислав ГоворухинАктеры: Иван Колесников, Сергей Гармаш, Федор Добронравов, Дмитрий Астрахан, Юлиан Макаров, Лембит Ульфсак, Александра Нижегородова, Юлия Тройникова, Тыну Карк, Сергей ЕпишевПеревод: Не требуетсяПродолжительность: 01:34:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D84C5A22A07198866838D6EDDBF73DF089D3434
+magnet:?xt=urn:btih:29568464E286A81C7CFE68068FAF8900B3D349A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949824   (372451) от 25.10.2015
+
+Ускорение / Momentum (2015) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекс, опытная воровка, соглашается совершить свое последнее ограбление… Но все идет не по плану. Теперь ей — красивой, сильной и безжалостной femme fatale — угрожает опасность. И неудачное ограбление — не единственная проблема. Она перешла дорогу секретному международному синдикату, который ищет нечто более ценное, чем бриллианты. С этого момента для Алекс единственный (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллерРежиссер: Стивен С. КампанеллиАктеры: Ольга Куриленко, Морган Фриман, Джеймс Пьюрфой, Дженна Сарас, Сабина Палфи, Карл Танинг, Ли-Энн Саммерс, Эйдан Уайток, Мэриэн Фризелл, Грег КрикПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890E1DAB5CE19B5E0946915C3AF41C3915189CF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,23 +1,22 @@
-###  Публикация: 1274912   (791703) от 09.01.2019
+###  Публикация: 1827731   (193282) от 23.10.2025
 
-Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient, Experimental>
+Дмитрий Чайка | Третий Рим (Книга 14). Гибель титанов часть 2 (2025) [MP3, Николай Прокофьев]
 
->>Electronic
->>IDM (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791703.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Remote (17:58)
- 02. Vapour (12:52)Тип издания: WEBЖанр: AmbientПродолжительность: 00:30:50
+Империей снова, как в старые времена, правят два государя. Слиться в одну страну она уже не может, но торговля и законы понемногу проникают с Востока на Запад, и с Запада на Восток. В Константинополе, раздираемом склоками, неспокойно. И Самослав решает воспользоваться этим.Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:16:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
+magnet:?xt=urn:btih:2203598079711A0D1FCD71F3FED9E5AC26CAE5EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274852   (791704) от 09.01.2019
+###  Публикация: 1827734   (193281) от 23.10.2025
 
-Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Post Rock>
+Байрон Кейти | Любить то, что есть. Четыре вопроса, которые изменят вашу жизнь (2020) [MP3, Инга Брик]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791704.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unsoi (4:54)
-02. Aamu Ja Kaste (6:20)
-03. Lumikuuro (7:02)
-04. Koivun Elämä (6:22)(   Читать дальше...   )Производство: Blood Music - BLOOD-074Жанр: Folk, Funerial Doom, Post Rock, Black Metal, ExperimentalПродолжительность: 00:50:32
+Если вы часто испытываете раздражение, к концу дня без сил от большого количества негативных эмоций, остро реагируете на людей и ситуации, не знаете, как поговорить с человеком, чтобы не обидеть или хотите избавится от груза прошлого, тогда вам подойдет универсальный метод по трансформированию любых состояний в легкость и принятие.
+
+Вопросы, на которые вы услышите (   Читать дальше...   )Жанр: Саморазвитие / личностный ростИздательство: БОМБОРАПродолжительность: 09:23:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
+magnet:?xt=urn:btih:EC4AC1E1E0F4B15A5BF4414C9FA6D09FED14D1AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,28 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274889   (791705) от 09.01.2019
+###  Публикация: 1827735   (193280) от 23.10.2025
 
-VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+Франс де Вааль | Последнее объятие Мамы. Чему нас учат эмоции животных (2020) [MP3, Александр Штанг]
 
->>Pop
->>Зарубежная поп-музыка
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791705.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lorenz Koin & Norah B. - In The Name Of Love (Radio Mix) 3:22
-02. Nico Del Prato - Anymore (Radio Edit) 3:07
-03. Enormous Cats - Ready Or Not (Club Mix) 4:31
-04. Robert Taylor - Keep It Real (Original Mix) 4:13(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:17:57
+Эта увлекательная, очень добрая аудиокнига, полная сострадания и прозрений в отношении эмоций и чувств животных, призывает к гуманному отношению к нашим соседям по планете, включая тех, «кого мы едим». Она помогает нам лучше понять нас самих, осознать свое место в этом мире и неразрывную связь со всеми живыми существами на планете. Новое произведение известного приматолога (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Альпина ДиджиталПродолжительность: 10:41:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3151CF79A78A057F5562043F5A0555C7FD804116
+magnet:?xt=urn:btih:953908576EE98355324231727960C3E55E37CED0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,28 +78,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274141   (791706) от 09.01.2019
+###  Публикация: 1827738   (193279) от 23.10.2025
 
-VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary Compilation (2018) [MP3|320 Kbps] <House>
+Татьяна Брейн | Любовное косолапие. Как понять свою вторую половину и перестать допускать ошибки в отношениях (2022) [MP3, Наталья Коршун]
 
->>Electronic
->>House
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791706.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zulu Song (Paki Palmieri Afro Roots Mix)-Miriam Makeba
-02. Find Your Way (Sunrise Mix)-Moon Rocket
-03. Baakoya (Armonica Remix)-Mabiisi
-04. Amahloni (Manoo Remix)-Stones & Bones(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:03
+«Любовное косолапие» – уникальная авторская система диагностики отношений от популярного семейного психолога и коуча Татьяны Брейн. Проработав 7 важнейших блоков, мы сможем безболезненно пройти все этапы развития отношений, увидеть грань между условной нормой и крайностями и научится использовать полученные знания, не манипулируя партнером.
+Эта книга не о готовых (   Читать дальше...   )Жанр: Саморазвитие / личностный рост, Семейная психологияИздательство: БОМБОРАПродолжительность: 07:27:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:588357F95EECEBEB769D195F82CE1F90990AD55E
+magnet:?xt=urn:btih:F06ACAA57C87AB95CA2267BBF7AAC255B527463B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,28 +105,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274888   (791707) от 09.01.2019
+###  Публикация: 1827753   (193278) от 23.10.2025
 
-Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+Валерий Шарапов | Советская милиция. Эпоха порядка. Цвет зависти (2025) [MP3, Алексей Воскобойников]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791707.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Float (08:22)
- 02. Carousel (06:01)
- 03. Abandoned (18:00)
- 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
+Романы о настоящих героях своей эпохи – сотрудниках советской милиции, людях, для которых служебный подвиг – обыденное дело.
+Восьмидесятые годы. Зверски убита семья главного инженера оборонного завода Игоря Селиванова. Хозяин вместе с женой оглушены тяжелым предметом и добиты ножом, восьмилетний сын получил удар по голове молотком, но остался жив. Дело поручено следователю (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 06:56:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
+magnet:?xt=urn:btih:927D3334838ECCD9101C2852B6446F603E9B061B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,28 +132,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274880   (791708) от 09.01.2019
+###  Публикация: 1828001   (193277) от 23.10.2025
 
-VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
+Анемона / Anemone (2025) WEB-DL [H.264/720p] [MVO]
 
->>Electronic
->>House
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791708.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Block & Crown - Dice (Original Mix)
-02. Jose Ogalla - After Now (Chris Montana Piano Dub)
-03. Scotty Boy - Ya'll Came to Jack (Original Mix)
-04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
+Рэй, в прошлом солдат британской армии, сражавшийся против ИРА, давно живёт отшельником в небольшом доме в лесах. Однажды к нему приезжает его брат Джем, с которым они не виделись 20 лет. Вместе они вспоминают прошлое и старые травмы, но Джем приехал к брату не просто так.Производство: Великобритания, США / Absinthe Film Entertainment, Focus FeaturesЖанр: драмаРежиссер: Ронан Дэй-ЛьюисАктеры: Дэниэл Дэй-Льюис, Шон Бин, Саманта Мортон, Сэмюэл Боттомли, Сафиа Окли-Грин, Льюис Иэн Брэй, Пол Баттерворф, Карл Кэм, ДжейПи Конуэй, Ангус КуперПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 02:05:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
+magnet:?xt=urn:btih:3A5673E402414A709B2A3AD04771B61D0073B73B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,28 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274946   (791709) от 09.01.2019
+###  Публикация: 1827762   (193276) от 23.10.2025
 
-VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
+Инди Видум | Под знаком Песца (Книга 7). Настроение - Песец (2025) [MP3, Никита Петров]
 
->>Electronic
->>House
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791709.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steven Draxler - Right Time (Club Mix) 4:28
-02. Christopher G - Bassline Drops (Club Mix) 4:56
-03. Tom Bekker - What You Got (Instrumental Mix) 4:49
-04. Ricky Alvarez - House Is Mine (VIP Dub Mix) 4:16(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:08:22
+Если молодому парню, полному сил, противостоит женщина весьма пожилого возраста, это не означает, что он выйдет из схватки победителем. Потому что на её стороне играют опыт и знания. А ещё – император.Жанр: Фэнтези, приключения, попаданцыИздательство: ИДДКПродолжительность: 09:13:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
+magnet:?xt=urn:btih:E1D23DDABA6575F08AC3B40E4F247A0D613EB022
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,28 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274991   (791710) от 09.01.2019
+###  Публикация: 1828002   (193275) от 24.10.2025
 
-VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
+Анемона / Anemone (2025) WEB-DL [H.264/1080p] [MVO]
 
->>Electronic
->>House
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791710.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
-02. Jay Frog & Amfree - Is This Love (Radio Edit)
-03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
-04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
+Рэй, в прошлом солдат британской армии, сражавшийся против ИРА, давно живёт отшельником в небольшом доме в лесах. Однажды к нему приезжает его брат Джем, с которым они не виделись 20 лет. Вместе они вспоминают прошлое и старые травмы, но Джем приехал к брату не просто так.Производство: Великобритания, США / Absinthe Film Entertainment, Focus FeaturesЖанр: драмаРежиссер: Ронан Дэй-ЛьюисАктеры: Дэниэл Дэй-Льюис, Шон Бин, Саманта Мортон, Сэмюэл Боттомли, Сафиа Окли-Грин, Льюис Иэн Брэй, Пол Баттерворф, Карл Кэм, ДжейПи Конуэй, Ангус КуперПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 02:05:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
+magnet:?xt=urn:btih:1E81BFD6BE0E9EC4CDE4E417C68550B4C0891E0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,28 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274839   (791711) от 09.01.2019
+###  Публикация: 1827765   (193274) от 23.10.2025
 
-Divine Ascension - The Uncovering (2018) Japan [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
+Михаил Ланцов | Хозяин дубравы (Том 2). Росток (2025) [MP3, Антон Макаров]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791711.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Evermore
-02. Prisoner
-03. The Fallen
-04. Pursuit of Desire(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 00:59:38
+Прошел год. Наш современник выжил во II веке, превратившись из Неждана в Беромира – местного ведуна у славян Посожья. Но легче не стало. Ситуация накалилась еще сильнее. И перед Беромиром все острее встает задача как можно скорее собрать в единый кулак хотя бы несколько кланов. Просто чтобы выжить и устоять перед степной угрозой.Жанр: фантастика, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 09:18:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D7ABB344D09B1F58C6CD1C7826D95D5C1006A3F
+magnet:?xt=urn:btih:0E0893D78E88249B1741D1302ED90AAFE42F2081
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,28 +236,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274838   (791712) от 09.01.2019
+###  Публикация: 1827766   (193273) от 23.10.2025
 
-Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+VA - Anything and everything assorted part 4 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, AI, Other>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791712.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Birth of the Universe
-02. Moonchild
-03. Surveillance Society
-04. Fly till the End of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:18
+01 - Umar Keyn - My Love From the Past
+02 - D-Beats - Don't Сry
+03 - Dova Music - Without You
+04 - Xezzo - I Miss You(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:12:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F290E1FDE75FA2EF56741D5BEDB7DDBFFA62A583
+magnet:?xt=urn:btih:202E5AF84E477CD6A12D2CF482C81C46D8FFDB95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,28 +265,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275042   (791713) от 09.01.2019
+###  Публикация: 1828003   (193272) от 23.10.2025
 
-Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
+Хеллбой II: Золотая армия / Hellboy II: The Golden Army (2008) BDRip [H.264/1080p]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791713.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peeled Back Organs (3:57)
- 02. Embalmed in Perservatives (3:10)
- 03. Slime (3:36)
- 04. Removal of Limbs (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:24
+Древнее перемирие между человечеством и тайным миром было нарушено, на Земле вот-вот разверзнется ад. Безжалостный лидер, вхожий в оба мира, бросает вызов своей крови и пробуждает на свет неодолимую армию чудовищ.
+Настало время самому Хэллбою сразиться с беспощадным диктатором и его воинами. Вместе со своей пополняющей ряды командой «Бюро Паранормальных Исследований (   Читать дальше...   )Производство: США, Германия, Венгрия / Dark Horse EntertainmentЖанр: ужасы, боевик, фантастика, фэнтези, приключенияРежиссер: Гильермо дель ТороАктеры: Рон Перлман, Сэльма Блэр, Даг Джонс, Джон Александр, Джеймс Додд, Сет МакФарлейн, Люк Госс, Анна Уолтон, Джефри Тэмбор, Джон ХёртПеревод: Дублированный, многоголосый, (Kinoteatr TV), авторский (Гаврилов)Язык озвучки: Русский, узбекский, английскийСубтитры: АнглийскиеПродолжительность: 01:59:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03E3795DB07F6455F0BDB37FD9CAA16EF9D25205
+magnet:?xt=urn:btih:67C75C7AF417F54912A95C3FE15BB24102789B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,28 +292,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275036   (791714) от 09.01.2019
+###  Публикация: 1827767   (193271) от 23.10.2025
 
-VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Heavy Metal>
+Рой Баумайстер, Джон Тирни | Сила воли. Возьми свою жизнь под контроль (2018) [MP3, Роман Волков]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791714.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tortuga - Hell's Red Roads (03:25)
-02. Sylosis - Visions of Demise (04:26)
-03. Romeo Must Die - Who Died and Made You God (03:19)
-04. The Casino Brawl - Into the Light (04:37)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 01:17:38
+Хочешь быть счастливым – тренируй силу воли. Именно она, по мнению авторов этой книги, лежит в основе нашей высокой самооценки, уверенности в себе и хороших отношений с близкими. Считаешь, что тебе не дано? Сила воли и самодисциплина не относится к числу твоих талантов? Баумастер и Тирни предлагают простую систему самовоспитания, которая не предполагает запредельных (   Читать дальше...   )Жанр: Самосовершенствование, достижение успехаИздательство: БомбораПродолжительность: 08:06:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:040E0DD600B280F173BC7577014BBF2734343D45
+magnet:?xt=urn:btih:B003F8D037C73D1EADA2785A945D00F0EF0F1DAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,28 +318,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274842   (791715) от 09.01.2019
+###  Публикация: 1827770   (193270) от 23.10.2025
 
-1917 - Vox Fatum (2007) [FLAC|Lossless|image + .cue] <Death Metal>
+Бенжамин Харди | Сила воли не работает. Пусть твое окружение работает вместо нее (2018) [MP3, Максим Доронин]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791715.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Legado Sombrío
-02. Contemplaciones
-03. Trofeos de Honor
-04. La Iniquidad Penitente (Pt. 1)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:47
+Хватит думать, что сила воли – ключ от двери в счастливую жизнь! Чем сильнее закручиваешь гайки, заставляя себя заниматься спортом, сидеть на диете или зубрить иностранные слова, тем сокрушительнее будет срыв. И не нужно считать, что вы один такой недисциплинированный. Все срываются, все сдаются, все испытывают чувство вины!
+
+Бенжамин Харди, доктор организационной (   Читать дальше...   )Жанр: Личная эффективность, Практическая психология, Саморазвитие, Личностный ростИздательство: БомбораПродолжительность: 06:55:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18922D0D171D89F03B77C2CD26CE5727AAE4C930
+magnet:?xt=urn:btih:3730D52EBFE78FDEB05468943D12292F814D2EAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275040   (791716) от 09.01.2019
+###  Публикация: 1828004   (193269) от 23.10.2025
 
-Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
+Novembers Doom - Major Arcana (2025) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791716.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193269.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ars Moriendi  (4:06)
- 02. Dawn of Misery  (3:58)
- 03. Requiem  (2:02)
- 04. Post-Mortem Feast  (3:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:12:34
+01. June 1:57
+02. Major Arcana 6:38
+03. Ravenous 6:27
+04. Mercy 5:55(   Читать дальше...   )Жанр: Doom Metal, Death MetalПродолжительность: 00:56:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DF06B12499FFF542FEB4BA91102EC6FC05F25E0
+magnet:?xt=urn:btih:683B91EE7C0EFE70F4DB72BCF625F3F18E309004
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +375,158 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274843   (791717) от 09.01.2019
+###  Публикация: 1828005   (193268) от 23.10.2025
 
-Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+Виктор везёт / Viktor Bringt's (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Кудински — истинный берлинец и потомственный спец по доставке и обслуживанию различных бытовых электроприборов ездит на заказы вместе со своим сыном Микой. Мика совсем недавно приехал в Берлин, чтобы изучать философию. Ему нужна подработка и он просится на работу к отцу, который бросил его с матерью, когда ему было 4 года. Оба имеют разные взгляды на жизнь. (   Читать дальше...   )Производство: Германия / Amazon Prime Video, Real Film BerlinЖанр: комедияРежиссер: Эд ХерцогАктеры: Мориц Бляйбтрой, Enzo Brumm, Давид Кросс, Хайно Ферх, Каролина Петерс, Ясна Фритци Бауэр, Дэниэл Родик, Сома Писалль, Каро Культ, Гро Свантье Кольхов и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~00:25:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CE086AF60F4A9554B6742A7BF7D5860E749A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828006   (193267) от 23.10.2025
+
+Виктор везёт / Viktor Bringt's (2024) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Кудински — истинный берлинец и потомственный спец по доставке и обслуживанию различных бытовых электроприборов ездит на заказы вместе со своим сыном Микой. Мика совсем недавно приехал в Берлин, чтобы изучать философию. Ему нужна подработка и он просится на работу к отцу, который бросил его с матерью, когда ему было 4 года. Оба имеют разные взгляды на жизнь. (   Читать дальше...   )Производство: Германия / Amazon Prime Video, Real Film BerlinЖанр: комедияРежиссер: Эд ХерцогАктеры: Мориц Бляйбтрой, Enzo Brumm, Давид Кросс, Хайно Ферх, Каролина Петерс, Ясна Фритци Бауэр, Дэниэл Родик, Сома Писалль, Каро Культ, Гро Свантье Кольхов и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651CD58B60A67421290F85F74E454FEA2FF7AEBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827999   (193266) от 23.10.2025
+
+Jacksmith: Weapons and Warriors (2025) [En] (1.0.1 Build 18571048) Repack Necros
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разжигайте кузницу и создавайте своё лучшее оружие в Jacksmith: Weapons and Warriors, приключении с перекованным оружием! В роли целеустремлённого кузнеца-ослика вы путешествуете по стране, но путь преграждают коварные монстры. Объедините местные воинские кланы и вооружите их изготовленными на заказ мечами, луками, щитами и другим оружием в полностью интерактивной (   Читать дальше...   )Тип издания: RepackРазработчик: Flipline StudiosЖанр: Экшены, Казуальные игры, Инди, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58AA201D14E71618993E4E6E7AF518EC141F051D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827964   (193265) от 23.10.2025
+
+Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Other s [Premium Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний вампир приходит в себя в современном Сиэтле - но город стоит на грани войны. Кому достанется власть? Каким станет город? Решать вам - знакомьтесь с претендентами и выбирайте сторону... Осажденный с трех сторон Сиэтл, ослабевший авторитет вампирской власти, старейшина с чужим голосом в голове - и все это в исполнении студии The Chinese Room.Тип издания: RepackРазработчик: The Chinese RoomЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0ECBA304B671BF4AA956658542C1811893C111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828008   (193264) от 23.10.2025
+
+Тайна супа с клёцками / Grießnockerlaffäre (2017) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193264.jpg" />
+</div>
+
+
+###  Подробнее
+
+На основе бестселлера "Грисснокерская афера" (2017) из серии "Эберхофер" немецкой писательницы Риты Фальк... В подвале дома на уединённой ферме обнаружено тело хозяина. Все признаки указывают на несчастный случай. Вскоре происходит резонансное убийство нелюбимого всеми коллегами начальника местного ОМОНа. Ничего не подозревающего Франца Эберхофера (   Читать дальше...   )Производство: Германия / Constantin Film, ARD Degeto Film, Bayerischer RundfunkЖанр: драма, комедия, криминалРежиссер: Эд ХерцогАктеры: Нора фон Вальдштеттен, Симон Шварц, Лиза Поттхофф, Маргарете Тизель, Лилит Штангенберг, Себастьян Беццель, Франсис Фултон-Смит, Герхард Либманн, Франциска Сингер, Энци ФуксПеревод: любительский одноголосый (Porcellus)Язык озвучки: русский, немецкийСубтитры: нетПродолжительность: 01:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F6FFF3BC6C99F7EEE33C600AB3A5C872B58D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828007   (193263) от 23.10.2025
+
+Panic! At The Disco - Live In Denver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791717.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enferma Humanidad
-02. Sabor a Muerte
-03. Pastores Oscuros
-04. Maldito Seas Jesús(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:44:01
+01. Introduction (Live In Denver)
+02. The Only Difference Between Martyrdom and Suicide Is Press Coverage (Live In Denver)
+03. Time to Dance (Live In Denver)
+04. London Beckoned Songs About Money Written by Machines (Live In Denver)(   Читать дальше...   )Жанр: Alternative, Pop RockПродолжительность: 00:54:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F264C73847FFBC5E5F41A9ADE3742BECAAE51246
+magnet:?xt=urn:btih:C36AD3E2E7BE647A80DE6CB8CF33072F96C8B5EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,28 +534,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274972   (791718) от 09.01.2019
+###  Публикация: 1828010   (193262) от 23.10.2025
 
-Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Other Styles
+>>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791718.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 John Coltrane - Giant Steps:
-01. Giant Steps [4:47]
-02. Cousin Mary [5:50]
-03. Countdown [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:37:28
+01. Dancing In The Clouds
+02. Guitarra Poeta
+03. Romance De La Luna
+04. Lagrimas(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:51:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:734C27C38301929027A7E78DEB225BB977665947
+magnet:?xt=urn:btih:4524BBBAF1D010F92F762D8AF533DE88F31D22A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,28 +563,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274841   (791719) от 09.01.2019
+###  Публикация: 1827741   (193261) от 23.10.2025
 
-1917 - Vision (2004) [FLAC|Lossless|image + .cue] <Death Metal>
+Семейный призрак (2025) WEBRip [H.264/1080p]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791719.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.     In tenebra
-02.     La vieja sangre
-03.     Piel de mбrtir, carne de asesino
-04.     Mercader de voluntades(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:02
+Василий Кирсанов — бывший банковский клерк, а теперь иллюзионист-неудачник, мечтающий устроить шоу «почти как у Копперфильда». Ради сцены он уговаривает жену Светлану продать просторную квартиру и переехать с двумя детьми в тесную однушку. Шоу проваливается, а в новой квартире жить невозможно. В отчаянных поисках решения Кирсанов находит подозрительно выгодное объявление (   Читать дальше...   )Производство: Россия / КиноФирмаЖанр: комедия, фантастика, семейныйРежиссер: Александр БабаевАктеры: Максим Лагашкин, Никита Кологривый, Оксана Акиньшина, Кристина Корбут, Арина Савостьянова, Юлия Сулес, Егор Леонтьев, Ульяна ДонсковаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:24:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B1A1AF4CFDFC00262F31F026E913CAB31BAF306
+magnet:?xt=urn:btih:9DD7BC38CFB4EEC25C85DD71FFEEA15769F7FE28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,25 +589,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275039   (791720) от 09.01.2019
+###  Публикация: 732736   (193260) от 23.10.2025
 
-Livimørket - Dark Totality (2009) EP [FLAC|Lossless|tracks + .cue] <Black Metal>
+Китайский сервиз (1999) DVDRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791720.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dark Totality (39:06)Жанр: Black MetalПродолжительность: 00:39:06
+Янковский со товарищи встречаются на пароходе, следующем по Волге, дабы обчистить богатея Меньшова в покер. Приманкой служит драгоценное ожерелье, подаренное самим царем певице Волошиной, которое ставит на кон один из партнеров Янковского, выдающий себя за нефтяного магната Максуда Хундамова, проигравшегося до копейки.
+
+По фильму певица, имеющая контракт на пение (   Читать дальше...   )Жанр: Авантюрная комедияРежиссер: Виталий МоскаленкоАктеры: Олег Янковский, Сергей Безруков, Владимир Меньшов, Сергей Никоненко, Анна Самохина, Богдан Ступка, Сергей Габриэлян, Александр Резалин, Ирина Безрукова, Михаил Булатов, Юрий Думчев, Сергей Рубеко.Продолжительность: 01:36:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6550EF1A3316E682E6C47F2E2A44BE9901FA57D
+magnet:?xt=urn:btih:6B4BB4966DCC7F1A43F0B4D8046D8ECFE95F4C5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +617,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275033   (791721) от 09.01.2019
+###  Публикация: 1827471   (193259) от 23.10.2025
 
-Lonewolves - A True Discourse (2010) EP [FLAC|Lossless|tracks + .cue] <Hardcore>
+Крупнейшее в мире полностью электрическое судно показало свои аккумуляторы на зарядке
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791721.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hollow (1:57)
- 02. Shadows & Dust (2:53)
- 03. Death March (2:22)
- 04. Deity (6:22)Жанр: HardcoreПродолжительность: 00:13:34
+Австралийская верфь Incat Tasmania начала процесс зарядки аккумуляторов самого большого в мире полностью электрического пассажирского парома-катамарана на литиевых батареях. Аккумуляторы расположены в четырёх изолированных отсеках и имеют общую массу 250 тонн. Сам по себе аккумуляторный отсек выглядит настолько футуристично, что его можно спутать с фермой по добыче (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64E3CC33CA5B21D9178624EEBD9D7CDE37ECD60D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,28 +643,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275032   (791722) от 09.01.2019
+###  Публикация: 1586817   (193258) от 29.10.2022
 
-Holy State - Demo (2009) [FLAC|Lossless|tracks + .cue] <Punk>
+VA - Now That's What I Call 12 70s (2022) MP3[320 Kbps] <Hip-Hop, Rock, Funk, Soul, Pop>
 
->>Архив торрентов
->>Архив Музыки
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791722.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Comatones (2:38)
- 02. Solid State Messiah (vs the Valve Viking) (3:35)
- 03. Repeat and Fade (2:10)
- 04. Skeleton Coast (2:58)Жанр: PunkПродолжительность: 00:11:20
+01. Elton John - Are You Ready For Love (Extended Version) (08:31) 2022
+02. Wings - Goodnight Tonight (Long Version) (07:16) 2022
+03. Cliff Richard - We Don't Talk Anymore (12" Mix) (06:58) 2022
+04. Blondie - Heart Of Glass (12" Version) (05:48) 2022(   Читать дальше...   )Жанр: Electronic, Hip-Hop, Rock, Funk, Soul, PopПродолжительность: 05:06:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C0BAADCC0A13E09CFD71C3974F7A8E81A76F4BF
+magnet:?xt=urn:btih:EE215C70F8B6E890F5B5F24AFA26B273E1CB1155
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,158 +672,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387485   (791723) от 01.06.2020
+###  Публикация: 1586896   (193257) от 29.10.2022
 
-Бог грома / Mortal (2020) WEB-DL [H.264/1080p-LQ]
+VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
 
->>3
->>4
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791723.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повелевать стихией, обращать в пепел прикосновением и заставлять всё живое трепетать от страха — удел языческих богов. Но что произойдет, когда планета столкнется с одним из них во плоти? Ведь этот древний Бог всего лишь человек.Производство: Норвегия, США, Великобритания / 42, Automatik Entertainment, Eldorado FilmЖанр: Фэнтези, боевик, приключенияРежиссер: Андре ОвредалАктеры: Нат Вулф, Приянка Бозе, Ибен М. Акерлие, Артур Хакалахти, Оддрун Валестранд, Равдип Сингх Баджва, Аня Нова, Суннива Линд Ховерстад, Пер Фриш, Нико РусаковПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:43:58
+01. «Здравствуй, Песня» - Птица Счастья
+02. Эстрадно-симфонический Оркестр Центрального Телевидения И Всесоюзного Радио - День В Сентябре
+03. Алла Пугачева, «Аракс» - Скажи Мне Что-нибудь
+04. Ленинградский Концертный Оркестр - Утро (из к/ф Служебный Роман)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:36:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF87F145E175BE55EAF3DB79144AEA7FB877231D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337743   (791724) от 01.06.2020
-
-Рик и Морти / Rick and Morty (2019) WEBRip [H.264/720p-LQ] (сезон 4, серии 10 из 10) Сыендук [Обновляемая]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учёный-социопат вовлекает своего невинного внука в опасные межпространственные приключения.Производство: США, Harmonius Claptrap, Justin Roiland's Solo Vanity Card Productions, Starburns Industries, Williams StreetЖанр: мультфильм, комедия, фантастика, для взрослыхРежиссер: Пит Мишелс, Брайан Ньютон, Джон РайсАктеры: Джастин Ройланд, Крис Парнелл, Спенсер Грэммер, Сара Чок, Кари Уолгрен, Райан Ридли, Том Кенни, Морис ЛаМарш, Фил Хендри, Брэндон Джонсон и др.Перевод: Одноголосый закадровый, СыендукСубтитры: Английские, РусскиеПродолжительность: ~ 00:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDC30BC2E0918EAC7FA0A4874BB65101D381146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387279   (791725) от 01.06.2020
-
-Охота / The Hunt (2020) BDRip [MVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько человек имели неосторожность обсуждать в групповом чате охоту на людей. Некоторое время спустя та же компания летит на частном самолёте, когда к ним в салон вваливается ничего непонимающий грязный мужчина, и встречает свою смерть — пассажиры жестоко его убивают. Ещё через какое-то время несколько человек приходят в себя на лесной поляне: во рту у них кляпы, (   Читать дальше...   )Производство: США / Blumhouse Productions, White RabbitЖанр: Ужасы, боевик, триллерРежиссер: Крэйг ЗобелАктеры: Бетти Гилпин, Эмма Робертс, Итэн Сапли, Хилари Суэнк, Джастин Хартли, Дж.С. МакКензи, Айк Баринхолц, Гленн Хоуертон, Эми Мэдиган, Мэйкон БлэрПеревод: Перевод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461318143801104888CF85BBE22018952C9DFD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383753   (791727) от 01.06.2020
-
-Fragtime | Осколки Времени [2019, Movie] BDRip 1080p 10-bit raw+rus
-
->>След.
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что бы вы стали делать, обладай вы способностью останавливать время? Например, школьница Мисудзу Моритани использует свою необычайную способность, останавливать время на три минуты в день, чтобы наблюдать за окружающими людьми. Однажды она решается пошалить и посмотреть на трусики самой популярной девочки в школе Харуки Мураками. Однако это выходит ей боком, ведь (   Читать дальше...   )Производство: Tear-Studio, ЯпонияЖанр: Комедия, Романтика, Фантастика, Сёдзё-айРежиссер: Сато ТакуяОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82124F0A59D37DA127794D581566A49AB437A0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387175   (791728) от 01.06.2020
-
-GeekUniversity | Факультет информационной безопасности [1 четверть] (2019-2020) PCRec [H.264/720p-LQ]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс первой четверти обучения на Факультете информационной безопасности, где вы изучите следующие темы:
-1. Безопасность клиентской части web-приложений
-2. Компьютерные сети
-3. Основы баз данныхЖанр: Сетевая безопасность, базы данныхЯзык озвучки: РусскийПродолжительность: 37:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A453E656D76DD95DE9B7868B3647A55CBFA2D802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382721   (791729) от 01.06.2020
-
-Strike the Blood III | Удар Крови [OVA-3] [2018, OVA, 10 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение одноименной адаптации серии ранобэ "Удар крови", которое будет охватывать сюжет вплоть до 17 тома «Сломанное святое копьё» и является окончанием арки об истории Святой войны. Чем же закончится данное противостояние и как изменится жизнь главного героя Кодзё Акацуки и его взаимоотношения с Юкиной Химэраги вы узнаете, посмотрев данное аниме.Производство: Connect, ЯпонияЖанр: Приключения, ФантастикаРежиссер: Ямамото ХидэёОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 10 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A58FC30B03EBAE1CEEC96F595760187676B271
+magnet:?xt=urn:btih:858BFC12A76C6E60593D994E5AA0078D63576A17
 ```
 
 https://mybot314.ru/tekegram_catalog/

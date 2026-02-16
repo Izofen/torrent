@@ -1,24 +1,22 @@
-###  Публикация: 834248   (380071) от 24.10.2014
+###  Публикация: 1387205   (792310) от 31.05.2020
 
-VideoHive - Particle Logo Revealer - 93632 [AEP]
+Проекты - VideoHive - Knight Logo Reveal Intro V1 - 23671731 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380071.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для презентации логотипа. Есть пререндеренная версия, для которой плагины не требуются. Превью и файл помощи - в раздаче.
-
-От автора проекта: You need stylish logo revealer – you’ve got it! All you need to do is to type your text or import your logo and render the composition. The flares comes from Videocopilot’s Optical flares but I included the pre-rendered (   Читать дальше...   )Формат: AEP
+Этот проект поможет вам сделать классное вступление для вашего шоу на YouTube, телешоу, презентации или публикации в социальных сетях.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62AED9FEAF7FBDC1CC13BA8BE3626E33B4B84F57
+magnet:?xt=urn:btih:71714DE0CB32922CCEEE666EA20F9835BE9A07AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068416   (382073) от 31.10.2016
+###  Публикация: 1387222   (792309) от 31.05.2020
 
-Проекты - VideoHive - Stroke Metal Reflection Logo - 6163882 [AEP]
+Проекты - VideoHive - Brutal Logo Intro V1 - 23599253 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382073.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для демонстрации логотипа.Формат: AEP
+Этот проект поможет вам сделать классное вступление для вашего шоу на YouTube, телешоу, презентации или публикации в социальных сетях.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09F140557A295A6BB72B458B156367B305AC95DC
+magnet:?xt=urn:btih:B5F370CD271AC267DCFEE17039D846A28B8170BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,26 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326572   (384641) от 20.09.2019
+###  Публикация: 1387228   (792303) от 31.05.2020
 
-VideoHive - Photo Logo Opener - 20776552 [AEP]
+Проекты - VideoHive - Brutal Logo Intro Reveal V3 - 23850531 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384641.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Logo Opener - это простой AE-шаблон визуализации вашего логотипа.
-Его можно использовать как в конце, так и в начале медиа проекта... Дерзайте!Формат: AEP
+Этот проект поможет вам сделать классное вступление для вашего шоу на YouTube, телешоу, презентации или публикации в социальных сетях.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC499F833B0EF5F415A33C3FD649D0905055A42B
+magnet:?xt=urn:btih:18E34BDD5E62CBA2C7EA9BDD016D0879F9A4D001
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,26 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173587   (389480) от 12.10.2017
+###  Публикация: 1201521   (791931) от 25.01.2018
 
-Проекты - VideoHive - Earth Worldwide Elegant 3D Logo - 15073211 [AEP]
+Проекты - VideoHive - Simple Logo Mega Pack - 20762685 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389480.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект "Earth Worldwide Elegant 3D Logo" - это короткий полет над поверхностью Земли, а затем планета превращается в элегантный блестящий металлический логотип.
-Полностью прорисованная планета и звезды. Галактика - это отдельные слои (вы можете добавить свои). Вы можете добавить любой 3D-элемент в свою сцену, и он будет интегрирован в космический полет. (   Читать дальше...   )Формат: AEP
+Simple Logo Mega Pack - проект, содержащий 40 различных вариантов для создания демонстрации логотипа.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66280F25AB58D8C0B4F73C5B71D406C223CBD1AE
+magnet:?xt=urn:btih:CC2662FAC757BD55F6270CEC297C4C57315D65E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,26 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173528   (389522) от 12.10.2017
+###  Публикация: 1387414   (791746) от 01.06.2020
 
-Проекты - VideoHive - Logo with George - 20038202 [AEP]
+Проекты - VideoHive - Mechanical HUD Glitch Logo - 26092444 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389522.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Logo with George - проект After Effects, в котором есть 6 заполнителей (сторона грузовика, коробки, передние и задние номерные знаки, задняя дверь грузовика и фон), куда вы можете добавить свой контент. Проект также может быть выполнен с прозрачным фоном.
-Легко меняйте цвета тела, волос, тканей, всех частей грузовика и коробки с помощью специальных элементов управления. (   Читать дальше...   )Формат: AEP
+Mechanical HUD Glitch Logo - это мощный шаблон After Effects. Он содержит футуристически выглядящую 3D-сцену с механизированными элементами, которые стильно наращиваются, что бы показать ваш логотип. Этот шаблон содержит 1 заполнитель для логотипа и интеллектуальный цветовой контроллер. Используйте его как потрясающее вступление к вашим фильмам, трейлерам и тизерам. (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22211A5D506FF595A0EEE21114A6BD85908EA985
+magnet:?xt=urn:btih:68C887E386495F775CEBC0F4836F6079DA788876
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173221   (390284) от 11.10.2017
+###  Публикация: 1274983   (791491) от 09.01.2019
 
-Проекты - VideoHive - Drone Logo - 7041770 [AEP]
+Проекты - VideoHive - Magical Nature Logo - 15311953 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390284.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Незатейливый проект для показа логотипа или слогана вашей компании.Формат: AEP
+Волшебный и эффектный проект для демонстрации Вашего логотипа или бренда.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC07758B7868E649E0E6DA48EDE512F3626109BF
+magnet:?xt=urn:btih:9CB2EA24BA927A85FF99A9FFE10B7FAA09ADBAC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,25 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172651   (391702) от 09.10.2017
+###  Публикация: 1275666   (789670) от 12.01.2019
 
-Проекты - VideoHive - Mechanical Logo Reveal - 3883817 [AEP]
+Проекты - VideoHive - Beast Within - 17253184 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391702.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для демонстрации логотипа или начального ролика к вашему фильму.Формат: AEP
+Это яркий, агрессивный, мощный, сильный и взрывной проект для демонстрации логотипа. Однозначно выделится  Ваш логотип и впечатлит Вашу аудиторию мощным агрессивным воздействием.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5C604E731ED8BA7C1C2865B41D72F3B851E9701
+magnet:?xt=urn:btih:7C5983DFC53571551300A34416F227618F0CB670
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,25 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172657   (391705) от 09.10.2017
+###  Публикация: 1275669   (789662) от 12.01.2019
 
-Проекты - VideoHive - Fireborn Logo - 13857450 [AEP]
+Проекты - VideoHive - Flowers Butterfly Reveal - 21212238 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391705.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Высококачественный, динамичный, хорошо структурированный шаблон для рекламы вашего слогана, логотипа или бренда.Формат: AEP
+Flowers Butterfly Reveal - это яркий и хорошо организованный проект для демонстрации логотипа. Шаблон имеет 2 версии, 3D логотип и 2D, а также контроллеры для настройки цвета бабочки, фона, текста, бликов и частиц.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C0EB08E1B8D884DD94A3C3495A6E615D0181C10
+magnet:?xt=urn:btih:EC43434E7448C3E33B57D83AA67E9EB01195E122
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -211,26 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172620   (392657) от 08.10.2017
+###  Публикация: 1275665   (789629) от 12.01.2019
 
-Проекты - VideoHive - Pretty Particles Logo Reveal - 6710461 [AEP]
+Проекты - VideoHive - Abstract Logo Animation - 22797893 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392657.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789629.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pretty Particles Logo Reveal - это простое и быстрое решение, чтобы сделать ваш бренд или логотип еще более красивыми.
-Все, что вам понадобится, так это ваш логотип на прозрачном фоне (.png или любой другой формат с альфой).Формат: AEP
+Стильная, креативная абстрактная анимация для демонстрации Вашего логотипа или бренда.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:017C9719B0B9C8008C946A9D8C2591DBFF0D081B
+magnet:?xt=urn:btih:9418DBC18B8AD4B86F7B31F151B10CEA3DA13266
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +232,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172279   (392744) от 08.10.2017
+###  Публикация: 1276065   (788901) от 14.01.2019
 
-Проекты - VideoHive - UFO Logo Reveal - 13868159 [AEP]
+Проекты - VideoHive - Hi-Tech Reveal - 17529428 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392744.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фантастический проект АЕ для демонстрации логотипа. Можно использовать в качестве вступительной части к фильму.Формат: AEP
+Футуристический и голографический проект для демонстрации Вашего логотипа, фото, бренда в стиле Hi-Tech.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:214B895D13A1EFFE579FB7C1D0DC4F6FEC7C330C
+magnet:?xt=urn:btih:D6B88D6917A2393FBFC2028ACA7DF42076A5A071
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,25 +258,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 715460   (396321) от 26.10.2013
+###  Публикация: 1276066   (788899) от 14.01.2019
 
-VideoHive - Crysis V.2 - 946341 [AEP]
+Проекты - VideoHive - Ice & Fire Reveal - 6867726 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396321.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Crysis V.2 - яркий и динамичный opener для видеопродукции, презентаций, портфолио и многого другого.Формат: AEP
+Продемонстрируйте  свою аудиторию Ваш логотип или бренд с этим эффектным и эпическим проектом Ice & Fire.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9E137C150111359413BBC8810FE1E16418867C2
+magnet:?xt=urn:btih:DBA8FFE5E98C23CBE33CF4F331A2BD13667B2289
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,25 +284,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325880   (408311) от 17.09.2019
+###  Публикация: 1276067   (788860) от 14.01.2019
 
-VideoHive - 3D Particles Logo - 21839649 [AEP]
+Проекты - VideoHive - Logo Reveals 2 - 20645024 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408311.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Визуализация Вашего логотипа ("particular effects")... Дерзайте!Формат: AEP
+Logo Reveals 2 - это чистый шаблон After Effects с минимальной и стильной анимацией логотипа. Просто замените текст, измените цвета, поместите ваш логотип.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F71B22734B32762642FDA0A04BBBFCE9FD748256
+magnet:?xt=urn:btih:998636224342CC32291A3D536F65131E1B2EB2D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,25 +310,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252383   (408908) от 05.10.2018
+###  Публикация: 1203920   (787478) от 03.02.2018
 
-Проекты - VideoHive - Power Logo - 22026268 [AEP]
+Проекты - VideoHive - Golden Elegance Logo - 21171756 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408908.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Power Logo - продемонстрируйте свой логотип или бренд в неоновом свечении с разрядом молнии.Формат: AEP
+Golden Elegance Logo - это проект премиум класса, в котором ваш логотип будет сверкать золотыми частицами на идеально полированной поверхности.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3991B87E660E12F8032704CD5578A977AB55F80
+magnet:?xt=urn:btih:36959DC91EF381C6E25C3C083E5C3F79F3C62653
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,26 +336,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948818   (409122) от 21.10.2015
+###  Публикация: 1123331   (786458) от 07.04.2017
 
-Проекты - VideoHive - Particular Logo Reveal Pack [AEP]
+Проекты - VideoHive - Neon Glass Audio React Logo - 19640892 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409122.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект, содержащий 8 вариантов эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Neon Glass Audio React Logo - Это впечатляющий звуковой эквалайзер с высоким вниманием реагирует на появление логотипа или любой векторной формы с кинематографическим неоновым свечением в реалистичном стеклянном корпусе . Проект придаст вашему логотипу или заголовку необычный вид, реагируя на музыку эффектным 3D-световым шоу, как на дискотеке. Просто выключите режим (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CA0F78AB8319D27A72D1024BC9F422AF856668F
+magnet:?xt=urn:btih:6299E0C3CCBB0574FB0DF82FB11989C6CFC64551
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,26 +362,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948885   (409125) от 21.10.2015
+###  Публикация: 1123339   (786454) от 07.04.2017
 
-Проекты - VideoHive - Magic Stick Logo Opener [AEP]
+Проекты - VideoHive - Abstract Colorful Ribbons Logo - 18597351 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409125.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Abstract Colorful Ribbons Logo - проект для демонстрации логотипа с применением красочных абстрактных лент.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7C7A1A9DA68C7D1886FFD17CC362BD708137672
+magnet:?xt=urn:btih:6B7ADD5ACD09D899E5E505950CEA9754C7097343
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,26 +388,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948850   (409242) от 21.10.2015
+###  Публикация: 1123336   (786453) от 07.04.2017
 
-Проекты - VideoHive - 3D Industrial Logo [AEP]
+Проекты - VideoHive - Metal Wings Logo - 18497865 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409242.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Metal Wings Logo - проект для создания плавной, реалистичной 3D-анимации металлического логотипа с крыльями.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:629B3E0BAF8E50E884504DA129B95EE8B781B516
+magnet:?xt=urn:btih:B34E3F99F80682B9078F99ADF292999C8D2815EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,26 +414,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948869   (409343) от 21.10.2015
+###  Публикация: 1277305   (785282) от 20.01.2019
 
-Проекты - VideoHive - Fast Particle Reveal [AEP]
+Проекты - VideoHive - Fluid Particles Reveal - 23117166 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409343.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Взрывной кинематографический проект из жидких частиц для демонстрации Вашего логотипа. Удивите свою аудиторию этим мощным видео.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:952FFA864F66012ADF7FDBCEBBAFB31D5506E9FE
+magnet:?xt=urn:btih:0E0AAC3D806596FCCFC2F318730DAB638C55FBDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,26 +440,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948872   (409348) от 21.10.2015
+###  Публикация: 1277304   (785260) от 20.01.2019
 
-Проекты - VideoHive - Golden Tails [AEP]
+Проекты - VideoHive - Golden Rock Logo Opener - 20737210 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409348.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Это высококачественный, хорошо организованный и легко настраиваемый шаблон. Вы можете изменить проект в короткие сроки. Просто оставьте свой логотип, отредактируйте текст, добавьте аудио и наслаждайтесь результатом!Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:777CF27E533A0ECA356E481133345C7E083B6675
+magnet:?xt=urn:btih:41A54EF90068992DE34EE5329E742BF57F70E7E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,25 +466,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168258   (409972) от 23.09.2017
+###  Публикация: 1277303   (785258) от 20.01.2019
 
-Проекты - VideoHive - Glitch Logo Reveal - 19640249 [AEP]
+Проекты - VideoHive - Logo Reveals 5 - 21599351 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409972.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект "Glitch Logo Reveal" идеально подойдет для создания начального интро-ролика для вашего фильма, или просто для демонстрации логотипа.Формат: AEP
+Logo Reveals 5 - это чистый шаблон After Effects со стильной и красочной анимацией логотипа. Просто замените текст, измените цвет, поместите ваш логотип и нажмите рендер.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8A02A8903F6AFB79C4AB813FA38E750B946E14C
+magnet:?xt=urn:btih:02390C9D0AE5B8B7016D9E8D78DBB6814F1FF16B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,26 +492,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948572   (410814) от 20.10.2015
+###  Публикация: 1388977   (785088) от 08.06.2020
 
-Проекты - VideoHive - Massive City Logo - 7698875 [AEP]
+Проекты - VideoHive - Golf Logo - 19411354 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410814.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Я предполагаю, что каждый из нас играет в гольф. А если не играет, то хотя бы имеет собственную площадку для гольфа. Поэтому, данный проект будет просто жизненно необходим для рекламы своего поля, клуба, магазина с оборудованием для гольфа и пр.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEF38115D298BEB998FDBA1D13BD3BA01315888C
+magnet:?xt=urn:btih:806A02F67801314770F76AEB3C47A68DFCF54AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,26 +518,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948606   (410932) от 20.10.2015
+###  Публикация: 1390310   (783297) от 14.06.2020
 
-Проекты - VideoHive - Quick Minimal Logo [AEP]
+Проекты - VideoHive - Robot Scan - 20614660 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410932.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Две версии проекта (темная и светлая).
+Робот сканирует поверхность, и... О чудо!... Невероятным образом, внезапно обнаруживает ваш логотип.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D46934E7145CE56F4DC47B17226DFE1C45C3882B
+magnet:?xt=urn:btih:C73F42B596F8F1D2BAB5C9C44077382181C8DD0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,26 +545,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948368   (411102) от 20.10.2015
+###  Публикация: 1391526   (780955) от 20.06.2020
 
-Проекты - VideoHive - Ribbon Wall Logo Reveal [AEP]
+Проекты - VideoHive - City Bussines Center - 22244973 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411102.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Шикарный проект выдержанный в деловом стиле. Отличный способ показать логотип вашей компании.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:642F73F88D940360A46F5CEAFDBF81B3D06E76C9
+magnet:?xt=urn:btih:5A50A59E2B803D76CCD8F4710860A606E844695D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,26 +571,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948361   (411260) от 20.10.2015
+###  Публикация: 1207698   (780345) от 19.02.2018
 
-Проекты - VideoHive - Impact Logo [AEP]
+Проекты - VideoHive - Grand Luxury Company Opener - 14471025 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411260.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Поднимите престиж своей кампании на следующий уровень.
+Разместите логотип среди волшебно сверкающих  и светящихся золотых и алмазных россыпей, и продемонстрируйте зрителю готовый, визуально шикарный ролик.
+Так же, этот проект отлично подойдет для вступительной заставки к вашему видео.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22DA79BC9F334E2A6899BFBA851FE8B1ACE0C07C
+magnet:?xt=urn:btih:74CBEA00C345FEBAEB59A2518D37759B18BDBABF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,26 +599,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948564   (411270) от 20.10.2015
+###  Публикация: 1207645   (780338) от 19.02.2018
 
-Проекты - Block Spark Logo Reveal [AEP]
+Проекты - AEBlocks - Video Wall - Logo Reveal - 20 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411270.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Проект для создания заставки к фильмам со своим лого, так же подойдет для видеопрезентаций и промо. Необязательно использовать все 100 картинок или видео, так как вы можете повторить один и тот же файл в разных заполнителях.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5460A4AF4EA0378B8394B1BE66425B14ED3A7C3
+magnet:?xt=urn:btih:AEA6F11CEBD9ACFD4FDA20977EC706D9A188A161
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,26 +625,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167991   (411966) от 22.09.2017
+###  Публикация: 1012981   (778300) от 02.05.2016
 
-Проекты - VideoHive - Epic Glitch Logo - 15681487 [AEP]
+Проекты - Logo Light Reveal 2 [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411966.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот проект поможет вам создать очень крутую анимацию из вашего логотипа.
-Процесс настройки шаблона очень простой и быстрый в модификации.Формат: AEP
+Logo Light Reveal 2 - стильный, световой показ логотипа! Имеются два варианта: синий, и оранжево-синий.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1531AFCFCCF5761CA57B609E95410D0D971C626
+magnet:?xt=urn:btih:23793D0CE56CA39126F41C3E30773C32C23B861F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,26 +651,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948356   (413062) от 19.10.2015
+###  Публикация: 1012958   (778287) от 02.05.2016
 
-Проекты - VideoHive - Chalk and Pencil Sketch Logo [AEP]
+Проекты - VideoHive - Heartbeat Streaks Logo Reveal [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413062.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
+Этот проект может быть использован, чтобы раскрыть свой логотип или текст. Представляющий кардио сердцебиение линии с окружающей атмосферой. Вы можете изменить цвет на свой вкус.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DEE464D2FEEF4F6CB72289CED1098CD171B4BDD
+magnet:?xt=urn:btih:DCFB1CCF3896C4060E99DE31199176588269C793
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,54 +1,25 @@
-###  Публикация: 127930   (1047128) от 04.12.2025
+###  Публикация: 1811660   (8443) от 11.08.2025
 
-Учим соседей! | Для мести соседям (звуковые эффекты) Часть 2 [2009] [MP3]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это диск для мести соседям, которые слишком громко слушают музыку, кричат или шумят любым другим способом. CD. В комплект также входят затычки для ушей. Как сказано в рекламе: "они нужны для того, чтобы защитить вас и сохранить вам рассудок". Достаточно лишь включить один из шумовых эффектов на полную мощность и заткнуть уши (или выйти погулять на полчаса). (   Читать дальше...   )1. A10 Attack Jet 01 (0:18)
-2. A10 Attack Jet 02 (0:30)
-3. A10 Attack Jet 03 (0:20)
-4. Propeller Plane Pass By (0:26)(   Читать дальше...   )Жанр: Юмор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76A954BC1BF53B878EA20FC26D9BDAEBA708994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845464   (1050661) от 31.12.2025
-
-VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] <The Orient Collective>
+VA - The Orient Collective: Mystic Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
 >>Other Styles
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050661.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kalico Jak, Tibetania - Essence of Time (Original Mix) (7:31)
-02. Marga Sol, Darles Flow, Tibetania - Sizzla (Original Mix) (5:04)
-03. Discojack, Fecky Farris, Tibetania - Wojira (Original Mix) (5:59)
-04. Elias Fassos, RisK (Gr), Tibetania - Safe (Original Mix) (6:30)(   Читать дальше...   )Жанр: The Orient CollectiveПродолжительность: 01:08:51
+01. Martin Hiska - Stepside (5:08)
+02. Darles Flow - Caladan (5:22)
+03. Tibetania - Tribute to My Father (7:04)
+04. Tibetania - Equinox (7:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:03:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:138E31F132F2A66C20A74C88F7758C14BB1860A4
+magnet:?xt=urn:btih:B8B2309D6A749D959C6F4B9F3B1B19192D544D6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845206   (1050748) от 
+###  Публикация: 1509958   (5471) от 29.08.2025
 
-The St. John Damaskin children’s and youth choir (Детско-юношеский хор преподобного Иоанна Дамаскина) - The bright star raised (Взошла звезда ясная) ( (2007) [FLAC|Lossless|tracks + .cue] <Духов ...
+OTTA-Orchestra - Дискография (2014-2025) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Neo-Classical, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evening with Mauriat (4:18)
+02. Royal Safari (4:43)
+03. Sheldo (3:23)
+04. The Cossack Song... Forever... (2:38)(   Читать дальше...   )Жанр: Instrumental, Neo-Classical, New Age |Продолжительность: 05:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21366C228C0A6F614B964733C9462A4D27008EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816328   (4405) от 04.09.2025
+
+VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
 >>Other Styles
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050748.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Your Nativity, Our Christ
-02. With the lightful Feast
-03. The Nativity of Christ
-04. This night is holy(   Читать дальше...   )Жанр: Духовные песнопенияПродолжительность: 00:53:42
+01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
+02. Project Blue Sun, Tibetania - Ad Astra Per Aspera (Original Mix) (5:10)
+03. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)
+04. Tibetania, Summer Department - Sub Rosa (Original Mix) (5:44)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:620EDB6524C2FFE16E6722773687554FE7E3D0A5
+magnet:?xt=urn:btih:2F1B98CD1C032C375B2D02CF4987705AD82653D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,57 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845942   (1051088) от 04.01.2026
+###  Публикация: 1818121   (2599) от 15.09.2025
 
-Paul Mauriat - Forever And Ever (1973) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever And Ever
-02. Les matins d'hiver
-03. Le peintre des étoiles
-04. Les volets clos(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C45C74AC150A508E2B7A7D8BEA68B043479D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847558   (1054009) от 
-
-Vayper - Матерные частушки (Алексей Иванов) (2026) [MP3|~190 Kbps (V2)] <Russian Folk Pop>
+Надежда Бабкина, Русская Песня - Модно-народно (2025) [MP3|320 Kbps] <Folk>
 
 >>Other Styles
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054009.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Матерные частушки 01 (Алексей Иванов) MIX[00:02:47]
-02. Матерные частушки 02 (Алексей Иванов) MIX[00:02:41]
-03. Матерные частушки 03 (Алексей Иванов) MIX[00:03:25]
-04. Матерные частушки 04 (Алексей Иванов) MIX[00:04:22]Жанр: Russian Folk PopПродолжительность: 2 CD, 00:24:52
+01 - Ты воспой [00:03:30]
+02 - Чеботуха [00:03:58]
+03 - Через садик [00:03:52]
+04 - Во саду ли [00:03:12](   Читать дальше...   )Жанр: FolkПродолжительность: 00:45:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64CFB9D31FDEC22FD9BE35B4C69183026A63BC8C
+magnet:?xt=urn:btih:905A2686593E1DF2C632B3DFDE8225F3FE66BF80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850011   (1054072) от 
+###  Публикация: 1817763   (2595) от 15.09.2025
 
-Franck Pourcel - Cole Porter Story (2018) Remasterisé en 2018 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instrumental>
+Анна Пингина - Радость моя (2025) [MP3|320 Kbps] <Folk>
 
 >>Other Styles
->>Instrumental (Hi-Res)
+>>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054072.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. C'est magnifique
-02. I Love Paris
-03. I've Got You Under My Skin
-04. In The Still of the Night(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:02
+01 - Песня [00:03:17]
+02 - Высоко [00:04:41]
+03 - Мальчоночка [00:04:08]
+04 - Кукушка [00:03:41](   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:945D66E58A91960573C40BA70CDBB580C8BAF678
+magnet:?xt=urn:btih:4DE18957FABDC9399A16B70FE23C4A534E49C658
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851791   (1055606) от 
+###  Публикация: 1818374   (2480) от 16.09.2025
 
-Terra Incognita (Prem Joshua, Chinmaya Dunster) - No Goal but the Path (1993) [FLAC|Lossless|tracks + .cue] <World Fusion>
+Hauser - Cinema (2025) [FLAC|Lossless|image + .cue] <Soundtrack, Instrumental, Easy Listening>
 
 >>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055606.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shepherd’s Dream
-02. Amazonas Juan
-03. Darshan
-04. Bop Du Bop(   Читать дальше...   )Жанр: World FusionПродолжительность: 00:46:28
+Мировая сенсация виолончелист HAUSER выпускает свой новый альбом CINEMA - глубокую дань уважения самым незабываемым мелодиям из кинофильмов. С его несомненным артистизмом и страстью HAUSER вдыхает новую жизнь в самую культовую музыку кинематографа. Коллекция треков, записанная с престижным London Symphony Orchestra под управлением Robert Ziegler'а, охватывает десятилетия (   Читать дальше...   )01. Writing's On The Wall (from "Spectre") (4:31)
+02. Concerto pour la fin d'un amour (5:05)
+03. A Time for Us (Love Theme from "Romeo and Juliet") (3:41)
+04. Mission: Impossible (2:39)(   Читать дальше...   )Жанр: Soundtrack, Instrumental, Easy ListeningПродолжительность: 00:57:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC7DC97AB27878F28CB7865A2D2D0696E42D632F
+magnet:?xt=urn:btih:D586C50F5B8BE44D5E6B6490384B7F158FC1810F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +172,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851437   (1055677) от 
+###  Публикация: 1818731   (2131) от 18.09.2025
 
-The Nadas - New Start (1997) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
+Native American Music Consort - The Calling of the Wolf (2025) [MP3|320 Kbps] <Native American, World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voice of the Midnight Howl [03:12]
+02. Path of the White Fang [03:25]
+03. Moonlit Ancestral Rite [04:16]
+04. Guardian of the Frozen Peaks [03:30](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB9C2A25080D8D4981EB9421CAE7BE68E5D217D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819014   (1784) от 20.09.2025
+
+Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320 Kbps] <Native American, World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulse of Elsewhere [03:46]
+02. Between the Veil [03:22]
+03. Light Without Origin [03:18]
+04. Sliding Through Stillness [03:22](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5995E82533FE0DCFE4560592D42AA003ED501C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819557   (1267) от 23.09.2025
+
+Laura Cantrell - Just Like A Rose: The Anniversary Sessions (2023) [FLAC|Lossless|tracks] <Country, Folk, Rock>
 
 >>Other Styles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055677.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ghost [0:04:58.08]
-02. Daisy [0:03:25.39]
-03. White [0:03:46.64]
-04. My Collection [0:04:55.68](   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 01:01:08
+1. - Push the Swing (2:50)
+ 2. - Bide My Time (2:30)
+ 3. - Brand New Eyes (4:11)
+ 4. - Just Like a Rose (4:24)(   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 00:41:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9548E46F78AF04F8015E25574C4D33E882753DE3
+magnet:?xt=urn:btih:A21EE4241419458AF111BAD53BB55F46E131770E
 ```
 
 https://mybot314.ru/tekegram_catalog/

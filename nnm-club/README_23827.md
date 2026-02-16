@@ -1,280 +1,24 @@
-###  Публикация: 1092076   (940302) от 11.01.2017
+###  Публикация: 1751442   (104077) от 25.09.2024
 
-VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero Feedback - Rien ne va plus - Don Gorda Project Remix
-02. Don Gorda Project - Do That Again
-03. Enrico Donner - I Need A Love
-04. Lazypojke - Ta en fika(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C6F2B2837931A8C02A68EA2A8ECCE211BD183A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984077   (940304) от 08.02.2016
-
-Роберт Ван Гулик | Поэты и убийцы (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт ван Гулик прославился дважды. Всемирно известный ученый-востоковед, высокопоставленный дипломат, в конце 40-х он решил написать свой первый детектив о судье Ди. Ван Гулик воспользовался замысловатыми сюжетами классической китайской литературы, не особенно распространенными у западных авторов. Успех превзошел все ожидания.Прототипом судьи Ди послужил живший (   Читать дальше...   )Жанр: Классика зарубежного детективаПродолжительность: 06:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D674AEA3A6F4386F3413F4F2EAC4B411185CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984420   (940305) от 08.02.2016
-
-ЗВЕЗДА. Специальный репортаж. Эрдоган двойная игра (08.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940305.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Специальный репортаж" - это популярная информационно-аналитическая программа. Каждую неделю авторы рассказывают о какой-либо актуальной проблеме, существующей в современном обществе. Для нас не существует границ - Нью-Йорк, Сирия, Украина - наши корреспонденты повсюду!Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ДокументальныйПродолжительность: 00:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37313BAE634308692DC81F7EE3A419F4D861556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984091   (940307) от 08.02.2016
-
-VA - Klubnaya Volna Vol.1 (2015) [MP3|320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da'silva Gunn - Put You On (Original Mix)
-02. Zvika Brand & Mc Chubik Vs.Vi & Di & Jurbas - Potahat Tik Comes Down (Dj Vladimir Cooper Mash Up)
-03. Cassey, Crystal Rock - Borders (Crystal Rock Remix)
-04. Tune Brothers Feat. Ray Wilson - Here Comes The Rain Again (Dj Favorite Official Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67CC6225883427D3C7E5AD789F51904291A91339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984042   (940311) от 08.02.2016
-
-VA - Зимний кураж шансона 6 (2016) [MP3|256 kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940311.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Валерий Козьмин - В Свиданке Отказано
-002. Олег Макаров - Пацанам 80-Х
-003. Валерий Палаускас - Озорная
-004. Сергей Куренков - Жаль(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F32CD2A45FBB177D3402E2953C8E7A8BE02A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984321   (940313) от 08.02.2016
-
-Право голоса. "Америка выбирает..." (08.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940313.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Во вторник в США в штате Нью-Гэмпшир состоятся вторые праймериз кандидатов на пост президента Соединённых Штатов. Первое голосование прошло на минувшей неделе в Айове и выявило пять кандидатов. Кто из них имеет наибольшие шансы стать президентом США, и с кем нам будет выгодно иметь дело?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6802F1CC1089F47B8D3EAE18844633F8F396FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984223   (940315) от 08.02.2016
-
-Семен Малков | Несбывшиеся надежды (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940315.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Несбывшиеся надежды" - второй роман трилогии С.Малкова "Вертикаль жизни". Наша жизнь подобна остросюжетному роману - никогда не угадаешь, что тебя ждет. Одна за другой проносятся над страной политические бури, оставляя на своем пути осиротевших детей и беспомощных женщин. Верные друзья оказываются злейшими врагами, родные — предателями. Любовные (   Читать дальше...   )Жанр: Роман-трилогияПродолжительность: 11:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFF9C60ED7316693DA4F29D072EB96E08413C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984135   (940318) от 08.02.2016
-
-Футбол. Чемпионат Англии 2015-2016. 25 тур. Челси - Манчестер Юнайтед. (07.02.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940318.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 февраля 2016, воскресенье. 19:00 МСК
-
-Стадион: Стэмфорд Бридж (Лондон, Англия) , 41 434 зрителя (99 % при вместимости 42 055)
-Главный судья: Майкл Оливер (Нортумберленд, Англия)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 01:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257FAE485DCD9384A5F384B1696E5A0665734270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984106   (940322) от 08.02.2016
-
-Dr. Lonnie Smith - Evolution (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Funk, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play It Back (14:06)
-02. Afrodesia (08:21)
-03. For Heaven's Sake (05:53)
-04. Straight No Chaser (06:44)(   Читать дальше...   )Жанр: Jazz, Jazz Funk, Soul JazzПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394709988BD91E786DDF29F28F2BC37338781481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283822   (940324) от 17.01.2011
-
-Из цикла передач "На Рыбалку"   Школа Нахлыста. ч.2 (2005) DVD5
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024) WEBRip [H.264/720p]
 
 >>Спорт и активный отдых
->>Рыбалка и Охота
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940324.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Из цикла передач "На Рыбалку" Школа Нахлыста. Очень познавательный фильм про рыбалку нахлыстом. Будет интересен всем!
-2 часть:
-* Классификация и оснащение нахлыстовых удилищ (часть 2-я)
-* Нахлыстовые забросы Часть 2-я. Кольцевой заброс и забросы в стиле "Spay"
-* Изготовление поверхностной мухи из пенки (А.Чайковский)
-* Изготовление имитации ручейника из оленьей шерсти (М.Скопец)
-* Техника изготовления поппера (М.Скопец)
-* Ловля щуки на искусственные приманки
-* Изготовление щучьего стримера (М.Скопец)
-* Анализ искусственных приманок применяемых на Амуре(   Читать дальше...)Жанр: Документальный, Телепередача, СпортПродолжительность: 01:10:14
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024)
+СУДЬИ Лаврентьев Антон (Казань, Россия) Спирин Виктор (Россия)
+СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 4872Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:09:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04F04BBDD1DC29776C5204597ED5960B8C1A0A4E
+magnet:?xt=urn:btih:9FCA19CE24C0CE434654F3E71615B3D191956726
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,25 +26,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984455   (940325) от 08.02.2016
+###  Публикация: 1751448   (104076) от 25.09.2024
 
-В теме. Звёздные войны Ким Чен Ына (08.02.2016) SATRip
+Хоккей. КХЛ 2024-2025. Барыс (Астана) - Динамо (Москва) (24.09.2024) WEBRip [H.264/720p]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940325.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Кремле отметили, что пуск северокорейской ракеты нарушает международное правоТелекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
+Хоккей. КХЛ 2024-2025. Барыс (Астана) - Динамо (Москва) (24.09.2024)
+СУДЬИ Наумов Денис (Тольятти, Россия) Фатеев Иван (Россия)
+СТАДИОН «Барыс Арена» (Астана) Зрителей: 5310Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:11:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FDCBC1A73044DEB54DE83DC695734DD266F2767
+magnet:?xt=urn:btih:C4BD0FC14C66F4A567FE495C25780A9B9CF2628E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,26 +54,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 175606   (940328) от 14.02.2010
+###  Публикация: 1751452   (104075) от 25.09.2024
 
-Самая счастливая (2010) SATRip
+Хоккей. КХЛ 2024-2025. Куньлунь Ред Стар (Пекин) - Торпедо (Нижний Новгород) (24.09.2024) WEBRip [H.264/720p]
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940328.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С детства Марина привыкла жить в любви и достатке: родители не чаяли души в дочери, а она отвечала им взаимностью. Папа – талантливый ученый, мама – главврач ветеринарной клиники. Девочка мечтала закончить школу и начать самостоятельную жизнь - такую же счастливую, как и в родительском доме.
-Однако судьба распорядилась иначе: в одночасье не стало родителей, и у девушки тут же отобрали квартиру. Любимый человек ушел, бросив несчастную одну-одинешеньку с маленьким ребенком. В довершении всех бед друзья отвернулись от Марины. Помощи ждать неоткуда, рассчитывать можно только на себя. И это так тяжело – снова стать счастливой… Но Марина решает идти наперекор судьбе..…Жанр: МелодрамаРежиссер: Константин ФроловВ ролях: Юлия Кадушкевич, Анатолий Просалов, Юрий Горбач, Анатолий Котенёв, Александра Назарова, Илья Шакунов, Светлана Кожемякина, Георгий Тесля....Формат: AVI
+Хоккей. КХЛ 2024-2025. Куньлунь Ред Стар (Пекин)  - Торпедо (Нижний Новгород) (24.09.2024)
+СУДЬИ Бирин Виктор (Москва, Россия) Сидоренко Максим (Белоруссия)
+СТАДИОН «Арена Мытищи» (Мытищи) Зрителей: 1386Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:06:54
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B70D018DE3E53CBF5E1417A3400664128DB9BA1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,25 +82,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984372   (940330) от 08.02.2016
+###  Публикация: 1751441   (104074) от 25.09.2024
 
-Специальный репортаж. Индекс выгоды (2016.02.08) SATRip
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - ЦСКА (Москва) (24.09.2024) WEBRip [H.264/720p]
 
->>Документалистика и Телепередачи
->>
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940330.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специальный репортаж о закулисье мировой экономики. Что такое биржа, как на ней играют и почему так важны падения и взлёты биржевых индексов. Произойдёт ли в ближайшем будущем биржевой крах, о котором предупреждают эксперты, и станут ли его последствия катастрофическими для мировой экономики. Что такое "бумажная нефть", кто определяет цены на энергоносители (   Читать дальше...   )Телекомпания: ТВЦЖанр: ДокументальныйПродолжительность: ~ 00:25:53
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - ЦСКА (Москва) (24.09.2024)
+СУДЬИ Васильев Алексей (Санкт-Петербург, Россия) Гашилов Виктор (Пермь, Россия)
+СТАДИОН «Платинум Арена» (Хабаровск) Зрителей: 7100Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A1CFD255B07B8487155A2A23786B91CB5AE4945
+magnet:?xt=urn:btih:C657833DADA823CA966610E73DDAA181BE237892
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,28 +110,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983868   (940331) от 08.02.2016
+###  Публикация: 1751445   (104073) от 25.09.2024
 
-John Foxx - In Mysterious Ways (1985) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
+Max Diller & Blossom - Solastalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940331.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Stars On Fire
-02 - Lose All Sense Of Time
-03 - What Kind Of Girl
-04 - Shine On(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:55:33
+01. After the Rain (4:27)
+02. Broken Flower (7:21)
+03. Sun Dance (5:00)
+04. Still Blooming (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A8BFFD6FAF5F65D0202883BCD819C7E71568E83
+magnet:?xt=urn:btih:A93397C0FC7F17F5C6BA942C01D63968D4E32D74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,28 +139,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984126   (940333) от 08.02.2016
+###  Публикация: 1751434   (104072) от 25.09.2024
 
-VA - Anthems II 1991-2009 (2008) 3CD Mixed [FLAC|Lossless|tracks + .cue] <House, Techno, Trance>
+Eric Escanes - Near and Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940333.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stardust - Music Sounds Better With You (3:24)
-02. Daft Punk - Around the World (2:29)
-03. Azzido da Bass - Dooms Night (Timo Maas remix) (2:45)
-04. The Prodigy - Firestarter (2:27)(   Читать дальше...   )Жанр: House, Techno, TranceПродолжительность: 01:14:13
+01. Skipping Stone (3:43)
+02. PAX (4:43)
+03. Baba (2:08)
+04. Tokyo Moon (3:27)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:30:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82F2129D470664D663554C3456C4A70DC00CD030
+magnet:?xt=urn:btih:59A53B4456E145EC5C876586B2EF31CAF9F6B591
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -419,27 +168,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984191   (940336) от 08.02.2016
+###  Публикация: 1751443   (104071) от 25.09.2024
 
-Агния Сенч | Повстанчик (1926) [PDF]
+Magnus Dauner - Portrait In Rhythm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940336.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очень редкая книга.
-
-Рассказ получил первую премию на Сибирском литературном конкурсе.Жанр: Детская прозаФормат: PDF
+01. Die Ersten Sonnenstrahlen Nach Dem Sturm (4:01)
+02. Not My Mountain (4:23)
+03. Tanz Auf Der Falltüre (6:17)
+04. Beautiful Melodie (3:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03CC7E057F6D8E3D0803CD47EC0AFFA2240522A3
+magnet:?xt=urn:btih:B633E840519AFCB2000F22C2B0DBEC3022050238
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,28 +197,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091975   (940347) от 11.01.2017
+###  Публикация: 1751436   (104070) от 25.09.2024
 
-VA - Звездная вечеринка. Зарядись хитами Выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
+Forq - Big Party (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940347.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Диана Громова - Разбиваемся 3:08
-002. Topic - Home 3:17
-003. Непара - Любимые Люди 3:44
-004. Jaguar Skills & Chords Feat. Matti Roots - Lust 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+01. Into Bright (5:00)
+02. Bomp (4:56)
+03. Big 3 (6:10)
+04. Dirt Cake (6:39)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00C28D492F18C28B9E1D33071CEAEBCFDCA6BAA5
+magnet:?xt=urn:btih:8C3164E58238D4DC00BEAC4B869A5CC0B24654C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,26 +226,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092342   (940348) от 11.01.2017
+###  Публикация: 1751456   (104069) от 25.09.2024
 
-Permute 2.3.7 [Multi/Ru]
+Ruben Bertrands - The Other Side Of The Coin (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив 4Apple
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940348.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11 января 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+01. Jumpin' Turnstiles (3:25)
+02. Goin' Down Slow (3:41)
+03. Big Wave (3:51)
+04. The Tombs (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:643A69860C3479076C5CCA57B128896CB3D97CB3
+magnet:?xt=urn:btih:40103D3EF8CB178AC976EC7781FECB36D29F2B86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,28 +255,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092124   (940349) от 11.01.2017
+###  Публикация: 1751440   (104068) от 25.09.2024
 
-VA - Old School Trance Vol.3 (2017) [MP3|320 Kbps] <Trance>
+Louis Fontaine - Antipasto (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940349.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Acid Blow - Common Danger (Original Mix)  6:16
-02.  Aiotto - Love Story (Original Mix)  3:34
-03.  Ander Vm - Lullaby (Original Mix)  7:30
-04.  Betelgeuze - Open That Door (Original Mix) (feat. Evgenia Gintsar)  6:10(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:16
+01. Crème Caramel (3:35)
+02. Cocktail Di Gamberi (3:20)
+03. Salsa Rossa (2:48)
+04. Cotoletta Alla Milanese (3:24)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:38:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5912824A7318532D9B6F049C48B65862B01F985F
+magnet:?xt=urn:btih:0DFDD9AC1ECE64A24A582F34C5A5A4CA3031EF40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,28 +284,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092248   (940350) от 11.01.2017
+###  Публикация: 1751447   (104067) от 25.09.2024
 
-Shane Henry - Deliverance (2004) [FLAC|Lossless|image + .cue] <Blues Rock>
+Nikhil Korula Power Trio, John Primer, and Bob Corritore - Sight & Sound Episode 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940350.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01|  Deliverance  (03:43) 
-02|  In too deep  (03:19) 
-03|  40 Days and Forty Nights  (03:25) 
-04|  Lost Angelo  (04:05) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:05
+01. Forty Days and Forty Nights (5:01)
+02. When I'm With You (3:32)
+03. The Wind Cries Mary (3:17)
+04. Someone Tell the World It's Burnin' (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1CCE374411202B4D9B44D3827C0B9897EF705F9
+magnet:?xt=urn:btih:109B65979328D92C81B5ABAFBE59B860639C0530
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,28 +313,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092117   (940351) от 11.01.2017
+###  Публикация: 1751437   (104066) от 25.09.2024
 
-VA - Best Of Promind Recordings 2016 (2017) [MP3|320 Kbps] <Trance, Progressive House>
+Kris Rab - It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940351.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  A.R.D.I. - Braveheart (Original Mix)  7:01
-02.  Fathi - Our Emotions (Original Mix)  5:36
-03.  Pexot Pey - Miami (Original Mix)  3:51
-04.  Viktor Kuzin - Su-35 (Original Mix)  5:49(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:07:31
+01. Sweet and Loving Woman (4:16)
+02. Faith (3:44)
+03. It's About Time (4:00)
+04. Again (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06296DDDE2105F28D489C4AAADA7F84751EB882B
+magnet:?xt=urn:btih:F5133A40C3480320406A73B8B74B625C080B2813
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,28 +342,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092293   (940352) от 11.01.2017
+###  Публикация: 1751453   (104065) от 25.09.2024
 
-VA - Trance Big World Audition (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
+Robert Jon & The Wreck - Red Moon Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940352.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Airlab7 - Le Fruit De La Grisaia (Miroslav Vrlik Remix)  6:54
-02.  Ucast - Jetlag (Extended Mix)  7:10
-03.  Indecent Noise - Blade Dancer (Extended Mix)  7:52
-04.  Aurosonic & Sarah Lynn & Yana Chernyshev - This Imaginary Love  7:46(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 08:34:36
+01. Stone Cold Killer (3:55)
+02. Trouble (3:29)
+03. Ballad Of A Broken Hearted Man (5:24)
+04. Red Moon Rising (4:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E412825E880E7D5E8E95ED8E89B3EF4C7ABE0CA
+magnet:?xt=urn:btih:0CE3A3A75ED54ED71529B5A16749B470C73F4D76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,28 +371,198 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092141   (940353) от 11.01.2017
+###  Публикация: 1751451   (104064) от 25.09.2024
 
-Joe Bushkin - In Concert Town Hall (1963) Remaster, 2013, Warner[FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+Nim - NOW (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svijet gdje nismo sami (4:49)
+02. Do You Think I'm Happy (5:52)
+03. I Still Live (3:04)
+04. There Is Something in Your Eyes (5:13)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7084CCA251BBFEE819287F5669B065FC5FC111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751455   (104063) от 25.09.2024
+
+Rockin' Dopsie, Jr. & The Zydeco Twisters - More Fun With Rockin' Dopsie Jr. & The Zydeco Twisters (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Zydeco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dopsie Zydeco (1:29)
+02. Ooh Woo Woo (2:58)
+03. I Found A New Love (3:20)
+04. No Good Woman (3:26)(   Читать дальше...   )Жанр: Blues, Soul, ZydecoПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41044599B58614A3A1760505BE4697DBD31EC07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751444   (104062) от 25.09.2024
+
+Хоккей. КХЛ 2024-2025. Сибирь (Новосибирск) - ХК Сочи (Сочи) (24.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Сибирь (Новосибирск) - ХК Сочи (Сочи) (24.09.2024)
+СУДЬИ Гофман Антон (Россия) Мочалов Владимир (Москва, Россия)
+СТАДИОН «Сибирь-Арена» (Новосибирск) Зрителей: 10283Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62421644CE019132DB4A15BFF92D2BA77462A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751625   (104061) от 26.09.2024
+
+Хоккей. КХЛ 2024-2025. Лада (Тольятти) - Ак Барс (Казань) (25.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Лада (Тольятти) - Ак Барс (Казань) (25.09.2024)
+СУДЬИ Морозов Сергей (Электросталь, Россия) Степучёв Александр (Нефтекамск, Россия)
+СТАДИОН «Лада-Арена» (Тольятти) Зрителей: 5476Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22C179908124FBE4275F05382D3167DD0AA0D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751626   (104060) от 26.09.2024
+
+Хоккей. КХЛ 2024-2025. Локомотив (Ярославль) - Авангард (Омск) (25.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Локомотив (Ярославль) - Авангард (Омск) (25.09.2024)
+СУДЬИ Дударов Александр (Москва, Россия) Сидоренко Максим (Белоруссия)
+СТАДИОН «УКСК Арена-2000-Локомотив» (Ярославль) Зрителей: 7437Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07575F2A16512331E9CAE6D5EBBEB35213C5BC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751622   (104059) от 26.09.2024
+
+Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Спартак (Москва) (25.09.2024) WEBRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Спартак (Москва) (25.09.2024)
+СУДЬИ Белов Алексей (Ярославль, Россия) Оскирко Юрий (Ярославль, Россия)
+СТАДИОН «Арена Металлург» (Магнитогорск) Зрителей: 6543Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E9CCB33B969BF687ED2FFD579152D27DAB47D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751634   (104058) от 26.09.2024
+
+Sonny Stitt - & The Top Brass (1962) 1998, Atlantic [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940353.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Medley: The Man That Got Away - Hallelujah [04:30]
- 02.The Porgy And Bess Medley: Bess You Is My Woman - It Ain't Necessarily So - S... [10:04]
- 03.I Can't Get Started [04:33]
- 04.They Can't Take That Away From Me [03:01](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:39:16
+01. Souls Valley [4:31]
+02. Coquette [3:19]
+03. On a Misty Night [4:04]
+04. Stittsie [5:57](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:35:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C87F6117E513DA611E025B13E7A4678C77F150DB
+magnet:?xt=urn:btih:ADD70DD985D5AC9C73B88459DC29E593FFB8ACDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,28 +570,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092389   (940354) от 11.01.2017
+###  Публикация: 1751721   (104057) от 26.09.2024
 
-Birdlegg - Extra Mayo (2016) WEB [FLAC|Lossless|tracks + .cue] <Electric Blues, Texas Blues>
+Serious Black - Rise of Akhenaton (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940354.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eyesight To The Blind (4:09)
-02. Just A Little Bit (2:45)
-03. Walking The Dog (3:46)
-04. I Want To Know (5:18)(   Читать дальше...   )Жанр: Electric Blues, Texas BluesПродолжительность: 00:30:18
+01. Open Your Eyes (4:12)
+02. We Are the Storm (3:47)
+03. Silent Angel (4:22)
+04. Take Your Life (3:28)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29D233DD95AD9E4C97B51A18B68E0EFFAC78520C
+magnet:?xt=urn:btih:090CC3F1841FAD2DD3593A4476332911076DE1EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,28 +599,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092143   (940355) от 11.01.2017
+###  Публикация: 1751711   (104056) от 26.09.2024
 
-Melvin (Mel) Rhyne - Remembering Wes (1996) 1999, Savant[FLAC|Lossless|image + .cue] <Hard Bop>
+The Black Dahlia Murder - Servitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evening Ephemeral (3:55)
+02. Panic Hysteric (3:07)
+03. Aftermath (3:02)
+04. Cursed Creator (3:35)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533B360B860B923D5BA4E071F437AA7BBDC1DF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751631   (104055) от 26.09.2024
+
+Sugaray Rayford - Human Decency (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Failing Upwards (4:27)
+02. Human Decency (3:50)
+03. Sam Morrow - Stuck Between (3:20)
+04. Strawberry Hill (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DABCB71A70A36BF67014AAB52340D9C3ABCD8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751603   (104054) от 26.09.2024
+
+Cannonball Adderley - Paris Jazz Concert: Salle Pleyel, Olympia (1960, 1961,1969) 2CD, 2002, LaserLight [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940355.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Jingles [05:06]
- 02.The Days of Wine and Roses [04:53]
- 03.Cariba [03:45]
- 04.For All We Know [05:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:57
+01. Rufus Still Skinned (Rumpelstiltskin) [13:06]
+02. Black Orpheus [9:33]
+03. Work Song [9:12]
+04. Experience in E [13:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:23:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D32BD3570F7A620A83F1C76517BF8AB3DAAC690C
+magnet:?xt=urn:btih:AFCBD8603DB0EA616E2C660440A9739F197642A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,25 +686,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 175286   (940361) от 14.02.2010
+###  Публикация: 1751517   (104053) от 26.09.2024
 
-Мужчина по вызову / Deuce Bigalow: Male Gigolo (1999) HDTVRip
+Kate Pierson - Radios & Rainbows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940361.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дьюс Бигало, вечно нищий чистильщик водоемов, которому к тому же с девушками не везет, является по вызову (пруд приусадебный почистить) к одному богатому и красивому, который в числе прочего рассказывает, как он на жизнь зарабатывает: мужской проституцией. И уезжает в командировку. А Дьюса оставляет по хозяйству — подмести там, за рыбкой больной поухаживать. И вот (   Читать дальше...   )Жанр: КомедияРежиссер: Майк МитчеллАктеры: Роб Шнайдер, Уильям Форсайт, Эдди Гриффин, Ариджа Барейкис, Одед Фер, Гэйл О''Грэйди, Ричард Рил, Жаклин Обрадорс, Биг Бой, Эми Полер, Дина ПлэтиэсПродолжительность: 01:28:27
+01. Evil Love [00:03:48]
+02. Take Me Back to the Party [00:03:58]
+03. Every Day is Halloween [00:04:28]
+04. The Beauty of it All [00:04:21](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:89414A8339A6390475B311B8DEA754A3F514B5B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751632   (104052) от 26.09.2024
+
+Sylvain Rifflet - We Want Stars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Dance (2:34)
+02. The Mojo (3:18)
+03. Mǎmǎhūhū (4:36)
+04. Bach and Boom (5:18)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EB8E61812BCC135E36243FDEF38D5A9002E1B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

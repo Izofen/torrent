@@ -1,196 +1,23 @@
-###  Публикация: 575249   (364867) от 16.11.2012
+###  Публикация: 1400591   (718536) от 05.08.2020
 
-3D модели - Evermotion - Archmodels Vol. 080 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-В данный сборник вошли 170 моделей фурнитуры фабрики AAnders.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC30E915549CA03DF66786CEFA0B9E2AA77922D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575212   (369704) от 14.11.2012
-
-3D модели - Evermotion - Archmodels Vol. 106 [V-Ray|*.max]
+3D модели - 3DDD - Benches & Poufs [Corona|V-Ray|*.max, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369704.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D модели - Evermotion - Archmodels Vol. 106 [V-Ray|*.max]
-Название: Evermotion - Archmodels Vol.106
-Официальный сайт: Evermotion
-Тип раздаваемого: 3d Модели
-Расширение файлов: *.max; *.png; *.jpg
-Количество моделей: 50
-Каталог в PDF: Archmodels Vol.106
-Минимальные требования: V-ray 1.5 with 3dsmax 2008Описание: Archmodels Vol.106 - Сборник 3d моделей, содержит 50 высокополигональных, затекстурированных моделей деревьев.Время раздачи: по возможности
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44B9AC98555F8BB360C4EDB22779DE996B134FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575143   (369711) от 14.11.2012
-
-3D модели - Evermotion - Archmodels Vol. 107 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-Данный сборник содержит 116 высокополигональных и полностью затекстуренных моделей освещения как для интерьеров так и для уличного освещения!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4FD0D5924AA16F5F130671BFC5177172A2E6B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574879   (369713) от 14.11.2012
-
-3D модели - Evermotion - Archmodels Vol. 114 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-Данный сборник содержит 50 высокополигональных и полностью затекстуренных моделей на тему "Ретро"!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36E69CA9F40E3B710380010683919FAB4EFD67E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575139   (369715) от 14.11.2012
-
-3D модели - Evermotion - Archmodels Vol. 101 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-Данный сборник содержит 99 высокополигональных и полностью затекстуренных моделей парфюмерии: духи, одеколоны, косметика...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF8221E6063BE2D1BA49C9B7B36BD6A7F31467C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406122   (369774) от 03.11.2011
-
-3D модели - Evermotion - Archmodels Vol. 078 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-В данный сборник вошли 40 моделей гаджетов: телефоны, mp3-плееры, фотоаппараты и многое другое.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C199E47267AC75252B51030E2B45AD5D9DF62A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575956   (370038) от 12.09.2022
-
-3D модели - 3DSky PRO models - 2022 #3 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370038.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718536.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 162 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+Количество моделей: 97 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3623613F7F08C7A054C02371F1B76DE431901D44
+magnet:?xt=urn:btih:1FCD17F8C6475E9FC18F94A9505B47C239192B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,25 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575954   (370095) от 12.09.2022
+###  Публикация: 1129381   (715755) от 01.05.2017
 
-3D модели - Evermotion - Archmodels vol. 222 [Corona|*.max]
+3D модели - Evermotion - Archmodels vol. 99 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370095.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Archmodels vol. 222 включает в себя 44 профессиональных, высокодетализированных 3d-модели для архитектурной визуализации. Эта коллекция поставляется с высококачественным оборудованием для мастерских и сада. Все объекты готовы к использованию в ваших визуализациях.Формат: Corona|*.max
+Сборник Evermotion Archmodels vol. 99 содержит 80 моделей ламп и светильников во включенном и выключенном режиме.
+КаталогФормат: V-Ray|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF0082A7C101C80D3DD78A0365AB885978B45846
+magnet:?xt=urn:btih:0E764DA0DA586E9EA4CBE53CCE43EF3BB5D0F8F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,426 +52,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 571937   (386650) от 07.11.2012
+###  Публикация: 1219364   (713304) от 14.04.2018
 
-3D модели - Evermotion - Archmodels Vol. 117 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник деревьев от Evermotion
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BF3406844131B85DFA254A95A9CF199A05EE47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571957   (386659) от 07.11.2012
-
-3D модели - Evermotion - Archmodels Vol. 113 [V-Ray|*.max]
+3D модели - Daz 3D - Penny 8 Pro Bundle - 50913 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386659.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник деревьев от Evermotion
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F6E16F566AEC1200D70350A54FC611CA1A1F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567781   (395439) от 30.10.2012
-
-3D модели - Evermotion - Archmodels Vol. 088 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-Данный сборник содержит 60 высокополигональных и полностью затекстуренных моделей на тему "Рождество"!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3229A939223C9D3E6C063F6EAF2CFB51AFA85731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574049   (407221) от 03.09.2022
-
-3D модели - 3DSky PRO models - 2022 #2 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 455 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309C833EE8D1CA067AB0DF506FE01E18333E2CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325940   (408408) от 17.09.2019
-
-3D сцены - Blender Cloud - Art Gallery - Gleb Alexandrov [BLEND]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408408.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D сцены Глеба Александрова с сайта Blender Cloud:
-- Locomotives
-- Light Trails
-- Attic(   Читать дальше...   )Формат: BLEND
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9822C7F63864F6EC477B13D0A41A63865E5AA023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251615   (415170) от 02.10.2018
-
-3D модели - TurboSquid - Dodge Durango SRT 2018 (Low Interior) - 1279682 [MAX, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415170.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Dodge. Текстуры отстутствуют.
-Материал предоставлен исключительно в учебно-ознакомительных целях.Формат: MAX, 3DS, C4D, FBX, LWO, OBJ, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2DA050D9C1271512592EC229503FCA088771DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573072   (416068) от 29.08.2022
-
-3D модели - 3DSky PRO models - 2022 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 261 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9F4F71DB03628FB777BD29F5929627037D273B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251446   (417597) от 01.10.2018
-
-3D модели - TurboSquid - Mercedes Benz X Class Power 2018 - 1189889 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417597.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Mercedes-BenzФормат: V-Ray|Scanline|*.max, FBX, OBJ, MB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3FFBD30BDD33565D1CE56F088D78B0281E1A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251315   (417611) от 01.10.2018
-
-3D модели - GrabCAD - Combat Boat 90 H [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417611.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель Сторожевой катер шведская верфи DockstavarvetФормат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6800BDF2C0DF90A4DC09B89C3B2CC83C8AF8C238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325040   (418298) от 12.09.2019
-
-Hum3D - Volkswagen Crafter Panel Van L1H2 2017 [Scanline|Mental Ray|V-Ray|*.max, 3DS, 3DM, C4D, BIP, BLEND, PSD, OBJ, FBX, LWO, SKP, STL, MB]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418298.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки VolkswagenФормат: Scanline|Mental Ray|V-Ray|*.max, 3DS, 3DM, C4D, BIP, BLEND, PSD, OBJ, FBX, LWO, SKP, STL, MB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9B726C645064FDEB45B7C13A14883D319032F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251221   (419506) от 30.09.2018
-
-3D модели - Unity Asset Store - Assault Character Pack Remastered - 16771 [FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419506.jpg" />
-</div>
-
-
-###  Подробнее
-
-BlocBros Studio с гордостью представляет версию Remastered предыдущего бестселлера Assault Character Pack, вкл. Оружие, но теперь  увеличено в 10х количество полигонов и более четким скелетом с классическим 6 оружием. Создано для следующего поколения ПК / консольных / мобильных платформ с учетом текстур PBS и совместимой с MotionBuilder / Unity Mecanim установкой.Формат: FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34156D688D3ACA683D716535B34735C9C0DDC49F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251277   (419700) от 30.09.2018
-
-3D модели - Sketchfab - Little Robot Dude [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419700.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель небольшого роботаФормат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA3CAE0FE4801A02A30102349DC95B73CB7A613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251232   (419863) от 30.09.2018
-
-3D модели - ArtStation - Yanaka Coffee Shop [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кофейня Янака, сделал это во время моего свободного времени, вдохновленного настоящим кафе в Японии.Формат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B63E624C26AC63A06C24D817710AE6FCF030F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251010   (422131) от 29.09.2018
-
-3D модели - Daz 3D - Retro Vehicle Bundle - 55777 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Retro Vehicle для DAZ 3D из категории Vehicles.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C208DD5F124F14782F0365D680C1ABEFD2AAF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553359   (427988) от 04.10.2012
-
-3D модели - Evermotion - Archmodels Vol. 093 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-Данный сборник содержит 12 высокополигональных и полностью затекстуренных моделей мотоциклов и других типов "железных коней"!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96FD9C223CE8BD6281AB6246D3EB12766427A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324134   (429397) от 07.09.2019
-
-3D модели - Daz 3D - Gabriela 8 Pro Bundle - 62853 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Gabriela 8 для DAZ 3D из категории People.
+Penny 8 Pro Bundle - это окончательная коллекция, которая поможет покорить Голливуд. Каждый предмет поможет придать реализма  Пенни в ваших рендерах!. для DAZ 3D
 Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE3B7C0151901F65CF4A9719EC58641E4E2ED676
+magnet:?xt=urn:btih:9DF15533DF272DC7D23524BA8F1E7B850A05121F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,26 +79,264 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324137   (429469) от 07.09.2019
+###  Публикация: 1219345   (713180) от 14.04.2018
 
-3D модели - Daz 3D - Diego 8 Pro Bundle - 63253 [DUF]
+3D модели - Daz 3D - Сборник 3D моделей #7 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429469.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Diego 8 для DAZ 3D из категории People.
+Набор 3d моделей для DAZ 3D - из 150шт, категории Animation, Clothing, People, Props, Hair.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10440D65FB20AB71223519C1600AB0C2E8F8C93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400985   (712622) от 08.08.2020
+
+3D модели - KitBash3D - Props: Secret Labs [OBJ, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оживите свои высокотехнологичные правительственные лаборатории и подземные научные миры с помощью герметичных камер этого набора, коллайдеров частиц, компьютеров, серверов, операционных столов, рентгеновских аппаратов, криокамер, сборочных линий роботов, а также десятков и десятков других предметов. Вы можете создавать безобидные хранилища данных, злые фермы клонирования, (   Читать дальше...   )Формат: OBJ, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A32769A0F4A411C851478223BB9A1FBFD693EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329067   (711205) от 28.04.2011
+
+3D модели - Evermotion - Archmodels Vol. 065 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+
+В данный сборник вошли 53 модели американской классической мебели: столы, стулья, витрины и буфет.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA13804B0D39F096EB2093BBC0C8B599CF38E999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219900   (709648) от 16.04.2018
+
+3D сцены - TurboSquid - Soccer Stadium CF - 723639 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высоко детализированная трехмерная модель футбольного стадиона с анимированной аудиторией.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B930F6247208EC712FFC0A40D6178A139E0E546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219834   (709630) от 16.04.2018
+
+3D модели - Creative Market - Low Poly City Pack 1 - 2100863 [3DS, C4D, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приятное цветовое сочетание и масштаб сцены привлекает внимание. Быстрая и простая настройка позволяет использовать проект на всех этапах. В любых объектах, где нужен стиль. Особенности проекта: сцена состоит из различных объектов. Основной Формат C4D (Maxon Cinema 4D), но также включает в себя 3Ds, OBJ (multi format) и FBX (multi format) очень прост в использовании (   Читать дальше...   )Формат: 3DS, C4D, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E7CA0018089DB29BDFC4ED85CBED3C2AC687F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401458   (708821) от 10.08.2020
+
+3D модели - 3DDD - Pro Table & Chair Vol.01 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 243 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43080F066A15BFB59B645908AFA32886EA06806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401712   (706851) от 11.08.2020
+
+3D модели - Kstudio - Realistic Flowers and Grass (HQ Grass 1) [C4D, LIB4D, MXS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это сборник высококачественных 3D-моделей травы, полевых цветов и растений. Полевица, ромашка, клевер, маргаритка, одуванчик, ковыль, вереск, газонные травы, чебрец, пшеница, полевые травы — более 180 реалистичных 3D-моделей для Cinema 4D. Все модели имеют соответствующие текстуры и материалы для Vray,  и Cinema 4D — рендеров. В пакет входят демонстрационные сцены (   Читать дальше...   )Формат: C4D, LIB4D, MXS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1472C02CCAF44CF4CF0DF0FDF5E7D89EA9A98329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287043   (706679) от 05.03.2019
+
+3D модели - Evermotion - Archmodels Vol. 165 [V-Ray|*.max, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+В данный сборник вошли 108 моделей в тематике Постапокалипсис.Формат: V-Ray|*.max, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060ECB000B9B9AFF4A217C83E4E830FDB509C2D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220511   (704099) от 19.04.2018
+
+3D модели - Daz 3D - Сборник 3D моделей #8 [DUF, EXE]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 100шт, категории Animals, Clothing, People, Props, Hair.Формат: DUF, EXE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E7468FDDDBBC1197D1239D94C0F2244110A05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287489   (703229) от 07.03.2019
+
+3D модели - Daz 3D - Lucas 8 Pro Bundle - 46773 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Lucas 8 для DAZ 3D из категории People.
 Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC28F077D6FCA0F0A7DDA817DD374D4DF764069C
+magnet:?xt=urn:btih:276BB44FDB47905530794CEA05673DAE7F680827
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,25 +344,353 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323456   (435283) от 04.09.2019
+###  Публикация: 1287482   (703103) от 07.03.2019
 
-Hum3D - Fiat Ducato Panel Van L2H2 with HQ interior 2014 [Scanline|Mental Ray|V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, SKP, STL, MB]
+3D модели - Daz 3D - Bridget 8 Pro Bundle - 57931 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435283.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки FiatФормат: Scanline|Mental Ray|V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, SKP, STL, MB
+Комплект Bridget 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:056A900C2E158458F84E65A151841F466ED28EED
+magnet:?xt=urn:btih:12C7C8C14951DBB1EA9A83B9C6A416497C73D42D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221332   (694823) от 24.04.2018
+
+3D Smart materials - Gumroad - 20 Metal Smart Materials + 2 tutorials [SPSM, SPP, OBJ, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это умный набор металлических материалов для Substance Painter.Формат: SPSM, SPP, OBJ, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C9B9AB3A455215D1FBD77D1EF79B80B79BB55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221724   (691135) от 26.04.2018
+
+3D модели - Daz 3D - Edie 8 Pro Bundle - 50485 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Edie 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFABB7CC1B61E448540578E26C77E0C1CC04A2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221800   (691056) от 26.04.2018
+
+3D модели - Daz 3D - Сборник 3D моделей #9 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 50шт, категории Intimates, Clothing.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7795AC7B8D4809B250F01F12A1614715DD73CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222149   (686887) от 28.04.2018
+
+3D модели - Daz 3D - Сборник 3D моделей #10 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Animation, Jewelry.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BA9BC05A5D67434EB690A9EFDCBD78B8C6E6BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535454   (686018) от 06.03.2022
+
+3D print - Flexi print-in-place - набор гибких игрушек [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686018.jpg" />
+</div>
+
+
+###  Подробнее
+
+This Flexi's is an articulated print-in-place models that needs NO supports.
+
+Flexi's are really fun to play with because they flop around and move in any which way.
+(   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1B48266FB8F72DC653DA24966F750ADE43AF97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535403   (685879) от 06.03.2022
+
+3D print - Bestiarum Miniatures - Модели для настольных игр [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Each month we deliver sets of presupported STL's and RPG game supplements that can be used in: DnD5e, Rangers of the Shadow Deep and Forbidden Psalm game systems.
+
+Ежемесячные наборы моделей для настольных систем (DnD/FP/RsD). В наборы включены интегративные схемы, лор, правила, и, конечно, сами модели. Модели подходят как для FDM-принтеров в нарезке, так и для SLA-принтеров (   Читать дальше...   )Формат: .STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83AED023A99A803F2EABA8B1A3E98521C012CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535551   (684102) от 07.03.2022
+
+3D print - Gambody - Cylon Raider - Diorama [SLT]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
+
+Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F8296C3C74AF481638C6E17DD16FF294FB510E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535493   (683967) от 07.03.2022
+
+3D print - Gambody - Pyramid Head - Диорама [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
+
+Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48E7C54277DF830F5EC414A2F86FCDF2A09FA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535590   (683963) от 07.03.2022
+
+3D print - Gambody - Hollow Knight - Diorama [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
+
+Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980A63ECF2B3CD06FBE55E348B5F7BD82C9A17D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535703   (683962) от 07.03.2022
+
+3D print - MyMiniFactory - Botched Tiefling Summoning - Miniature [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миниатюра призыва тифлингов. Для использования в настольных играх, таких как Dungeons and Dragons. В комплект входит топлесс и обнаженная версия.
+Модель в размере 52-миллиметра, включены варианты с поддержками и без. Каждая модель состоит из 5 частей для большей детализации.Формат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C196C0A3FE0C78A796C275E73DEA8D182708E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535486   (683960) от 07.03.2022
+
+3D print - Gambody - T-60 Fallout Power Armor - Диорама [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
+
+Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56692E022185963240240671D154EC2B646D74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535640   (683836) от 07.03.2022
+
+3D print - Loot Studios - Ship Ahoy! - DnD Miniatures [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячная подборка моделей DnD (или любые другие настольные системы) для печати. В комплекте предлагаются модели 32 и 75 мм, с поддержками и без. Многие (где это возможно) модели также идут в полом варианте (SLA ECO). Также представлены файлы .LYCHEE, уже с поддержками, для правильной ориентации на своем столе и возможности масштабирования и изменения поддержек (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88E544ABE28C321CC42FB74B66EE9EE9381FF9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

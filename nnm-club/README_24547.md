@@ -1,22 +1,22 @@
-###  Публикация: 972625   (981648) от 06.01.2016
+###  Публикация: 1799889   (66368) от 30.05.2025
 
-Emsisoft Internet Security 11.0.0.6054 Final [Multi/Ru]
+Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansion | Невеста герцога по контракту [2023, TV, 12 эп.] BDRip 1080p raw
 
->>Архив торрентов
->>Архив Программ
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981648.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Emsisoft Internet Security - полностью интегрированный пакет безопасности "антивирус + фаервол", который сочетает в себе возможности Emsisoft Anti-Malware и совершенного нового ядра брандмауэра. По сравнению с ядром брандмауэра Online Armor, в Emsisoft Internet Security фаервол имеет полную поддержку IPv6, дифференциальные правила фильтрации пакетов, более (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Кому-то жизнь в романе может показаться сказкой, но для Ринко Ханасаки, новоиспечённой Релианы Макмиллан, эта история обернулась кошмаром. У неё любящая, дружная и обеспеченная семья, но все прелести новой жизни перечёркивает судьба девушки, которую Ринко знает по роману, что она когда-то читала: дочери Макмилланов суждено умереть молодой от рук своего жениха. Но (   Читать дальше...   )Производство: студия Typhoon Graphics / 颱風グラフィックスЖанр: романтика, фэнтезиРежиссер: Ямамото ДзюнъитиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A12E8836A816BB20B9117BBDD0FCEACBF6F391D
+magnet:?xt=urn:btih:D24A2202E1DDE8A8764190460CBBEC49479E716B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972749   (981650) от 06.01.2016
+###  Публикация: 1799823   (66367) от 30.05.2025
 
-Пленник / Captive  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po, Ge Sub]
+Робин Норвуд | Женщины, которые любят слишком сильно (2021) [MP3, Наталья Полтаракова]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981650.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мать-одиночка, борющаяся с наркотической зависимостью, взята в заложники в собственной квартире, мужчиной, который сбежал из тюрьмы и убил судью, назначенного на его дело.Производство: США, BN Films, 1019 Entertainment, Brightside Entertainment, Itaca Films, Yoruba Saxon ProductionsЖанр: триллер, драма, криминалРежиссер: Джерри ДжеймсонАктеры: Кейт Мара, Мими Роджерс, Майкл Кеннет Уильямс, Дэвид Ойелоуо, Леонор Варела, Мэтт Лоу, Джессика Ойелоуо, Э. Роджер Митчелл, Рэймонд Скотт Паркс, Дж. Карен Томас, Майкл Меркальди, Леон ПридженПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанский, португальский,  немецкийПродолжительность: 01:37:07
+Если любить для нас обязательно означает страдать – мы любим слишком сильно. Нередко женщины обнаруживают, что в своих отношениях с мужчинами роковым образом раз за разом следуют одному и тому же драматическому сценарию: безответные чувства – привязанность – несчастная любовь – нездоровые отношения. Затем они прикладывают огромные усилия, пытаясь наладить эти отношения, (   Читать дальше...   )Жанр: Психологическая консультация, Психология отношенийИздательство: Добрая книгаПродолжительность: 10:59:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED8149B12D52C088EC5D7B0AA2504C2863D6830C
+magnet:?xt=urn:btih:02E73452014ED7748E89FE2D14A53BCB04B53808
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972560   (981653) от 06.01.2016
+###  Публикация: 1799773   (66366) от 30.05.2025
 
-FileMenu Tools 7.0.3 + Portable [Multi/Ru]
+Владимир Истомин - Пива налей (1994) [MP3|320 Kbps] <Electronic, Pop>
 
->>Архив торрентов
->>Архив Программ
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981653.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа настраивает пункты контекстного меню проводника Windows, позволяя самостоятельно составить список нужных команд. Одним щелчком мыши можно переименовать, скопировать, переместить, удалить файлы, запустить нужные программы, скопировать выделение в буфер обмена, вызвать антивирусный сканер, открыть интернет-ссылки и многое другое. Программа позволяет задать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01 - Biermannermarsch [00:01:25]
+02 - Секс-бомба [00:03:52]
+03 - Пива налей [00:05:02]
+04 - Оборванный праздник [00:03:22](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AF1A523E49E6DA6774ED0A9B97CBBBE0435E3F5
+magnet:?xt=urn:btih:5E0BFEC1E39F839D25D000170819F3A65FA373EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972581   (981654) от 06.01.2016
+###  Публикация: 1799854   (66365) от 30.05.2025
 
-Проекты - Проект ProShow Producer - Пусть рекой течёт веселье [PSH]
+Alexander Spark - Destiny (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Проекты
->>Праздничные (проекты)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981654.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новогодний проект от нашей одноклубницы Hivatusya. Прекрасно оформленная презентация в романтическом жанре. Проект отредактирован и пересохранён в PSP-6 в связи с переименованием файлов содержащих в названиях рекламу сторонних ресурсов. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, (   Читать дальше...   )Формат: PSH
+01. Alexander Spark & Lucid Blue - Destiny (Extended Mix) [5:32]
+02. Alexander Spark & Jeef B - If I Say (Extended Mix) [6:10]
+03. Alexander Popov & Alexander Spark - Run It (Extended Mix) [3:42]
+04. Alexander Spark & Alexander Turok - No Fear (Extended Mix) [3:38](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:19:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3FD3888AC0DC55C6EDC9BB1638C701820E0667B
+magnet:?xt=urn:btih:0DC90E2E0F5F66B92D3436CFBD50D1C42ABBF926
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,34 +108,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 613987   (981669) от 05.02.2013
+###  Публикация: 1799930   (66364) от 30.05.2025
 
-Love Food - Sensual Soft Jazz (2011) [MP3|320 кб/с]<Smooth Jazz>
+Brother Firetribe - Number One (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Number One (3:54)
+02.  How Long Until Tomorrow (4:24)
+03.  Just Another Night (4:32)
+04.  Are You Ready? (3:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7CB5D2FCE4B8593EC974AD4FD7A9D3B9433FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799731   (66363) от 30.05.2025
+
+Книжная иллюстрация - E A G L E - Creative Fabrica - 186 Peacock Mandala Coloring Pages - KDP [JPG, PNG, PDF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски с павлинами в стиле мандалы.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4149B07D211A04D62662EFBCD22A050ABD78A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799843   (66362) от 30.05.2025
+
+Garbage - Let All That We Imagine Be The Light (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's No Future In Optimism
+02. Chinese Fire Horse
+03. Hold
+04. Have We Met (The Void)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2C1C6681B4643295C0C47F4EC5926095A9573B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799887   (66361) от 30.05.2025
+
+Mononoke | Мононокэ [2007, TV, 12 эп.] BDRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66361.jpg" />
+</div>
+
+
+###  Подробнее
+
+По Японии странствует таинственный Аптекарь, занятый не столько торговлей снадобьями, сколько борьбой со злыми духами «мононокэ». Они не рождаются в человеческом мире, но существуют в нем благодаря человеческим порокам и слабостям. Для того, чтобы обезвредить мононокэ, Аптекарю нужно знать их Форму, Сущность и Желание, потому перед тем, как исполнить свои обязанности (   Читать дальше...   )Производство: студия Toei Animation / 東映アニメーションЖанр: детектив, мистикаРежиссер: Накамура КэндзиПеревод: #2: Елена Родионова (laci) (1-2); Амя и Goblin (3-12)Язык озвучки: #1: Японский; #2: Английский;Субтитры: #1: Английские; #2: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8337822063E2A57613F35A0213453BAEACBA8442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799723   (66360) от 30.05.2025
+
+Книжная иллюстрация - E A G L E - Creative Fabrica - 290 Camel Mandala Coloring Pages - KDP [JPG, PNG, PDF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски с верблюдами в стиле мандалы.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFE70A7ABC4A695C299E9C9ABC51831714F4D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799932   (66359) от 30.05.2025
+
+Catfish John Tisdell - Somethin' To Feel (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981669.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love Food
-02. Body Talk (remix)
-03. Touch (Remix)
-04. West of the Moon (remix)
-05. Hypnosis (Remix)
-06. Floating Forms (remix)
-07. Indigo Moon
-08. Making Babies
-09. Softly Gently
-10. Violet Lake(   Читать дальше...   )Жанр: Smooth Jazz,SaxophoneПродолжительность: 00:58:09
+01.  Somethin' To Feel (3:13)
+02.  Chrome and Trouble (3:55)
+03.  Long Way Down (3:13)
+04.  Blues In Paradise (rock version) (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84685AE576C1D4D2AE21767F685290E2BCF4E576
+magnet:?xt=urn:btih:7ACD2CD55A7798024CA5E747B7B4F33AD344D094
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,26 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 614263   (981671) от 05.02.2013
+###  Публикация: 1799931   (66358) от 30.05.2025
 
-Дэвид Дворкин | Время для Шерлока Холмса [2012] [FB2, RTF]
+Buddy Reed and th' Rip it Ups - Soul House (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981671.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой оригинальной стилизации развивается центральный сюжет холмсианы — битва между великим сыщиком и его заклятым врагом профессором Мориарти.
-Эксцентричная и дерзкая стилизация, написанная в 1983 году американцем — Дэвидом Дворкиным, продолжает тему противостояния Шерлока Холмса и профессора Мориарти.На сей раз решающая схватка знаменитого детектива с гением преступного мира произойдёт на Марсе в XXII веке.Формат: FB2, RTF
+01.  Good Moanin' (feat. Bob Corritore) (4:18)
+02.  Soul House (feat. Bob Corritore) (4:00)
+03.  Girlfriend (3:19)
+04.  Living In My Dreams (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:833D0DB2908514F6828F76D34096F8F9B87C576D
+magnet:?xt=urn:btih:03BBAC36E356C4157B4D5CC88A3A40832B9DA023
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,34 +302,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 613377   (981677) от 05.02.2013
+###  Публикация: 1799929   (66357) от 30.05.2025
 
-Various Artists - The Art Of The Ballad (The Best of Mapleshade) (1999) [FLAC|Lossless]<Jazz>
+Arend Jansen - Eagle Johnson Project (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  They Call Me The Breeze (3:14)
+02.  If I Should Fall Behind (4:42)
+03.  If I Had Possession Over Judgement Day (3:38)
+04.  Blood Brothers (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E935DFAA00633F8E3B3096E77967A5A0ADFE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774521   (66356) от 30.05.2025
+
+Садовник / Le jardinier (2025) WEBRip WEBRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм "Садовник" рассказывает историю человека, который оставил своё опасное прошлое, чтобы начать новую жизнь в тишине и покое. Работая садовником в уединённой усадьбе, он надеется забыть былые грехи, занимаясь простым и мирным трудом. Однако его спокойствие нарушается, когда на горизонте появляются угрозы, связанные с тайнами, которые скрывает семья, (   Читать дальше...   )Производство: Франция / Rose ProductionsЖанр: боевик, комедияРежиссер: Давид ШаронАктеры: Жан-Клод Ван Дамм, Навель Мадани, Микаэль Юн, Маттиас Кивижер, Carl-Philipp Wengler, Каарис, Жером Ле Баннер, PoqssiПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:49:44Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799851   (66355) от 30.05.2025
+
+Any Given Day - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Given Day - немецкая металкор-группа, образованная в 2012 году в городе Гельзенкирхен.2014 - My Longest Way Home
+2016 - Everlasting
+2019 - Overpower
+2024 - LimitlessЖанр: MetalcoreПродолжительность: 03:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7996BF4F792D65AC5CC3526C76233FB10A6E76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799885   (66354) от 30.05.2025
+
+Estrotomy - Carcinogenic Humanity (2025) [FLAC|Lossless|WEB-DL|tracks] <Slam/Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66354.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Un-algorythmically Programmed Parasitic Ruination Invasion 02:51
+2. Purgatorial Paradigm 02:50
+3. Traumatized Visualization 02:43
+4. Amidst the Chaos 02:45(   Читать дальше...   )Жанр: Slam/Brutal Death MetalПродолжительность: 00:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D6B36A5B1E81E9AAB11926759A840E4A4672EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799936   (66353) от 30.05.2025
+
+Swtch Fu - 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Southside Billy (2:44)
+02.  Her Man (2:44)
+03.  Searchin' (3:43)
+04.  Voice for the Blues (3:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DFF09522724EB0CC19C586624D4DD9630F14FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799933   (66352) от 30.05.2025
+
+Catfish John Tisdell - True To My Core (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Real Gone (4:19)
+02.  True To My Core (3:44)
+03.  Richard Rose - Whiskey Be My Friend (5:45)
+04.  Ride the Thunder (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78EA92D7924A04932CA1EAE1B432DEBC4A6EE02B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799882   (66351) от 30.05.2025
+
+Donald Byrd - Byrd In Flight (1960) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981677.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Murray, Bobby Battle Quartet - Ballad For Frederick
-02. Andy McKee & NEXT - In A Perfect World
-03. Jack Walrath & Larry Willis - Bess, You Is My Woman
-04. Norris Turney Quartet - Come Sunday
-05. Rebecca Kane Sextet - Outside Michael's Window
-06. Warren Smith, Stanley Cowell  - Descent Into Kangnung
-07. King Bluiett Trio - These Foolish Things
-08. Chris Anderson - Send In The Clowns
-09. C.I. Williams Quintet - I'll Close My Eyes
-10. Frank Kimbrough Trio - Lonely In London(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:22
+01. Ghana [7:24]
+02. Little Boy Blue [7:31]
+03. Gate City [5:07]
+04. Lex [7:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:08
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:55655DB97CB8FFA1DCFEF4E2435B7C1D4B77EC51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,34 +502,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 613439   (981679) от 05.02.2013
+###  Публикация: 1799935   (66350) от 30.05.2025
 
-VA - Euphoric Emotions Vol.42 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+Sandy Rogers - Tingling Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981679.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Alex M.O.R.P.H. ft. Sylvia Tosun - An Angel's Love (Vocal Mix)
-002. Gaia - Tuvan (Original Mix)
-003. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
-004. Alex Kunnari feat. Emma Lock - You & Me
-005. Armin van Buuren - Birth Of An Angel (Original Mix)
-006. FKN feat. Jahala - Why (D-Mad Remix)
-007. Arksun - Arisen (Original Mix)
-008. Grace - Not Over Yet (Max Graham feat. Protoculture Remix)
-009. Global Illumination - Tremble (Original Mix)
-010. Fabio XB & Ronnie Play feat. Gabriel Cage - Inside of You (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 02:01:00
+01.  Tingling Blue (4:51)
+02.  One of Those Kind (3:43)
+03.  Lonesome Man (4:58)
+04.  Fun for Christmas (4:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E12DF297E1BB2713DBB6A06ADB60A22B2C1CB4CD
+magnet:?xt=urn:btih:044D152A2471D9E96B16B8E74A4B8911C2539A20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,34 +531,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 165298   (981682) от 11.01.2010
+###  Публикация: 1799846   (66349) от 30.05.2025
 
-Невидь - Янтарное сердце Арктиды (2009) [MP3|320 kbps]<Pagan, Folk Metal>
+God Dethroned - The Judas Paradox (2024) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981682.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Слепая тундра 01:39
-2. Хохот мертвого шамана 04:50
-3. Агхора 05:34
-4. Танец с саблями 02:37
-5. Цепким следом, словно стая... 02:12
-6. Пепел наших янтарных сердец 04:49
-7. Пламенного атамана удел 05:03
-8. Даръя 01:08
-9. Дарья 03:24
-10. Окаянный путь поперек взглядов 05:03(   Читать дальше...   )Жанр: Pagan, Folk MetalПродолжительность: 00:59:59
+01. The Judas Paradox 06:02
+02. Rat Kingdom 03:39
+03. The Hanged Man 04:02
+04. Black Heart 00:51(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:42:59
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:BFBD0149B78E42694A3449C4FFD8D9E583290253
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,25 +560,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 614587   (981685) от 05.02.2013
+###  Публикация: 1799842   (66348) от 30.05.2025
 
-Журнал | Все для женщины № 39 [20 сентября 2011] [PDF]
+Футбол. Мелбет 1 лига России 2024/25. 34-тур. Черноморец (Новороссийск) - Сочи (24.05.2025) WEBRip [H.264]
 
->>Журналы
->>Домоводство (журналы)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981685.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Всё для женщины» — еженедельный женский журнал. Это своего рода сборник практичных советов в области моды, рукоделия и декора, красоты и здоровья, психологии, воспитания детей и юриспруденции, а также доступные любому кошельку рецепты приготовления пищи и маршруты по России. Плюс реальные истории из жизни с хорошим концом! Наши эксперты - не только лучшие в своей области специалисты, но и читатели, а также звезды! «Всё для женщины» – еженедельный женский журнал практичных советов и идей. Журнал информирует, развлекает, воодушевляет и консультирует. Близость к жизни российской женщины обеспечила изданию высокую популярность.Формат: PDF
+В Первой лиге остаётся интрига до самой концовки. В заключительном 34-ом туре сезона "Черноморец" и "Сочи" сойдутся в южном дерби, которое имеет огромную турнирную значимость для обеих сторон. Хозяева из Новороссийска находятся в потрясающей форме: девять матчей без поражений, четыре победы в последних пяти турах и шанс на прямой выход в РПЛ, (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:50:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F424DD412CE4E071D90BE01B3E9A2DE38ABBF81
+magnet:?xt=urn:btih:DB3A847F1C0475731B9D80AF36597225A626A63F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,25 +586,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 614210   (981689) от 05.02.2013
+###  Публикация: 1799934   (66347) от 30.05.2025
 
-Журнал | Все для женщины № 29 [10 июля 2012] [PDF]
+Emma Wilson - A Spoonful of Willie Dixon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Журналы
->>Домоводство (журналы)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981689.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Всё для женщины» — еженедельный женский журнал. Это своего рода сборник практичных советов в области моды, рукоделия и декора, красоты и здоровья, психологии, воспитания детей и юриспруденции, а также доступные любому кошельку рецепты приготовления пищи и маршруты по России. Плюс реальные истории из жизни с хорошим концом! Наши эксперты - не только лучшие в своей области специалисты, но и читатели, а также звезды! «Всё для женщины» – еженедельный женский журнал практичных советов и идей. Журнал информирует, развлекает, воодушевляет и консультирует. Близость к жизни российской женщины обеспечила изданию высокую популярность.Формат: PDF
+01.  SPOONFUL (4:56)
+02.  GOOD TO THE LAST DROP (4:53)
+03.  I CAN'T QUIT YOU BABY (4:41)
+04.  WANG DANG DOODLE (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:653095C5E774071F2415DA62F493F53B9EE169FF
+magnet:?xt=urn:btih:ACDDA6261FDD5C77254E3F423D1CDD3C6E6DBAF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,26 +615,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 614471   (981691) от 05.02.2013
+###  Публикация: 1799877   (66346) от 30.05.2025
 
-Газета | Страна советов, секретов, рецептов №8 [2011] [PDF]
+All Against - Straight Down To Hell (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
->>Журналы
->>Домоводство (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981691.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Страна советов, секретов, рецептов - газета полезных советов. В каждом номере — конкурсы и денежные призы.
-Сборник советов читателей на все случаи жизни: красота, здоровье, дача и огород, ремонт, кулинария, семья.Формат: PDF
+01. Straight Down To Hell (09:05)
+02. Narrow Streets Of Disgrace (03:26)
+03. Nação Valente e Imor(t)al (04:44)
+04. Out Of The Box (03:14)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92CBA9C54CDF9389D56F241ECF20B99A00A089FE
+magnet:?xt=urn:btih:16B44C2465E27E62B1C6C5A9A5589D865FDEB657
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,25 +644,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 614124   (981692) от 05.02.2013
+###  Публикация: 1799938   (66345) от 30.05.2025
 
-VSO Downloader Ultimate 3.0.0.22 [Multi/Русский]
+Tim Gartland - Right Amount of Funky (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981692.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VSO Downloader Ultimate — это достаточно гибкий и быстрый в работе менеджер многопоточной загрузки файлов. При его помощи можно загружать онлайн-видео с большого количества широко известных видеохостингов, к примеру YouTube. Для того, что-бы начать загрузку вам не нужно будет копировать и вставлять URL-адрес — VSO Downloader автоматически найдёт и скачает потоковое видео, при этом отсечет баннеры и рекламные объявления. В программе имеется поддержка протоколов HTTP, HTTPS и прокси-серверов, возможность докачки и многое другое.Название программы: VSO Downloader UltimateЯзык интерфейса: Multi/Русский
+01.  Waste a Worry (3:40)
+02.  Right Amount of Funky (4:52)
+03.  A Better Life (3:20)
+04.  Walk Away (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:33
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:38F50EC48417E8653A2D87ED77DB0EA6194C797D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,27 +673,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 741806   (981702) от 04.01.2014
+###  Публикация: 1799904   (66344) от 31.05.2025
 
-Сборник: Новый год и Рождество 2014-4 / New Year & Christmas 2014-4 [JPEG,PNG,PSD,EPS,AI]
+Михаил Тверецкий - О Твери (2025) [MP3|320 Kbps] <Chanson>
 
->>Материалы для мультимедиа и дизайна
->>Сборники
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981702.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и Рождество
-для тех кто забыл, не смог поздравить, есть шанс исправиться )
-Старый-Новый Год , и самый любимый россиянами - Китайский Новый Год  :mrgreen:Формат: JPEG,PNG,PSD,EPS,AIРазрешение файлов: до 5700х5500
+01 - Песня о Твери [00:02:59]
+02 - Неусвоенный урок [00:02:59]
+03 - Карманный вор [00:03:06]
+04 - Московская девчонка [00:03:36](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:48:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0774D4087F423B4C16F1040217371576576A5328
+magnet:?xt=urn:btih:04832A86BE53D081E3E2CEE0010FAE2B8A382957
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,318 +702,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972576   (981712) от 06.01.2016
+###  Публикация: 1800109   (66343) от 31.05.2025
 
-Периодическая система официально пополнилась четырьмя новыми элементами
+Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Шангри-Ла [ТВ-1] [2023, TV, 25 эп.] BDRip 1080p raw
 
->>След.
->>DailyTechInfo
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981712.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представители Международного союза чистой и прикладной химии (International Union of Pure and Applied Chemistry, IUPAC) официально объявили о том, что периодическая система химических элементов, известная под названием таблицы Менделеева, пополнилась четырьмя новыми элементами с атомными числами 113, 115, 117 и 118. Напомним нашим читателям, что последний раз периодическая (   Читать дальше...   )
+Ракуро Хидзутомэ жаждет лишь одного - проходить трэш-игры. Он посвящает всю свою жизнь забагованным и плохо сделанным мирам. Однако однажды он решает бросить вызов самому себе и сыграть в популярную ММО под названием «Фронтир Шангри-Ла». Он быстро понимает, что игра не так проста, как кажется. Хватит ли его мастерства, чтобы раскрыть её тайны?
+© crunchyrollПроизводство: студия C2CЖанр: приключения, фэнтезиРежиссер: Кубоока ТосиюкиПеревод: CrunchyRoll (TV 01-25)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972597   (981713) от 06.01.2016
-
-Сломленная / Broken (2006) DVDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героиня фильма пришла домой после удачного свидания, поцеловала перед сном свою шестилетнюю дочку и… оказалась утром в лесу наедине с маньяком — садистом. Удастся ли ей узнать, что случилось с дочерью? Удастся ли ей выбраться из лап психопата?Производство: ВеликобританияЖанр: Ужасы, ТриллерРежиссер: Саймон Бойес, Адам МэйсонАктеры: Надя Брэнд, Эрик М. Колвин, Эбби Стирлинг, Меган Ван Керро, Шесс Дэйвс, Рэйчел Тауненд, Оливия Хилл, Атеш Сали, Гари МаккэйПеревод: Любительский одноголосый (Максим Логинофф)Субтитры: ОтсутствуютПродолжительность: 01:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9BA65F92A664789CC89229C89FF8CA8A817CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971566   (981714) от 06.01.2016
-
-Весёлые ребята (1934) DVDRip [H.264] [Цветной, реставрация]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлая музыкальная история о похождениях талантливого пастуха-музыканта Кости Потехина (Леонид Утёсов). Будучи принятым за модного заграничного гастролёра, простодушный Костя произвёл сенсацию в Московском мюзик-холле, благодаря чему стал дирижёром джазового оркестра, а домашняя работница Анюта (Любовь Орлова) певицей. Репетиции по подготовке к выступлению на сцене (   Читать дальше...   )Производство: СССР, Московский кинокомбинатЖанр: Комедия, МузыкальныйРежиссер: Григорий АлександровАктеры: Любовь Орлова, Леонид Утёсов, Мария Стрелкова, Елена Тяпкина, Фёдор Курихин, Арнольд Арнольд, Роберт Эрдман...Продолжительность: 01:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E95F900B4EBB6990CAD47B26C08E6CFA3AFEE4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972504   (981717) от 06.01.2016
-
-Дом с паранормальными явлениями 2 / A Haunted House 2 (2014) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малькольм, изгнавший демонов из своей бывшей подружки, начинает новую жизнь с другой девушкой и ее двумя детьми. После переезда в дом своей мечты, с Малькольмом снова начинают случаться загадочные происшествия. И, похоже, паранормальные явления теперь преследуют его не только в собственном доме…Производство: СШАЖанр: Комедия, ужасыРежиссер: Майкл ТиддесАктеры: Марлон Уайанс, Джейми Прессли, Эссенс Эткинс, Гэбриел Иглесиас, Мисси Пайл, Эшли Рикардс, Эффион Крокетт, Стил Стеббинс, Рик Овертон, Хэйз МакАртурПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:26:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BCF4A5F1068C2DCD2E26C93C28FEB874593ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972033   (981719) от 06.01.2016
-
-Mozart - Requiem (Frans Bruggen & Orchestra of the Eighteen Century) (2009) [FLAC|Lossless] <Classical, Classical Period, Choral, Concerto, Requiem>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurerische Trauermusik (Masonic Funeral Music), for orchestra in C minor, K. 477 (K. 479a) (05:25)
-02. Adagio for 2 clarinets & 3 bassett horns in B flat major, K. 411 (K. 484a) (06:31)
-Requiem for soloists, chorus, and orchestra, K. 626
-03. Plainchant (Introitus) (02:04)(   Читать дальше...   )Жанр: Classical, Classical Period, Choral, Concerto, RequiemПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C22A68ADAE2D116A13FF9BDD22E511B2CAECE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972693   (981721) от 06.01.2016
-
-Экспериментатор / Experimenter  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый психолог Стенли Милграм в 1961 году провел ряд радикальных поведенческих экспериментов, в процессе которых проверялась готовность обычных людей подчиняться власти.Производство: США, BB Film Productions, F.J.Productions, FJ Productions, Intrinsic Value Films, Jeff Rice FilmsЖанр: драма, биография, историяРежиссер: Майкл АлмерейдаАктеры: Вайнона Райдер, Тэрин Мэннинг, Келлан Латс, Антон Ельчин, Джон Легуизамо, Питер Сарсгаард, Лори Сингер, Деннис Хейсбёрт, Энтони Эдвардс, Вонди Куртис-Холл, Джош Хэмилтон, Джим ГэффиганПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанский, французскийПродолжительность: 01:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADCDE8B27C84B9E9F91E06F94A0CFA795D35A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972627   (981723) от 06.01.2016
-
-Джон Рональд Руэл Толкиен | Хоббит, или Туда и обратно. Избранные произведения [сборник] (2002) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981723.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хоббит, или Туда и обратно» (анг. The Hobbit, or There and Back Again) — это фантастический роман и детская книга британского писателя Дж. Р. Р. Толкина. В книге рассказывается о приключениях хоббита Бильбо Беггинса, на которые его подтолкнули волшебник Гэндальф и компания тринадцати гномов. Цель их похода — путешествие к Одинокой горе, где находятся сокровища, (   Читать дальше...   )Жанр: ФэнтезиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8F78DFC9CD6FA38CFC0E8BF24B3410F6502C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972615   (981725) от 06.01.2016
-
-Дневники принцессы 2: Как стать королевой / The Princess Diaries 2: Royal Engagement (2004) HDTV [H.264/1080i]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мие Термополис (Энн Хэтэуэй), принцессе Женовии, только что закончившей колледж в Америке, скоро должен исполнится 21 год. Ее бабушка, королева Кларисс (Джули Эндрюс), готовится уступить ей трон и передать бразды правления маленькой европейской страной. Но есть небольшая проблема: по Женовским законам королевой может стать только замужняя наследница. На поиски жениха (   Читать дальше...   )Производство: США, Walt Disney Pictures, BrownHouse ProductionsЖанр: Мелодрама, Семейный, КомедияРежиссер: Гэрри МаршаллАктеры: Энн Хэтэуэй, Джули Эндрюс, Гектор Элизондо, Джон Рис-Дэвис, Хизер Матараццо, Крис Пайн, Каллум Блу, Кэтлин Маршалл, Том Постон, Джоэль МакКрэриПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304D9058C446113531F828ED9C00C7B532D9185B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970026   (981727) от 06.01.2016
-
-Мать и дитя / Mother and Child (2009) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981727.jpg" />
-</div>
-
-
-###  Подробнее
-
-50-летняя Карен живет как будто по привычке. Много лет назад, будучи девочкой-подростком, она вынуждена была отдать свою только что родившуюся дочь в другую семью.
-Ее выросшая дочь Элизабет, холодный и расчетливый адвокат, скользит по жизни по касательной — без эмоций и привязанностей. Ей нравится играть во властные мужские игры. Она боится любви. Она никогда не (   Читать дальше...   )Производство: США, Испания / Everest Entertainment, Cha Cha Cha, Mockingbird PicturesЖанр: Драма, МелодрамаРежиссер: Родриго ГарсияАктеры: Александрия М. Саллинг, Коннор Крамм, Аннетт Бенинг, Айлин Райан, Сэмюэл Л. Джексон, Наоми Уоттс, Черри Джонс, Керри Вашингтон, Дэвид Рэмси, Кэй Д`АрсиПеревод: Двуголосый закадровый, профессиональныйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF72F57DB3636A73B60881EAD914FC5C2547CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972680   (981729) от 06.01.2016
-
-Волга-Волга (1938) DVDRip [H.264] [Черно-белый, реставрация]
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начальник управления мелкой кустарной промышленности Бывалов мечтает о службе в Москве. Он получает распоряжение подготовить к всесоюзному смотру участников художественной самодеятельности. Бывалов считает, что посылать в Москву некого, несмотря на то, что в городе есть два творческих коллектива. В конце концов каждая группа отправляется по Волге в столицу своим (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Комедия, МузыкальныйРежиссер: Григорий АлександровАктеры: Игорь Ильинский, Любовь Орлова, Владимир Володин, Павел Оленев, Андрей Тутышкин, Сергей Антимонов, Анатолий Шалаев, Мария Миронова, Никита Кондратьев, Всеволод Санаев, Алексей Долинин, Иван Чувелев...Продолжительность: 01:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321265190F79B902627079A0759BAC7C58619E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972733   (981730) от 06.01.2016
-
-Владимир Левшин, Эмилия  Александрова | Приключения Нулика. Математическая трилогия (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот солидный том содержит «математическую трилогию», признанную классикой отечественной научно-художественной литературы. «Сказка да не сказка» «Три дня в Карликании» знакомит с непоседливым Нуликом и объясняет, как устроено государство чисел. «Чёрная Маска из Аль-Джебры» — «путешествие в письмах с прологом», в котором Нулик и его друзья помогут снять заклятие таинственному (   Читать дальше...   )Жанр: Познавательная литература, математикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DC47BD55118E6CD46E12F3C4E12377D40D0E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972703   (981731) от 06.01.2016
-
-(OST) Return To Castle Wolfenstein (Bill Brown) (2001) [MP3|320 кб/с]<Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная музыка отличной игры01. Intro Movie
-02. Return to Castle Wolfenstein Main Theme
-03. Headquarters Briefing
-04. Escaping Castle Wolfenstein(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F34A554B09ECC2C25E1F5D75D6F930F44D40440
+magnet:?xt=urn:btih:885FE39A28D6179CD0890845A06E2FF283DFD0D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

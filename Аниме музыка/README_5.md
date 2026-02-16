@@ -1,25 +1,22 @@
-###  Публикация: 971713   (985678) от 03.01.2016
+###  Публикация: 1782914   (25723) от 04.03.2025
 
-The Herbalist OST (2015) [FLAC|Lossless|WEB-DL]<OST, Score>
+Jibaku Shounen Hanako-kun Drama CD: Houkago Shounen Hanako-kun | Туалетный мальчик Ханако (2020) [FLAC|Lossless] <Voice Drama>
 
 >>Аниме музыка
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985678.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Herbalist Theme (0:45)
-02. Tranquility (1:51)
-03. Neko Wizardry (2:06)
-04. Let's Study Magic (1:19)(   Читать дальше...   )Тип издания: OST, ScoreПродолжительность: 00:10:17
+Drama CD Hokago Shonen Hanako-kunЖанр: Voice DramaПродолжительность: 00:21:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7299D404E57523E7CE0C8D4BE40CABD57C7DB0A
+magnet:?xt=urn:btih:EB04CC2237F524416EFB057B2679A77E65B1EA17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 162223   (987372) от 06.01.2010
+###  Публикация: 1806063   (11918) от 10.07.2025
 
-Joe Hisaishi - Nausicaa of the Valley of the Wind (1984) [Flac|Lossless]<OST>
+Hibi wa Sugiredo Meshi Umashi OST (2025) [FLAC|tracks] <3CD+OP+ED+Character Song+Audio Drama>
 
 >>Аниме музыка
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kaze no Tani no Naushika (Opening)Жанр: OST
+OPテーマ「そんなもんね」／asmi
+EDテーマ「味噌汁とバター」／汐れいら
+キャラクターソング「世界の果てまでモコ太郎！／日々、おいしいがいっぱい」Тип издания: Commercial CDЖанр: Anime OSTПродолжительность: 00:50:21
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:ECB615D73C5F5A5EF48A7747CD301C3042BFC42B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,26 +52,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 970946   (988319) от 01.01.2016
+###  Публикация: 1806064   (11917) от 10.07.2025
 
-Love Live! School Idol Project: Discography (2013-2015) [FLAC|tracks] <75CD-PV+OP+ED+OST+RP+Drama+Character Song>
+Hibi wa Sugiredo Meshi Umashi OST (2025) [MP3|320 kbps] <3CD+OP+ED+Character Song+Audio Drama>
 
 >>Аниме музыка
->>Аниме OST (Lossless)
+>>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988319.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тип издания: DiscographyПродолжительность: 02:07:05:29
-(2 дня 7 часов 5 минут 29 секунд)
+OPテーマ「そんなもんね」／asmi
+EDテーマ「味噌汁とバター」／汐れいら
+キャラクターソング「世界の果てまでモコ太郎！／日々、おいしいがいっぱい」Тип издания: Commercial CDЖанр: Anime OSTПродолжительность: 00:50:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:755E46612133D58C79CE4DE1B367834CDFDC8E9B
+magnet:?xt=urn:btih:ECC69FA3E8FB4306A6240B102139F37CE8A54B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200569   (4231) от 06.09.2025
+
+Ef - a Fairy Tale of the Two Original Soundtrack Collection (2007-2009)[FLAC]<OST>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 16CD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1F0BDB0421957C88D20936E7F46FF79DB5CF27
 ```
 
 https://mybot314.ru/tekegram_catalog/

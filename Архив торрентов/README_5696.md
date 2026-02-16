@@ -1,164 +1,30 @@
-###  Публикация: 974543   (976935) от 11.01.2016
+###  Публикация: 441141   (91487) от 25.01.2012
 
-VA - Nomad Ambient Vol.2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Ambient, Psybient, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electronic Traffic Feat. Tikki Masala - Nomad (13:30)
-02. Zero Cult - Recoil (05:47)
-03. Mystic Crock - Acoustic Spirit (06:52)
-04. Side Liner - Screaming Tears (06:38)(   Читать дальше...   )Жанр: Psychill, Ambient, Psybient, DowntempoПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11AF29AF9ED53C8995D35987545348C4A8B563B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974507   (976936) от 11.01.2016
-
-Default Folder X 5.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 11 января 2016Разработчик: St. Clair SoftwareПоддерживаемая ОС: Mac OS X 10.10 +Язык интерфейса: Английский, Французский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1D3496D8E27B357756F1DE62F4B0115FA4C00E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973978   (976938) от 11.01.2016
-
-Джеки Браун | После вечеринки (2015) [PDF, DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда гадалка предсказала Элле судьбоносную встречу со светловолосым красавцем, девушка пропустила ее слова мимо ушей. Эллу волнуют совсем другие проблемы: после банкротства отца бывшая представительница золотой молодежи остается без средств к существованию и вынуждена искать работу. Но так ли невыполнима задача совместить карьеру и личную жизнь? Ведь судьбоносные (   Читать дальше...   )Жанр: Любовный романПеревод: А. Д. ОсиповаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A97F34670FB595EC63F26279EA5F11842374A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974272   (976939) от 11.01.2016
-
-Волейбол. Отбор на Олимпийские Игры 2016. Мужчины. Финал. Франция - Россия. (10.01.2016). HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976939.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 января 2016, воскресенье. 18:30 МСК
-Финал
-Стадион: Макс-Шмелинг-Халле (Берлин, Германия) , 7 000 зрителей (82 % при вместимости 8 500)
-Главный судья: Юрай Мокрый (Словакия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 01:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44291DE5DB6FE3041AF73965F09841FE1787ABB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974100   (976943) от 11.01.2016
-
-Волейбол. Отбор на Олимпийские Игры 2016. Женщины. Финал. Россия - Голландия. (09.01.2016). HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976943.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 января 2016, суббота. 20:30 МСК
-Стадион: Башкент Волейбол Салону (Анкара, Турция) , вместимость: 7600
-Главный судья: Ахти Хухтаниска (Финляндия)
-Главный судья: Сусана Родригес Хатива (Альбасете, Испания)Телекомпания: Спорт 1 HDЖанр: СпортПродолжительность: 02:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92601E9EA06DB6D4CEE7E8F0BE614B3331EEB5AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974025   (976945) от 11.01.2016
-
-VA - Trance Anthems Best of (2015) [MP3|320 кб/с] <Trance>
+Revelation - Осознание (2011) [FLAC|Lossless]<Gothic Doom Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976945.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Brazig - Titania - Scorpius Remix
-02. Double Creativity - Selecta - Physical Phase Remix
-03. Paw Luk - Federation - Original Mix
-04. Beat Invaders - Night Flight - Original Mix(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:04
+01. Дом Скорби
+ 02. Звезда
+ 03. Беспечность
+ 04. За Забытой Чертой
+ 05. Снег
+ 06. Золотой Час
+ 07. Будь Со Мной
+ 08. Торжество Безумства (bonus)
+ 09. Клетка (Nautilus Pompilius Cover) (bonus)2011Жанр: Gothic Doom MetalПродолжительность: 00:53:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7E47448085209956D360446B49C0CF7129F8737
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,9 +32,44 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 742846   (976949) от 07.01.2014
+###  Публикация: 441371   (91486) от 25.01.2012
 
-K-Lite Codec Pack Update 10.2.3 [En]
+VA - Ingredients Records: Choice Cuts Vol.1 (2012) [MP3|320 kbps]<Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Sato - Barn (Break Remix) [06:03]
+02. Skeptical & Dub Phizix - Fallen Angel [05:17]
+03. Phobia - Voyager (Ft. Baron Von Alias) [06:32]
+04. Sato - Detroit Lies Bleeding [05:33]
+05. Skeptical - Cold One (Jubei Remix) [05:13]
+06. Jubei & Cern - Black Hole [05:19]
+07. Skeptical - Cold One [07:10]
+08. Dub One - Wray [06:24]
+09. Phobia - Clean Break [05:36]
+10. Skeptical - Transfer [06:37](   Читать дальше...   )2012Жанр: Drum'n'BassПродолжительность: 01:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D870B2FAC2A2FF5B7EA75EB4C2CE9BFC83FE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441737   (91484) от 25.01.2012
+
+Sumatra PDF 2.0.5265 + Portable [Multi/Русский]
 
 >>Архив торрентов
 >>Архив Программ
@@ -180,14 +81,627 @@ K-Lite Codec Pack Update 10.2.3 [En]
 
 ###  Подробнее
 
-K-Lite Codec Pack - в различных вариантах содержит все самые популярные кодеки для проигрывания и кодирования видео (кроме версии Basic). QuickTime Alternative и Real Alternative являются дополнительными пакетами для проигрывания соответственных форматов и содержат основные компоненты от официальных проигрывателей.
-Update это обновление применимо для всех пакетов серии, а именно для K-Lite Codec Pack 10.2.0 в различных вариантах (Lite, Basic, Standard, Full, Mega Codec Pack).
+Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -файлов. Программа быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader. В этой версии улучшена обработка документов, добавлен диалог настроек, улучшена обработка юникода, добавлена возможность не вести историю просмотренных файлов, улучшена поддержка SyncTeX, введена новая иконка для PDF-файлов и исправлены ошибки. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441572   (91483) от 25.01.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (25.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679FFBD765DA77DEDCD4F84751A23385C510C331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442061   (91482) от 25.01.2012
+
+Media Player Classic HomeCinema 1.5.3.3998 [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic HomeCinema - удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic, и имеет свой интегрированный набор медиа-кодеков, и благодаря этому может проигрывать многие форматы видео/аудио файлов без установки сторонних средств. Этот плеер имеет большое количество различных функциональных возможностей: он умеет воспроизводить DVD диски, умеет аппаратно декодировать популярный формат H.264 на видеокартах последнего поколения, умеет корректно работать со вторым монитором (телевизором), поддерживает различные виды субтитров, умеет работать с  форматами QuickTime и RealVideo и т.д. Плеер имеет небольшой размер и полностью понятный и не перегруженный излишними функциями интерфейс, переведенный на 14 языков.  Имеет полную совместимость с  Windows XP и Windows Vista, причем не только 32- битной версией, но и 64-битной.Название программы: Media Player Classic HomeCinemaЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440881   (91481) от 25.01.2012
+
+Doyeq - Untitled EP (2011) [MP3|320 kbps]<Dub Techno, Ambient, Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Part One
+02. 22 Floor
+03. 31.13.13.1
+04. Memory Sound
+05. Part Two2011Жанр: Dub Techno, Ambient, MinimalПродолжительность: 00:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675C5051E8932A586A74B59462FF96FE935BAB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441672   (91480) от 25.01.2012
+
+RAM - Death (2012) [MP3|320 kbps]<Traditional Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Death… (02:54)
+02. …Comes from the Mouth Beyond (06:10)
+03. I Am the End (04:04)
+04. Release Me (05:00)
+05. Defiant (04:12)
+06. Frozen (06:48)
+07. Under the Scythe (03:49)
+08. Hypnos (06:07)
+09. Flame of the Tyrants (04:23)
+10. 1 7 7 1 (05:10)2012Жанр: Traditional Heavy MetalПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893EAA41425AF5BFDC79A1CE0024DC3D31A233D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439283   (91479) от 25.01.2012
+
+VA - Spy Technologies 6 (2012) [MP3|320 kbps]<Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Foul - Land Of Look Behind (06:11)
+02. Zero Method - Rarp (05:36)
+03. Universal Project - Solderism (06:27)
+04. Mindscape - Flashback (05:17)
+05. Malsum and Krone - Radioactive Beast (06:47)
+06. Mr Foul - Rude Boy Town (06:16)
+07. Incident - Slight (05:40)
+08. Verb featuring Bigga D - Draw Step (05:58)
+09. Krone, Malsum and Strago - Alien Creatures (06:43)
+10. Zero Method - Chemical Statement (05:11)(   Читать дальше...   )2012Жанр: Drum'n'BassПродолжительность: 01:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84F9EDDCD2894724111441812DB58B6B8ACB571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440053   (91478) от 25.01.2012
+
+Rappers Unit - Rap В Целом (2011) [MP3|128-320 kbps]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (Prod. by R-Unit)
+02. Рэп В Целом (Prod. by R-Unit)
+03. Here We Go (feat. Urt-Da) (Prod. by Urt-Da) [128 kbps]
+04. Мама (Prod. by R-Unit)
+05. Нет Лишних (feat. FiLiN) (Prod. by FiLiN)
+06. Я Уйду (Prod. by R-Unit)
+07. Братья По Оружию (feat. Dino MC47) (Prod. by Miko)
+08. Ойл Йе (Prod. by Urt-Da)
+09. Дай Volume (feat. Negd Pul) (Prod. by Negd Pul) [192 kbps]
+10. Never Give Up, Never Back Down (Prod. by R-Unit)(   Читать дальше...   )2011Жанр: Rap, Hip-HopПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BFF537C81078FC087DF986857457F05F7357EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441874   (91477) от 25.01.2012
+
+VA - In The Mix Winter 2012 (Mixed by Kris O'neil) (23.01.2012) [MP3|320 kbps]<Electronic, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Zoo Brazil feat. Rasmus Kellerman - There Is Hope (Tony Senghore Remix)
+ 02. Virunga - Freefall (Tellur Remix)
+ 03. Tiesto feat. BT - Love Comes Again (Hardwell Rework)
+ 04. Blake Lewis - Till We See The Sun (First State Remix)
+ 05. Mark Norman - Rebound (Festival Mix)
+ 06. Breakfast - Give Me The 2 Tone (Flashover Rework)
+ 07. BT feat. Kirsty Hawkshaw - A Million Stars (Save The Robot Remix)
+ 08. Alex Kunnari feat. Ben Andreas - Taste The Sun (Tom Fall Instrumental)
+ 09. Rafael Frost - In The Air
+ 10. Manufactured Superstars feat. Lea Luna - Drunk Text (Sultan & Ned Shepard Remix)(   Читать дальше...   )23.01.2012Жанр: Electronic, TranceПродолжительность: 02:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A8651DBB0832FE28F1B4F87B2832EC7DEBBA0FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441444   (91476) от 25.01.2012
+
+AquZe (Tokkata) - Морская (2011) [MP3|320 kbps]<Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Начало
+02. Называй это хип хопом (ft. Kliff)
+03. Ни шагу назад
+04. Ошибка (interlude)
+05. Осколки
+06. Реальность (ft. Chas)
+07. Морская
+08. Печаль судьбы босячей (ft. Kliff, Черный)
+09. Черные полосы
+10. С пазитивом (ft. Kliff)(   Читать дальше...   )2011Жанр: RapПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426380FDC1AB5FAD261E6A94BAECC2697315635F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441524   (91475) от 25.01.2012
+
+Gera Pkhat - Связки (2011) [MP3|320 kbps]<Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. 15 связок
+02. 1995
+03. Не всё равно
+04. Не без изъяна при уч. Lil' Soulja
+05. Алла
+06. Имей честь
+07. Банька
+08. Поставь печать
+09. Мнение
+10. Продукт при уч. Finanshall(   Читать дальше...   )2011Жанр: RapПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F77BE5454B8C3A1182264A9F77112D0CE20E5EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441899   (91474) от 25.01.2012
+
+Cheve - Направление своего пути (2012) [MP3|320 kbps]<Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Чувства стихии
+02. Кто (п.у.Seven)
+03. Они со мной
+04. Говори о себе (п.у.GrandMan)
+05. Прошу вернись (п.у.Рино)
+06. Подарок мечты
+07. Мое сердце хочет дышать
+08. Необычное состояние (п.у.Hima)
+09. Ушел навсегда
+10. Мы падаем вниз (п.у.Рино)(   Читать дальше...   )2012Жанр: Hip-HopПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0292A682B6ADA37DAACF704C94A5E84D62E6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440186   (91473) от 25.01.2012
+
+Kryoburn - Three Years Eclipsed (2010) [MP3|320 kbps]<Industrial Death / Groove Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1.Broken Hero (5:47)
+2.Burning the Doubt (4:35)
+3.Event Horizon (6:00)
+4.Slaughtered With Lies (3:44)
+5.Introspective (6:41)
+6.Season of Suicide (5:15)
+7.Reinvention (5:40)
+8.Mortal Instinct (4:40)
+9.The Sickening (3:56)Жанр: Industrial Death / Groove MetalПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3506EA0164806E9D8472C5BF3AFB22A170F4B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441263   (91472) от 25.01.2012
+
+VA - Red Hot + Riot (2002) [MP3|192-320 kbps]<Electronic, Funk, Soul, Hip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fela Mentality (Intro) - MixMaster Mike & Mario Caldato, Jr.
+02. Kalakuta Show - MixMaster Mike, Lateef & The Gift Of Gab (Of Blackalicious)
+03. Live At Kalakuta (Interlude) - Posma, Remedies, Taiwo, Segun, Tosin, Andrés Levin
+04. Shuffering & Shmiling - Dead Prez, Jorge Ben Jor, Talib Kweli, Bilal & Postive Force
+05. Gimme Shit (Interlude) - MixMaster Mike & Mario Caldato, Jr.
+06. Water Get No Enemy (Intro) - D'Angelo, Femi Kuti, & Macy Gray (Featuring Roy Hargrove, Nile Rodgers, The Soultronics & Positive Force)
+07. Water Get No Enemy - D'Angelo, Femi Kuti, & Macy Gray (Featuring Roy Hargrove, Nile Rodgers, The Soultronics & Positive Force)
+08. Gentleman - Meshell Ndegeocello & Yerba Buena! (Featuring Ron Blake)
+09. Tears & Sorrow - Common, Meshell Ndegeocello & Djelimady Tounkara
+10. Shakara-Lady (Part One) - Cheikh Lô(   Читать дальше...   )2002Жанр: Electronic, Funk, Soul, Hip HopПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3169818EB4AEF4153AED32062750C988BE12B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441305   (91471) от 25.01.2012
+
+Muza Skat/Муза Скат - На шаг ближе (2010) [MP3|256 kbps]<Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Культура доступна (при участии Караб)
+2. На шаг ближе
+3. Минский шит
+4. Лирик
+5. На расстоянии
+6. Я желаю (при участии MarLen)
+7. Заработай сама (при участии Deshawn)
+8. На что ведутся дамы (при участии Баста)
+9. Крылья (при участии Дасп)
+10. Все путем (при участии Lil Ice, DJ Panz)(   Читать дальше...   )2010Жанр: Hip-HopПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E06E1D7745754407768F0BE7146BC3ADD251649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440942   (91470) от 25.01.2012
+
+VA - Dance Top Hits (2CD) (2011) [MP3|~244~252 kbps]<House, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:06:09
+Битрейт: ~244 kbps
+ 01. Manufactured Superstars feat. Scarlet Quinn - Take Me Over 06:39
+ 02. Armin Van Buuren feat. Nadia Ali - Feels So Good 07:16
+ (Jerome Isma-Ae Remix)
+ 03. Blake Lewis - Till We See The Sun (Danny Verde Remix) 08:05
+ 04. Jerome Isma-Ae - Hold That Sucker Down (Dabruck & Klein Remix) 06:37
+ 05. Tom Fall & Jwaydan - Untouchable 06:57
+ 06. Misha Daniels feat. Nikki Belle - Dirty Cash (Nay Ray Remix) 05:21(   Читать дальше...   )2011Жанр: House, ProgressiveПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF49E80DE9E173A740226F2C8FB3C7878A8C6EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440971   (91469) от 25.01.2012
+
+Umo Jazz Orchestra - Umo Jazz Orchestra (1997) [MP3|320 kbps]<Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Petals
+02. All Blues
+03. Aldebaran
+04. What is This?
+05. Bermuda
+06. Blue in Distance
+07. Cuckoo's Nest
+08. Equinox
+09. Life is a Cobra
+10. Tarkovski1997Жанр: JazzПродолжительность: 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281EE229E8B470DD9634ED8EBE6794336E11C6D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441425   (91468) от 25.01.2012
+
+VA - Audiomatique 3.0 (2011) [MP3|320 kbps]<Tech House, Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Maetrik - Relax (6:30)
+02. Piet Van Dongen - Kitchen Gear (6:43)
+03. Patrick Chardronnet - Pleasant Day (8:47)
+04. Maetrik Feat. Sabb - Marinda (8:11)
+05. Wehbba - 3Days (7:52)
+06. Adultnapper - Almost Nothing (Patrick Chardronnet Remix) (7:16)
+07. Adultnapper - White Fingers Black Hair (8:32)
+08. Patrick Chardronnet - Piper (11:08)
+09. Stimming - Buxton Pipes (6:55)
+10. Adultnapper - Almost Nothing (7:21)(   Читать дальше...   )2011Жанр: Tech House, TechnoПродолжительность: 02:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9FCBE65C031A694DBDC70CCB8625CD51BF0015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441568   (91467) от 25.01.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (25.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285388723342E3355AE5A080A5562212C9100F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441345   (91464) от 24.01.2012
+
+SVR Radio PRO 2.0.0.2 [Русский / Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+SVR Radio - многофункиональня, но в тоже время простая в использовании программа для прослушивания онлайновых радиостанций в сети Интернет.Название программы: SVR Radio PROЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441346   (91460) от 24.01.2012
+
+Кошачий глаз / Cat's Eye (1985) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Фильм объединяет в себе три новеллы — две из них из сборника «Ночная смена»: «Корпорация «Бросайте курить» и «Карниз». Третья — объединяющая новелла «Генерал» написана специально для фильма.
 
-(   Читать дальше...   )Язык интерфейса: Английский
+Главным связующим звеном фильма является бездомный кот, пытающийся спасти маленькую девочку от неизвестной опасности.Жанр: ужасы, триллер, комедияРежиссер: Льюис Тиг / Lewis TeagueАктеры: Дрю Бэрримор, Джеймс Вудс, Роберт Хэйз, Кеннет МакМиллэн, Кэнди Кларк, Элан Кинг, Джеймс НотонПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:34:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22854EFFDB8747763353722752C386AAD7A63DF8
+magnet:?xt=urn:btih:2C29323293573981BE3435ADE772FF4457A723F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,12 +709,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 743041   (976950) от 07.01.2014
+###  Публикация: 440651   (91454) от 24.01.2012
 
-Mozilla Firefox 27.0 beta 4 [Ru]
+Замурованные в стене / Walled In (2009) DVD5
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -209,11 +723,11 @@ Mozilla Firefox 27.0 beta 4 [Ru]
 
 ###  Подробнее
 
-Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и Истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения возможностей подключением плагинами (а выпущено их великое множество)Язык интерфейса: Русский
+Сэм Валцак, управляющая компании, занимающейся сносом зданий, открывает страшную тайну. Очередной объект под снос оказывается полон мрачных секретов его прежних обитателей — живший здесь убийца замуровывал людей в стены.Жанр: Ужасы, ТриллерРежиссер: Жиль Паке-БреннерАктеры: Миша Бартон, Дарла Бикум, Камерон Брайт, Шеннон Джардин, Ноам Дженкинс, Софи Найт, Роб Рой, Джош Стрейт, Дебора Кара Ангер, Роб Ван МинанПеревод: Двуголосый закадровыйЯзык субтитров: английскиеПродолжительность: 01:31:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA963F4C135EFE79147FE487E550B0A0C3DBAB5B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,12 +735,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 742983   (976952) от 07.01.2014
+###  Публикация: 440673   (91453) от 24.01.2012
 
-Yahel - Architech (2013) [FLAC|Lossless|WEB-DL]<Full-On; Psy-Trance; Progressive Trance>
+Молчи в тряпочку / Keeping Mum (2005) DVD9
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -235,20 +749,13 @@ Yahel - Architech (2013) [FLAC|Lossless|WEB-DL]<Full-On; Psy-Trance; Progressive
 
 ###  Подробнее
 
-01.Pink Stars (6:08)
-02.Atmosphere (Upgrade Cut Remix) (6:37)
-03.Feeding My Brain (6:27)
-04.Electro Panic (Yahel & Funk Truck Remix) (7:39)
-05.Intellegent Life (Invisible Reality Remix) (8:40)
-06.Now Fucking Dance (System Nipel Remix) (6:20)
-07.Drop Attack (8:46)
-08.Automatic (Yahel & Dominant Space vs Didrapest Remix) (6:56)
-09.Cat On Acid (6:56)
-10.Creatures (Darma Dub Mix) (6:18)(   Читать дальше...   )Жанр: Full-On; Psy-Trance; Progressive TranceПродолжительность: 01:23:55
+Уолтер Гудфеллоу, приходской священник в маленькой английской деревушке Литтл Уэллоп, давно запустил свой брак с Глорией, и вообще так отдалился от своей семьи, что даже внимания не обращает ни на семнадцатилетнюю дочь, которая вовсю встречается с разными неподходящими ей парнями, ни на сына Пити, который боится ходить в школу, потому что его там обижают.
+
+А лишенная любви мужа Глория начинает влюбляться в американца Лэнса, профессионального гольфиста, дающего ей частные уроки. Однако семейные проблемы потихоньку исчезают, когда в доме появляется новая домохозяйка Грэйс Хокинс, которая справляется с трудностями словно куда более старая, мрачная и таинственная Мэри Поппинс…Жанр: Комедия, КриминалРежиссер: Ниал ДжонсонАктеры: Роуэн Эткинсон, Кристин Скотт Томас, Мэгги Смит, Патрик Суэйзи, Тэмсин Эгертон, Тоби Паркес, Лиз Смит, Эмилия Фокс, Джеймс Бут, Патрик МонктонПеревод: Многоголосый закадровый (лицензия), двухголосый закадровый (Рен-ТВ)Язык субтитров: русские, английские, испанскиеПродолжительность: 01:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66EB0D05ADB43F7D85F2329A8C7A781B0A345E4C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,128 +763,9 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 742984   (976953) от 07.01.2014
+###  Публикация: 440703   (91448) от 24.01.2012
 
-WinUtilities Pro 11.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные инструменты, включая Чистильщик Мусорных файлов, Чистильщик реестра, Оптимизатор памяти, Системный информатор, Инструмент для резервирования реестра, Шифровальщик файлов, Деинсталлятор, Инструмент для поиска дубликатов файлов, Уничтожитель файлов и многие другие. Программа также включает в себя инструмент для удаления следов интернет серфинга. В целом, программа предлагает широкий спектр инструментов для обслуживания вашей системы, которые не так-то легко найти в одном наборе.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76E7D2A4D020979268ACA19BB1546464CDDA56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742714   (976963) от 07.01.2014
-
-Yes - Close To The Edge (1972) Definitive Edition /2013, Panegyric/ [FLAC|image + .cue]<Progressive Rock, Symphonic Rock, Art Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Close To The Edge   (18:42)
-02.  And You And I   (10:12)
-03.  Siberian Khatru   (9:11)
-04.  America   (10:44)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Rock, Art RockПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1976F2D09C2957E224D2E9FCD9B7CB20A52776AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742871   (976964) от 07.01.2014
-
-Kevin Kern - Beyond the Sundial (1997) [FLAC|Lossless|image + .cue] <New Age, Piano>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Sundial (4:23)
-02. Threads of Light (3:11)
-03. Where Paths Meet (5:15)
-04. A Flurry of Golden Leaves (3:33)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23DFC6186F7E1EDE63AD54ECF5DF28DA41BA336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742781   (976967) от 07.01.2014
-
-David Bowie - Pin Ups (1973) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Glam, Classic Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Rosalyn (Taylor, May)  2:23
-2. Here Comes The Night (Berns)  3:10
-3. I Wish You Would (Billy Boy Arnold)  2:49
-4. See Emily Play (Rodger Keith Barret)  4:12
-5. Everything's All Right (Konrad, Karlson, Crouch, Stavely, James)  2:22
-6. I Can't Explain (Townshend)  2:12
-Сторона 2
-1. Friday On My Mind (Young-Vanda)  2:57
-2. Sorrow (Feldman, Goldstein, Gottehrer)  2:53(   Читать дальше...   )Жанр: Glam, Classic RockПродолжительность: 00:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA93FA1FDB300AF2BBE836EDB94E59AD17F477B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740768   (976968) от 07.01.2014
-
-Tangerine Dream - Antique Dreams (2000) [APE|Lossless]<Electronic, Berlin School, New Age, electronica, Progressive Electronic, ambient, krautrock, progressive rock>
+Dev - The Night The Sun Came Up (2011) [MP3|320 kbps]<Pop, R&B, Electro Hop>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -389,20 +777,20 @@ Tangerine Dream - Antique Dreams (2000) [APE|Lossless]<Electronic, Berlin School
 
 ###  Подробнее
 
-01.  Oedipus Tyrannus Overture [05:36]
-02.  Ultima Thule Part 1 [03:23]
-03.  Calymba Caly [09:50]
-04.  Flock Of Bluebirds [03:34]
-05.  Speed Dragon [03:16]
-06.  Edinburgh Castle [08:46]
-07.  Moorland [04:02]
-08.  Sorcerer And Thief [06:32]
-09.  Southend Mall [04:29]
-10.  Cool Breeze Of Brighton [10:19](   Читать дальше...   )Жанр: Electronic, Berlin School, New Age, electronica, Progressive Electronic, ambient, krautrock, progressive rockПродолжительность: 01:09:55
+01.Getaway
+02.In My Trunk
+03.Me
+04.Breathe
+05.Take Her From You
+06.Lightspeed
+07.Dancing Shoes
+08.Perfect Match
+09.Bass Down Low
+10.Kiss My Lips(   Читать дальше...   )Жанр: Pop, R&B, Electro HopПродолжительность: 00:57:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2D0BE05A251CC895755C5D27B78C2C2C1618185
+magnet:?xt=urn:btih:6FEDB9DD7E88C04454398133231C2159F57AC944
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -410,323 +798,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 974389   (976970) от 11.01.2016
+###  Публикация: 440391   (91447) от 24.01.2012
 
-HoudahGeo 4.4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976970.jpg" />
-</div>
-
-
-###  Подробнее
-
-HoudahGeo – программа для размещения географических координат в EXIF-тегах цифровых фотографий.
-HoudahGeo поддерживает множество методов геокодирования, начиная с автоматического до ручного. Используйте журнал GPS трека, справочные фотографий, сделанных с iPhone или выберите места на встроенных картах. HoudahGeo пишет метаданные EXIF, XMP, IPTC и в JPEG и RAW изображениях. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 января 2016Разработчик: Houdah SoftwareПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3800A9D0AC6B04A46590E10A1AA81BB55DE70CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973675   (976974) от 11.01.2016
-
-VA - Redux 10 Years Vol. 1 (2015) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Ablaze & Ian Buff & DJ TH - 10 Years (original mix) (07:07)
-02. Dereck Recay - Dream Way (Arctic Moon remix) (08:25)
-03. Wellenrausch - Euphoria Of The Waves (Jorn Van Deynhoven remix) (07:57)
-04. Rapha - Impulse 2009 (original mix) (07:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB20CB8D2DCCEF6709FD6CEDE469FAB06B82DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974053   (976977) от 11.01.2016
-
-VA - True Trio (Mixed by Ozo Effy) (2015) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Igor Dyachkov - Eleven Hours (Artra & Holland Remix) (05:13)
-02. Erick Strong & Anatoly Kontsevich - Lady #1 (Ozo Effy Remix) (07:25)
-03. Alekzander & Julia Lav - Like A First Time (Adam Navel Remix) (07:15)
-04. Nick Sparkle & The Alien Show - Another Alien Convoy (Ozo Effy Remix) (06:36)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A5EC54AA21404FD516FD9C3708318EFFA790EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974485   (976981) от 11.01.2016
-
-Хоккей. НХЛ 2015-2016. Вашингтон - Оттава. (11.01.2016) HDTVRip [H.264/720p-LQ]
+Человек и закон (19.01.2012) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976981.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 января 2016, понедельник. 03:00 МСК
-Стадион: Веризон-центр (Вашингтон, США) , 18 506 зрителей (100 % при вместимости 18 506)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада)
-Главный судья: Тревор Хансон (Канада)Телекомпания: Сетанта Спорт Евразия HDЖанр: СпортПродолжительность: 01:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3233D0F00148617176BFBDE67661F4B9113CF116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974296   (976982) от 11.01.2016
-
-Биатлон. Кубок Мира 2015-2016.4 Этап.Рупольдинг (Германия).Масс-старт 12.5 км Женщины (10.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изначально 4 этап должен был пройти в Оберхофе, но из-за долгого отсутствия там снега IBU и немецкая федерация решили перенести этап в Рупольдинг. Здесь нет проблем со снегом на трассе и размещением, однако решение о переносе было принято сильно загодя, почти за две недели до старта. Парадоксально, что после Нового года в Оберхофе подморозило и выпал свежий снег. (   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA046A5D74A810EA0DC6CC14896D0B19A6637ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974096   (976983) от 11.01.2016
-
-Хоккей. НХЛ 2015-2016. Нью Йорк Рейнджерс - Вашингтон. (09.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976983.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 января 2016, суббота. 21:00 МСК
-Стадион: Мэдисон Сквер Гарден (Нью-Йорк, США) , 18 006 зрителей (99 % при вместимости 18 200)
-Главный судья: Дэн О'Хэллоран (Эссекс, Канада)
-Главный судья: Брайан Почмара (Детройт, США)Телекомпания: Viasat Hockey HDЖанр: СпортПродолжительность: 01:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA91C976E7C0EABE09A457AC516D33AFBDA9A068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974285   (976984) от 11.01.2016
-
-Биатлон. Кубок Мира 2015-2016. 4 Этап. Рупольдинг (Германия).Масс-старт 15 км Мужчины (10.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изначально 4 этап должен был пройти в Оберхофе, но из-за долгого отсутствия там снега IBU и немецкая федерация решили перенести этап в Рупольдинг. Здесь нет проблем со снегом на трассе и размещением, однако решение о переносе было принято сильно загодя, почти за две недели до старта. Парадоксально, что после Нового года в Оберхофе подморозило и выпал свежий снег. (   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9981688A36D86EE53FC9B7931690641135CA30A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974284   (976985) от 11.01.2016
-
-Хоккей. КХЛ 2015-2016. Сибирь (Новосибирск) - Металлург (Магнитогорск) (10.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976985.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 января 2016, воскресенье. 14:30 МСК
-Стадион: Сибирь (Новосибирск, Россия) , 7 400 зрителей (100 % при вместимости 7 400)
-Главный судья: Павел Комаров (Нижний Новгород, Россия)
-Главный судья: Алексей Раводин (Москва, Россия)Телекомпания: КХЛ HDЖанр: СпортПродолжительность: 02:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB2CD083491A8D0D939FC48D91C09BC49D35CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974277   (976986) от 11.01.2016
-
-Хоккей. КХЛ 2015-2016. Динамо (Москва) - Динамо (Рига, Латвия) (10.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976986.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 января 2016, воскресенье. 17:00 МСК
-Стадион: ВТБ Ледовый дворец (Москва, Россия) , 8 118 зрителей (65 % при вместимости 12 500)
-Главный судья: Антти Боман (Финляндия)
-Главный судья: Алексей Васильев (Санкт-Петербург, Россия)Телекомпания: КХЛ HDЖанр: СпортПродолжительность: 02:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72241C054B260F05CCF3798D9031083EABA7A827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974236   (976987) от 11.01.2016
-
-Хоккей. НХЛ 2015-2016. Ванкувер - Тампа Бэй. (10.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976987.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 января 2016, воскресенье. 06:00 МСК
-Стадион: Роджерс-Арена (Ванкувер, Канада) , 18 335 зрителей (97 % при вместимости 18 860)
-Главный судья: Майк Легго (США)
-Главный судья: Иэн Уолш (Филадельфия, США)Телекомпания: Сетанта Спорт Евразия HDЖанр: СпортПродолжительность: 01:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5622295307F40C84CFAFF2B9387C605E590E046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974177   (976988) от 11.01.2016
-
-Хоккей. НХЛ 2015-2016. Монреаль - Питтсбург. (10.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976988.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 января 2016, воскресенье. 03:00 МСК
-Стадион: Белл-центр (Монреаль, Канада) , 21 288 зрителей (100 % при вместимости 21 288)
-Главный судья: Дэн О'Рурк (Калгари, Канада)
-Главный судья: Стив Козари (Пентиктон, Канада)Телекомпания: Сетанта Спорт Евразия HDЖанр: СпортПродолжительность: 01:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F37FEA4A9F4BE8CA1D8177480A0AF9ABF4CE2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743023   (976989) от 07.01.2014
-
-Glary Utilities Pro 4.4.0.86 portable by DRON [Ru/En]
-
->>Архив торрентов
->>Архив Программ
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -735,11 +812,11 @@ Glary Utilities Pro 4.4.0.86 portable by DRON [Ru/En]
 
 ###  Подробнее
 
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости данного приложения с более чем 45 различным программами. Более того, Glary Utilities оптимизирует процесс использования системной памяти, осуществляет поиск, а также исправление или удаление неработающих ярлыков, редактирование списка программ, загружающихся вместе с операционной системой, и удаление указанных приложений.Язык интерфейса: Русский, английский
+Общественно-политическая программа "Человек и закон" выходит на главном телеканале страны уже 35 лет (Алексей Пиманов ведет программу с 1996 года). Столь "преклонный возраст" ничуть не мешает программе оставаться одной из самых востребованных и актуальных на отечественном телевидении. Быть может потому, что основные темы - борьба с организованной преступностью, расследования о коррупции в высших эшелонах власти, криминальные истории... Основное правило программы старо, как мир: информация из первых рук и только проверенные факты.Жанр: Телепередача, ДокументальныйПродолжительность: 00:49:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62CB536AE70C01CCE92AEC4B3236CAA5C15292BC
+magnet:?xt=urn:btih:78F1C7B7323C79833FADCA71694F168548058D8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

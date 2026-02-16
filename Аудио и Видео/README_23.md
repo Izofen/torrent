@@ -1,22 +1,22 @@
-###  Публикация: 1344582   (169606) от 11.12.2019
+###  Публикация: 1363579   (942072) от 28.02.2020
 
-Подсобка дьявола / The Shed (2019) WEB-DL [1080p] ATV
+Герой (2019) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169606.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Стэн рано лишился родителей и теперь живёт с грубым дедом, который только и делает, что пьёт и кричит на внука. В школе парню вместе с другом Доммером постоянно приходится отбиваться хулиганов, так что жизнь ребят нельзя назвать увлекательной. Однажды Стэн в собственном сарае для инструментов обнаруживает злобное существо — плотоядное порождение ночи — и с этого (   Читать дальше...   )Производство: США / A Bigger Boat, Sideshow PictureЖанр: Ужасы, драмаРежиссер: Фрэнк СабателлаАктеры: Джей Джей Уоррен, Коуди Костро, София Хаппонен, Фрэнк Уэйли, Тимоти Боттомс, Шиван Фэллон, Крис Петровски, Франциско Бургос, Ули Шлезингер, Му-Шака БенсонПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:37:15
+15 лет назад Андрей под руководством своего отца, полковника Родина, прошел обучение в секретной спецшколе, где из подростков готовили агентов Службы внешней разведки. Когда экспериментальный проект закрыли, Андрей «сжёг мосты», остался в Европе и старался не вспоминать о прошлом. Но однажды ему звонит отец, которого все считали погибшим. Тот сообщает, что на Андрея (   Читать дальше...   )Производство: Россия / Телеканал «РОССИЯ 1», Карго ФильмЖанр: Триллер, комедия, боевик, криминалРежиссер: Карен ОганесянАктеры: Александр Петров, Владимир Машков, Светлана Ходченкова, Ян Алабушев, Константин Лавроненко, Марина Петренко, Анастасия Тодореску, Тобиас АспелинПеревод: Не требуется, русский (GER Transfer, Лицензия)Субтитры: Русские (харсаб, на иностранную речь)Продолжительность: 02:00:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4221370CF97E5CB20A937A46EE9596B223C7A37A
+magnet:?xt=urn:btih:982B5A592100B6DBEE4C9EE51B25C268286F124E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,57 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515336   (169609) от 07.12.2021
+###  Публикация: 983638   (942040) от 07.02.2016
 
-VA - Bar Lounge Background Music (2021) [AAC|~291 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boeklin - Seeds of Light (6:05)
-02. Roesselsprung - High Delights (5:46)
-03. Lichterloh - Quite Frankly (6:00)
-04. Diario - Ten Springs (6:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC213486AC737BD2C742808D21AE627B14A7C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515561   (169611) от 07.12.2021
-
-VA - Ultimate Christmas Nu Jazz Music (2021) [AAC|~324 Kbps] <Nu Jazz>
+Кровосток - Студень (2012) [AAC|256 кб/с]<Rap, Hip-Hop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169611.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sugarpie And The Candymen - Santa Claus Is Coming to Town (2:46)
-02. Jazz 2 More - Jingle Bells (5:29)
-03. Matteo Brancaleoni - Winter Wonderland (2:29)
-04. Christian Lisi, Melania - We Wish You a Merry Christmas (2:35)(   Читать дальше...   )Жанр: Nu JazzПродолжительность: 01:34:30
+1. Память
+2. Пора домой
+3. Овощ
+4. Весна(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B21C736E571E3A658DE978BA1FB56FCF1AEA96D3
+magnet:?xt=urn:btih:42033412992ED03C307638592B8EE57DBF405202
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515306   (169615) от 07.12.2021
+###  Публикация: 983602   (941978) от 07.02.2016
 
-VA - Ethno 4 (2021) [AAC|~324 Kbps] <Chill Out, Downtempo, Organic House>
+Astral Projection - Let There Be Light (Outsiders Remix) - Single (2015) [AAC|256 кб/с]<Electronic, Psy-Trance, Goa Trance>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169615.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Elias Fassos, RisK (Gr), Saveria Margiola - Se Poia Thalassa Armenizeis (Saveria Margiola) (6:58)
-02. Briansway, Gabieris - Lithos (6:14)
-03. Cafe De Anatolia, Anis Karek - Rhim (Jad Halal Remix) (4:34)
-04. Billy Esteban, Gabriela Novevska - Katerina (NayTens KreF Remix) (4:38)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:54:01
+1. Let There Be Light (Outsiders Remix)Жанр: Electronic, Psy-Trance, Goa TranceПродолжительность: 00:08:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B0DFAC9201F78D7C2F20FD7264FFAB02C8C3E19
+magnet:?xt=urn:btih:4C3FCA928200D352C6DFEE337447D8C238247F49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,225 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430788   (169623) от 11.12.2020
+###  Публикация: 984046   (941707) от 07.02.2016
 
-Mariah Carey - Mariah Carey's Magical Christmas Special (Apple TV+ Original Soundtrack) (2020) [AAC|~328 Kbps] <Pop, Score>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture "Little Mariah's" Theme (0:14)
-02. Sleigh Ride (2:39)
-03. Hark! The Herald Angels Sing (Interlude) (0:20)
-04. When Christmas Comes (Magical Christmas Mix) (2:28)(   Читать дальше...   )Жанр: Pop, ScoreПродолжительность: 00:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A52772007FC82569D2931EA7C44D0328FCBDA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515436   (169634) от 07.12.2021
-
-VA - Best of Chill Jazz 6 (2020) [AAC|~345 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Suggestions - Little Talks (4:59)
-02. Konstantin Klashtorni - Humble and Kind (4:07)
-03. Kool&Klean - Worth (4:47)
-04. Chillaxing Jazz Kollektion - Ocean Serenity (4:47)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB634E9693EB685EA0D07C4ED9A416787B51953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344530   (169642) от 11.12.2019
-
-Эверест / Abominable (2019) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестный науке мохнатый зверь сбегает из лаборатории, оказывается посреди шумного мегаполиса и в панике прячется на крыше одного из домов. Вскоре там его обнаруживает школьница Лу и, поняв, что находка хоть и дикая, но вполне симпатичная и, скорее всего, волшебная, решает во чтобы то ни стало помочь животному спастись от злых учёных и вернуться домой в горы. За (   Читать дальше...   )Производство: Китай, США, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманАктеры: Хлоя Беннет, Альберт Цай, Тензинг Норгай Трэйнор, Джозеф Иццо, Эдди Иззард, Сара Полсон, Цай Чинь, Мишель Вонг, Рич Дитль, Джеймс ХонгПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), Английские (Full)Продолжительность: 01:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E47E4DAE5347FA78F00BF78F81EEB154E8B559B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515320   (169643) от 07.12.2021
-
-VA - Winter Magic | Chillout Edition (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bio Logical Theory - Another Stratosphere (5:41)
-02. Lafoliedamour - Lollygagging (5:40)
-03. Miethe - Revealing (5:33)
-04. Helfau Reload - Off the Hook (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD736F5AED26407ECE4FA563E2AA0580E488B2AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515435   (169647) от 07.12.2021
-
-VA - Best of Chill Jazz 5 (2020) [AAC|~346 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - I Can Only Imagine (4:55)
-02. Chillaxing Jazz Kollektion - Mornin' (4:30)
-03. Chillaxonic - So Far, But so Near (4:32)
-04. Love Suggestions - Feel This Moment (4:25)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A231D45D750D4036B4E8F4DCBA8373C2B66524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515271   (169653) от 07.12.2021
-
-VA - My Time | My Music (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azeotrop - Chilly Beach (5:44)
-02. Mind Conventions - Irrefragable (5:58)
-03. gesolreut - Switching Things Up (6:02)
-04. Asking Altotas - Sowing Time (6:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A194673B914A0B0B918069E1885CD49830E146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515431   (169654) от 07.12.2021
-
-VA - Best of Chill Jazz 3 (2019) [AAC|~350 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Guessing Game (4:17)
-02. Konstantin Klashtorni - Let's Chill (5:29)
-03. Chillaxing Jazz Kollektion - Key of Sea (5:18)
-04. Love Suggestions - Life Is Love (4:44)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A589009F4A72890C82BD0F321679CF39D8CCC2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404230   (169664) от 11.12.2020
-
-Ярослав Гжендович | Гелий-3 (2020) [M4B|AAC]
+Стивен Кинг | 81 миля (2016) [m4b|AAC]
 
 >>Аудио и Видео
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169664.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2058 год. Это мир, в котором омнифоны заменили собой любые социальные связи, где ролики из МегаНета покончили с медиаресурcами и культурой, а место журналистов заняли ивентщики, обыкновенные люди, которые снимают все вокруг в надежде заполучить эффектную и скандальную запись. Это мир, в котором любой полет на самолете намеренно превращен в настоящий ад, в котором (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 13:06:56
+Американская провинция. Шумный хайвэй. Заброшенная автостоянка с магазинчиком, на которую однажды приезжает загадочный автомобиль неизвестной модели — и застывает, словно в ожидании, словно приманивая жертву. Мимо едут по своим делам люди, самые разные: добрые и злые, раздраженные, уставшие, воодушевленные. Некоторые из них останавливаются и подходят к загадочной (   Читать дальше...   )Жанр: УжасыФормат: m4bПродолжительность: 01:38:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C54073E6332A5F613E8E3ECE94C59BE11582B05
+magnet:?xt=urn:btih:BD01535E2A51236253A142721F1F13CB15C67A11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +105,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515275   (169666) от 07.12.2021
+###  Публикация: 752519   (941397) от 02.02.2014
 
-VA - Chill Out 2022 (Compiled by DoctorSpook) (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+Muddy Waters - The Best Of King Of The Blues (2009) 2CD [ALAC|Tracks]<Blues>
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169666.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Barby - Angel Droid (9:32)
-02. Sixsense - Wherever You Are (4:17)
-03. The Big Port - Another World (4:40)
-04. TrapaleX - BimBam (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:06:46
+01. Mannish Boy
+02. I'm Your Hoochie Coochie Man
+03. Forty Days & Forty Nights
+04. Baby Please Don't Go
+05. She Moves Me
+06. Howlin' Wolf
+07. Got My Mojo Working
+08. I Want To Be Loved
+09. Honey Bee
+10. All Night Long(   Читать дальше...   )Жанр: BluesПродолжительность: 02:24:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1498448C828D9C8BF460124AB7D4B54AF836142
+magnet:?xt=urn:btih:E6AA1AD5688C2FA9D31B8318A8B987EE826596C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +140,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515504   (169672) от 07.12.2021
+###  Публикация: 752675   (941395) от 02.02.2014
 
-VA - Urban Soulful Grooves, Vol. 4: Urban Vibes for Urban People (2021) [AAC|~323 Kbps] <Chill Out, Downtempo, Soulful House, Deep House>
+VA - Mycelium Music Compilation Vol. 2 (2013) [ALAC|Tracks|WEB-DL]<Ambient, Downtempo, Psychill, Dub>
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169672.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Pier-O - Funkadelphia Love Story (5:15)
-02. Marga Sol - Closer, Longer (5:27)
-03. Kostafunk, Chidi - Paradise (Instrumental Mix) (8:19)
-04. Schwarz & Funk - Seawind (Beach House Mix Radio Cut) (3:01)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful House, Deep HouseПродолжительность: 01:19:21
+01. Drumspyder - Caduceus 05:11
+02. Guda - Gamboge Smoke 03:25
+03. Plantrae - Primary Decomposers 07:19
+04. Soulular - Deja Vu 04:48
+05. Underscore - Lopdrat 05:15
+06. Anchor Hill - Diventare 05:11
+07. Halo Refuser - Parachuting (feat. Guda) 05:56
+08. Citta Flow - Woodwind 04:48
+09. iinaK - Falling Out 03:00
+10. Sporeganic - Dull Psymer 04:03(   Читать дальше...   )Жанр: Ambient, Downtempo, Psychill, DubПродолжительность: 01:04:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:595039CD20ED16FDC2E739B5F29679D60EA569CD
+magnet:?xt=urn:btih:E9C726D828701768F30E53294CE1F419DCED05BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +175,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430691   (169677) от 11.12.2020
+###  Публикация: 752512   (941394) от 02.02.2014
 
-Сплин - Вира и майна (2020) [AAC|~332 Kbps] <Rock, Alternative>
+Gotthard - Dream Ballads (2010) Bootleg [ALAC|Tracks]<Hard Rock>
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169677.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Призрак (4:14)
-02. За семью печатями (3:22)
-03. Беги, моя жизнь (4:29)
-04. Джин (4:01)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:44:33
+01 - I'm On My Way
+02 - Peace Of Mind
+03 - One Life, One Soul
+04 - Father Is That Enough?
+05 - Say Goodbye
+06 - Everything Can Change (piano version)
+07 - All I Care For
+08 - Let It Rain
+09 - Someday
+10 - He Ain't Heavy, He's My Brother(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:17:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5A810D0E57229F5EB7DE7AB465B3BD7D021FA1A
+magnet:?xt=urn:btih:FC8F44A69C45C3FE766E270367CFCF9B3214BC9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515503   (169682) от 07.12.2021
+###  Публикация: 860356   (941239) от 16.01.2015
 
-VA - Urban Soulful Grooves, Vol. 3: Urban Vibes for Urban People (2021) [AAC|~309 Kbps] <Chill Out, Downtempo, Soulful House, Deep House>
+Курандеро / Curandero (2005) WEB-DL [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169682.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Joy Legend - Shallow Dive (Original Mix) (4:17)
-02. Soul Trend - Before It Gets Too Late (4:47)
-03. Lounge Groove Avenue - Thoughts (Original Mix) (4:32)
-04. Fl!p - Oh, and I Like You (Simply Chill Remix) (4:35)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful House, Deep HouseПродолжительность: 01:30:55
+История о федеральном агенте Магдалене, который отправляется в экстремальное путешествие по самым темным уголкам Мексики в поисках истоков развития черной магии ...Производство: США, Мексика / Rodriguez International Pictures, Dimension FilmsЖанр: ужасыРежиссер: Эдуардо РодригезПродюсер: Элизабет Авеллан, Роберт Родригес, Луз Мария РохасАктеры: Карлос Гальярдо, Гизет Галатэа, Габриэль Пингаррон, Хосе Карлос Руис, Жерардо Зепеда, Серджо Акоста, Эрнесто Яньес, Хавьер Эскобар, Элихио Мелендес, Рене КампероПеревод: Любительский (двухголосый закадровый)Язык субтитров: АнглийскийПродолжительность: 01:35:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAECF4F6FF37EFA0BC1C31FF3196DA523127A58D
+magnet:?xt=urn:btih:AF02027FC6E9CD79E3BAB618B40DC673592F5D34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,28 +236,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430710   (169687) от 11.12.2020
+###  Публикация: 860377   (941234) от 16.01.2015
 
-Владимир Высоцкий - Оригинал седьмой (октябрь 1974 года, дополнение 1971 г. дома у Высоцкого) (2020) [AAC|~234 Kbps] <Acoustic, Chanson, Ballad>
+Мул / The Mule (2014) HDRip [480p] iPhone
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169687.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Очи чёрные. Погоня (2:46)
-02. Очи чёрные. Старый дом (2:58)
-03. Инструкция перед поездкой за рубеж, или Полчаса в месткоме (5:08)
-04. Куплеты Бенгальского (2:11)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:44:51
+История о наивном человеке, который согласился на перевозку наркотиков в своем желудке и был задержан федеральной полицией. Он, оставшийся один и напуганный, принимает отчаянное решение: бросает вызов своему организму и удерживает доказательства внутри... в буквальном смысле. Поступая таким образом, он становится "человеческой бомбой замедленного действия", затаскивая полицейских, преступников и свою семью в безвыходную авантюру.Производство: Австралия  / © 2014 The Mule Development Pty Ltd, Screen Australia and Film VictoriaЖанр: криминал, триллерРежиссер: Тони Махони, Энгус СэмпсонПродюсер: Джейм Браун, Ли Уоннелл, Энгус СэмпсонАктеры: Энгус Сэмпсон, Хьюго Уивинг, Ли Уоннелл, Ивен Лесли, Джофф Морелл, Джорджина Хэйг, Нони Хазлхерст, Джон Ноубл, Ник Фарнелл, Марни МакКуинПеревод: Любительский двухголосыйЯзык субтитров: АнглийскийПродолжительность: 01:42:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79AED4552B5FF2AFCAA887CA1E2D13D5D8DD0BCD
+magnet:?xt=urn:btih:2D3646FD3059D143615B97BE7486E55AE2C59DDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,28 +262,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515293   (169692) от 07.12.2021
+###  Публикация: 752494   (941174) от 02.02.2014
 
-VA - Best of Smooth Lounge, Vol. 2 (A Finest Selection of Chill & Modern Bar Tracks) (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
+Gary Moore - All The Best (2012) 2CD [ALAC|Tracks]<Rock, Hard Rock, Blues-Rock>
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169692.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. CiYou - Downtown Nights (4:39)
-02. Soundset City - Bar Nights (3:31)
-03. Audiozoom - Lounging Keys (4:46)
-04. Jean Mare - Adlipi (2:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:28
+01. Out in the Fields (4:18)
+02. Still Got The Blues (single version) (4:11)
+03. Wishing Well (4:07)
+04. Woke Up This Morning (3:51)
+05. Separate Ways (4:54)
+06. Walking By Myself (2:57)
+07. Empty Rooms (Short Version) (4:17)
+08. Since I Met You Baby (2:52)
+09. I Loved Another Woman (3:08)
+10. Wild Frontier (4:17)(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues-RockПродолжительность: 02:34:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2585ABFF76217B631515FBA4AD10E0DE80E43DFE
+magnet:?xt=urn:btih:F5A40B3BDD4C7C86277627BFEE7734E45220AC14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,28 +297,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515564   (169697) от 07.12.2021
+###  Публикация: 859418   (941165) от 16.01.2015
 
-VA - Finesse Jazz, Vol.3 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Smooth Jazz>
+Тройной форсаж: Токийский Дрифт / The Fast and the Furious: Tokyo Drift (2006) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169697.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Wonderphazz - Stories And Lies (4:04)
-02. Gary Rosenblatt - Nightmoves (Guitarras de Luna Mix) (4:22)
-03. Smooth Jazzerz - Look to the Future (Night Lounge Mix) (4:54)
-04. Redundant Mankind - Alpaca (Chillax Saxy Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:45:14
+Шон Босуэлл — одинокий парень, который хочет казаться профи уличных гонок. Он бесшабашно гоняется по улицам города, пытаясь убежать от жизненных невзгод и наживая себе врагов среди местных властей. Когда Шону грозит тюрьма, его от греха подальше отсылают к отцу — профессиональному военному, который служит на военной базе в Японии.
+В незнакомой стране, живущей по своим законам, Шон чувствует себя еще большим изгоем. Однако вскоре его американский приятель Твинки знакомит его с миром подпольного дрифт-рейсинга. (   Читать дальше...   )Жанр: боевик, триллер, драма, криминалРежиссер: Джастин ЛинПродюсер: Нил Х. Мориц, Райан Кэвэна, Аманда КоэнАктеры: Лукас Блэк, Бау Вау, Брайан Ти, Санг Кенг, Брэндон Брендел, Дэниэл Буко, Дэвид Томас, Эмбер Стивенс, Ашика Гонья, Кристиан Салазар, Kevin Caira, Трей Санфорд, Дэнни Рэй МакДональд II, Никки Гриффин, Винсент Лареска, Джои Крамптон, Линда Бойд, Брайан Гудман, Йоко Маки, Натали Келли, Рай ШибатаПеревод: Дублированный, Многоголосый закадровый, Одноголосый закадровый x2, Украинский многоголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:44:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0365B3CF50BC88285C2E5A583F9D6C48FCC8C9E5
+magnet:?xt=urn:btih:0A800831B7BF1F39B769BEA74EC34FB06A1A48B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,28 +324,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515333   (169698) от 07.12.2021
+###  Публикация: 860233   (941162) от 16.01.2015
 
-VA - Heart of Electronica (Chillwave Downtempo Moods) (2019) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+Царь скорпионов 4: Утерянный трон  / The Scorpion King: The Lost Throne (2015) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169698.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Sofa Groovers - Stop Here (Chill Trip Mix) (2:56)
-02. Influenzer - Lofi Smoke (1:46)
-03. Roleystone, Rebel Angel - First Day (Enigmatic Dubstep Chill Mix) (4:04)
-04. Substrata - High Love (Chillax Mix) (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:31
+В очередной киноленте о «Царе скорпионов» мы увидим как отстранённый от своего трона король-воин Метайюс принимает решение отправиться на самое страшное и ужасное задание своей жизни. Все это Метайюс решает сделать ради того, чтобы на его земле снова воцарился мир. Все вроде бы шло своим чередом, но однажды от Метайюса отворачивается его самый близкий и лучший друг, такого он никак не мог предвидеть. Теперь герой самолично должен противостоять страшному злодею, который готов на все только бы убить его. Сможет (   Читать дальше...   )Производство: СШАЖанр: БоевикРежиссер: Майк ЭллиотПродюсер: Майк Эллиот, Огден Гавански, Грег ХолстейнАктеры: Ройс Грейси, Эсме Бьянко, Майкл Бин, Бэрри Боствик, Стивен Данливи, Грант Эллиотт, Лу Ферриньо, Ли Гилл, Роджер Халстон, Брэндон ХардестиПеревод: Многоголосый закадровый (BaibaKo)Язык субтитров: АнглийскийПродолжительность: 01:44:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CAF075D87710A4D8A860F384B2928C675A19083
+magnet:?xt=urn:btih:1DB3DFA314303C30B8F56E0C5CEFB77CF82A36AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,28 +350,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515261   (169703) от 07.12.2021
+###  Публикация: 859802   (941157) от 16.01.2015
 
-VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 4 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+Мальчик в полосатой пижаме / The Boy in the Striped Pyjamas (2008) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169703.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Dreamw41ker - Lullaby (2:06)
-02. Openzone Bar - Caribbean Nights (3:45)
-03. T2'n - Ataraxia Rouge (2:14)
-04. Living Room - Wisdom & Freedom (2:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:14
+История, происходящая во время Второй мировой войны и показанная сквозь глаза невинного и ничего не подозревающего о происходящих событиях Бруно, восьмилетнего сына коменданта концентрационного лагеря. Его случайное знакомство и дружба с еврейским мальчиком по другую сторону ограды лагеря, в конечном счете, приводит к самым непредсказуемым и ошеломительным последствиям.Жанр: драма, военный, историяРежиссер: Марк ХерманАктеры: Эйса Баттерфилд, Джек Скэнлон, Дэвид Тьюлис, Вера Фармига, Эмбер Битти, Шила Хэнкок, Ричард Джонсон, Кара Хорган, Дэвид Хеймен, Руперт ФрендПеревод: Профессиональный дублированный , Двухголосый закадровый , Многоголосый закадровыйЯзык субтитров: Русские , английскиеФормат: MPEG-4 ((контейнер m4v)Продолжительность: 01:34:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF09F955FDE43276A7ADAA837C606858D4B4EA7A
+magnet:?xt=urn:btih:9ED23DD3CAA71994C98EDBA23E279DEA7B65612E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,28 +376,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515563   (169717) от 07.12.2021
+###  Публикация: 860047   (941089) от 16.01.2015
 
-VA - Finesse Jazz, Vol.2 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Smooth Jazz>
+Форсаж 5 (Расширенная версия) / Fast Five (Extended Edition) (2011) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169717.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Coolcut - Please Come Home (Smooth Radio Edit) (4:26)
-02. Jizz Jazz - Just a Friend (Tenderly Mix) (4:19)
-03. Jazz Breezin - Black or White (For Couples to Make Love) (5:17)
-04. Jazzy Brazzy - Touch Me Kiss Me (Instrumental Mix) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:47:10
+Бывший полицейский Брайан О`Коннер вместе с бывалым лихачом Домиником Торетто совсем немного увлеклись жизнью вне закона. После того, как Брайан и Миа Торетто освободили Доминика, они не рискуют долго задерживаться на одном месте, так как являются желанной целью порядком недовольных копов.Производство: США / © 2011 Universal Studios. All Rights Reserved.Жанр: боевик, триллер, криминалРежиссер: Джастин ЛинПродюсер: Вин Дизель, Майкл Фоттрел, Нил Х. МорицАктеры: Вин Дизель, Пол Уокер, Джордана Брюстер, Тайриз Гибсон, Лудакрис, Эльза Патаки, Галь Гадот, Тего Калдерон, Дон Омар, Мэтт ШульцеПеревод: Дублированный, Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:11:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C06969703090D20368C8B42F636C01C8B1AFDBF7
+magnet:?xt=urn:btih:87127643CFF9092D5C7262621ED79F0888C5D22C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,28 +402,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515221   (169740) от 07.12.2021
+###  Публикация: 859960   (941085) от 16.01.2015
 
-VA - A Tribe Called Kotori 4 (2020) [AAC|~324 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
+Охотники на фазанов / Fasandræberne / The Absent One (2014) WEB-DL [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169740.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Hot Oasis - Ophera (7:42)
-02. SevenJune, Ian Ludvig - Last Nomads (7:20)
-03. Oliver Koletzki - Rainbow Serpent (Iorie Remix) (7:39)
-04. Luke Alessi - The Wheatfields (8:14)(   Читать дальше...   )Жанр: Progressive House, Deep House, Downtempo, Afro HouseПродолжительность: 01:38:03
+В 1994 году двое детей близнецов были найдены зверски убитыми в летнем загородном доме. Ряд фактов указывал на причастность к делу группы молодых студентов, но расследование было прекращено, после того как местный отшельник признал себя виновным в этом инциденте.
+20 лет спустя это дело попадает на стол Карлса Мёрка, который начинает подозревать, что в нем что-то не так…Производство: Дания / Zentropa Entertainments, Film i Väst, Zentropa EntertainmentsЖанр: триллер, криминалРежиссер: Миккель НёргорПродюсер: Йонас Баггер, Луиза Вест, Мадлен ЭкманАктеры: Николай Ли Каас, Фарес Фарес, Даница Чурчич, Сара-Софи Бусснин, Йоханна Шмидт, Пилу Асбек, Давид ДенсикПеревод: Любительский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 01:54:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F8C748668DE9FA8360DDAA36B1E0B349DE653EE
+magnet:?xt=urn:btih:925E87339A59BE17C08DDB202402146C7A79D698
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,28 +429,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515496   (169745) от 07.12.2021
+###  Публикация: 860359   (941078) от 16.01.2015
 
-VA - Urban Soulful Grooves, Vol. 2: Urban Vibes for Urban People (2021) [AAC|~317 Kbps] <Chill Out, Downtempo, Soulful House, Deep House>
+Битва за Мён Рян / Myeong-ryang (2014) HDTVRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169745.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Marga Sol - Keep My Love (Original Mix) (5:46)
-02. The Upsetter, Yasirah Bhelz - Rejection (Original Mix) (7:09)
-03. Marie Therese - Below the Horizon (Original Mix) (6:16)
-04. J.Axel - As Love Decay (Original Mix) (5:19)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful House, Deep HouseПродолжительность: 01:34:41
+Фильм рассказывает об известной битве за Мён Рян, состоявшейся в 1597 году во время японского вторжения в Корею. Тогда культовому адмиралу Ли Сунсину удалось уничтожить 133 японских корабля имея флот всего в 13 кораблей.Производство: Корея Южная / Big Stone Pictures, CJ Entertainment (USA)Жанр: приключения, военный, биографияРежиссер: Ким Хан МинАктеры: Чхве Мин Сик, Сын-Рён Рёо, Рю Сын Рён, Джин-Вонг Чо, Ким Мён Гон, Чин Гу, Ли Чун Хюн, Чо Чжин УнПеревод: Любительский одноголосыйЯзык субтитров: АнглийскийПродолжительность: 02:08:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35BCD21FB9F211E7C3B95B6C94779CB91C7ED24B
+magnet:?xt=urn:btih:D7106878E2D7E06799E57178959A679AEEBC9A65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,28 +455,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515329   (169747) от 07.12.2021
+###  Публикация: 627357   (941066) от 07.03.2013
 
-VA - Fall Winter Moods (Atmospheric Chill and Electronic Jazzy Sounds) (2021) [AAC|~285 Kbps] <Electronic, Nu Jazz, Chill Out>
+Поменяться местами / Trading Places (1983) BDRip [480p] iPhone
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169747.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. P. A. Jeron, Peter De Girolamo - City Fashion (3:50)
-02. DOUT.D - Hope (1:49)
-03. Paolo Sessa, Polose - White Paper (3:54)
-04. Anduze - Julie (3:27)(   Читать дальше...   )Жанр: Electronic, Nu Jazz, Chill OutПродолжительность: 01:18:46
+Жизнь респектабельного бизнесмена Луиса Уинтропа Третьего, управляющего богатейшей компании с Уолл-Стрит, круто меняется после того, как его боссы, братья Дьюк, заключают необычное пари. Один из братьев посчитал, что управлять компанией может кто угодно, даже самый отъявленный и необразованный проходимец.
+Поставив на кон доллар, братья находят для своего эксперимента уличного мошенника Билли Рэя Валентайна, которому и предлагают возглавить компанию вместо Уинтропа. Эксцентрическая парочка Дьюков и не подозревает, что, поменяв местами проходимца и крупного бизнесмена, они рискуют гораздо больше, чем могли бы себе представить.Жанр: комедияРежиссёр: Джон ЛэндисВ ролях: Дэн Эйкройд, Эдди Мёрфи, Ральф Беллами, Дон Амичи, Денхолм Эллиот, Джейми Ли Кёртис, Кристин Холби, Пол Глисон, Альфред Дрэйк, Бо ДиддлиПеревод: Русский одноголосый закадровый (А.Гаврилов), одноголосый закадровый (Л.Володарский)Язык субтитров: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A80A766C829ACA605AD0849CF12F3AD0003C6C4F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -714,28 +482,239 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430681   (169751) от 11.12.2020
+###  Публикация: 860086   (940976) от 16.01.2015
 
-Владимир Высоцкий - Оригинал первый (7 января - 5 февраля 1972 года) (2020) [AAC|~189 Kbps] <Acoustic, Chanson, Ballad>
+Форсаж 6 (Расширенная версия) / Fast & Furious 6 (Extended Edition) (2013) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169751.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Горизонт (3:36)
-02. Случай (3:06)
-03. Песня микрофона (3:14)
-04. «Так дымно, что в зеркале нет отраженья…» (3:42)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 01:12:29
+После того как Доминик и Брайн побывали в Рио, где они ограбили и свергли империю вора в законе, их команда получила 100 миллионов, и наши герои оказались разбросаны по всему миру. Но их привычка вечно жить в бегах не даёт им покоя. Между тем, Хоббс отслеживал организацию смертельно опасных наёмников-водителей по двенадцати странам. Единственный способ остановить эту криминальную группу — это превзойти их на улицах, поэтому Хоббс просит Доминика собрать его элитную команду в Лондоне. За это он обещает полное (   Читать дальше...   )Производство: США / © 2013 Universal Studios. All Rights Reserved.Жанр: боевик, триллер, драма, криминалРежиссер: Джастин ЛинПродюсер: Вин Дизель, Нил Х. Мориц, Клэйтон ТаунсендАктеры: Вин Дизель, Пол Уокер, Дуэйн Джонсон, Мишель Родригес, Люк Эванс, Тайриз Гибсон, Лудакрис, Санг Кенг, Галь Гадот, Джордана БрюстерПеревод: Дублированный, Одноголосый закадровыйЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:11:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0746902B513BA866D0B2B6AE6E337FDA0074634
+magnet:?xt=urn:btih:0937CFED9095BECBDBC8B7831E2C557AC34D4DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 627093   (940968) от 07.03.2013
+
+300 Спартанцев / 300 (2006) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+События картины повествуют о кровопролитной битве при Фермопилах в 480 году до н. э., в которой триста отважных спартанцев во главе со своим царем Леонидом преградили путь многотысячной армии персидского царя Ксеркса.
+Несмотря на численный перевес персов, спартанцы продолжали упорную оборону, проявив мужество и отвагу. Их бесстрашие и героизм вдохновили всю Грецию на объединение против непобедимого врага, переломив тем самым ход Греко-персидских войн…Жанр: фэнтези, боевик, военный, историяРежиссёр: Зак СнайдерВ ролях: Джерард Батлер, Майкл Фассбендер, Винсент Риган, Дэвид Уэнэм, Лина Хиди, Доминик Уэст, Том Уисдом, Эндрю Плевин, Эндрю Тирнан, Родриго СантороПеревод: Профессиональный дублированныйФормат: MP4 (контейнер m4v)Продолжительность: 01:56:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 627353   (940967) от 07.03.2013
+
+Поменяться местами / Trading Places (1983) BDRip [ATV2 | H.264/720p]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жизнь респектабельного бизнесмена Луиса Уинтропа Третьего, управляющего богатейшей компании с Уолл-Стрит, круто меняется после того, как его боссы, братья Дьюк, заключают необычное пари. Один из братьев посчитал, что управлять компанией может кто угодно, даже самый отъявленный и необразованный проходимец.
+Поставив на кон доллар, братья находят для своего эксперимента уличного мошенника Билли Рэя Валентайна, которому и предлагают возглавить компанию вместо Уинтропа. Эксцентрическая парочка Дьюков и не подозревает, что, поменяв местами проходимца и крупного бизнесмена, они рискуют гораздо больше, чем могли бы себе представить.Жанр: комедияРежиссёр: Джон ЛэндисВ ролях: Дэн Эйкройд, Эдди Мёрфи, Ральф Беллами, Дон Амичи, Денхолм Эллиот, Джейми Ли Кёртис, Кристин Холби, Пол Глисон, Альфред Дрэйк, Бо ДиддлиПеревод: Русский одноголосый закадровый (А.Гаврилов), одноголосый закадровый (Л.Володарский), многоголосый закадровый (R5), одноголосый закадровый (В.Горчаков), одноголосый закадровый (М.Иванов), одноголосый закадровый (Л.ВолодарскийЯзык субтитров: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091860   (940934) от 10.01.2017
+
+Инферно / Inferno (2016) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Роберт Лэнгдон приходит в сознание в одной из итальянских больниц, полностью потеряв память. Местный врач Сиенна Брукс пытается помочь Роберту не только восстановить воспоминания, но и остановить загадочных злоумышленников, которые намерены распространить смертоносный вирус. Разгадка таинственной истории связана с «Адом» (ит. Inferno) — первой частью «Божественной (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драма, криминал, детектив, приключенияРежиссер: Рон ХовардАктеры: Том Хэнкс, Фелисити Джонс, Омар Си, Ирфан Кхан, Сидсе Бабетт Кнудсен, Бен Фостер, Ана Улару, Ида Дарвиш, Paolo Antonio Simioni, Alessandro GrimaldiПеревод: ДублированныйСубтитры: Русские форсированные, Английские форсированные, Украинские форсированные, Русские, Английские, УкраинскиеПродолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4F39040DB3182B10E5976C3FB305783783E77B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 627106   (940873) от 07.03.2013
+
+Проект «Динозавр» / The Dinosaur Project (2012) BDRip [ATV | H.264/720p]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Группа западных исследователей направляется на поиски существа, живущего в воде, о чьем существовании было известно, в основном, по мифам и легендам. Однако поездка изначально пошла не так, как было запланировано. Ряд неприятностей поставил группу на грань выживания в самой гуще тропических джунглей. Помимо многочисленных опасностей, которые здесь обнаружили герои фильма, им также пришлось столкнуться с созданиями, которых цивилизация считала вымершими миллионы лет назад...Жанр: фантастика, триллер, приключенияРежиссёр: Сид БеннеттВ ролях: Мэтт Кэйн, Ричард Диллэйн, Питер Брук, Наташа Лоринг, Абена Айивор, Стефен ДженнингсПеревод: Русский дублированный (BD RUS)Язык субтитров: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363704   (940501) от 29.02.2020
+
+Особенные / Hors normes (2019) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они живут среди нас, встречаются на улицах, в вагонах метро и подъездах многоэтажек. Мы не замечаем их существования или просто боимся заметить. Это мог бы быть сюжет фильма о супергероях. Но они не парят над землей и не стреляют молниями. Это история о людях, которым отчаянно нужна помощь, и о человеке, подарившем им всю свою жизнь.Производство: Франция / 120 Films, Canal+fr, Ciné, Cinémage 13, Cofimage 30Жанр: Драма, комедияРежиссер: Оливье Накаш, Эрик ТоледаноАктеры: Венсан Кассель, Реда Катеб, Элен Венсан, Брайан Мьялундама, Альбан Иванов, Бенжамин Лесьер, Марко Локателли, Катрин Муше, Фредерик Пьеро, Сулиан БрахимПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D77A9A8C3085AEEBBB6A9B1AB53298B53D3177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363870   (940471) от 29.02.2020
+
+Пушки Акимбо / Guns Akimbo (2019) WEB-DL [1080p] ATV [DVO]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майлз был обычным разработчиком видеоигр, пока его не втянули в кровавый квест. Незнакомцы вломились в дом, прибили к рукам два пистолета и похитили любимую девушку. Теперь Майлзу придётся сразиться с Никс — безжалостной чемпионкой подпольных игр на выживание.Производство: Великобритания, Германия, Новая Зеландия / Altitude Film Entertainment, Four Knights Film, Hyperion Media GroupЖанр: Боевик, комедияРежиссер: Джейсон Ли ХауденАктеры: Дэниэл Рэдклифф, Самара Уивинг, Риз Дэрби, Нед Деннехи, Наташа Лю Бордиццо, Марк Роули, Грант Боулер, Ханако Футман, Джош Роберт Томпсон, Сет СьострандПеревод: Любительский двухголосый (LakeFilms)Субтитры: Английские (SDH)
+Присутствует ненормативная лексика!Продолжительность: 01:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4751FD81C15BF7B5BB8E6AB2302C809ACFFF555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 283228   (940374) от 17.01.2011
+
+Убить по расписанию / Ticking Clock (2011) DVDRip [H.264 | iPod]
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Драма, Фантастика, ТриллерРежиссер: Эрни БарбарашАктеры: Кьюба Гудинг мл., Нил МакДонаф, Остин Абрамс, Янси Ариас, Даниэль Николет, Вероника Берри, Дэйн Родс, Анжелина Сордз, Моника Акоста, Никки ЭйкоксПеревод: Любительский (одноголосый закадровый) Вячеслав ПрошинФормат: MP4Продолжительность: 01:41:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984111   (940088) от 08.02.2016
+
+Five Finger Death Punch - The Wrong Side of Heaven and the Righteous Side of Hell, Vol. 1 (2013) Deluxe Edition [AAC|256 Kbps]<Hard Rock, Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lift Me Up (feat. Rob Halford)
+2. Watch You Bleed
+3. You
+4. Wrong Side of Heaven(   Читать дальше...   )Жанр: Groove Metal, Heavy Metal, Hard RockПродолжительность: 02:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEDF4B2EEBFF9EDB57114987075926AF16A98990
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,261 +1,29 @@
-###  Публикация: 527362   (577122) от 26.07.2012
+###  Публикация: 548059   (472426) от 16.09.2012
 
-Поликлиника - Профессор Мориарти (2012) [MP3|320 кб/с]<Speed Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577122.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:04] 01. Профессор Мориарти
-[04:51] 02. Викинги
-[04:46] 03. Священная Война
-[04:45] 04. Знаки
-[05:05] 05. Кровь Титанов
-[02:41] 06. С*ка (Cover в память Ж. А. Сагадеева)
-[04:06] 07. Щит и меч (Cover к ХХVлетию гр.Мастер)
-[03:14] 08. Жертвоприношение (Верс. G#m cover гр.Скорая Помощь)
-[05:04] 09. Профессор Мориарти (Gain mix KIVrec)Жанр: Speed Power MetalПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975404F099B97B9E5201FC82FFF17ED196361B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361535   (577124) от 10.07.2011
-
-Basement Jaxx Vs. Metropole Orkest - Basement Jaxx Vs. Metropole Orkest (2011) [MP3|224 kbps]<Electronic, Jazz, Funk, Classical, Instrumental>
+VA - Beach Trance 2012-01 (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577124.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Battlement Jaxx
-02. Red Alert
-03. Raindrops
-04. Mozart’s Tea Party
-05. Bingo Bango
-06. Hush Boy
-07. Where’s Your Head At
-08. Good Luck
-09. Drill Loops
-10. Lights Go Down(   Читать дальше...   )Жанр: Electronic, Jazz, Funk, Classical, InstrumentalПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5C9249FDDD2C52D9F99A8B38B24DC38F7410E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361330   (577126) от 10.07.2011
-
-Jes - Into The Dawn (The Hits Disconnected) (2008) [MP3|320 kbps]<Chillout, Downtempo, Vocal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Chillout, Downtempo, VocalПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF71DF04ABDA22BE530220F0D4F52A6A321F86A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 813632   (577129) от 24.07.2015
-
-Name Mangler 3.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Name Mangler — переименовываем файлы пачками
-Иногда возникает потребность переименовать группу файлов, например, некоторые распространенные ОС хотят быть ближе к нашей славянской душе и при экспорте из фотоаппарата называют фотографии «Изображение1″, «Изображение2″ и т.д. Изменять имена файлов по одному хлопотно и этот процесс может занять достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 июля 2015Разработчик: Many TricksПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAB0A3C3225201C9855AFF794A5F7FE1F0E4620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921035   (577135) от 24.07.2015
-
-Александр Маркьянов | Диверсия высочайшего уровня (2015) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577135.jpg" />
-</div>
-
-
-###  Подробнее
-
-С миссией особой важности в Киев нелегально отправляется офицер ГРУ. Разведчику высочайшего класса поставлена задача завербовать бывшего суперагента ГРУ по кличке Лазарь, а в случае, если тот откажется – уничтожить его. Разведчик прибывает в украинскую столицу и пытается выйти на Лазаря, но суперагент сам приходит в гостиницу к Разведчику. Он догадывается, для чего (   Читать дальше...   )Жанр: Боевик, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EAA391CD29D989DCFE339964FEF19DBC8866CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527513   (577140) от 26.07.2012
-
-Журнал | Диетика №8 (июль) [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577140.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Диетика» — издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.
-«Диетика» - ключик к твоей стройности.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72072D52870EA30D3186B7CB8CBB912814A063A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361616   (577143) от 10.07.2011
-
-Журнал | Tattoo Italy №25 [2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал о татуировках. Модные тенденции, стили и направления в развитии нательной живописи. Обзоры лучших рисунков.
-Журнал предназначен в качестве справочного материала о тату, для того чтобы помочь выбрать Ваш следующий шедевр!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C7C5420495C3E0E0E4A1627E3F5873A29BD073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527405   (577144) от 26.07.2012
-
-ZHAN - Record Club 883 (24-07-2012) [MP3|320 кб/с]<Electro House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depeche Mode vs Tujamo, Plastik Funk & Oliver Shulz - Personal Jesus (DJ Nejtrino & DJ Baur Mashup)
-02. Faithless vs Van Schield & Tujamo - Big Bad One (DJ Nejtrino & DJ Baur vs Relanium Mashup)
-03. The Original - I Love You Baby (Dj Oleg Petroff & Dj Cvet Remix)
-04. DJ Re-lay vs Tony Martinez & DJ Josepo - I Feel Your Kuss Mich (Tr-meet & Yuliana Mash-up)
-05. Lil Jon feat. LMFAO - Drink (Mike Candys Remix)
-06. Jack Holiday feat. Jasmin Paan & BigReggie - Back In Miami (Club Mix)
-07. Hardwell vs Gotye - Spaceman That I Used To Know (Mattias, G80's Mash-Up)
-08. SHM, Tiesto vs Purple Project - Antidote (DJ Baur vs DJ Nejtrino Mashup)
-09. Deep Purple, Dire Straits vs Niels Van Gogh - Smoke Money Beatrocker (DJ Nejtrino & DJ Baur Mashup)
-10. Fedde Le Grand vs Nirvana - Back Forth Spirit (Alex Gaudino & Jason Rooney Bootleg)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B445C407713F0ECC7081CBE168F9205E7CB140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361593   (577146) от 10.07.2011
-
-Т. Алешкин, О. Дивов и др. | Герои. Другая реальность [2008] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577146.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Золушка» в исторических реалиях 1786 года – во Франции назревает революция, но дочь лесничего очень хочет выйти замуж за принца де Рогана. Питер Блад, пиратствующий на Волге. Александр Сергеевич Пушкин, живущий в XXI веке, публикующийся в Интернете и в роли гостя участвующий в передаче Тины Канделаки… Все это – альтернативная классика, литературные вариации на тему произведений, знакомых с детства. Любимое развлечение писателя – размышлять о том, как развивался бы сюжет классических произведений, если бы принц Гамлет вовремя принял противоядие, а у Боромира в загашнике оказался тяжелый пулемет? На страницах антологии, представленной на суд читателя, в эту увлекательную игру играют Олег Дивов, Далия Трускиновская, Наталья Резанова, Виктор Точинов и другие отечественные мастера фантастики.
+VA - Beach Trance 2012-01 (2012)
 
-Следующий том здесь: Герои. Новая реальность (сборник) [2010]Формат: FB2
+Год: 2012
+Жанр: Trance
+Продолжительность: 01:42:10Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Matteo Sala - Believe Me - Luigi Gabriele Remix (6:23)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23B90DF9F5D2A8D8327294DABC1CF27E2AE82217
+magnet:?xt=urn:btih:727578AF68ED0EC4725DC1057F24F769502F68F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,139 +31,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 527472   (577148) от 26.07.2012
+###  Публикация: 547164   (472425) от 16.09.2012
 
-Журнал | Collezioni bambini №8 (август) [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последние тенденции мировой моды для детей и подростков, современные детские коллекции и тренды, детская косметика и причёски, обувь и элегантные аксессуары. Рекомендации для подбора ансамбля.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A477FA7500BB921D6C6A5CEB169D9E3869D3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921234   (577149) от 24.07.2015
-
-Google Chrome 44.0.2403.107 Stable (x86/x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – веб-браузер от Google с открытым исходным кодом, который сочетает поддержку новейших веб-приложений, удобный поиск с высокой скоростью и стабильностью. Из особенностей браузера разработчики особенно выделяют изолированные вкладки, предотвращающие сбой и ошибки работы программы, что обеспечивает более надежную защиту от опасных сайтов.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E649804BD0947DC58C6406873E48054D68647161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361293   (577151) от 10.07.2011
-
-PDF-XChange Pro v4.0196.197 Final + PDF-XChange Pro v4.0196.197 Portable [2011, ML\RUS,x86\x64]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577151.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF-XChange Pro - все, что Вам нужно для создания PDF-файлов практически из любой программы для Windows, которая умеет печатать документы. Форматирование и вид PDF-документа будут в точности соответствовать исходным. Вы также можете добавлять примечания, водяные знаки, использовать гибкие возможности по настройке и оптимизации, чтобы получить файл наименьшего, по сравнению с аналогичными программами, размера файла без какого-либо ущерба для качества. С программой поставляется утилита пакетного преобразования документов Word, Excel и форматов файлов, поддерживаемых IE, а также многих других (DOC, RTF, TXT, XLS, HTML).
-_______________Язык интерфейса: ML\RUS
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527504   (577154) от 26.07.2012
-
-Журнал | Кушать подано №7-8 (июль-август 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577154.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Кушать подано" – кулинарный журнал для женщин, которые регулярно готовят для своей семьи и при этом хотят, чтобы их меню было разнообразным, вкусным и лёгким в приготовлении.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE15D3A8ED4DD429866BDDC39EDA3DF315E2FEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527400   (577158) от 26.07.2012
-
-Matisse & Sadko - July 2012 Promo Mix (2012) [MP3|320 кб/с]<House, Progressive House>
+Acacia Avenue - Acacia Avenue (2010) [MP3|320 кб/с]<Melodic Hard Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577158.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Redlight - Lost In Your Love (Main Mix)
-02. Hot Mouth feat. Chris James - Totally Worth It (Original Mix)
-03. Dada Life - Kick Out The Epic Motherfucker (Otto Knows Remix)
-04. Rob Marmot & My Digital Enemy - African Drop (Tom Staar Remix)
-05. Hard Rock Sofa & Swanky Tunes - Here We Go (Original Mix)
-06. Duher - Millenium (Original Mix)
-07. Fedde Le Grand & Nicky Romero - Sparks (Instrumental Mix)
-08. Let The Music Play feat. UTRB - Don't Weigh Me Down (John Dahlback Remix)
-09. Albin Myers - The Beast (Original Mix)
-10. Shinedown - Unity (Matisse & Sadko Instrumental)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 56:28
+01.  Don’t Call Me Tonight (4:12)
+02.  Hold On (4:47)
+03.  An Illusion (4:10)
+04.  Jamie’s In Love (4:18)
+05.  Can’t Make You Stay (4:23)
+06.  Mad Antenna (4:00)
+07.  Wait No More (5:13)
+08.  No Looking Back (5:00)
+09.  Just Wanna Be With You (4:23)
+10.  Let Go (4:29)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:087E4D56BE9CB25A768CA33B3D9683B672D7485E
+magnet:?xt=urn:btih:6CDDB6CAE4F8E08DF35D168FDEB264CCDB225313
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,15 +66,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 360872   (577159) от 10.07.2011
+###  Публикация: 547730   (472423) от 16.09.2012
 
-[Wallpapers] Minimalism Wallpapers (09.07.11)
+HQ Wallpapers Perfect Women (15.09.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577159.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5466138256FD81C25F8018F5A003C8D8247183DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547736   (472417) от 16.09.2012
+
+Nature Wallpapers (16.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472417.jpg" />
 </div>
 
 
@@ -421,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C9EA8F4D69065F60C478D54F7930385194A4CE6
+magnet:?xt=urn:btih:400850D40B4E0D744F0352521E2B1669C6996272
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,21 +118,91 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 360549   (577162) от 10.07.2011
+###  Публикация: 548082   (472415) от 16.09.2012
 
-Гигантик / Gigantic (2008) [1080p] BDRemux
+VA - Vocal Trance Volume 44 (2012) [MP3|320 кб/с]<Vocal Trance>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577162.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-28-летний продавец матрасов Брайан, мечтает усыновить ребенка из Китая. Однажды в магазин, где он работает, случайно заходит девушка и засыпает на выставочной кровати. Когда она проснётся, жизнь Брайана навсегда изменится.Жанр: Мелодрама, КомедияРежиссер: Мэтт АселтонАктеры: Пол Дано, Зои Дешанель, Эдвард Эснер, Джейн Александр, Джон Гудмен, Шон Дуган, Брайан Аверс, Луис Одзава Чангчьен, Зак ГалифианакисПеревод: Многоголосый закадровыйПродолжительность: 01:38:06
+001. Betsie Larkin & Sied Van Riel - The Offering (Extended Mix)
+002. EDX & Nadia Ali - This Is Your Life (Original Club Mix)
+003. Estiva & Tania Zygar - Death Of Me
+004. Omnia & IRA - The Fusion (Original Mix)
+005. Rake feat. Natalie Griffiths - Expectation (Original Mix)
+006. Activa feat. Cat Martin - My Way Out (Original Mix)
+007. Armin Van Buuren feat. Ana Criado - Suddenly Summer (Original Mix)
+008. Mark Sixma feat. Amba Sheperd - Cupid`s Casualty (Mike Saint Jules Remix)
+009. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)
+010. Alexander Popov - When The Sun (Eximinds Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DEE34D347FA59E3374C7AEA7E1BCB9E029CA030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547553   (472411) от 16.09.2012
+
+Joanna Syze - Rodina (2011) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472411.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rodina (with Zardonic) 07:13
+2. Left In Dust (with Tyhh) 04:37
+3. Mandala (with Protech) 04:00
+4. Love Surreal (with SPKTRM) 06:07
+5. Soul Is Mine (with Zardonic & Dextems) 06:01
+6. Magia (with Triangular Ascension) 03:30
+7. Battleground (with Tyhh) 04:48
+8. Never Enough (with SPL) 04:15
+9. Abducted (with Cooh & Zardonic) 06:40
+10. Let It Be (with The Sect) 05:38(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 01:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D608AC828D3B96B31CA76915F34A170BE635E791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 141668   (472407) от 20.09.2009
+
+VA - Bigsur Life Formentera Vol 3 (2009) [MP3|192-256 kbps]<Chillout, Ambient, New Age, Latin, Other>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Chillout, Ambient, New Age, Latin, OtherПродолжительность: 02:28:06
 
 ## Скачать торент
 ```bash
@@ -455,25 +214,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 527477   (577163) от 26.07.2012
+###  Публикация: 1406797   (472396) от 04.09.2020
 
-Журнал | Твоё здоровье №8 (август) [2012] [PDF]
+Psiphon 3 build 157 DC 04.09.2020 Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577163.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Твое здоровье» - это актуальные советы и рекомендации специалистов по здоровому образу жизни, воспитанию детей, косметологии, правильному питанию, а также реальные истории исцеления людей, диеты, кулинарные рецепты, упражнения для поддержания идеальной формы, конкурсы и подарки. С незапамятных времен мечтают люди о возможности сохранения молодости. Что остается человеку, когда проходит молодость? Стареть и умирать? Нет, продление жизни занимает ныне умы ученых, а продолжительность жизни человека в современных условиях становится важнейшей заботой общества. Удели себе внимание!Формат: PDF
+Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры.
+Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DF64CC3DE5A3F20B21E6056FFFADD35BEFB7445
+magnet:?xt=urn:btih:0E4ECEE3609369CEF3982CFD495B154B83F82766
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,26 +241,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 361353   (577166) от 10.07.2011
+###  Публикация: 1406630   (472391) от 04.09.2020
 
-Спасатели во времени / Minutemen (2008) DVDRip
+UltraISO Premium Edition 9.7.5.3716 [DC 04.09.2020] RePack (& Portable) by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577166.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приключения трёх "ботанов", изобревших машину времени. Очень умные, но трудные в общении со сверстниками, трое друзей каждый раз отправлялись в прошлое и немного подстраивали его под себя. Но, даже каждый младенец знает, что прошлое менять нельзя, а то в будущем произойдёт катастрофа вселенского масштаба.
-Каждый раз изменяя прошлое по чуть-чуть, ребята в душе надеялись, что им повезёт и катастрофы не будет, но правила, писанные фантастами, никто еще не отменял, назревает катастрофа и надо вернуться последний раз и вернуть всё на свои места...Жанр: Фантастика, Комедия, СемейныйРежиссер: Лев Л. СпироАктеры: Джейсон Долли, Люк Бенвард, Николас Браун, Челси Стауб, Стивен Р. МакКуин, Кара Крэн, Декстер Дарден, Жан-Поль МаноПеревод: ДублированныйПродолжительность: 01:31:41
+UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79EC78D0EC83606FFBAD2862C737905C646F4644
+magnet:?xt=urn:btih:3046DA79654B0899B6B76DA9F14CFC44804EF348
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,25 +267,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 527585   (577185) от 26.07.2012
+###  Публикация: 1567528   (472387) от 03.08.2022
 
-Журнал | Кушать подано №2 [2012] [PDF]
+WidsMob HDR 3.17 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577185.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бернард Шоу писал, что "нет любви более искренней, чем любовь к еде". Так что в феврале ко Дню святого Валентина и празднику Масленицы порадуйте любимых блюдами из нового выпуска журнала "Кушать подано!" - простыми, оригинальными и романтичными одновременно. Уверены, они никого не оставят равнодушным! (рецепт с обложки на стр. 49).Формат: PDF
+Простой и продвинутый фоторедактор HDR. Воссоздать высокий динамический диапазон.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2022Разработчик: © WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CC91A9E07144FC9D208A3F50F478158D826AD52
+magnet:?xt=urn:btih:A59CF772589D5A48F5696D0BD321D26C217F9BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,25 +293,186 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 526721   (577187) от 26.07.2012
+###  Публикация: 1057559   (472385) от 29.09.2016
 
-[Wallpaper] Desktop Woman wallpaper
+The Long Dark  (2014) [Ru/Multi] (365) Repack Ученик_77
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое The Long Dark? The Long Dark - это исследовательская игра-симулятор выживания, в которой игроки-одиночки должны позаботиться о себе в ходе изучения обширных морозных необитаемых территорий. Здесь нет зомби - только вы, холод и все, что вам может предложить мать-природа.Тип издания: RepackРазработчик: Hinterland Studio Inc.Жанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Pусский, Английский и другиеЯзык интерфейса: Pусский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DB416DDAD56AF1916EE81DCCE98D029AE60720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567492   (472384) от 03.08.2022
+
+Athentech Perfectly Clear WorkBench for Mac 4 v4.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.08.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB869E63AB2113816B378277327453B7C8FAF74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406762   (472376) от 04.09.2020
+
+NetLimiter Pro 4.0.68.0 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472376.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185DC4C3D8D5928395C1FABC83F12B57BBEBAC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567526   (472367) от 03.08.2022
+
+Permute 3 v3.9.7 U2B[Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2022Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0F5EE2634C4E2A01BFE62170C8CCBF7F9DB517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567570   (472347) от 03.08.2022
+
+Allavsoft Video Downloader Converter 3.24.9.8248 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2022Разработчик: © 2022 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C35E2B5E570A9F248FDAA07C93AF97E7A2CAC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057753   (472335) от 29.09.2016
+
+Axialis IconWorkshop Professional 6.9.1.0 Portable by PortableAppZ [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Axialis IconWorkshop - мощная программа для создания высококачественных профессиональных иконок, а также для их редактирования. Основана на многооконном интерфейсе, что даёт возможность одновременно редактировать сразу несколько иконок. Среди нестандартных инструментов редактора, нужно отметить градиентные заливки и 3D эффекты. При редактировании иконки можно пользоваться (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD96277A874C33EE37103DD626619590C49D26E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386617   (472311) от 11.09.2011
+
+Sexy Girls v.4
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577187.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник картинок с самыми красивыми девушками.
+[Wallpapers] Sexy Girls v.4
+Название: Sexy Girls v.4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8566C5544A90C8AB61CAF856936AACDC443DB7B
+magnet:?xt=urn:btih:8F1F389795FB7C0278E3F2B1D109F9B8ADC4DB34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,95 +480,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 527136   (577188) от 26.07.2012
+###  Публикация: 386688   (472309) от 11.09.2011
 
-DJ Kocmoc - Electro Sensation vol.31 (3.07.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. David Guetta feat. Taio Cruz - Little Bad Girl (Mike Candys Bootleg Mix)
- 2. Anna Lesko feat. Gilberto - Go Crazy (Extended Mix)
- 3. E-Bonit - Stop This Feeling (Jackie & Jones Remix)
- 4. Refined Brothers feat. Stephan Endemann - Club Kings (Fresh Blast Dj's Remix)
- 5. Tha Groove Junkeez - Keep On (Main Mix)
- 6. New Fresh feat. Alla - Love In Your Eyes (Stephan F Remix)
- 7. Klaas - Wild Beast (Original Mix)
- 8. Mirko B feat. Elena Capatina - Starlight (Original Mix)
- 9. Serge Devant - Sweet Harmony (Mike Candys Mix)
- 10. Olly Murs - Heart Skips A Beat (Mike Candys Bootleg Rework)Жанр: Electro House, Electro ProgressiveПродолжительность: 01:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178284048DEBABFD11AD7CF01EB4785845810EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526342   (577191) от 26.07.2012
-
-Eyefear - A World Full Of Grey (2007) [MP3|192 кб/с]<Progressive/Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Searching For Forgiveness
-2	A World Full Of Grey
-3	Changes
-4	Lost Within
-5	Moments
-6	The Eyes Tell No Lies
-7	Whispers Of The Soul
-8	Haunted Memories
-9	Breathe Again
-10	Searching For ForgivenessЖанр: Progressive/Power MetalПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DDEA502651FA9F8CED717562089D620CE73C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360691   (577195) от 10.07.2011
-
-[Wallpapers] Авто обои №3
+Sexy Girls v.6
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577195.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка авто обоев для вашего рабочего стола.
+[Wallpapers] Sexy Girls v.6
+Название: Sexy Girls v.6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66173F68F73B36B2D752210D0DE5F4CD9EE9BC94
+magnet:?xt=urn:btih:4F89EB1E8CB1AD8D1D9FAEF9B2FA7851FDF4F27A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,51 +510,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 361090   (577198) от 10.07.2011
+###  Публикация: 547732   (472291) от 16.09.2012
 
-Unholy - 4 альбома (1993-1999) [FLAC|Lossless]<Avantgarde Doom /Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577198.jpg" />
-</div>
-
-
-###  Подробнее
-
-1993-1999Жанр: Avantgarde Doom /Death MetalПродолжительность: 04:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7F61B85143EFEF4BCDA41BA8B3E3137A34BD2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361604   (577199) от 10.07.2011
-
-Журнал | Inked №1-7 [2011] [PDF]
+Журнал | Apple №46 [14 сентября 2012] [PDF] [En]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577199.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Inked - журнал о поп-культуре и музыке для людей имеющих татуировки. Татуировка это искусство на их телах. Знаменитости, такие как Angelina Jolie, Brad Pitt, Pink, Cary Hart, Ashlee Simpson, Marc Jacobs, Lily Allen, Rhianna, Ed Hardy, Christian Audigier, Britney Spears, Christina Agularia, Lindsey Lohan, Samantha Ronson, John Mayer имеют татуировки. Тату и татуировки как искусство является частью поп-культуры и татуировки всё более отображаются на каждой части тела, нижней части спины, руках, груди, ногах и в других местах. Татуировка как искусство показывает красивые рисунки птиц, рыб, бабочек, собак, кошек, черепа, дьявола, авторские работы, сделанные в каллиграфии и много различных стилей: кандзи, Old School традиционных, племенных.Формат: PDF
+Издание, посвященное электронике Apple. В каждом номере представлен обзор технических и программных новинок для этих устройств. В этом номере: топ платных и бесплатных приложений, новинки iTunes-контента.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DC630B8A72033129EE145F0E2C4AE36EBF07C8F
+magnet:?xt=urn:btih:D3124D0B22D2C203CF6799C50550E46C38E9AD90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,25 +536,204 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 361235   (577201) от 10.07.2011
+###  Публикация: 547080   (472289) от 16.09.2012
 
-National Geographic: Зона строительства (сезон 2, серии 1-11 из 11) / Construction Zone (2010) TVRip
+Infuzoria - Discography  (2002-2011) [MP3|~160-320 кб/с]<Drum & Bass, Trip-Hop, Electronic>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577201.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот сериал рассказывает о строительстве и эксплуатации крупных, сложных сооружений по всему миру - крупнейшие мосты, автобаны в Германии, туннель под Ла-Маншем, плотины - и многое другое. Вы узнаете секреты этих сооружений и познакомитесь с процессом строительства.Жанр: ДокументальныйПродолжительность: 11 x ~00:23:00
+01. Drawing [05:41]
+02. Clothes [06:08]
+03. Friends [06:02]
+04. Attention To Me [05:53]
+05. Deep Soul [09:16]Жанр: Drum & Bass, Trip-Hop, ElectronicПродолжительность: 06:14:27
+
+01. [06:35] . Infuzoria - Aka Free World
+02. [05:11] . Infuzoria - Alone
+03. [05:38] . Infuzoria - Auroral Storm (M_Spark Remix)
+04. [08:17] . Infuzoria - Autumn Valley
+05. [06:32] . Infuzoria - Awake
+06. [06:25] . Infuzoria - Choice
+07. [06:04] . Infuzoria - City Of Lights
+08. [05:25] . Infuzoria - Deep Calling(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B74D6C7320CCBE66EDAFCAFA5C0392AEC4A708D
+magnet:?xt=urn:btih:B1232E243DB95203E892BEE9857D381E6CEA79CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547778   (472286) от 16.09.2012
+
+Журнал | Атлас. Целый мир в твоих руках №134 [август 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472286.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Атлас. Целый мир в твоих руках» - коллекция издательства «Де Агостини», представляющая собой иллюстрированный энциклопедический путеводитель для всех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать больше о нашей планете и ее тайнах. С Атласом вы отправитесь в завораживающее кругосветное путешествие.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF92F99DB2B1BD0E5B4735AE3161803E9B46601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547849   (472285) от 16.09.2012
+
+Журнал | Атлас. Целый мир в твоих руках №135 (сентябрь 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной, сто тридцать пятый номер иллюстрированного энциклопедического путеводителя для всех, кто хочет познакомиться с красотами и тайнами нашей планеты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB1CA447A7E99B811CC8E6C6D75D0A853503E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548194   (472284) от 16.09.2012
+
+N&SK - Le Tour de piste (2005) [FLAC|Lossless]<Punk, Ska, Alternative, Indie Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной этно-ска-панк-проект, родом из Франции, в их музыке можно услышать всё - от французского шансона, до американского панка, от ямайского регги, до кубинской румбы, от африканских ритмов, до народных арабских песен. Очень похоже на лучшие пластинки и концерты Les Negresses Vertes и La Mano Negra. Эти ребята еще не столько имениты, но в плане энергетики концертов и в умении сочетать латиноамериканские ритмов, французский язык, агитацию против буржуазии и дух панка - дадут прикурить многим "старикам".01. Ekeur :: 04:51
+02. Ailleurs :: 03:03
+03. La Javatriste :: 04:56
+04. Bankal :: 03:22
+05. Peu importe :: 04:38
+06. Origine incontrolee :: 02:33
+07. Souviens toi :: 03:38
+08. Les c.urs balancent :: 03:32
+09. Grand Manitou :: 04:23
+10. Pere Noel :: 06:15(   Читать дальше...   )Жанр: Punk, Ska, Alternative, Indie RockФормат: CD, AlbumПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547686   (472283) от 16.09.2012
+
+Анджей Пшипковский, Збигнев Сафьян | Одержимые. Ничейная земля [1991] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник современного политического детектива вошли произведения известных польских писателей.
+В романеЖанр: Политический детективФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD76A7665E838EF7E6631AA1250BBD3274FB16E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547734   (472282) от 16.09.2012
+
+Computer Desktop Wallpapers Collection (16.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D2288035FB27351A511489034936C80E99931E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547735   (472281) от 16.09.2012
+
+Best HD Wallpapers Pack (16.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D52E161F1CF1BCC625D005AAC2443C8A0C55EA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

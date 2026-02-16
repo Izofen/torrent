@@ -1,25 +1,25 @@
-###  Публикация: 1216176   (752936) от 29.03.2018
+###  Публикация: 957720   (326708) от 18.11.2015
 
-The Dead Daisies - Burn It Down (2018) [MP3|320 Kbps] <Hard Rock>
+The Warrior Kings - The Warrior Kings (2012) [MP3|320 кб/с]<Blues rock, Hard rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752936.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Resurrected (4:35)
- 2. Rise Up (4:31)
- 3. Burn It Down (5:49)
- 4. Judgement Day (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:52
+01. Love Supernatural (4:47)
+02. Robert Johnson's Revolver (3:39)
+03. Machine Gun (10:20)
+04.Жанр: Blues rock, Hard rockПродолжительность: 00:47:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89E01609835EF3C2202C934A8814C46D325E130B
+magnet:?xt=urn:btih:3CCDAD96E5E92319C2ED84F79F97E83F76CA51E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395682   (753820) от 11.07.2020
+###  Публикация: 1420910   (323699) от 02.11.2020
 
-Ten Foot Wizard - Get Out of Your Mind (2020) [MP3|320 Kbps] <Hard Rock, Stoner Metal/Rock>
+AC/DC - POWER UP (2020) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753820.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Namaste Dickhead (03:53)
- 02. Broken Man (05:34)
- 03. Noble Lie (05:08)
- 04. Summer Love (04:05)(   Читать дальше...   )Жанр: Hard Rock, Stoner Metal/RockПродолжительность: 00:42:35
+01. Realize
+02. Rejection
+03. Shot In The Dark
+04. Through The Mists Of Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF30BFE213C9CBAA7F1D26955808B8D1FFB28E0C
+magnet:?xt=urn:btih:CB6756E7680E473F8B79DC8AB60D3F3978177B19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018936   (753952) от 21.05.2016
+###  Публикация: 1582285   (323482) от 09.10.2022
 
-Punky Meadows - Fallen Angel (2016) [MP3|320 кб/с] <Hard Rock>
+Trishula - 3 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753952.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Descent (1:04)
-02. The Price You Pay (3:49)
-03. Straight Shooter (4:03)
-04. Breathless and Jaded (2:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:00
+01. I'm Not Falling [00:05:14]
+02. Caught in the Middle [00:03:56]
+03. Nice and Dirty [00:04:14]
+04. Why Should I Apologise [00:04:20](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EE165A480EA312DCE4ABF6F94A23B065FF22A36
+magnet:?xt=urn:btih:623882C53039E70B6B9292FEAA9E76B960FAA4A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395071   (758848) от 08.07.2020
+###  Публикация: 582114   (322350) от 28.11.2012
 
-5th Machine - Back In Time (2020) [MP3|320 Kbps] <Hard Rock>
+Nazareth - The Singles(2CD) (2012) [MP3|320 кб/с]<Hard Rock, Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758848.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 5th Machine [4:50]
- 2. The Wind [4:56]
- 3. The Song of a Beggar [4:51]
- 4. Mirrors and Bones [5:49](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:51
+01. Star [0:04:53.63]
+02. Holiday [0:03:37.14]
+03. Heart's Grown Cold (Live) [0:03:57.35]
+04. Dressed To Kill [0:03:31.73]
+05. Morning Dew (New Version) [0:03:57.07]
+06. Love Leads To Madness [0:04:04.04]
+07. Games [0:04:46.29]
+08. Dream On [0:03:26.14]
+09. Where Are You Now? [0:03:55.15]
+10. Ruby Tuesday [0:03:27.31](   Читать дальше...   )Жанр: Hard Rock, RockПродолжительность: 01:09:32 + 01:13:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B37EE4BCB5DBE05B128EE94BDF99E75A98F8C4F
+magnet:?xt=urn:btih:6E16D060C0A70CE6803693E8A52EBBC8482C563A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +120,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280254   (761876) от 02.02.2019
+###  Публикация: 1075551   (321161) от 22.11.2016
 
-Razzmattazz - Hallelujah (2019) [MP3|320 Kbps] <Hard Rock>
+Striker - Striker (1978) Reissue, 2014, Hard Rock Diamonds [MP3|320 Kbps] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761876.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Gun For Hire 03:58
-02. Crazy For Rock And Roll 03:49
-03. Backdoor Man 03:12
-04. Lawbreaker 03:35(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:30
+1. Think About It
+2. Midnight Flyer
+3. Wish
+4. More Than Enough(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:37:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A448DB6E7329F89D6C12F78D8AB505373568D94C
+magnet:?xt=urn:btih:683C572FF67FEAE5FD1CD73D6BA77022D961AE35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,27 +149,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 886689   (762430) от 10.04.2015
+###  Публикация: 1421307   (319540) от 04.11.2020
 
-Van Halen - 12 альбомов (1978-2012) [MP3|320 кб/с]<Classic Rock & Hard Rock>
+Bon Jovi & Queen - FM Broadcast (2020) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762430.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Van Halen — американская хард-рок-группа. В 1972 году в городе Пасадена, штат Калифорния братьями Эдвардом и Алексом Ван Хален была образована рок-группа под названием «Mammoth». В 1973 году к ней присоединился вокалист Дэвид Ли Рот, а в 1974 году басист Майкл Энтони. В том же 1974 году коллектив получил своё нынешнее название Van Halen.
+01. Bon Jovi - Bed Of Roses (Live)
+02. Bon Jovi - Blaze Of Glory (Live)
+03. Bon Jovi - Lay Your Hands On Me (Live)
+04. Bon Jovi - I Don't Like Mondays (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7536AD39A45EB092E6E61DF65D279F3B4DA94BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182207   (319202) от 09.11.2017
+
+Shakra - Snakes & Ladders (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassandra's Curse
+02. Friday Nightmare
+03. Snakes & Ladders
+04. Something You Don't Understand(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A291B77782D4B87DADE7951AA8ABE96455700C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331357   (318490) от 18.10.2019
+
+Lionsheart - Heart of the Lion (2019) 5CD Box Set [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lionsheart:
 
-Эдвард Ван Хален был признан (   Читать дальше...   )Жанр: Classic Rock & Hard RockПродолжительность: 08:53:29
+01. Had Enough
+02. World of Pain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 04:47:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3ED383FD7D226C85265DBCDFE5C5DA275E90B23B
+magnet:?xt=urn:btih:2C0385FC89A004A91E967818D36636A2CB2B0FFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,57 +236,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 886637   (762568) от 10.04.2015
+###  Публикация: 844355   (317785) от 25.11.2014
 
-Bad English - Greatest Hits (2003) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Stood Still (5:25)
-02. Straight To Your Heart (4:09)
-03. When I See You Smile (4:20)
-04. So This Is Eden (5:08)(   Читать дальше...   )Производство: Sony Music Media – 4805435Жанр: Melodic Hard RockПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E912D1E7FABE785D9D04855479D911CD16D8ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214383   (764814) от 21.03.2018
-
-Alice Cooper - The Essential Alice Cooper: The Epic Years (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+AC/DC - Rock Or Bust (2014) [MP3|320 кб/с]<Hard Rock>
 
 >>След.
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764814.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Роisоn
-02. Веd оf Nаils
-03. Неу Stоорid
-04. Ноusе оf Firе(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 02:26:24
+01.	Rock Or Bust
+02.	Play Ball
+03.	Rock The Blues Away
+04.	Miss Adventure(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0534C289CDB0ED3322E56EE971D4ADDD98749631
+magnet:?xt=urn:btih:72357A6606A9EAAC80617AFD678C9C78F1BDA229
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,28 +265,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278832   (767744) от 27.01.2019
+###  Публикация: 1421533   (317569) от 05.11.2020
 
-Eugene Carnan - Eugene Carnan (1972) Reissue, 2011, Shadoks Music [MP3|320 Kbps] <Heavy Psychedelic, Hard Rock>
+Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767744.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Confusion
-2. I Found Out
-3. People In the City
-4. Black As Night(   Читать дальше...   )Жанр: Heavy Psychedelic, Hard RockПродолжительность: 00:30:06
+01. Someone To Love (03:33)
+ 02. Mystified (03:21)
+ 03. Love's Blind (04:14)
+ 04. Without You (04:19)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8AB65A599690C44F2B94968D78B0F359246916E
+magnet:?xt=urn:btih:08CD7A6348C878E715137BFBE4B7298FF4386215
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +294,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392174   (769382) от 25.06.2020
+###  Публикация: 1421677   (317412) от 05.11.2020
 
-Diana Drive - Diana Drive (2020) [MP3|320 Kbps] <Hard Rock>
+Whitesnake - Love Songs (2020) 2020 Remix [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769382.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Amazing Wonder (02:50)
- 02. Hesitate (03:56)
- 03. Part of a Particle (03:38)
- 04. Mind's Eye (04:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:47
+01. Love Will Set You Free (2020 Remix) (04:08)
+ 02. The Deeper The Love (2020 Remix) (04:02)
+ 03. All I Want, All I Need (2020 Remix) (05:42)
+ 04. Too Many Tears (2020 Remix) (06:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B9F2161D08E36DFD9DA9AC4BF0F37A669C9D929
+magnet:?xt=urn:btih:4788B012ED44636393B9EB3F06904998C77BB626
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +323,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016676   (769557) от 15.05.2016
+###  Публикация: 1076312   (314041) от 25.11.2016
 
-Phantom 5 - Phantom 5 (2016) [MP3|320 кб/с] <Melodic Hard Rock>
+Incround - Down on Your Knees (2016) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769557.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314041.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. All The Way
-02. Blue Dog
-03. Someday
-04. Don't Touch The Night(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:15
+01. I'll Take Care Of You (03:13)
+02. Leave Me Alone (03:52)
+03. Down On Your Knees (03:26)
+04. Follow Me (04:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6666D7366388EE36213542B6842065A0207BB3F8
+magnet:?xt=urn:btih:F5B4E0248FA58F07078FF12C1454AD66C0D56BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +352,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016481   (770291) от 14.05.2016
+###  Публикация: 1332006   (314037) от 20.10.2019
 
-Vega - Who We Are (2016) [MP3|320 кб/с] <Hard Rock>
+JD Miller - Afterglow (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770291.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Explode (3:21)
-02. We Got It All (4:01)
-03. Every Little Monster (3:27)
-04. Nothing Is Forever (4:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:04
+1 - Inside a Dream (4:41)
+ 2 - Game Of Love (4:49)
+ 3 - Inception (4:26)
+ 4 - Icarus (3:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9201467221339DA54D4DCCEC24CB9C32F6CF11C8
+magnet:?xt=urn:btih:2FC71C4C441FBA03A75D300896D208E0D8E8F5B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +381,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 964611   (772824) от 24.01.2019
+###  Публикация: 1332387   (314013) от 20.10.2019
 
-Rival Sons - 6 Albums, 1 EP, 1 Compilation, 1 Live (2009-2019) [MP3|320 кб/с]<Hard Rock, Blues Rock, Rock and Roll>
+Dream Company - The Wildest Season (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772824.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2009 - Before The Fire
-2011 - Prime Cuts (EP)
-2011 - Pressure & Time (Redux Edition 2012)
-2012 - Head Down(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Rock and RollПродолжительность: 07:00:00
+1 - Days in Blue[3:39]
+ 2 - Mine Mine Mine[3:42]
+ 3 - Scared to Be Loved[3:59]
+ 4 - Salvation[3:54](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6399B36A7FF75264AB7359FD7D651F4B9E097DAF
+magnet:?xt=urn:btih:F7A4322B53FA75EEAD95ECB02CDEFFBBD2D4E836
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +410,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212954   (773093) от 15.03.2018
+###  Публикация: 1332186   (313999) от 20.10.2019
 
-Steelheart - Through Worlds of Stardust (2017) [MP3|320 Kbps] <Hard Rock>
+Danger Zone - Don't Count on Heroes (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773093.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Stream Line Savings (3:56)
- 2. My Dirty Girl (4:20)
- 3. Come Inside (3:40)
- 4. My Word (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:52
+1 - Demon or Saint[4:56]
+ 2 - Faster Than Love[4:40]
+ 3 - Somewhere out of Time[4:17]
+ 4 - Destiny[4:12](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39400CF5913EA7583CFB1B6D166BB3A1382DCCCD
+magnet:?xt=urn:btih:9017CEAEE38F40A7E7B84583392D127ED61FE9FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +439,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391552   (773249) от 21.06.2020
+###  Публикация: 960120   (309953) от 27.11.2015
 
-Tense Machine - Echoes (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
+Aerosmith - Collections (2007) [MP3|~225 кб/с (V1)]<Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773249.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Freak Like Me (03:18)
- 02. Best Mistake (03:06)
- 03. I Won't Throw It Away (03:10)
- 04. Bottom of the Bottle (03:14)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:39:44
+01. Rats In The Cellar (04:06)
+02. Lick And A Promise (03:05)
+03. Chip Away The Stone (04:01)
+04. No Surprize (04:27)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:53:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB46AE7B00470CDB9ACE5053BF8DEC192DE7CA1F
+magnet:?xt=urn:btih:A4B10E74F87CDCA82A18B51480CDDF2214061D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +468,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125096   (773394) от 13.04.2017
+###  Публикация: 1077119   (308722) от 27.11.2016
 
-American Dog - Poison Smile (2012) [MP3|320 Kbps] <Hard Rock>
+Black Sabbath - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773394.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Devil Dog  (02:52) 
-02. Just Like Charlie Sheen  (02:54) 
-03. Old Dog New Tricks  (04:29) 
-04. The Real Nitty Gritty  (04:56) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:17
+01. I Won't Cry For You
+02. Solitude
+03. Children Of The Sea
+04. Born Again(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29C5916074E48D3BB3DA6B42FC12D867D1737E10
+magnet:?xt=urn:btih:90F67873EC5F55FEBC0C80E7C3939B8D82F3A22A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +497,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212920   (774290) от 14.03.2018
+###  Публикация: 1422491   (308342) от 09.11.2020
 
-The Lost - The Lost (1991) [MP3|320 Kbps] <Hard Rock>
+Black Stone Cherry - The Human Condition (2020) [MP3|320 Kbps] <Hard Rock, Southern Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774290.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Mindblower
-2. Bijou Dreams
-3. For What It's Worth
-4. Dance With Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:49
+01. Ringin' In My Head (04:13)
+02. Again (03:56)
+03. Push Down & Turn (03:17)
+04. When Angels Learn To Fly (04:33)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:46:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F657C852B97C0D9E1AC2CE22DF5D573C58DF1F0
+magnet:?xt=urn:btih:877324532B6E544B27269856FB4A759D27141E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +526,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212964   (774400) от 14.03.2018
+###  Публикация: 960430   (307971) от 28.11.2015
 
-FM - Atomic Generation (2018) [MP3|320 Kbps] <Hard Rock>
+Juicy Lucy - Do That And You'll Lose It (2006) [MP3|320 кб/с]<Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774400.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Black Magic (4:30)
- 2. Too Much Of A Good Thing (4:10)
- 3. Killed By Love (4:40)
- 4. In It For The Money (4:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:58
+01. Silver Bird
+02. Making A Name
+03. Forty Days
+04. Species(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:10:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9509D23C7837677553FFF1902C23266635915AB
+magnet:?xt=urn:btih:F6A120EF63A18855E31D9911A1C316C05E29B91A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +555,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014566   (776187) от 08.05.2016
+###  Публикация: 960432   (307888) от 28.11.2015
 
-Bliss - Bliss (1969) Reissue, 2007, Tone Arm [MP3|320 кб/с] <Psych Hard Rock>
+Jet - Get Born (2003) [MP3|320 кб/с]<Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776187.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ride The Ship Of Fools
-2. Cry For Love
-3. Gangster Of Love
-4. I Want To Be Free(   Читать дальше...   )Жанр: Psych Hard RockПродолжительность: 00:28:36
+01. Last Chance
+02. Are You Gonna Be My Girl
+03. Rollover D.J.
+04. Look What You've Done(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72525C52168696C36430C4459E9C02C9B5C515B1
+magnet:?xt=urn:btih:767C95A9D1C7F9E7E9A549E7F0E10D69B80C50F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +584,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014194   (776918) от 06.05.2016
+###  Публикация: 1260870   (307621) от 09.11.2018
 
-Rich Robinson - Paper (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock>
+Turbowolf - The Free Life (2018) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776918.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Know Me
-02. Enemy
-03. Stand Up
-04. Leave It Alone(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:16:51
+01. No No No
+02. Capital X
+03. Cheap Magic
+04. Very Bad(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:41:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93DBA33498DC336537B77C7D220F4BE7DC01F3F6
+magnet:?xt=urn:btih:D5CDBB4A4DAF36763D8405DDE3B3DB14E6F459EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +613,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013917   (776935) от 06.05.2016
+###  Публикация: 584342   (307060) от 04.12.2012
 
-Blackwater Park - Dirt Box (1971) Remastered, 2015, Long Hair [MP3|320 кб/с] <Hard Rock>
+Rainbow - Best Ballads (1998) [MP3|320 кб/с]<HardRock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776935.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Mental Block
-2. Roundabout
-3. One's Life
-4. Indian Summer(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:49
+01. Catch The Rainbow 1975 [06:31]
+02. Rainbow Eyes 1987 [07:11]
+03. Snowman 1983 [04:32]
+04. Love's No Friend 1979 [04:51]
+05. The Temple Of The King 1975 [04:41]
+06. Midtown Tunel Vision 1981 [04:31]
+07. Anybody There 1983 [02:38]
+08. Self Portrait 1975 [03:12]
+09. Ariel 1995 [05:39]
+10. Maybe Next Time 1981 [03:16](   Читать дальше...   )Жанр: HardRockПродолжительность: 01:11:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17DEFB3A0E5F04B1E76C7A3B1C4ECC8BA2FB7A76
+magnet:?xt=urn:btih:AC8C54C8253C1C202FCA1879498A1C19F6C0FA4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +648,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209915   (779109) от 28.02.2018
+###  Публикация: 1077457   (306569) от 28.11.2016
 
-Michael Schenker Fest - Resurrection (2018) [MP3|320 Kbps] <Hard Rock>
+Vanilla Fudge - Out Through The In Door Tribute To Led Zeppelin (2016) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779109.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heart and Soul (feat. Robin McAuley & Kirk Hammett) (4:20)
-02. Warrior (feat. Gary Barden, Graham Bonnet, Robin McAuley & Doogie White) (5:21)
-03. Take Me to the Church (feat. Doogie White) (4:46)
-04. Night Moods (feat. Graham Bonnet) (4:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:16
+01. Immigrant Song
+02. Ramble On
+03. Trampled Underfoot
+04. Dazed And Confused(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13D3D15F4B5A52D9A596368EF67042B0F5FE2FE1
+magnet:?xt=urn:btih:9ADF6508E74E1369E37FF2EC707D47DEA2C03E97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +677,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209007   (779634) от 24.02.2018
+###  Публикация: 1077421   (306196) от 28.11.2016
 
-Alice Cooper - The Sound of A (2018) EP [MP3|320 Kbps] <Hard Rock>
+Accept - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779634.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Sound of A
-02. The Black Widow (Live In Columbus)
-03. Public Animal #9 (Live In Columbus)
-04. Is It My Body (Live In Columbus)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:16:31
+01. Can't Stand The Night
+02. No Time To Lose
+03. Seawinds
+04. Amamos La Vida(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A5263805AB8DD14A55967737434DE6434FF3558
+magnet:?xt=urn:btih:C800109462609500675C44D0948BDE1A8ADB6A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +706,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206686   (781703) от 15.02.2018
+###  Публикация: 1333310   (305268) от 24.10.2019
 
-The Sweet - Funny How Sweet Co-Co Can Be (1971) RCA [MP3|320 Kbps] <Hard Rock, Glam Rock>
+Airbourne - Boneshaker (2019) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781703.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sweet (до 1974 года The Sweet) - британская рок-группа, образовавшаяся в Лондоне, Англия, в 1968 году. Первую известность Sweet получили в начале 1970-х годов благодаря серии бабблгам-синглов, затем - на своём творческом пике - стали частью британского глэм-рок-движения; наконец, утяжелили звук и приблизились к хард-роковому звучанию01. Co-Co 3:17
-02. Chop-Chop 3:04
-03. Reflections 2:58
-04. Honeysuckle Love 2:58(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:34:54
+01. Boneshaker
+02. Burnout The Nitro
+03. This Is Our City
+04. Sex To Go(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:922D98FE23BC15FD33A018506C1CFE65B8822D57
+magnet:?xt=urn:btih:8B5094D74C0924751730EC7AC89008396CAF1433
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,58 +735,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206398   (782121) от 14.02.2018
+###  Публикация: 1261552   (303394) от 11.11.2018
 
-McQueen Street - McQueen Street (1991) 1992, SBK Records [MP3|320 Kbps] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782121.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. When I'm In The Mood
-2. Woman In Love
-3. Time
-4. Money(   Читать дальше...   )Жанр: Hard Rock, Glam
-Страна: USAПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDB6E106AF01883E746891E3494BF17673403FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205390   (783771) от 09.02.2018
-
-Sixgun Renegades - Sixgun Renegades (2018) [MP3|320 Kbps] <Hard Rock>
+Stephen Pearcy (ex-Ratt) - View To A Thrill (2018) Japanese Edition [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783771.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Renegade (4:59)
- 2. My Way or the Highway (3:23)
- 3. Unbreakable (4:12)
- 4. Lost and Found (6:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:47
+01.U Only Live Twice 2:57
+02.Malibu 3:05
+03.Double Shot 3:08
+04.One In A Million 2:37(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67E4DF4CD781C3CCF507B293897AE8A6B55C0B52
+magnet:?xt=urn:btih:F9FBEFA025E0152B1851B50EF3CC6AA52FB92834
 ```
 
 https://mybot314.ru/tekegram_catalog/

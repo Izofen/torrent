@@ -1,25 +1,25 @@
-###  Публикация: 194789   (955140) от 19.02.2020
+###  Публикация: 1262394   (24398) от 17.03.2025
 
-Scorpions - Sting In The Tail (2010) [Vinyl Rip 24Bit/192kHz]<Rock>
+VA - Jazz Collection Non Stop Part II (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955140.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_24398.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Side A:
-01. Raised On Rock (3:59)
-02. Sting In The Tail (3:13)
-03. Slave Me (2:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:46
+01. Michael Lington & Wendy Moten - Don't Go
+02. Orchestra - Chattanooga Choo Choo
+03. The Robert Cray Band - I'm Afraid(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
+magnet:?xt=urn:btih:0C680CED789F6E17F98B1447DEF9CB3520032C1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 171737   (955211) от 19.02.2020
+###  Публикация: 1577374   (24319) от 18.03.2025
 
-Scorpions - Taken By Force (1977) [Vinyl Rip 24Bit/96kHz]<Classic Rock>
+Lacrimosa - Studio Albums (11 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Goth Rock, Symphonic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955211.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_24319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-1. Steamrock Fever (03:41)
-2. We'll Burn The Sky (06:30)
-3. I've Got To Be Free (04:04)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:07
+Lacrimosa — группа из Швейцарии, лидеры которой — основатель, композитор и вокалист Тило Вольфф и клавишница и вокалистка Анне Нурми. Музыка Lacrimosa довольно разнообразна и выходит за рамки одного жанра, группа работала в разных стилях, но чаще всего в жанре готик-метал.1997 - Stille
+1999 - Elodia
+2001 - Fassade
+2003 - EchosЖанр: Gothic/Symphonic MetalПродолжительность: 11:49:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACD7DBB2E41222ECF1A0C998ED13E963DAF5F94B
+magnet:?xt=urn:btih:14C3FA59AF44B0522EA9AD986A4169BAA68781EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 278226   (957828) от 05.01.2011
+###  Публикация: 1785896   (24247) от 18.03.2025
 
-George Harrison - My Sweet Lord / Isn’t It A Pity (1970) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
+VA - Музыкальный калейдоскоп (10   выпусков) (1964 - 1969) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957828.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side 1
-A - My Sweet Lord (04:35)
-Side 2
-B - Isn’t It A Pity (6:59)Жанр: RockПродолжительность: 00:11:38
+Жанр: Pop, JazzПродолжительность: 04:49:50
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:337E6F32A687A8A9C81AB20906F70B9D05AD816A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 747132   (958184) от 27.01.2016
+###  Публикация: 1610278   (22937) от 31.03.2025
 
-Deep Purple - The House Of Blue Light (Дом голубого света) (1987) [FLAC 2.0|192/24|traсks|Vinil-Rip]<Hard Rock>
+W.E.T. - Studio Albums (5 releases) (2010-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958184.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-1. Плохое отношение (Bad Attitude)  4:44
-2. Неписаный закон (The Unwritten Law)  4:36
-3. Зов предков (Call Of The Wild)  4:52(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:30
+W.E.T. - супергруппа мелодичного рока, созданная Джеффом Скоттом Сото, Эриком Мортенссоном и Робертом Саллом. Название группы состоит из инициалов групп, с которыми ранее работали музыканты: Work of Art (Сэлл), Eclipse (Мартенссон) и Talisman (Сото).2010 - W.E.T.
+2013 - Rise Up
+2018 - Earthrage
+2021 - RetransmissionЖанр: Melodic Hard RockПродолжительность: 04:02:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09F36FFF8B65C0DB540D2481BD2AEE6CF8BFF4D3
+magnet:?xt=urn:btih:BCFAF257650C5857C6100089E9DFD81AB49D79C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 978515   (962043) от 24.01.2016
+###  Публикация: 1620765   (22898) от 31.03.2025
 
-Агата Кристи - Декаданс (1991) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
+Magic Kingdom - Studio Albums (6 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962043.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Щекотно
-02 - Мотоциклетка
-03 - Его там не было
-04 - Эпидемия(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:20
+Magic Kingdom — бельгийская пауэр-метал-группа, основанная в 1998 году гитаристом Душаном Петросси.1999 - The Arrival
+2004 - Metallic Tragedy
+2010 - Symphony Of War
+2015 - Savage RequiemЖанр: Power MetalПродолжительность: 06:35:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D24917008C646FD9D006309704719CF3F8041296
+magnet:?xt=urn:btih:E079493DE9AB9074D977482C4E2AF7AF0CC0E962
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,145 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 977789   (965548) от 21.01.2016
+###  Публикация: 1679783   (22733) от 02.04.2025
 
-The Alan Parsons Project - The Turn Of A Friendly Card (1980) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965548.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. May Be A Price To Pay (5:01)
-A2. Games People Play (4:22)
-A3. Time (5:15)
-A4. I Don't Wanna Go Home (4:51)(   Читать дальше...   )Производство: Arista Records - 203 000-320Жанр: Progressive RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1883993E489AEE3F250B83A177995D57B6A4DB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976588   (968525) от 18.01.2016
-
-David Bowie - Blackstar (2016) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Experimental Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackstar (9:59)
-02. 'Tis a Pity She Was a Whore (4:52)
-03. Lazarus (6:21)
-04. Sue (Or In a Season of Crime) (4:40)(   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0D1536CB877DF34E9B78CC33F9CF7E88B3C7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976326   (968655) от 18.01.2016
-
-Аквариум - 3 альбома (Белый альбом; Радио Африка; Равноденствие) (1987-1988) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA31EAB72F224F22F2D1DFAE2BD72B3EB085A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975609   (971775) от 15.01.2016
-
-Iron Maiden - The Number Of The Beast (1982) Reissue, 1987, Fame [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971775.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Invaders (3:23)
-A2. Children Of The Damned (4:35)
-A3. The Prisoner (6:02)
-A4. 22.Acacia Avenue (6:36)(   Читать дальше...   )Производство: EMI / Fame - FA 3178Жанр: Heavy MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672DDC282EB12BDF71CEBA73C1D3783DF4BC4E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617097   (973019) от 11.02.2013
-
-Queen - 13 Студийных альбомов + Mr. Bad Guy, Barcelona (1973-1992) [FLAC 2.0 24/192|image + .cue|tracks (Vinyl-Rip)]<Classic Rock>
+КИНО - Черный альбом (1990) hand made, remastered [FLAC|16/44.1|tracks|CD-Rip] <Rock>
 
 >>След.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973019.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Barcelona 5:40
-A2. La Japonaise 4:50
-A3. The Fallen Priest 5:47
-A4. Ensueno 4:21
-B1. The Golden Boy 6:06
-B2. Guide Me Home 2:40
-B3. How Can I Go On 4:02
-B4. Overture Piccante 6:43Жанр: Classic RockПродолжительность: 00:40:10
+CD-1 (42:51)
+
+[6:00] 1. Кончится лето
+[5:54] 2. Красно-желтые дни(   Читать дальше...   )Жанр: RockПродолжительность: 01:25:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:336438EA30105DCE5C9EB29D9EE3EDC5049C727D
+magnet:?xt=urn:btih:3A0BDBB5480F0ADADC367CD76B2E444F63CD6611
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -289,28 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 974946   (973279) от 14.01.2016
+###  Публикация: 1588379   (22656) от 03.04.2025
 
-Максим Леонидов - Проплывая Над Городом (1997) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Rock & Roll, Pop Rock>
+Король и Шут - Студийные альбомы (13 релизов) (1993-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Хорор-панк, фолк-панк, панк-рок>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973279.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1	Видение
-A2	(В Её Глазах) Хали-Гали
-A3	Девочка С Карибских Берегов
-A4	Дождь(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:54:55
+«Король и Шут» (сокращённо – «КиШ») – российская рок-группа, история которой началась в 1988 году в Ленинграде. Коллектив прославился своим необычным для отечественной сцены стилем: его песни – это короткие сказки, рассказанные под жёсткую гитарную музыку. Группа прекратила своё существование в 2013 году в связи со смертью её лидера Михаила Горшенёва. Участники последнего (   Читать дальше...   )1993 (2018) - Истинный убийца
+1996 - Камнем по Голове
+1997 - Будь как дома, Путник…
+1998 - Акустический альбомЖанр: Хорор-панк, фолк-панк, панк-рокПродолжительность: 11:10:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05DBF7039DE6573EEC563F9086F6E36F72D8AEE4
+magnet:?xt=urn:btih:830F24EFAA3B14D926C301B941C965B6F5BBEBC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,28 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 743561   (974369) от 09.01.2014
+###  Публикация: 1672508   (22601) от 03.04.2025
 
-Patricia Kaas - Mademoiselle Chante... (1988) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop, Chanson>
+Benediction - Studio Albums (10 releases) (1990-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974369.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mon Mec A Moi   (4:20)
-02.  Venus Des Abribus   (3:55)
-03.  D'Allemagne   (4:25)
-04.  Des Mensonges En Musique   (4:18)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:34:57
+Benediction — британская дэт-метал-группа из Бирмингема, основаная в 1989 году. Основными темами группы являются социальные проблемы и религия.1990 - Subconscious Terror
+1991 - The Grand Leveller
+1992 - Dark Is The Season
+1993 - Transcend The RubiconЖанр: Death MetalПродолжительность: 07:52:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4569D68A1729E88EBF9C677A6815528BCCFFE8D1
+magnet:?xt=urn:btih:7875F548A12F81B7A6107745DD918008BCCF48F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,34 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 616296   (976088) от 09.02.2013
+###  Публикация: 994695   (22347) от 06.04.2025
 
-U2 - Achtung Baby (1991) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Rock>
+Александр Барыкин - Ступени; Больше не встречу (1985-1986) Мелодия [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976088.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Zoo Station 4:30
-A2. Even Better Than the Real Thing 4:04
-A3. One 3:54
-A4. Until The End Of The World 5:31
-A5. Who's Gonna Ride Your Wild Horses 4:31
-A6. So Cruel 4:21
-B1. The Fly 4:38
-B2. Mysterious Ways 3:42
-B3. Tryin' to Throw Your Arms Around the World 4:37
-B4. Ultraviolet (Light My Way) 4:40(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:35
+01 - Ступени
+02 - Элегия
+03 - Но всё-таки лето
+04 - Мона Лиза(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
+magnet:?xt=urn:btih:29745FA174E2247A62D845D13313F9B1D794D99A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -382,25 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973432   (977974) от 10.01.2016
+###  Публикация: 1605933   (22308) от 06.04.2025
 
-Наутилус Помпилиус - 3 альбома (1988-1991) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
+Gotthard - Studio Albums (14 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977974.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: RockПродолжительность: 01:55:51
+Gotthard — швейцарская рок-группа, основанная Стивом Ли и Лео Леони. Группа сформировалась в начале 1989 года. Первоначально она называлась «Krak».1992 - Gotthard
+1994 - Dial Hard
+1996 - G.
+1999 - OpenЖанр: Hard Rock, Heavy MetalПродолжительность: 12:19:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC60A5BA2BB088F7C4F3A85FAD05C0E0ADF6D6F0
+magnet:?xt=urn:btih:63B50B54A45430716A89AED40DAB49AD0110795A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -408,26 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972986   (978123) от 10.01.2016
+###  Публикация: 1571447   (22281) от 06.04.2025
 
-Ансамбль (Вокальный квартет) Аккорд (1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop>
+Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978123.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. В дороге
-02. МустафаЖанр: PopПродолжительность: 00:04:23
+Allegaeon — американская экстремальная метал-группа из Форт-Коллинза, штат Колорадо, образованная в 2008 году.2010 - Fragments of Form and Function
+2012 - Formshifter
+2014 - Elements of the Infinite
+2016 - Proponent for SentienceЖанр: Technical Melodic Death MetalПродолжительность: 07:34:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB6D34B1A3435F6784CDD64BB3529566B1AE85D3
+magnet:?xt=urn:btih:7A0A48FCC57FDA4CC2F8E7D7EEF055B54C040C5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,28 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973397   (978125) от 10.01.2016
+###  Публикация: 1306071   (22104) от 08.04.2025
 
-Dana International - The Album (1998) [FLAC 2.0|16/44,1 |image+.cue (Vinyl-Rip)] <Euro House>
+Gary Moore - Ballads & Blues 1 & 2 (1995/1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Ballads>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978125.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Diva
-02. Cinque Milla (Remix)
-03. Maganuna (Remix)
-04. Qu'est Que C'est? (Remix)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:55:14
+Ballads & Blues 1
+SIDE A:
+01. Always Gonna Love You
+02. Still Got The Blues(   Читать дальше...   )Жанр: Blues Rock, BalladsПродолжительность: 02:11:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF85AAC73B9E8EDFB901EAB0191411010D3F11DE
+magnet:?xt=urn:btih:F771D4E12B44871361A56B3B2C0A9AB46ABA41E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,28 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973683   (978127) от 10.01.2016
+###  Публикация: 1598761   (21968) от 09.04.2025
 
-VA - Blues & Ballads 2 (1996) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Pop, Cover>
+Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Heavy Metal/Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978127.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_21968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Valery - I Will Always Love You
-02. Power Band - Now I Know What Made Otis Blue
-03. Bill Power - Streets Of Philadelphia
-04. Jackie Moore - Why(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 00:42:16
+Sunstorm — американский музыкальный проект AOR , первоначально в котором участвовали ведущий вокалист Джо Линн Тернер, басист/вокалист Деннис Уорд , клавишник Йохен Вейер, а также гитарист Уве Рейтенауэр и барабанщик Крис Шмидт. В альбомах также участвовали такие исполнители, как Дэнн Хафф и Джим Петерик , в качестве дополнительных авторов песен.2006 - Sunstorm
+2009 - House Of Dreams
+2012 - Emotional Fire
+2016 - Edge Of Tomorrow(   Читать дальше...   )Жанр: Melodic Heavy Metal/Hard RockПродолжительность: 06:50:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8FC4B473CF5E93F11827BE9F0B3A10C63FA29A1
+magnet:?xt=urn:btih:08EF47E75616750593AA285C5DC4B01C4B91E422
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,33 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 614646   (978302) от 07.02.2013
+###  Публикация: 1551047   (21792) от 11.04.2025
 
-Deep Purple - 9 альбомов (1970-1990) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Rock>
+Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978302.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_21792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. King Of Dreams 5:28
-A2. The Cut Runs Deep 5:42
-A3. Fire In The Basement 4:46
-A4. Fortuneteller 5:48
-B1. Truth Hurts 5:15
-B2. Love Conquers All 3:45
-B3. Breakfast In Bed 5:18
-B4. Too Much Is Not Enough 4:18
-B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
+Epica — нидерландская группа, образована в 2003 году ритм-гитаристом и вокалистом Марком Янсеном после его ухода из After Forever. Визитной карточкой Epica являются женский вокал в сочетании с мужским гроулингом и скримингом. Также в группе используется струнный оркестр и хор.2003 - The Phantom Agony
+2005 - Consign To Oblivion
+2007 - The Divine Conspiracy
+2009 - Design Your Universe(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 16:02:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
+magnet:?xt=urn:btih:CEE55D1D117A0951BA575A8AB0A4F50CAD457BF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,34 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 615136   (978389) от 07.02.2013
+###  Публикация: 1791518   (21109) от 17.04.2025
 
-Depeche Mode - Playing The Angel (2005) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Synth-pop>
+Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The Song Of Songs (1986) Repress, Quadraphonic [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Renaissance>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978389.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. A Pain That I'm Used To 4:08
-A2. John The Revelator 3:45
-A3. Suffer Well 3:54
-B1. The Sinner In Me 4:59
-B2. Precious 4:07
-B3. Macro 4:09
-C1. I Want It All 6:11
-C2. Nothing's Impossible 4:22
-C3. Introspectre 1:41
-C4. Damaged People 3:30(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:52:27
+A1 Osculetur Me	2:55
+A2 Trahe Me	2:50
+A3 Nigra Sum, Sed Formosa	4:25
+A4 Vineam Meam Non Custodivi	2:50(   Читать дальше...   )Жанр: Classical, RenaissanceПродолжительность: 01:32:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
+magnet:?xt=urn:btih:0DE0C8427675FD79E66C2AB4E67F0EBB79FA3CCB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,34 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 742624   (978883) от 06.01.2014
+###  Публикация: 1548427   (20958) от 19.04.2025
 
-Electric Light Orchestra - Discovery (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Prog Rock, Symphonic Rock>
+Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978883.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-1. Shine A Little Love  4:40
-2. Confusion  3:42
-3. Need Her Love  5:08
-4. The Diary Of Horace Wimp  4:16
-Сторона 2
-1. Last Train To London  4:30
-2. Midnight Blue  4:18
-3. On The Run  3:58
-4. Wishing  4:10(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:38:46
+Arch Enemy (от англ. arch-enemy — заклятый враг) — шведская группа, играющая в стиле мелодичный дэт-метал. Была основана в 1996 году братьями Майклом и Кристофером Эмоттами.1996 - Black Earth
+1998 - Stigmata
+1999 - Burning Bridges
+2001 - Wages of SinЖанр: Melodic Death MetalПродолжительность: 15:29:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
+magnet:?xt=urn:btih:C21199E5141DDE66AE81B10185873A6AABFE05A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,34 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 614019   (981133) от 05.02.2013
+###  Публикация: 1603407   (20464) от 24.04.2025
 
-ДДТ - Чёрный пёс Петербург (1992/1994) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
+Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981133.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Пролог [4:32]
-02. Новые блокадники [5:22]
-03. Styx [4:29]
-04. Храм [4:27]
-05. Беда [7:57]
-06. Ты не один [5:08]
-07. Я остановил время [5:06]
-08. В это [5:02]
-09. Чёрный пёс Петербург [11:28]
-10. Дождь [3:59](   Читать дальше...   )Жанр: RockПродолжительность: 01:27:33
+Cradle of Filth — английская метал-группа, основанная в 1991 году вокалистом Дэниелом Ллойдом Дэви, выступающим под псевдонимом Дэни Филт. Стиль группы менялся от альбома к альбому, но в среднем представляет собой смесь симфонического блэк-метала и готик-метала.1994 - The Principle Of Evil Made Flesh
+1996 - Dusk And Her Embrace
+1998 - Cruelty And The Beast
+2000 - MidianЖанр: Death Metal, Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 33:53:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:788853C62705A6DB44C7F01C393D0462E8AF84EC
+magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,28 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972345   (981733) от 06.01.2016
+###  Публикация: 1535212   (20431) от 24.04.2025
 
-Мумий Тролль - Икра (1997/2012) [FLAC 2.0 24/96] image + .cue (Vinyl-Rip) <Rock>
+Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Groove/Thrash Metal, Nu-Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981733.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Доля риска
-02 - Шамаманы
-03 - Сиамские сердца
-04 - Не звезда(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:07
+Machine Head — американская грув-метал-группа, образованная гитаристом и вокалистом Роббом Флинном 12 октября 1991 года в Окленде, Калифорния1994 - Burn My Eyes
+1997 - The More Things Change
+1999 - The Burning Red
+2001 - SuperchargerЖанр: Thrash/Groove Metal, Nu-MetalПродолжительность: 18:18:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0CC07C4374A94223E87EBE50F15DBE08B142442
+magnet:?xt=urn:btih:B0C40BFEAF2C79B77DD98732F7E83D1A8B3D2C8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,28 +517,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972228   (981736) от 06.01.2016
+###  Публикация: 1688359   (20404) от 24.04.2025
 
-Amadeus Veberzinke/Амадеус Веберзинке - J. S. Bach/И. С. Бах: Mass For Organ/Органная месса (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Classical, Organ>
+Bleed From Within - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981736.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Органная Месса (Фрагменты)
-А1	Praeludium, B. 552
-А2	Kyrie ("Kyrie, Gott Vater In Ewigkeit", B. 669, "Christe, Aller Welt Trost", B. 670, "Kyrie, Gott Heilige Geist", B. 671)
-В1	Gloria ("Allein Gott In Der Höh' Sei Ehr' ", B. 676)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01: 23:07
+Bleed from Within — шотландская металкор-группа из Глазго, образованная в 2005 году.2008 - Welcome to the Plague Year (EP)
+2009 - Humanity
+2010 - Empire
+2013 - UprisingЖанр: Metalcore, Melodic Death Metal, Groove MetalПродолжительность: 06:28:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E524E0F0CA3702DC2C129FFD097E0E153AC9E7A5
+magnet:?xt=urn:btih:6CA595DF7531FC36F0B9B16F8D7B9B0CFC471E7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,28 +546,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972443   (981818) от 06.01.2016
+###  Публикация: 1609862   (20398) от 24.04.2025
 
-VA - Место встречи - Выпуск 4 (1988) [FLAC 2.0 24/192] image+.cue (Vinyl-Rip) <Rock>
+Nachtblut - Studio Albums (7 releases) (2007-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981818.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Заставка -Место встречи-
-02 - Для тех, кто любит рок - AC/DC
-03 - Меня не провести - Status Quo
-04 - Удовлетворение - Rolling Stones(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:02
+Nachtblut - немецкая дарк-метал группа, основанная в Оснабрюке в 2005 году.2007 - Das letzte Abendmahl
+2009 - Antik
+2012 - Dogma
+2014 - ChimonasЖанр: Extreme Gothic MetalПродолжительность: 06:13:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:455619579D282BF72742EB0247C87405ACDD2B3A
+magnet:?xt=urn:btih:7F777968699ED6F10B36BFFEBB3F57185143D602
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -719,28 +575,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972583   (981994) от 06.01.2016
+###  Публикация: 1598981   (20179) от 26.04.2025
 
-Yovanna/Иованна - 3xEP: Песни Д. Плессаса и К. Капнисиса (1962, 1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Jazz, Pop>
+H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Arena Rock, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981994.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Песни К. Капнисиса
-01. Говорят, Говорят
-02. Капитан Фафальос
-03. Дождь(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:36:34
+H.E.A.T — шведская рок-группа из Upplands Väsby, играющая в стиле Melodic Rock и AOR.
+Группа возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году был выпущен дебютный альбом H.e.a.t.
+Группа выступала на Melodifestivalen 2009 — шведском этапе Евровидения - но не одержала победу в финале.
+После долгих летних (   Читать дальше...   )2008 - H.E.A.T
+2010 - Freedom Rock
+2012 - Address The Nation
+2014 - Tearing Down The WallsЖанр: Arena Rock, Hard RockПродолжительность: 06:57:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4AC16232D0088A43E407C9B5CFDF33F03C30B62
+magnet:?xt=urn:btih:F128002155276B9287FF5E8F65BF4C7B7E90718B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -748,33 +607,143 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 613874   (982375) от 04.02.2013
+###  Публикация: 1745105   (20167) от 26.04.2025
 
-Depeche Mode - 2 альбома (1987, 1990) [1st, US press] [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Synth-pop>
+Sacred Steel - Studio Albums (10 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982375.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. World In My Eyes 4:26
-A2. Sweetest Perfection 4:44
-A3. Personal Jesus 4:18
-A4. Halo 4:30
-A5. Waiting For The Night 6:10
-B1. Enjoy The Silence 6:13
-B2. Policy Of Truth 4:55
-B3. Blue Dress 5:45
-B4. Clean 5:29Жанр: Synth-popПродолжительность: 00:46:30
+Sacred Steel - немецкая пауэр-метал группа из Людвигсбурга, образованная в 1997 году.1997 - Reborn In Steel
+1999 - Wargods of Metal
+2000 - Bloodlust
+2002 - Slaughter ProphecyЖанр: Epic Power MetalПродолжительность: 08:03:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFE98CDF9D88713EFFB06255062F95905FC51DB8
+magnet:?xt=urn:btih:090936DC08D192DA7FD5E892279DC877E983A5D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658183   (20048) от 27.04.2025
+
+Orbit Culture - Studio Albums (8 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orbit Culture — шведская мелодик-дэт-метал группа из города Эксё, образованная в 2013 году.2013 - Odyssey (EP)
+2014 - In Medias Res
+2016 - Rasen
+2018 - Redfog (EP)Жанр: Melodic Death/Groove MetalПродолжительность: 04:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEA716A3F1A52AED6BA3DF8A74558AD23FBDE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794470   (19838) от 29.04.2025
+
+Smokie/Смоуки - Bright Lights & Back Alleys/Яркий Свет И Темные Улицы (1982) Balkanton, Bulgaria, Licensed From – EMI [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_19838.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 It's Your Life • Твоя Жизнь
+A2 I Can't Stay Here Tonight • Не Могу Остаться Здесь В Этот Вечер
+A3 Sunshine Avenue • Солнечный Бульвар
+A4 Think Of Me • Думай Обо Мне(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39CD250A23C420F07AC529951AC06EB5ACFA5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794646   (19754) от 30.04.2025
+
+Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_19754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eternal Storm - испанская метал-группа, созданная в Мадриде в 2009 году.2013 - From The Ashes (EP)
+2019 - Come The Tide
+2024 - A Giant Bound To FallЖанр: Progressive Melodic Death MetalПродолжительность: 02:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895BA6E788D2DDBF87B0AB5C60B52E5357CC36A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795052   (19565) от 02.05.2025
+
+Barren Earth - Studio Albums (4 releases) (2010-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Barren Earth — финская метал-группа, основана осенью 2007 года в Хельсинки.2010 - Curse Of The Red River
+2012 - The Devil's Resolve
+2015 - On Lonely Towers
+2018 - A Complex Of CagesЖанр: Progressive Melodic Death/Doom MetalПродолжительность: 04:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF72316D01E871914967F50E8E39833B6E8F20F
 ```
 
 https://mybot314.ru/tekegram_catalog/

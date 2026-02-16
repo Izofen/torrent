@@ -1,25 +1,83 @@
-###  Публикация: 1450117   (1029343) от 24.02.2021
+###  Публикация: 1731023   (51697) от 28.06.2024
 
-Devesh Sodha - Past & Present (2018) + Singles (2013-2020) [FLAC|Lossless|WEB-DL] <Soundtrack, Instrumental, Epic>
+London Music Works - The Story of Wick: Music From the John Wick Movies (2024) OST [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Film Soundtracks, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Story of Wick (from "John Wick") [3:06]
+02 - The Red Circle (from "John Wick") [1:02]
+03 - Shots Fired (from "John Wick") [3:16]
+04 - On the Hunt (from "John Wick") [2:09](   Читать дальше...   )Жанр: Modern Classical, Film Soundtracks, SoundtrackПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A1BA7A4AE7369E73CE4A7CADC74ADC28492BA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734810   (50998) от 05.07.2024
+
+David Arkenstone - Quest For the Runestone (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophecy (5:24)
+02. The Soothsayer Speaks (5:24)
+03. Ancient Magic Awakens (4:53)
+04. Réann (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B717961FAA337752163C390FC70D8EF0172B9100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738585   (48981) от 24.07.2024
+
+Jindřich Parma (Jindrich Parma) - Juno: Nové Retro (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop>
 
 >>Other Styles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029343.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Destiny Of The Urban Warrior
-02. Carol of the Bells (Epic Version)
-03. Promises
-04. Falling FasterЖанр: Soundtrack, Instrumental, EpicПродолжительность: 00:16:19
+01. Juno (Zabi Hneff) (6:13)
+02. Mozna (4:02)
+03. 1981 (4:44)
+04. Oda Na Zivot (4:44)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 00:58:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A28186DE1AD7B25F70FE6EA3D4FC758A85F02410
+magnet:?xt=urn:btih:A8777AB19DBBC372A9A421607F56AEBED5B2B7A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,460 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449973   (1029347) от 24.02.2021
+###  Публикация: 1737464   (48962) от 24.07.2024
 
-Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In the Flame [3:10]
-2. Downriver [0:38]
-3. Downside Ballad [4:11]
-4. Path to Glory [3:15](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5277F93292D6660F13DC5E5AEF477026140737BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449559   (1029523) от 23.02.2021
-
-VA - Country Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Hofmeyr - Amanda (03:07)
-02. Demi Lee Moore - Neon Moon (04:10)
-03. Chris Else - I Am I Said (03:47)
-04. Roan Ash - Whiskey To My Soul (03:45)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4077B8D2B4E512875811504660687796666AC982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623171   (1029595) от 31.03.2023
-
-VA - Mystera II (1998) [OGG Vorbis|480 Kbps] <NewAge, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enya - Storms In Afrika
-02. Era - Enae Volare Mezzo
-03. Enigma - Beyond The Invisible
-04. Capercaillie - Ailein Duinn(   Читать дальше...   )Жанр: NewAge, MeditativeПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14E59DA6FEE74AFA597244BCDB07EE7FF9EA79F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412904   (1029932) от 21.02.2021
-
-The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|image + .cue] <Stage & Screen>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перси Фейт (англ. Percy Faith; 7 апреля 1908 - 9 февраля 1976) — канадский музыкант, композитор, руководитель эстрадного оркестра. Известность ему принесли пышные оркестровые аранжировки популярных песен. Его часто считают создателем "легкой музыки" или "музыки настроения": его оркестр, в отличие от биг-бэндов 1940-50-х гг., опирался на классический (   Читать дальше...   )01.  Theme From A Summer Place (02:45)
-02.  Love Theme From Romeo & Juliet (A Time For Us) (03:08)
-03.  Laras Theme From Dr Zhivago (03:20)
-04.  A Man And A Woman (02:18)(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CA83A0DD93D638AB24FFBE31F160DBE6355CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449213   (1030010) от 21.02.2021
-
-Evgeny Grinko - Ice for Aureliano Buendia (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noir (1:09)
-02. Valse (3:26)
-03. Serenade (2:29)
-04. Faulkner's Sleep (D-Moll) (3:40)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD5FC54D44CDD9946FD9DC0D06FA3908601A04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257383   (1030091) от 20.02.2021
-
-VA - Золотой саксофон (2003) [FLAC|Lossless|tracks] <Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R. Pauls Orc. - Long Road In Dunes (3:44)
-02. Gil Ventura - Maria Elena (2:35)
-03. Melody Orc. - Tender Rain (3:27)
-04. Arsenal Orc. (A. Kozlov) - Nostalgia (4:37)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2D53DC32F36C8BA837B2168FC30469F916E81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281022   (1030093) от 20.02.2021
-
-VA - 100 Hits Accordeon (2008) 5CD, Box-Set [FLAC|Lossless|image + .cue] <Instrumental, Accordeon>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030093.jpg" />
-</div>
-
-
-###  Подробнее
-
-5-ти дисковый box-set из серии "100 Hits" от EMI Music. На дисках представлены записи, охватывающие период с 30-х до 80-х годов XX века.CD1 - Du bon musette
-01. Yvette Horner - Le denicheur 	  [1959] (02:23)
-02. Jo Privat - Balajo (valse) 		  [1966] (02:37)
-03. Marcel Azzola - La plus bath de javas [1953] (02:34)(   Читать дальше...   )Жанр: Instrumental, AccordeonПродолжительность: 04:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BA2B5B94CD47C3B50C68B1CA60DF5841F3A348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 197410   (1030098) от 20.02.2021
-
-Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak [APE|Lossless|image + .cue] <Classical, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030098.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01. Storm 			(03:45)
-02. Toccata And Fugue In D Minor(07:49)
-03. Sabre Dance 		(06:01)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 02:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3305912B8F3626BB94760A626A1C71174EBFE56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351111   (1030102) от 20.02.2021
-
-Алексей Рыбников - Музыка любви (2006) [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тема любви (из к/ф "Шанс") 			     (03:57)
-02. Сны Татьяны (из к/ф "Шла собака по роялю") 	     (01:10)
-03. Финал (из к/ф "Вам и не снилось") 		     (02:43)
-04. Тема на титрах (из к/ф "Шанс") 		     (01:49)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645BAF44F70D6993F0D72B4E6E88F6AAA54F8BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273614   (1030103) от 20.02.2021
-
-101 Strings Orchestra - 2 альбома (2002, 2009) 3CD [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030103.jpg" />
-</div>
-
-
-###  Подробнее
-
-101 Strings Orchestra был брендом очень успешной организации симфонической музыки, легко слушающей , с дискографией, превышающей 150 альбомов, и творческим сроком службы около 30 лет, начиная с 1957 года. 101 Strings имел фирменное звучание, сосредоточенное на мелодии с непринужденной атмосферой. чаще всего со струнами. Их пластинки были индивидуализированы слоганом (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96621891A2841174A42362D35F58BB7FB2D64405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191215   (1030105) от 20.02.2021
-
-VA - Вдохновение - Оттенки настроения 5 альбомов (2004) [APE|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Изумительная благодать
-02. Овцы могут спокойно пастись
-03. Гимн
-04. Адажио(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC572B437E3DF5278DA0873CF2BA3C54A2109C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209363   (1030107) от 20.02.2021
-
-Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|image + .cue] <Classical, Symphonic Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевский филармонический оркестр (Royal Philharmonic Orchestra) — Британский симфонический оркестр с площадкой в Лондоне. Он широко гастролирует, иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).Royal Philharmonic Orchestra - Legends CD-I
-01. Angels (4:39)
-02. Babylon (4:08)
-03. With or Without You (5:14)(   Читать дальше...   )Жанр: Classical, Symphonic RockПродолжительность: 03:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 252875   (1030118) от 20.02.2021
-
-Albert Assayag - Accordion Dances: Tango Waltz Paso (2009) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tango Des Fleurs	    (03:46)
- 02.  Tango Star		    (02:25)
- 03.  Tango Magique	    (02:26)
- 04.  Valse Blonde	    (02:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D67D23DE380ACEA81ABD742580C493D4A16AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314199   (1030129) от 20.02.2021
-
-VA - Midnight Sax (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John, Osbourne - Blue Eyes 		(03:28)
-02. Leiber, Stoller, King - Stand by Me (02:55)
-03. Masser, Creed - The Greatest Love of All (04:43)
-04. Bahler - She's Out of My Life 	(03:26)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE8DA498F3DB3871377FE1FE50411870A4BEDC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447866   (1030211) от 20.02.2021
-
-Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Веснянка (04:13)
-02. Вогнi (04:39)
-03. Сонце (05:39)
-04. Намалюй (03:38)(   Читать дальше...   )Жанр: Folk, IDMПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03105757EF06A5966184B0EE85A0C8F6F1E2ACC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622381   (1030267) от 28.03.2023
-
-Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
+VA - Застольное настроение (2020) [MP3|320 Kbps] <Поп, Застольное настроение>
 
 >>Other Styles
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030267.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2021 - Отчуждение
-2022 - Плач покинутых детей
-2023 - ЙойкЖанр: Trip Hop, FolkПродолжительность: 3 CD, 00:49:41
+01 Божья Коровка - Застольная
+02 Унесенные ветром - Давай наливай
+03 Натали - О, Боже, какой мужчина!
+04 Игорь Николаев - Выпьем за любовь(   Читать дальше...   )Жанр: Поп, Застольное настроениеПродолжительность: 00:49:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA6E2616D33623B4E6163F871D20DE7C08E77069
+magnet:?xt=urn:btih:C0E3DD2DF862D77C9D208F7892DC29BA58D18E3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +114,606 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622255   (1030276) от 28.03.2023
+###  Публикация: 1740070   (48273) от 31.07.2024
 
-Teufelstanz - In Omne Tempus (2015) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
+101 Strings Orchestra - Under Paris Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Paris Skies
+02. Can-Can (From Can-Can)
+03. Fleur de Paris (2015 Remastered Version)
+04. The Poor People of Paris(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8688BD397778F3C4D708C33507712DEA73ACAA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741690   (46915) от 13.08.2024
+
+Marilyn Monroe - The World Of Marilyn Monroe (2006) 2CD [WavPack|Lossless|image + .cue] <Stage & Screen>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runnin Wild
+ 02. I'm Thru With Love
+ 03. When Love Goes Wrong
+ 04. My Heart Belongs To Daddy(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6A7C52BD49CF94C8CC556C9C6DB958C05D5E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743492   (46583) от 16.08.2024
+
+Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adagietto
+02. Sandrine's Dream
+03. Franz
+04. Evening in Gourmos(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C56AF4E2804BD9FA2B404A79B64C4794489D29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743924   (46378) от 18.08.2024
+
+101 Strings Orchestra - Moon River: The Music of Henry Mancini (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon River (From "Breakfast at Tiffany's")
+02. The Pink Panther Theme (From "The Pink Panther")
+03. Peter Gunn Theme
+04. Theme from "Cade's County"(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68CCFBB92C0F8B2C3BC93D1E36A1F7873CE8E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747686   (44391) от 06.09.2024
+
+101 Strings Orchestra - San Francisco: City of Romance (1974) 2014-2024 Remaster From The Original Alshire Tapes [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Left My Heart in San Francisco (2014 Remaster)
+02. Top o’ the Mark (2024 Remaster)
+03. Cable Cars (2024 Remaster)
+04. Concerto to the Golden Gate (2021 Remaster)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7D44062994B26F2836657E090909EB4E66DD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748599   (43993) от 10.09.2024
+
+Sensual Music Paradise - Erotic Asanas: Sensual Yoga, Libido Booster, Sexy Body Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensual Sunrise Asanas (3:49)
+02. Tantric Tranquility Flow (3:10)
+03. Whispers of Intimacy (3:10)
+04. Sacred Connection (3:18)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A0278C849B5B16DF484A219EF0220797A81863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750464   (42923) от 20.09.2024
+
+Эхо Москвы - История песен Битлз The Beatles (49 выпусков) (200?) [MP3|128 Kbps] <Подкаст>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл передач ведущего радиостанции "Эхо Москвы" Владимира Ильинского
+В каждом выпуске Владимир Ильинский (известный на Эхе как Дядя Володя) немногословно и очень тактично рассказывает об истории создания песни, кратко пересказывет ее текст (без углубления в лингвистические и стилистические особенности первоисточника), и - кончно же - звучит сама песня. (   Читать дальше...   )Жанр: ПодкастИздательство: Эхо МосквыПродолжительность: 03:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF60920FE5A71F534B36BF782E236422127888A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751740   (42293) от 26.09.2024
+
+Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantric Arabic Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tantric Music Masters - Sensual Sands (2:31)
+02. Tantra Healing Paradise - Desert Tantra (2:36)
+03. Tantric Sex Background Music Experts - Arabian Sensations (2:53)
+04. Tantric Music Masters - Oasis Rhythms (2:35)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558B3D1BDA5ADE91D5A348A0135E2031C8C96958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752651   (41780) от 01.10.2024
+
+Pregnant Women Music Company - Harmony for Two: Music to Soothe Pregnancy Stress (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soothe Your Body (3:21)
+02. Harmony of Senses (3:24)
+03. Soul Experience (3:16)
+04. Living in Harmony (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A82777F0998ADDFD9CC22F8F12210C12EAEE20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752569   (41778) от 01.10.2024
+
+Pregnant Women Music Company - Calm Raining: Relaxation for Pregnant Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rainy Forest Retreat (2:37)
+02. Serene Spring Shelter (3:20)
+03. Woodland Rain Haven (3:01)
+04. Dreamy Forest Cottage (2:54)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BFAB51E2A3BAC55991B3C98249266928917DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753942   (41151) от 07.10.2024
+
+VA - The Orient Collective - Blossoms (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiano - Vata (8:19)
+02. Tibetania - Healing Winds (7:08)
+03. Gabriel Slick - Sharaih (4:34)
+04. Antonello D'Arrigo - Organica (6:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51442C1AC85002C3991A948A13D338DC512E518E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821241   (40958) от 01.10.2025
+
+Chris Conway - Guiding Light (2005) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_40958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Path In
+02. 1st Glimpse
+03. 2nd Glimpse
+04. Stairway(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5BE0BFB5AF56575B9224B999D983B2AC1C033F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754322   (40870) от 09.10.2024
+
+VA - The Orient Collective - Divine Oracle (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Slick - Sharaih (4:34)
+02. Groovecat - Komagene (5:53)
+03. Kapchiz - Osiris (6:48)
+04. Mikhail Catan - Indra (6:43)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91673D02A425D9D15AA6C6B77C2B3CADEACB8197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754413   (40780) от 10.10.2024
+
+VA - The Orient Collective - Ethernal (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Slick - Sharaih (4:34)
+02. Gabriel Slick - My World (4:31)
+03. Tibetania - Om El Donya (4:44)
+04. Tibetania - Sama (8:04)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69F6A326B048901504C24D88EB517086E664008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755794   (40052) от 17.10.2024
+
+VA - The Orient Collective - Forest Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mikhail Catan - Indra (6:43)
+02. Darno - Bazaar (Jack Essek Remix) (6:57)
+03. Ivory Coats - Sijambo (6:09)
+04. Best Intentions - Om El Donya (4:44)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E056184B006DACCEEE27EAC51EEAB6638C7F3724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756308   (39741) от 20.10.2024
+
+(OST) Double Dragon Neon (Official Soundtrack) (Jake Kaufman) (2012) [MP3|320 кб/с]
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный Digital релиз01. Title Theme
+02. Mission Bumper
+03. City Streets 1 (Double Dragon 1 - Mission 1)
+04. City Streets 2 (Mango Tango - Neon Jungle)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0C484A0E82788C9498285C4D59E98E63B325EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756758   (39270) от 25.10.2024
+
+Klaus Wunderlich - The Collection Volume 2 (1987) [FLAC|Lossless|tracks + .cue] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain, Rain, Rain / Love and Rainy Weather / It Never Rains in Southern California
+02. The Most Beautiful Girl / Seasons in the Sun / Cabaret
+03. A Song of Joy / Julie Do Ya Love Me / Teneriffa – Melody
+04. Rosetta / Jack in the Box(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135C360E1586EBDC871D0164E75A56AEF12E1116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757411   (39074) от 27.10.2024
+
+VA - The Orient Collective: Mandala (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Monte Musa (Original Mix) (7:14)
+02. Fernando - Corazon Seco feat. Ludelf (Original Mix) (5:26)
+03. Gabriel Slick - My World (Original Mix) (4:31)
+04. VieL - Espoir (Original Mix) (7:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9704A2B57EE3804AA651E37FF216D5FFD5F1CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757547   (38981) от 28.10.2024
+
+David Arkenstone - Fairy Fantasy (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gathering In The Glade (4:07)
+02. Dawn Dance (4:12)
+03. Forest Of Enchantment (4:08)
+04. Ancient Folklore Of The Fairies (6:01)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1754DC70DC281ABF8D9085395C85291DFDEFC171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757688   (38926) от 29.10.2024
+
+Medwyn Goodall - Rhythm of the Ancients 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Following the Rhythm (5:26)
+2. The Dream (7:04)
+3. Pathfinding (6:22)
+4. Wise Woman (5:36)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88579F20CCAE15D3BF2A77C8A83E565BA62900E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758814   (38291) от 04.11.2024
+
+Олег Гребенкин - Русский век (2008) [FLAC|Lossless|image + .cue] <Folk>
 
 >>Other Styles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030276.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. XIMUUS
-03. Стареющий Вагант
-04. A-Kenavo(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 01:00:27
+01		Любо, братцы, любо
+02		Ах, ты, степь широкая
+03		Две гитары, зазвенев...
+04		Ой, то не вечер...(   Читать дальше...   )Жанр: FolkПродолжительность: 00:44:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6BC302CC2AB8C280CF0FF94C09516CA259319FD
+magnet:?xt=urn:btih:FAC67DFC8655B2BBAE75364A4D5F936F05C2AF88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,231 +721,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 305074   (1030332) от 19.02.2021
+###  Публикация: 1759383   (37919) от 08.11.2024
 
-The Gino Marinello Orchestra - Romantic Instrumental. Collection (1987-1998) [FLAC|Lossless|image + .cue, tracks] <Easy Listening, Instrumental>
+Комбинация - Комбинация (2024) [FLAC|Lossless|WEB-DL|tracks] <OST, Pop>
 
 >>Other Styles
->>Instrumental (Lossless)
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030332.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-
-1987 - Latenight Melodies
-1989 - Romantique De La France(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 06:07:44
+1. Russian Girls (Radio Edit)
+2. Хэй, мама
+3. Echoes across the sea (Кирилл Бородулев)
+4. Пойдем со мной(   Читать дальше...   )Жанр: OST, PopПродолжительность: 01:50:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:908E500D0EB0F7ADC5960DE865B2456C9A93B591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162997   (1030334) от 19.02.2021
-
-Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cuesta Abajo (03:13)
-02.Silencio (02:42)
-03.Caminito (02:29)
-04.Tomo Y Obligo (02:18)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDCC909F3D16A485D0B6BC69B2374DC61299551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255905   (1030342) от 19.02.2021
-
-Le Valedon - Sensuous Sax (1995, 1996) 2СD  [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' In Circles 	      (04:16)
- 02. I Can't Make You Love Me (04:56)
- 03. Colour My World 	      (02:57)
- 04. Everytime You Go Away    (04:29)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF0CEBE30296C0841BD1FF79E5ED87054B7CC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286660   (1030343) от 19.02.2021
-
-Harry Holland, Dieter Reith - Magic Accordion (1985) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 When The Rain Begins To Fall       (03:53)
-02 I Just Called To Say I Love You    (03:48)
-03 Self Control			      (03:52)
-04 No More Lonely Nights	      (04:02)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF2489CAE6808876F5910DBCD114B4EADA0C2CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314749   (1030354) от 19.02.2021
-
-VA - Romantic Guitar (1995) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance De Amour 	(03:21)
-02. Johnny Guitar 	(02:29)
-03. La Ragazza Di Bube 	(02:42)
-04. Love Story 		(02:31)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994238C1081A2478B61B2A605BF55418CB804AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203755   (1030357) от 19.02.2021
-
-VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030357.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Paco De Lucia - Entre Dos Aguas		      (06:01)
-02. Paul Mauriat - L'Amour Est Bleu	 	      (02:34)
-03. David A Stewart feat. Candy Dufler - Lily Was Here (04:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC5DC0E110914174C6A9D262DC084941BF75036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332726   (1030361) от 19.02.2021
-
-Norrie Paramor and His Orchestra - 2 альбома (1998) Compilation [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1998 - Shadows in Latin
-01. Dance on 			  	(02:57)
-02. Atlantis 			  	(02:57)
-03. Foot Tapper 		  	(02:35)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF62CDB926F75D8BD70D111631983EE78741EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327066   (1030362) от 19.02.2021
-
-Stefan Nicolai - 2 альбома (1993, 2006) [FLAC|Lossless|tracks] <Instrumental, Pan Flute>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030362.jpg" />
-</div>
-
-
-###  Подробнее
-
-1993 - Golden Sound of Panflute
-01. Chanson Anonyme 	    (04:08)
-02. Vaya Con Dios 	    (03:21)
-03. Goodbye my Love Goodbye (03:06)(   Читать дальше...   )Жанр: Instrumental, Pan FluteПродолжительность: 02:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BA9D34BBA453B00722C11533ED7C55E227CCED
+magnet:?xt=urn:btih:A383786756C1C4F41C53B556F47B561669E94EC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

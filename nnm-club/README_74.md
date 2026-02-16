@@ -1,25 +1,25 @@
-###  Публикация: 1818980   (1962) от 19.09.2025
+###  Публикация: 1851212   (1055067) от 01.02.2026
 
-Native American Music Consort - The Calling of the Wolf (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Native American, World, New Age>
+Nicole Koenigstein | Transformers in Action (2026) [PDF, EPUB] [EN]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1962.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Voice of the Midnight Howl [00:03:12]
-02. Path of the White Fang [00:03:25]
-03. Moonlit Ancestral Rite [00:04:15]
-04. Guardian of the Frozen Peaks [00:03:29](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:52:56
+Understand the architecture that underpins today’s most powerful AI models.
+
+Transformers are the superpower behind large language models (LLMs) like ChatGPT, Gemini, and Claude. Transformers in Action gives you the insights, practical techniques, and extensive code samples you need to adapt pretrained transformer models to new and exciting tasks.
+(   Читать дальше...   )Жанр: Data Processing, Natural Language Processing, Computer ScienceЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FD5DB64ABB0A8812A030137A7D900CAD7D5DE4C
+magnet:?xt=urn:btih:B6DFFA9E47B05B701FCA5B79E35C57EF62707100
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818985   (1963) от 19.09.2025
+###  Публикация: 1851214   (1055066) от 01.02.2026
 
-Yasmine Hamdan - I remember I forget (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+Дэвид Кларк, Поль Кларк | SDR на практике. Основы разработки программно-определяемого радио (2025) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1963.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hon هون [00:04:38]
-02. Shmaali شمالي [00:03:49]
-03. Shadia شادية [00:03:35]
-04. The beautiful losers الحلوين الخسرانين [00:03:15](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:38:26
+Эта книга поможет читателям освоить основы разработки и применения программно-определяемой радиосвязи (software-defined radio, SDR). Благодаря
+сочетанию обучающих материалов с примерами продвинутых приложений вы получите надежную основу для углубленного изучения современных беспроводных систем.
+Издание будет полезно инженерам, разрабатывающим прототипы радиоустройств, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Books.kzФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C2AC27BB059D0ADA03C5B85AB1A6159D4C6827E
+magnet:?xt=urn:btih:6F21E72C33C6A859075E9566DFD2134C2E69164D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +55,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818950   (1964) от 19.09.2025
+###  Публикация: 1851215   (1055065) от 01.02.2026
 
-Black Satellite - Aftermath (2025) [MP3|320 Kbps] <Alternative Metal, Industrial Metal>
+Н. Крокер | Разработка с ИИ. Как эффективно использовать ChatGPT и Copilot (2025) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1964.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Broken [00:02:55]
-02 - Disengaged [00:02:57]
-03 - Don't Remind Me [00:02:58]
-04 - Downfall [00:02:59](   Читать дальше...   )Жанр: Alternative Metal, Industrial MetalПродолжительность: 00:46:24
+Использование ИИ-инструментов вроде Copilot и ChatGPT похоже на наем суперумного и быстрого джуниор-разработчика, который готов взяться за любую задачу — от исследования до рефакторинга. Работа с ИИ помогает писать код быстрее, улучшать качество приложений и даже реализовывать идеи, которые могли быть недоступными вашей команде. Эта книга покажет, как использовать (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F17E7B60DB0D60FEB2AE83887FCFCDEF2882E71
+magnet:?xt=urn:btih:42AD1146DD57787EFFDD407D55D24CE80AC490A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +81,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818915   (1965) от 19.09.2025
+###  Публикация: 1851216   (1055064) от 01.02.2026
 
-Paradise Lost - Ascension (2025) [MP3|320 Kbps] <Doom Metal, Death Metal, Gothic Metal>
+Майк МакГрат | Программирование для начинающих. Основные принципы. 2-е издание (2025) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1965.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Serpent On The Cross [6:14]
-02 - Tyrants Serenade [4:21]
-03 - Salvation [7:08]
-04 - Silence Like The Grave [4:48](   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 01:01:01
+Открывать новое бывает непросто, но с «Программированием для начинающих» вы легко погрузитесь в мир ИТ даже при отсутствии опыта. Следуйте понятным инструкциям, выполняйте интересные практические задания. Внутри есть вся необходимая информация, рассмотрены ключевые концепции разработки и подобраны наглядные цветные примеры. Вы научитесь: писать программный код на (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: Эксмо, БомбораФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56B097A2B0A9E1AC2CEB88341C1FD5A2FEE5FF58
+magnet:?xt=urn:btih:D5346FE337BA186B500C57F844A4B0347990C558
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,25 +107,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818925   (1966) от 19.09.2025
+###  Публикация: 1851217   (1055063) от 01.02.2026
 
-Шрифты - MyFonts - Werkdruck [OTF, TTF]
+Анна Цыбина | Нейросеть. Помощник в изучении английского языка. И не только (2025) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1966.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Werkdruck — это шрифт с засечками из старых добрых времён, адаптированный к современным условиям, объединяющий в себе различные источники рационального и переходного шрифтового дизайна. Прочная конструкция облегчает чтение, а выразительные цифровые изгибы демонстрируют свою мощь в крупных размерах. В отличие от своих более узких предшественников начала века, Werkdruck (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+Погрузимся в практику, переосмыслив развитие языковых навыков — от грамматики и чтения до создания своих учебных материалов — всё через ИИ.
+Основные темы книги:
+5 стратегий промптинга для эффективного взаимодействия с ИИ.
+Пошаговые методики развития всех языковых навыков: от аудирования до письма.(   Читать дальше...   )Жанр: Английский язык, Искусственный интеллектИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F49459064DE5692B1A6D32456EE244065CA918B
+magnet:?xt=urn:btih:917E85D18C79C65BFE65FDB784F388D17EB3884B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,25 +136,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818893   (1967) от 19.09.2025
+###  Публикация: 1851218   (1055062) от 01.02.2026
 
-Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, покорившая время [2006, Movie] DVDRemux 576p raw+rus
+А.Н. Сыщикова | Японский язык для начинающих (2025) [PDF]
 
->>Аниме разное
->>Аниме DVD
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1967.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У старшеклассницы Макото не задался день: контрольная написана плохо, на уроке кулинарии сгорела темпура, на перемене ее сбили с ног; после уроков она относила анкеты и растянулась в лаборатории. И, в качестве эффектного завершения дня, у Макото отказал тормоз на велосипеде, причем выяснилось это как раз на железнодорожном переезде, когда поезд уже подходил... Если (   Читать дальше...   )Производство: MadhouseЖанр: приключeния, фантастикa, романтикa, драмaРежиссер: Мамору ХосодаЯзык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи) by ReanimediaПродолжительность: 95 мин.
+Александра Сыщикова - дипломированный специалист по японскому языку и литературе, автор учебных и справочных пособий.
+Перед вами практическое пособие для тех, кто начинает изучение японского языка с нуля. Здесь представлена базовая грамматика, а также основные сведения о японской письменности, чтении и произношении.
+Пособие подходит для самостоятельных занятий и (   Читать дальше...   )Жанр: Языки, обучениеИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:222ACAEA0E1D5D66D14A241AE800EC44C4AFA200
+magnet:?xt=urn:btih:3C002261A1B28D9EDB546F987756211CE198D38F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818956   (1968) от 19.09.2025
+###  Публикация: 1851219   (1055061) от 01.02.2026
 
-Candice Ivory - New Southern Vintage (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Н. Крнета, Н. Румак | Японский язык. Полная грамматика в схемах и таблицах (2025) [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1968.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ain't So Blind (3:18)
-02.  Blue Blood (2025 Remaster) (3:06)
-03.  I'm in Trouble (3:47)
-04.  Foolish Pleasure (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:42
+Наталия Крнета - преподаватель японского языка в ИСАА МГУ со стажем работы более 20 лет, кандидат филологических наук, автор многочисленных исследований в области языкознания, справочных и учебных пособий. Наталья Григорьевна Румак - преподаватель японского языка в ИСАА МГУ, кандидат филологических наук, переводчик художественной литературы и автор множества учебных (   Читать дальше...   )Жанр: Языки, пособиеИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E63374EE2EC2E1FC5EB62A5143F0C73C1069B26
+magnet:?xt=urn:btih:607B3FA075456D8AEBFDF28C72AB82C2521A3BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +190,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818832   (1969) от 19.09.2025
+###  Публикация: 1851220   (1055060) от 01.02.2026
 
-Ward XVI - Identity (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Avant-Garde>
+Чун Ин Сун, А.В. Погадаева | Корейский язык. Полная грамматика в схемах и таблицах (2020) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1969.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Regeneration (06:28)
- 02. Into the Wilderness (05:06)
- 03. What's in the Box (05:36)
- 04. Macabaret (05:04)(   Читать дальше...   )Жанр: Hard Rock, Avant-GardeПродолжительность: 00:57:52
+Данное учебное пособие разработано признанными специалистами в области корееведения в России Чун Ин Сун и Анастасией Викторовной Погадаевой и включает подробное описание самой важной грамматики корейского языка.
+В пособии представлены подробные таблицы и схемы, емко и наглядно иллюстрирующие даже самые сложные и непонятные грамматические правила корейского языка. (   Читать дальше...   )Жанр: Языки, справочникИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C4044975EC07F012E93A0E8200817D3E514956D
+magnet:?xt=urn:btih:1D1CA3304D86861DD2223E75611DC374D6DBF11C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +217,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818838   (1970) от 19.09.2025
+###  Публикация: 1851221   (1055059) от 01.02.2026
 
-Grayceon - Then the Darkness (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Rock﻿>
+Alan Simpson | Python Automation For Dummies (2026) [PDF] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1970.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thousand Year Storm (04:41)
- 02. One Third (05:31)
- 03. Velvet '79 (06:20)
- 04. 3 Points Of Light (04:17)(   Читать дальше...   )Жанр: Progressive Metal, Rock﻿Продолжительность: 01:18:49
+Streamline Your Workflow and Boost Productivity with Python Automation
+
+In today's workplaces, there's a high demand for know-how on the Python programming language, especially for writing time-saving scripts that can simplify routine work tasks. Python Automation For Dummies delivers, with simple explanations of how you can use Python to automatically wrangle data (   Читать дальше...   )Жанр: Software Design Tools, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A1513613AA9F4A411A4F41ADB6D111CB3B91995
+magnet:?xt=urn:btih:E7F17B156995B8FCD4F7578520A0F665F6B0EC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,25 +245,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818951   (1971) от 19.09.2025
+###  Публикация: 1851222   (1055058) от 01.02.2026
 
-Текстуры - Creative Market - Vintage Light Leaks Textures - 282346854 [JPG, PSD]
+Chenyang Shi | Mastering Algorithms with Python. A Practical Approach to Problem Solving and Python Implementation (2025) [PDF] [EN]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1971.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не знаем, как вы, но мы в восторге от того, что эстетика ретро-плёнки живёт и процветает. И мы понимаем, почему многие любители винтажной фотографии стремятся к столь желанному потёртому виду старых любимых фотографий. Вот так щепотка царапин рассказывает историю потрёпанного снимка прошлого века. И даже засветки, которые раньше считались изъянами, теперь действительно (   Читать дальше...   )Формат: JPG, PSDРазрешение файлов: 5000x3500
+Gain a solid understanding of algorithms and improve your problem-solving abilities using Python code. With practical examples and clear explanations, this book bridges the gap between dense academic texts and overly simple industry guides.
+
+Focusing on the logic behind essential algorithms such as Breadth First Search (BFS), Depth First Search (DFS), Divide-and-Conquer, (   Читать дальше...   )Жанр: Computer Algorithms, Programming Algorithms, Python ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C741D1C383234F1614101264DAABB969A0DBD75
+magnet:?xt=urn:btih:C77948D65247D41E5EF1E9F463A48C9927E50D49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,25 +273,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818845   (1972) от 19.09.2025
+###  Публикация: 1851223   (1055057) от 01.02.2026
 
-Иконки - Envato - Stock Market 3D Icon - GPG6YMD [PNG, BLEND, OBJ, GLB]
+Abi Aryan | LLMOps. Managing Large Language Models in Production (2025) [PDF, EPUB] [EN]
 
->>Графика, Арт, Разное
->>Иконки и аватарки
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1972.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Раскройте весь потенциал своих финансовых проектов с нашей премиальной коллекцией из 25 3D-иконок фондового рынка, тщательно разработанных для широкого спектра применений. Улучшаете ли вы веб-сайт, создаете презентацию для инвесторов или разрабатываете приложение, эти универсальные иконки добавят ясности и профессионализма вашей работе. Каждая иконка отражает фундаментальный (   Читать дальше...   )Формат: PNG, BLEND, OBJ, GLBРазрешение файлов: 2000x2000
+Here's the thing about large language models: they don't play by the old rules. Traditional MLOps completely falls apart when you're dealing with GenAI. The model hallucinates, security assumptions crumble, monitoring breaks, and agents can't operate. Suddenly you're in uncharted territory. That's exactly why LLMOps has emerged as its own discipline.
+
+LLMOps: Managing (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Artificial Intelligence Expert Systems, Natural Language ProcessingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11C9619640D5BF7A55854268D4470ABD03D2BDCF
+magnet:?xt=urn:btih:964C916C9564305D57DCE6439F2CFFF69C3A4CD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,28 +301,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818888   (1973) от 19.09.2025
+###  Публикация: 1851226   (1055056) от 01.02.2026
 
-Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+Mayo Oshin, Nuno Campos | Learning LangChain. Building AI and LLM Applications with LangChain and LangGraph (2025) [PDF, EPUB] [EN]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1973.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Run
- 02 - You Again
- 03 - Love is Stronger
- 04 - In the Rain(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:18:38
+If you're looking to build production-ready AI applications that can reason and retrieve external data for context-awareness, you'll need to master--;a popular development framework and platform for building, running, and managing agentic applications. LangChain is used by several leading companies, including Zapier, Replit, Databricks, and many more. This guide (   Читать дальше...   )Жанр: Natural Language Processing, Customer Relations, Computer ScienceЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F114EC9EB480812B3064191C71BC54FC3302A23B
+magnet:?xt=urn:btih:EF1C6639DB1D0F55C541D1051EE9CD01398079E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,28 +327,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818876   (1974) от 19.09.2025
+###  Публикация: 1851228   (1055055) от 01.02.2026
 
-Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco, Vocal, Other>
+Liz Rice | Container Security. Fundamental Technology Concepts That Protect Cloud Native Applications. 2nd Edition (2026) [PDF, EPUB] [EN]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1974.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Neon Neural City
- 02 - Library of Starlight
- 03 - Neural Highways
- 04 - Stellar Synapse(   Читать дальше...   )Жанр: Electronic, Vocal, Disco, Euro-Disco, Vocal, OtherПродолжительность: 01:17:55
+As containerized and cloud native applications become foundational to modern software infrastructure, the need for a deep, conceptual understanding of their security implications has never been more urgent. Container Security, second edition, offers a rigorous yet practical examination of the technologies that underpin container platforms—equipping developers, operations (   Читать дальше...   )Жанр: Computer Networking, Cloud Computing, Computer Network SecurityЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F6FFAEABD6E64CD0B74A10CA721F45A1FACC263
+magnet:?xt=urn:btih:0060DB96E6722AFA9242537B84BC6C1D635C47F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,25 +353,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818979   (1975) от 19.09.2025
+###  Публикация: 1851231   (1055054) от 01.02.2026
 
-Ui Kits - UI8 - Farmiant - Farming Assistant App UI Kit [FIG]
+Bill Lubanovic | Introducing Python. Modern Computing in Simple Packages. 3rd Edition (2025) [PDF, EPUB] [EN]
 
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1975.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем Farmiant - Farming Assistant App UI Kit, тщательно продуманное и полностью адаптивное решение для дизайна, разработанное специально для сельскохозяйственной отрасли. Farmiant идеально подходит для стартапов в сфере агротехнологий, приложений для управления фермерским хозяйством и сельскохозяйственных платформ, помогая вам с легкостью создавать интуитивно (   Читать дальше...   )Формат: FIG
+Stuck in a coding conundrum? Whether you're an advanced beginner, an intermediate developer, or a curious newcomer, the complexities of coding can often feel like a labyrinth with no exit. With Python, however, you can start writing real code quickly—but where should you start?
+In this updated third edition, Bill Lubanovic acts as your personal guide to Python, offering (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2384005B9FF97E7C96D09CC7D672B56E17BE2CA8
+magnet:?xt=urn:btih:E4B891304A751A976EDD338A1768E0E4F36BF994
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,25 +380,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818846   (1976) от 19.09.2025
+###  Публикация: 1851232   (1055053) от 01.02.2026
 
-Проекты - VideoHive - Car Music Visualizer - 31925850 [AEP]
+Ю.Е. Воскобойников | Статистический анализ экспериментальных данных в пакетах MathCAD и Excel (2022) [PDF]
 
->>Проекты
->>Элементы (проекты)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1976.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уникальный шаблон After Effects, который поможет вам создать потрясающий музыкальный клип. Вы можете использовать его для продвижения новой песни, музыкальных фестивалей, концертов, синглов и многого другого.Формат: AEP
+Учебное пособие содержит изложение методов и алгоритмов математической статистики, решения задач фильтрации, аппроксимации, спектрального и гармонического анализа, возникающих при обработке и анализе экспериментальных данных.
+Приводятся необходимые теоретические положения и соответствующие расчетные соотношения. Отдельное внимание уделяется реализации этих соотношений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9060BF6E1B1544059679ADFA8B315779C5210CAA
+magnet:?xt=urn:btih:29BAE9D1AD3F7EB3267ED7FB824A4AA769929E62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,26 +407,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818824   (1977) от 19.09.2025
+###  Публикация: 1851234   (1055052) от 01.02.2026
 
-Саидмурод Давлатов | Долги тают на глазах. Стратегия быстрого избавления от финансового ярма (2019) [MP3, Павел Константиновский]
+С.П. Фиников | Курс дифференциальной геометрии (1952) [DJVU]
 
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1977.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Долги – это кандалы, которые тянут вниз, не дают развиваться и чувствовать себя счастливым.
-Автор этой аудиокниги, международный бизнес-тренер, доктор экономических наук и владелец 23-х бизнесов, предлагает продуманную стратегию избавления от финансового ярма. Саидмурод Давлатов знает, о чем говорит. 12 лет назад из-за серии неудачных решений он оказался должен $ (   Читать дальше...   )Жанр: БизнесИздательство: ЭксмоПродолжительность: 05:13:08
+Предлагаемый курс дифференциальной геометрии написан по программе физико-математических и механико-математических факультетов, но отличается некоторыми особенностями: плоские кривые рассматриваются как часть пространственных, широко используется кинематические соображения при рассмотрении перемещений трехгранника, связанного с точкой кривой или поверхности.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A2F029A709A38E661391773B5B2EA2F6520502E
+magnet:?xt=urn:btih:934B1472B82BC96C250341A3F07CCE81942A0A6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,25 +433,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818913   (1978) от 19.09.2025
+###  Публикация: 1851235   (1055051) от 01.02.2026
 
-Журнал | Тайны ХХ века №36 (1182) (сентябрь 2025) [PDF]
+Александр Нефёдкин | Боевые колесницы с серпами. «Тяжелые танки» Древнего мира (2020) [PDF, FB2, EPUB]
 
->>Журналы
->>Другие журналы
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1978.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+«Лезвия колесниц серпоносных нередко / Столь неожиданно рвут тела в беспорядочной бойне, / Что на земле увидать отсеченные руки и ноги…» – так римский поэт описывал смертоносное действие колесниц с серпами на поле боя. Колесницы с косоподобными лезвиями длиной около метра, установленными на колесах с каждой стороны квадриги, на протяжении почти четырех сотен лет (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: ЯузаФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22C33E6233967E51A414ACA37B575EB8BC9F565A
+magnet:?xt=urn:btih:7E2F06278C0EB32CBF6A146E31DF93E761FA0536
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,28 +459,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818814   (1979) от 19.09.2025
+###  Публикация: 1851237   (1055050) от 01.02.2026
 
-Byousoku 5 Centimeter | 5 сантиметров в секунду | 5 Centimeters per Second | Пять сантиметров в секунду [2007, Movie] DVD9+DVD5 576p raw+rus
+В.И. Глебов, С.Я. Криволапов | Практикум по математической статистике. Проверка гипотез с использованием Excel, MatCalc, R и Python (2019) [PDF]
 
->>Аниме разное
->>Аниме DVD
+>>Научная и техническая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1979.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Отрывок о цветущей сакуре", "Космонавт" и "5 сантиметров в секунду"...
-Три главы одной простой и точной истории о человеческих отношениях.
-Зарисовки о нашем мире потерявшем веру в чудо, но ещё не лишившемся мечты.
-(   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: романтика, драмаЯзык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи) by ReanimediaПродолжительность: 61 мин.
+В пособии приведено около 100 задач, посвященных проверке статистических гипотез. Представлены темы: 1) общие свойства (статистика критерия, мощность критерия, Р-значение); 2) критерии случайности, независимости, однородности; 3) критерии согласия (простые гипотезы); 4) критерии согласия (сложные гипотезы); 5) параметрические гипотезы.
+Разобраны примеры решения задач (   Читать дальше...   )Жанр: Компьютерная литература, МатематикаИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86626E664804D98098BF9B196503A2DB0ACF3279
+magnet:?xt=urn:btih:2B710ED35D4380AB1174BA9D4799781C9509DFF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,28 +486,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818961   (1980) от 19.09.2025
+###  Публикация: 1851238   (1055049) от 01.02.2026
 
-CHristina Crofts - Best Of Bottleneck (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Александр Дашьян, Андрей Чаплыгин | Вторая мировая война на море. Полная иллюстрированная энциклопедия (2019) [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1980.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Voodoo Queen (3:37)
-02.  Breakaway (3:49)
-03.  Lookin' Back On You (3:12)
-04.  Someone Younger (3:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:02
+Вторая мировая война охватила не только сушу. С самого начала войны боевые действия развернулись и на море.
+Уже 14 октября 1939 г. немецкая подводная лодка смогла прямо в базе потопить английский линкор «Ройял Оук», а 13 лекабря 1939 г. у берегов. Аргентины развернулось одно из первых морских сражений Второй мировой войны, в результате которого был потоплен немецкий (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: Яуза, ЭксмоФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9BF3892052EAFB42E7CBC2871DFBFC38598FFEE
+magnet:?xt=urn:btih:31894B26F69C6664CF47C535F5408E798645A553
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,25 +513,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818831   (1981) от 19.09.2025
+###  Публикация: 1851239   (1055048) от 01.02.2026
 
-Ричард Сеймур | Щебечущая машина (2022) [MP3, Станислав Иванов]
+В.Н. Шунков, В.В. Ликсо, А.Н. виноградов | Охота. Иллюстрированная энциклопедия (2015) [PDF]
 
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1981.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нам говорят, что социальные сети формируют зависимость. Мы, пользователи, ждем новой медийной сенсации, когда «лайкаем», «шерим» и пишем комментарии. Мы посылаем сигналы в систему, и она отвечаем нам, предлагая новый потребительский опыт на основе наших фантазий, желаний и слабостей. Это бесстрашный взгляд на оборотную сторону цифровой жизни: троллинг, сетевые субкультуры, (   Читать дальше...   )Жанр: Виртуальная реальность, Социальные сети, Цифровая эпохаИздательство: АСТПродолжительность: 07:59:35
+Еще с древнейших времен человек занимался охотой с целью прокормить себя. Сегодня охота – это еще и разумный отдых, который сплачивает человека с природой. Настоящее издание по праву можно назвать энциклопедией охотничьего дела. На ее страницах рассказывается о правилах охоты на некоторых животных и птиц, о том, как правильно организовать и провести коллективную (   Читать дальше...   )Жанр: Энциклопедии, ОхотаИздательство: ХарвестФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51518750CA6901AC30F506B0529204DD3B8C46DD
+magnet:?xt=urn:btih:F44CF801E391079F1353CD07A33A412801049486
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,28 +539,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818966   (1982) от 19.09.2025
+###  Публикация: 1851242   (1055047) от 01.02.2026
 
-Paradise Lost - Ascension (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, Death Metal, Gothic Metal>
+П.К. Рашевский | Курс дифференциальной геометрии (1956) [DJVU]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1982.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Serpent On The Cross [6:14]
-02 - Tyrants Serenade [4:21]
-03 - Salvation [7:08]
-04 - Silence Like The Grave [4:48](   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 01:01:01
+Книга содержит кривые на плоскости, дифференциальные и векторные функции, линейчатые и развёртывающиеся поверхности, внутренняя геометрия поверхности.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F57F13431CD55E2D23B41969AAF3C15B8927FEE2
+magnet:?xt=urn:btih:1DB6403B648ADA227D03273AB57C44D65C3825E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,28 +565,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818904   (1983) от 19.09.2025
+###  Публикация: 1851240   (1055046) от 01.02.2026
 
-Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [FLAC|Lossless|WEB-DL|tracks] <Pop>
+П.К. Рашевский | Курс дифференциальной геометрии (1938) [DJVU]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1983.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Prelude [2:36]
-02 - Something Beautiful [4:32]
-03 - End of the World [4:11]
-04 - More to Lose [4:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:09:33
+Курс дифференциальной геометрии» П.К. Рашевского, выпущенный в 1938 году издательством ГОНТИ НКТП СССР и является классическим учебником для вузов. Книга охватывает теорию кривых (плоских и пространственных) и поверхностей, и была написана автором в период активного преподавания на мехмате МГУ.Жанр: МатематикаИздательство: ГОНТИ НКТП СССРФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8670E0FFE267A0E8B3E777863C293D63B5D9708D
+magnet:?xt=urn:btih:CF8FF90ADC6D06D479EDC89FE79D5C7F88A7D8BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,25 +591,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818978   (1984) от 19.09.2025
+###  Публикация: 1851248   (1055045) от 01.02.2026
 
-Шрифты - Gumroad - Lemon Typeface [OTF, TTF, WOFF, WOFF2]
+Лидия  Клёс | Узоры для вязания на спицах. Большая иллюстрированная энциклопедия (2019) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1984.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Знакомьтесь с семейством шрифтов «Lemon» – сверхжирным сжатым шрифтом. От элегантного модернизма до вечного ар-деко и даже с ноткой абстрактной интриги – всё это воплощено в одном универсальном семействе шрифтов. Благодаря девяти насыщенностям, восемнадцати начертаниям, функциям OpenType, многоязычной поддержке и переменным шрифтам, «Lemon» – незаменимый инструмент (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+Новая большая энциклопедия по вязанию на спицах от самого авторитетного немецкого издательства ТОРР! На этот раз вы найдете в книге обширную и удивительно разнообразную коллекцию из 500 узоров для вязания на спицах всех видов. Классические, современные, инновационные. Каждый узор снабжен детальным описанием и понятной четкой схемой.
+
+Ажурные и плотные, фактуры и (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A59B7329086107B6CA8654F36E2CE97289A8A5E
+magnet:?xt=urn:btih:8198474A5A81284C9F352EF305D71C8ABAF94153
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +619,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818906   (1985) от 19.09.2025
+###  Публикация: 1851249   (1055044) от 01.02.2026
 
-Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [MP3|320 Kbps] <Pop>
+Альфред Брем | Жизнь животных. Большая иллюстрированная энциклопедия (2022) [PDF, FB2, EPUB, RTF]
 
->>Pop
->>Зарубежная поп-музыка
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1985.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Prelude [2:36]
-02 - Something Beautiful [4:32]
-03 - End of the World [4:11]
-04 - More to Lose [4:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:09:33
+В этом издании легендарных трудов Альфреда Брема собраны самые популярные виды млекопитающих, птиц, рыб, пресмыкающихся, земноводных, членистоногих и моллюскообразных. Вы откроете для себя неизведанный мир фауны, найдете множество интересных фактов и историй из жизни представителей животного мира со всех уголков нашей планеты. Популярные классы животных разбиты по (   Читать дальше...   )Жанр: Энциклопедии, ЖивотныеИздательство: ЭксмоФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0657D4092AFA431BC5E76162355842119E38A4C
+magnet:?xt=urn:btih:DD89EB8791B7CBA149BAE165A79E7D1189BE0992
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,25 +645,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818939   (1986) от 19.09.2025
+###  Публикация: 1851250   (1055043) от 01.02.2026
 
-Преемник: Зов предков / Halef: Koklerin Cagrisi (2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1 из ??) DeziDenizi (обновляемая)
+И.В. Мельников, С.А. Сидоров | Рыбалка. Иллюстрированная энциклопедия (2010) [PDF]
 
->>Зарубежные сериалы
->>Турецкие сериалы
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1986.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сехат, который решает покинуть свои родные земли, ведь, даже будучи наследником влиятельной семьи, он никогда не чувствовал от этого счастья. Парень уезжает подальше от этих мест и начинает строить свою жизнь.Производство: Турция / Most ProductionЖанр: драмаРежиссер: Дениз Челеби ДикилиташАктеры: Биран Дамла Йылмаз, Ильхан Шен, Сезин Бозаджи, Айбуке Пусат, Веда Юртсевер, Эрен Демирджан и др.Перевод: Двуголосый любительский (DeziDenizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:20:00
+Рыбалка – отличный вид отдыха и поэтому достаточно распространенное занятие для многих. Но результат, как правило, определяется массой объективных факторов, из которых не последнее место занимают умение и опыт рыболова.
+
+В настоящем издании представлена информация, которая поможет добиться успеха как начинающему рыболову, так и уже имеющему опыт. Это – и характеристики (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ХарвестФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C1E31FFA9EBB3F1C047901533C17EB9AA5D5609
+magnet:?xt=urn:btih:957C989367BCD532F1E5BFE445266A73074AAD02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,25 +673,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818926   (1987) от 19.09.2025
+###  Публикация: 1851251   (1055042) от 01.02.2026
 
-Пресеты - Lemon and Lace Studios - Winter Wedding Collection [XMP]
+А. Яскевич (сост.) | Большая иллюстрированная энциклопедия. Искусство Японии (2024) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1987.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055042.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Встречайте свою незаменимую коллекцию для зимних свадеб ! Более 20 пресетов с возможностью корректировки и 2 черно-белых пресета. Эта коллекция идеально подходит как для съёмки в помещении, так и на улице. С помощью одной коллекции вы можете редактировать фотографии от начала до конца свадьбы, включая банкет и фотографии в «золотой час».Формат: XMP
+Энциклопедия включает более 800 статей, расположенных в алфавитном порядке. Они рассказывают о различных школах, направлениях, техниках, стилях, жанрах и видах японского искусства. Книга прекрасно иллюстрирована; в ней несколько сотен цветных фотографий и репродукций, что делает ее поистине уникальным изданием такого рода. Энциклопедия адресована всем, кто интересуется (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19BE7B9A524B4152A61088EA6FE226F3E840F0FB
+magnet:?xt=urn:btih:F07040264E14728B8F1DAD2BD4CB732836CA9692
 ```
 
 https://mybot314.ru/tekegram_catalog/

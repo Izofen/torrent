@@ -1,77 +1,22 @@
-###  Публикация: 1432559   (164413) от 17.12.2020
+###  Публикация: 773881   (830673) от 05.04.2014
 
-AnyMP4 Screen Recorder for Mac 2.0.26 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164413.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Screen Recorder for Mac - приложение создано, прежде всего, для записи  видео с экрана Вашего компьютера. Благодаря интуитивно понятному и лаконичному интерфейсу, разобраться в программе можно быстро. AnyMP4 Screen Recorder поддерживает запись всего, что отображается на мониторе — потоковое видео, игры, звонки по Skype и так далее. С помощью этой программы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DD6AC0ACD302FF1F259F23BBC7C135B0BEFAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597907   (164414) от 17.12.2022
-
-Universal Mind Project - The Jaguar Priest (2016) [FLAC|Lossless|image + .cue] <Power Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthem For Freedom  4:13
-02. Truth  4:48
-03. The Bargain Of Lost Souls  4:29
-04. Dreamstate  5:41(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1968C81C17F194D4C42A4DD77F6E10ABB43550F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346211   (164415) от 18.12.2019
-
-Ashampoo Burning Studio 21.2.0.39 RePack (& Portable) by TryRooM [Multi/Ru]
+Спецагенты на отдыхе / Mais qui a re-tue Pamela Rose? (2012) BDRip [720p]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164415.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ashampoo Burning Studio - это всё то, о чём Вы просили. Откройте простейший способ достичь профессиональных результатов с чрезвычайно интуитивной, компактной, ещё более мощной программой для записи. Видео DVD с полностью анимированными меню, музыкальные CD с собственными обложками, защищённые паролем резервные копии данных и многое другое всего в паре кликов от Вас. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Дуглас Риппер когда-то служил в ФБР, но сейчас полностью отошел от дел. Однажды ему сообщают, что в деле, которое он давно расследовал, появились новые обстоятельства. У агента в отставке появляется хороший повод тряхнуть стариной, а заодно и повидаться со своим бывшим напарником Буллитом, которого он давно не видел. И хотя у этой непредсказуемой и чудаковатой парочки (   Читать дальше...   )Жанр: КомедияРежиссер: Оливье БарруАктеры: Кад Мерад, Оливье Барру, Омар Си, Лоран Лафитт, Одри Флеро, Гай Леклюиз, Филипп Лефевр, Лоуренс Арни, Ксавьер Летурнер, Ален ДутеПеревод: Профессиональный (двухголосый) НТВ+Продолжительность: 01:37:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:003A3815D2B526FA6C752CE5F6998537658DEC3A
+magnet:?xt=urn:btih:F5AF58A457BEB21DEB3E7841EE30421FD021019C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673747   (164416) от 02.11.2023
+###  Публикация: 774044   (830667) от 05.04.2014
 
-Aiseesoft Mac FoneLab for iOS 10.3.92 [En]
+Детки / Kids (1995) DVDRip (H.264)
 
->>Программы для macOS
->>Утилиты для macOS
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164416.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если вы случайно удалили с iPhone или iPad какую-то важную информацию (фото, видео, контакты, SMS) и у вас не оказалось резервной копии — не стоит паниковать. Восстановить данные поможет специализированная утилита Mac FoneLab, которая существует в версии для Mac. Mac FoneLab спасёт ваши данные после случайного удаления, неудачной перепрошивки или Jeilbreak, после (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2023 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+День из жизни тинэйджеров, болтающихся на задворках Манхэттена. Секс и наркотики, грязная брань и трогательная незащищенность… Все комплексы и амбиции подростков, вся красота и трагедия неприкаянной юности, все безумие 90-х.Жанр: Драма, КриминалРежиссер: Ларри КларкАктеры: Лео Фицпатрик, Джастин Пирс, Клоэ Севиньи, Розарио Доусон, Харольд Хантер, Якира Пегеро, Саджан Бхагат, Билли Вальдес, Билли Уолдмен, Хавьер НуньесПеревод: Двуголосый закадровый, Двуголосый закадровый (Премьер видео)Язык субтитров: РусскиеПродолжительность: 01:26:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F9B67494F287A885516048CF822C221C8E6F27A
+magnet:?xt=urn:btih:B9C6890F0ED3E4621CD2CC8EE775631F531D9C02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516895   (164417) от 13.12.2021
+###  Публикация: 774176   (830666) от 05.04.2014
 
-Cats In Space - Diamonds - The Best Of Cats In Space (2021) Compilation [FLAC|Lossless|image + .cue] <Rock, Classic Rock, Art Rock>
+Юрий Бурносов | Армагеддон. Книга 2. Зона 51 (Проект "Этногенез") (2014) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164417.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Too Many Gods
-Written-By – Greg Hart
-02. Silver & Gold
-Written-By – Greg Hart, Mick Wilson(   Читать дальше...   )Жанр: Rock, Classic Rock, Art RockПродолжительность: 01:00:57
+2014 год. Пораженные эпидемией вируса «Армагеддон» североамериканские штаты надежно изолированы от мира. Их называют Закрытой территорией. К ее исследованию приступает команда ученых, возглавляемая Андреем Гумилевым. Главная цель миссии — поиск вакцины от чудовищного вируса, но у нее есть и другое секретное задание — обнаружить таинственную «Зону 51», где американские (   Читать дальше...   )Жанр: Фантастика
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0613B17DF37089D049883D69769BE9C9EECC338
+magnet:?xt=urn:btih:C61EF7EF22116D67349D01BECF04D814C34D0F7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,515 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346365   (164418) от 18.12.2019
+###  Публикация: 1499429   (830664) от 13.10.2021
 
-В.А. Тихомирова | Сырные блюда (2009) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сыр придает изюминку любому блюду. Его можно добавлять в салаты и закуски, первые и вторые блюда, в блины, оладьи и выпечку. В одних рецептах сыр является основным компонентом (сырная паста, сыр в тесте); в других используется лишь в качестве добавки, но даже хорошо знакомое блюдо при этом сразу меняется - появляются пикантность и новые вкусовые качества.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E446249B422A8A4AAAF0B9C4E5E322EC2ABD8686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673719   (164419) от 02.11.2023
-
-Журнал | Дачный спец №11 (ноябрь 2023) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164419.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дачный спец» — журнал для всех, чья жизнь так или иначе связана с работой и отдыхом на земле. Независимо от уровня знаний в дачных делах, любой человек найдет в журнале именно то, что ему нужно: мнения и обзоры от известных в своей области специалистов, советы опытных дачников и садоводов, планировочные решения и мастер-классы от профессиональных дизайнеров, проверенные (   Читать дальше...   )Жанр: СадоводствоИздательство: ООО "Издательская группа "КАРДОС"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348E4403853CD4F723291C8C06202E8D6ED78A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598022   (164420) от 17.12.2022
-
-Пятеро на одного (17.12.2022) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808A35FF33687D996C09BDD152B6A37A6C44ED7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517071   (164421) от 13.12.2021
-
-Tone2 - RayBlaster 2.6.0 STANDALONE, VSTi (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164421.jpg" />
-</div>
-
-
-###  Подробнее
-
-RayBlaster 2 - воплощает новый метод синтеза под названием Impulse Modelling Synthesis (IMS). Вместо зацикливания формы звуковой волны, IMS создает звук посредством коротких всплесков энергии, которые затем объединяются, формируя определенный звук. Все это позволяет свободно манипулировать высотой тона, временем и тембром в реальном времени для создания комплексных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B5E4F367EE54D4B895F280E57AA8B5BCF85FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432249   (164422) от 17.12.2020
-
-ЛМД - Когда идёт дождь (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Когда идёт дождь [00:04:02]
-02 - Ток [00:03:54]
-03 - Свинцовый дирижабль [00:05:23]
-04 - Выходи танцевать [00:03:25](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FE83FFA0954FF14DFAFAEFD57DD93C56C9EFA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432163   (164423) от 17.12.2020
-
-Rock Legends - Metal Christmas (2015) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Wonderland
-02. White Christmas
-03. Have Yourself A Merry Little Christmas
-04. Santa Claus Is Comin' To Town(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDB6A7EA24DAD7DA592D8E39D535FCB5783B563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346322   (164424) от 18.12.2019
-
-Венди Моугел | Уроки голоса для родителей. Как превратить ваши природные «вокальные» данные в эффективный инструмент воспитания (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голос – сильнейший инструмент в воспитании ребенка. От того, как вы разговариваете со своим чадом, зависит его умение общаться, послушность и самое главное – чувства к вам. Но многие родители даже не подозревают, насколько важна роль голоса в воспитательном процессе.
-Человек – социальное существо. Ему жизненно необходимо общение, и оно должно быть правильным.
-В своей (   Читать дальше...   )Жанр: Воспитание детей, детская психологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21397021C8A1026E14CB4912FEAC41EA2CEE31C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673682   (164425) от 02.11.2023
-
-Topaz Video AI for Mac 4.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BB39BED4DAE90E17C2AB23EFBD7C4F416DCB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516981   (164426) от 13.12.2021
-
-PhotoScape X Pro 4.1.1 fix [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164426.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoScape X Pro – это простой и быстрый инструмент для редактирования фотографий. Помимо основных функций, таких как изменение размера, обрезка и повороты, вы можете применять различные эффекты и корректировки с помощью всего одного клика. Вы также можете украсить свои фотографии с помощью таких инструментов, как фреймы, наклейки (стикеры) и кисти.
-В качестве более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: © 2021 Mooii TechПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский, немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30006C98E2A9A57F2FD6C4BAED64752B7634E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597948   (164427) от 17.12.2022
-
-EdgeView 3 v.3.8.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164427.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E244769AC99F184C19DFD14F980261ECF2D2EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517040   (164428) от 13.12.2021
-
-Софья Прокофьева | Сказка о жадном мальчишке (1965) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как легко сделать человека жадным: вазочка конфет да кошелёк звонких монет. Но пересилит ли всё это, когда твоему другу требуется помощь?Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB706694D8D1F7C9B51F5B84301964996907106A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346315   (164429) от 18.12.2019
-
-Светлана Шишкова | Буквограмма от 2 до 7. Развиваем речь, играя (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164429.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Буквограмма» – уникальная комплексная программа развития ребенка. Она активно используется родителями и педагогами в России, Германии, Израиле, Испании, Новой Зеландии, Казахстане, Корее, Киргизии, Беларуси, ОАЭ, Италии, на Украине и в других странах. Но «Буквограмма» была бы невозможна без игр. Именно игра в простой ненавязчивой форме помогает гармонично развивать (   Читать дальше...   )Жанр: Воспитание детей, педагогикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020320680805247A9FF19B64617D654CBB1E7482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597830   (164430) от 17.12.2022
-
-Bow - City Race (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Race [00:04:03]
-02. Insomniac [00:04:23]
-03. Black Dog Liberation [00:03:44]
-04. Trader [00:03:47](   Читать дальше...   )Жанр: Groove Metal, Heavy MetalПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC5F993E2C7DAD00B422A2878F44F92DA7AACE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432325   (164431) от 17.12.2020
-
-А.А. Маркова (сост.) | Святые великомученицы Екатерина и Варвара (2013) [DJVU, PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представленная книга-сборник содержит жизнеописание святых великомучениц Екатерины и Варвары, историю их почитания, рассказ об их иконографии, даны и акафисты святым. Также в данный сборник входит несколько приложений: свидетельства о чудесах великомучениц Екатерины и Варвары, рассказ о храмах и обителях, посвящённых святым, и похвала великомученицам.Жанр: ПравославиеФормат: DJVU, PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1DC3091A1C81A0CED71CEABBE7AE294C4D1F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597951   (164432) от 17.12.2022
-
-Feeder 4 v.4.4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes. Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
-С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2004 - 2022 Reinvented SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5023C6219B7670A69447F1619510E4A8AB6D4ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346240   (164433) от 18.12.2019
-
-Города у моря. Как живут в Мельбурне / Cities by the Sea. Melbourne (2015) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мельбурн - мегаполис на юго-востоке Австралии, который уже не раз был включен в список лучших городов для жизни. Здесь живёт более четырех миллионов человек, многие из которых яркие представители творческой молодежи, формирующей стиль города. Далекий от общепринятых стандартов, Мельбурн создал свой собственный стиль: расслабленный, космополитичный и устремленный (   Читать дальше...   )Производство: ЕС, ARTE G.E.I.EЖанр: Документальный, познавательный, путешествияРежиссер: Кристиан СтефенховерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884BE30838E4E6A8439F31B4ECF6E946F04C40A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432240   (164434) от 17.12.2020
-
-Мистер Гро… - Не бойся огня (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В космос! [00:03:27]
-02. Сибирь [00:02:54]
-03. Деревянный макинтош [00:03:54]
-04. Таран [00:04:27](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4102C01F2B2BD7ABA83D96CBDFB59465CD14039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516936   (164435) от 13.12.2021
-
-VA - FSOE 700 - Rise Up (Mixed by Fuenka & Paul Denton) (2021) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANUQRAM - Brume (Extended Mix) (7:20)
-02. Juan Pablo Torrez, Gux Jimenez & Luli Diaz - Let Me Love You (Extended Mix) (7:44)
-03. Leghet - Ascenso (Extended Mix) (6:21)
-04. Paul Thomas, Fuenka & Schieber - Noir (Extended Mix) (6:12)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 06:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937490DAD0D0164C14AD174C63D6A61786682B70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516857   (164436) от 13.12.2021
-
-VA - Chillout King Ibiza: Welcome 2 My Island (2014) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Toolroom Vaults Vol. 1 (2021) [AAC|~339 Kbps] <House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164436.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Skysurfer, Lovay - Circling Elements (Down by the Sea Mix) (5:11)
-02. Cafe Americaine - Magical Mambo (Latin Lounge Cut) (5:24)
-03. Floating Clouds - Sun and Water (Long Cut) (6:06)
-04. Deeparture - Summerbreeze (Bossa Mix) (5:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:48:36
+01. Martin Ikin - LaTanya (Extended Mix) (6:41)
+02. Eli Brown - Get Down (Extended Mix) (7:32)
+03. Tiger Stripes - UFO (Extended Mix) (6:27)
+04. Low Steppa, Skapes - Reactor (Extended Mix) (4:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:27:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9681B2AB40FDC45DA5AF4F3FE403CD377696701D
+magnet:?xt=urn:btih:7792F45A7911D29FD0CF6D99201EF3710EA2C5B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,25 +105,431 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346267   (164437) от 18.12.2019
+###  Публикация: 1498712   (830663) от 13.10.2021
 
-Необычные собаки / Extraordinary Dogs (1997) SATRip
+VA - Vanlife Chill, Vol. 4 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brockman, Basti M - Everywhere We Go (Chillout Edit) (3:24)
+02. Roberto Bronco, Chris Brauer - Dolphins (Radio Edit) (4:25)
+03. Artur Bayramgalin - Toronto' Lights (Original Mix) (4:03)
+04. Mo'jardo, Tim Gelo - East Ave (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074D0463112B9AB85F3623FE762EAF8A99DC620B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495741   (830662) от 13.10.2021
+
+VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 2 (2021) [AAC|~332 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elkeland - Hallo (Original Mix) (4:42)
+02. Johannes Huppertz - By the Way (Original Mix) (5:15)
+03. Dreamhunter - Getaway Pilot (Original Mix) (4:04)
+04. Agua Loca - Laguna Guitarra (Original Mix) (2:30)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52D97CCCA5BA341041281D11A67BB5208535F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497208   (830661) от 13.10.2021
+
+Chillhop Guitar - Relax Beat & Smooth Guitar (2020) [AAC|~298 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The river (3:08)
+02. Romantic Sofa (5:15)
+03. Promenade (3:06)
+04. Trip in Lisbon (3:03)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C971E8F1D9AD4C47A956248EF04F02CB6BF237E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497415   (830660) от 13.10.2021
+
+VA - Beautiful Metamorphosis, Vol. 3 (2021) [AAC|~309 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow World - Undiscovered World (3:43)
+02. Premnaj - Meridian 21 (3:21)
+03. Anemine - Adams (3:51)
+04. Ensemble Ethnique - Pax (3:53)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256B7511DA95AAEDCAB5774BECE69C2C86484BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500024   (830659) от 13.10.2021
+
+VA - Luxury Kingsize Lounge, Vol. 2 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Forever (4:57)
+02. Giorgio Moroder - The Chase (Marat Taturas Coctail Pool Remix Radio Edit) (4:10)
+03. Inventors Of The Sun - Agua of Life (5:41)
+04. Lounge Deluxe, Jeela - Beautiful Man (6:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A24D9B50E8CD6CF0E0BA3552D3939611CFD5F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498523   (830658) от 13.10.2021
+
+VA - Fireplace Chill, Vol. 6 (2020) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman - Natural Elements (Original Mix) (3:17)
+02. VST - Awakeing (Original Mix) (4:47)
+03. Chambre 11 - Overwhelming Life (Original Mix) (5:38)
+04. Owen Krishnamurti - Spread Love (Original Mix) (5:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546B4E3F3835F44C5C359323A4FAD7E3FFCCD5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497637   (830657) от 13.10.2021
+
+VA - Autumn House Workout Vol.1 (2021) [AAC|~323 Kbps] <House, Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cris Roberts - Overview (Long Classic Mix) (2:43)
+02. Connections - Legato (Planned Mix) (3:08)
+03. Black Jag - Metropolis (Love Deep Mix) (3:31)
+04. Black People - Mental Healt (London House Mix) (2:48)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A41F9AEDB665FA7DBD378ABC60E9948D6DF1F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498883   (830656) от 13.10.2021
+
+Magneto - Requiem pour Satana (2021) [AAC|~326 Kbps] <Cocktail Nation, Space Age Pop, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magneto, Joanna Halszka Sokołowska, Igor Nikiforow - Pama Rum Kwan (5:03)
+02. La Rumbia en Blanco y Negro (3:14)
+03. Magneto, Joanna Halszka Sokołowska - Temptation of Stingray (6:19)
+04. Mambolero (5:40)(   Читать дальше...   )Жанр: Cocktail Nation, Space Age Pop, Easy ListeningПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EA2A32FB1B8796518BA4CD1371AC26120C9D3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497639   (830655) от 13.10.2021
+
+VA - Autumn House Workout Vol.2 (2021) [AAC|~312 Kbps] <House, Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Avenue - Over Right (Night Emotions Mix) (3:11)
+02. Chrisopher Torres - You See Man (Deep Style Mix) (3:34)
+03. FRANK WASSER - Rock This (Natural Mind's Club Mix) (3:57)
+04. Fantasy - On the Strength (5:07)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 01:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849EDB7B7DCEF35166D0685FB419DCD59EF178FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498716   (830654) от 13.10.2021
+
+VA - Vanlife Chill, Vol. 6 (2021) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco, Chris Brauer - Fountain (4:41)
+02. Marc Hartman - Don't Wanna Loose You (Original Mix) (5:24)
+03. Weathertunes - Flower Fields (Original Mix) (5:04)
+04. Weber & Weber - Fading to the Sky (Original Mix) (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA29A8EBA1291EF927F8F4D794E481B7B84098F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498276   (830653) от 13.10.2021
+
+VA - Manchester Orange: Urban Chillout Music (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Holy Moly – That's a Groove (3:08)
+02. Dellasollounge - Five to Give (Original Mix) (4:13)
+03. Martin Liege - Baby Come On (Original Mix) (3:39)
+04. Martin Hiska - You're My Thrill (6:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECB0A36C695100A93DC851FDDCFDF47E2CA2E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499432   (830652) от 13.10.2021
+
+VA - Toolroom Vaults Vol. 2 (2021) [AAC|~334 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pax - Shiver (Extended Mix) (6:21)
+02. Honey Dijon, Jerome Robins - Wanting (Extended Mix) (6:08)
+03. Eelke Kleijn - The Voices (Extended Mix) (7:25)
+04. René Amesz, Camilo Franco - Ruell (Extended Mix) (6:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9492FB3631C9F1E15B56FC3946F0E35A5DEC49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495742   (830651) от 13.10.2021
+
+VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloomfield - Boulevard St. Germain (Original Mix) (5:50)
+02. Music Of The Earth - Take This Joint (Worldtraveller Revisited) (4:09)
+03. Roberto Bronco - Street of Flowers (Original Mix) (5:04)
+04. James Butler - Floating Vibes (Original Mix) (2:55)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DE9B9C116394B740504B29DFE0E043EC0A359E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498119   (830650) от 13.10.2021
+
+VA - Before Sunset: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska, Michael Moses - Sandy (4:48)
+02. Dacosta - Sunset Boulevard (4:16)
+03. Matej Blanusa - Beginning (Medani Pieck) (3:58)
+04. Digby Jones - El Corazon (3:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D8A586830D046AFD9A4D047E588BE391FD709C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005979   (830649) от 10.04.2016
+
+Где логика? (2016.04.10) SATRip (выпуск 12)
 
 >>Документалистика и Телепередачи
->>Живая природа
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164437.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830649.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Их преданность уже давно вошла в поговорку. На суше и на воде, в войну и в мирное время они готовы прийти нам на помощь, порой ценой собственной жизни. Всего несколько тысяч лет тому назад человеку удалось приручить этого дикого зверя. И с тех пор собака живет рядом с нами, бескорыстно отдавая свою любовь хозяевам… Почему же разным породам свойственны разные черты (   Читать дальше...   )Производство: Великобритания, Partridge FilmsЖанр: Документальный, кинологияРежиссер: Эллисон АргоПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:26
+Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:47:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4018591E9AE8F236CD34661F905AACFD143F7D90
+magnet:?xt=urn:btih:73D66D45AB233176D3DD8F308E864FF7D588BAE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,28 +537,188 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432462   (164438) от 17.12.2020
+###  Публикация: 1005691   (830648) от 10.04.2016
 
-Crimson Cry - Playing Gods (2020) [MP3|320 Kbps] <Progressive Power Metal>
+Carlo Maria Giulini - Rossini: Stabat Mater (2006) [FLAC|Lossless|tracks] <Classical>
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Классика
+>>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164438.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830648.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What Are You Waiting For (04:01)
- 02. Oblivion (06:27)
- 03. Life Is Game (06:30)
- 04. Playing Gods (05:52)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:53:31
+01. Introduzione. Andantino moderato. Stabat mater dolorosa 09:59
+02. Aria (Tenore). Allegretto maestoso. Cujus animam gementem 06:50
+03. Duetto (Soprano I/II). Largo. Quis est homo 07:20
+04. Aria (Basso). Allegretto maestoso. Pro peccatis sue gentis 05:08(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:05:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6702F064D6D2D7FB7F577C381D158831011E7D85
+magnet:?xt=urn:btih:A27290E4A750035692961E383FD992FD1D11BA39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005773   (830646) от 10.04.2016
+
+Лига смеха (2016.04.09) SATRip (сезон 2, выпуск 4)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830646.jpg" />
+</div>
+
+
+###  Подробнее
+
+В субботу, 28 февраля состоялась премьера телевизионного проекта "Лига смеха" - крупнейшего юмористического шоу в Украине. Участниками первого Чемпионата Украины с юмора стали все желающие: команды КВН, СТЕМы и просто веселые компании. Всего на фестиваль зарегистрировалось 280 команд со всей Украины - Киева, Луганска, Днепропетровска, Львова, Одессы, Тернополя... (   Читать дальше...   )Телекомпания: 1+1Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248F54F75011802D77F561E51754D3AFD9FF1060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005899   (830644) от 10.04.2016
+
+Александр Ткач | Административное право Курс Лекций (2010) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий аудиокурс содержит краткий курс лекций по административному праву. В доступной форме рассмотрены основные теоретические вопросы курса с учетом новой системы и структуры федеральных органов исполнительной власти, изменения административного законодательства.
+
+Аудиокурс можно использовать в качестве учебного пособия для студентов высших и средних учебных (   Читать дальше...   )Жанр: Бизнес аудиокниги, АудиокурсыПродолжительность: 06:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBEB49E7A42A78729892A4F1225B74E84B8B0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 194083   (830643) от 25.04.2010
+
+DownHill - Silent City (2003) [MP3|320 kbps]<Dub, Downtempo, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dub, Downtempo, ExperimentalПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005925   (830641) от 10.04.2016
+
+Аштавакра | Аштавакра-гита. Песнь Аштавакры. Аштавакра-самхита [Две озвучки] (2012-2016) [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аштавакра Гита также известна под названием Аштавакра-самхита — священный текст индуизма, излагающий философию Адвайта-веданты. Содержание текста представляет собой беседу мудреца Аштавакры и легендарного царя Митхилы по имени Джанака. Этот диалог дает потрясающий образец божественного элемента, присутствующего в отношениях между реализованным гуру и в высшей степени (   Читать дальше...   )Жанр: Адвайта-ВедантаПродолжительность: 02:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC88CC1B9A86E0E0B3E6F924B217D0ED5AACA79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005891   (830638) от 10.04.2016
+
+Александр Орлов | Война за доли рынка. Конкурентные бои без правил. (2008) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбор компромата и заказные проверки госорганов, купленные суды и приставы-исполнители, заказные банкротства и недружественные поглощения, черный PR и законодательное лобби - впервые в одной книге анализируются апробированные на практике, но не входящие в число традиционных механизмы конкурентной борьбы.
+Такие действия, направленные как на защиту, так и на борьбу (   Читать дальше...   )Жанр: Бизнес аудиокнигиПродолжительность: 09:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57ACA61DD8CBB06B5DD7BDB5DD29D5AB06F1E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005559   (830636) от 10.04.2016
+
+Николай Белов (сост.) | 101 биография русских знаменитостей, которых не было никогда (2010) [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чьим сыном был Илья Муромец? Какими виделись нашим предкам Перун, Купала и Мокошь? Кто такие на самом деле Саша Белый и следователь Знаменский, Остап Бендер и Тарас Бульба, Штирлиц и князь Серебряный? Где и когда родились Незнайка и Масяня?
+ У героев русских народных сказок, былин, мифов, у героев классической русской и детской литературы, у кино-, телегероев и даже (   Читать дальше...   )Жанр: Фольклор, литературные героиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB2C1611A4A60C08C8CCC50338B93B5FAB3782B
 ```
 
 https://mybot314.ru/tekegram_catalog/

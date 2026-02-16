@@ -1,585 +1,23 @@
-###  Публикация: 1599524   (52766) от 20.06.2024
+###  Публикация: 1483507   (1006721) от 14.07.2021
 
-Книжная серия | Избранные главы высшей математики для инженеров и студентов втузов [22 книги] (1958 - 1985) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг по различным разделам математики для инженеров и учащихся высших технических учебных заведений.
-Позже была переиздана как серия "Вся высшая математика".Жанр: МатематикаИздательство: Физматгиз / НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E72EEF438DB284BD094D8DC698BF896FE6D0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731194   (52801) от 19.06.2024
-
-Collins Dictionaries | Korean Visual Dictionary (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Korean index help you to find words quickly as you learn. 3,000 essential words and phrases for modern life in Korea are at your fingertips with topics covering food and drink, home life, work and school, shopping, sport and leisure, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3EC1ED88F45A816209E67A9F04FB9991A8F38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731176   (52803) от 19.06.2024
-
-Collins | Thai Visual Dictionary (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52803.jpg" />
-</div>
-
-
-###  Подробнее
-
-A photographic guide to the key words and phrases in Thai. This attractive pocket-sized book is a perfect travel companion and provides a practical guide to Thailand and Thai language and culture. Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Thai index help you to find words (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D89CE247190049E0E9A640B0F8CE4C1E739331E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731141   (52805) от 19.06.2024
-
-Angela Wilkes (editor) | Polish-English Bilingual Visual Dictionary (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52805.jpg" />
-</div>
-
-
-###  Подробнее
-
-A thematic organization of more than 10,000 fully illustrated terms labeled in both Polish and English, and comprehensive two-way indexes put the perfect translation at your fingertips. Additional feature panels include abstract nouns and verbs, as well as useful phrases that you can use in conversation once you are feeling more confident. Polish-English Bilingual (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A866ED92D10CF554823C04A1D5F9FF7B319C397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730838   (52873) от 18.06.2024
-
-Д.О. Иванов, А.И. Мелуа, А.Д. Ноздрачев | Академики Победы (2020) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биографические статьи и справки о советских ученых и специалистах, участвовавших в боевых действиях и в работах в тылу в период Великой Отечественной войны 1941 — 1945 гг., избранных в действительные члены и/или в члены-корреспонденты Академии наук СССР (Российской академии наук) перед войной, в годы войны или после войны.
-Под общей редакцией профессора А.И. Мелуа.Жанр: биографическая энциклопедияИздательство: "Гуманистика" (СПб)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F4006E128A0A0F8B76CC0A26713EA3A405AE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730959   (52875) от 18.06.2024
-
-Lingo Mastery | Spanish Short Stories for Beginners (2018) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52875.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this book we have compiled 20 easy-to-read, compelling and fun stories that will allow you to expand your vocabulary and give you the tools to improve your grasp of the wonderful Spanish tongue.
-How Spanish Short Stories for Beginners works:
-Each story will involve an important lesson of the tools in the Spanish language (Verbs, Adjectives, Past Tense, Giving (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Lingo MasteryФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6252F69363A7C7CCAA75A583AFA0961FA77FEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730899   (52888) от 18.06.2024
-
-Rod Ellis, Natsuko Shintani | Exploring Language Pedagogy through Second Language Acquisition Research (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52888.jpg" />
-</div>
-
-
-###  Подробнее
-
-The ideal text for all students studying language teaching methods, language teacher education, English teaching methodology and second language acquisition modules in advanced undergraduate and postgraduate/graduate TESOL and Applied Linguistics courses.
-Routledge Introductions to Applied Linguistics is a series of introductory level textbooks covering the core (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D675F018449AB15F3393460208713F89F87A093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730837   (52894) от 18.06.2024
-
-А.И. Мелуа (ред.) | Медики России. Биографии (2008) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Включает биографии специалистов в области медицины, науки и практики, а также в области некоторых смежных наук, внесших существенный вклад в развитие этих направлений.
-Составлена на основе материалов, представленных отдельными организациями и гражданами, а также на основе отечественных и зарубежных архивных фондов, компьютерных баз данных Научного издательства "Гуманистика", (   Читать дальше...   )Жанр: биографическая энциклопедияИздательство: "Гуманистика" (СПб)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6A4E757E397C6751537EC27A2F4A3A02CC5F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730834   (52905) от 18.06.2024
-
-А.И. Мелуа | Энергетики России и СНГ, 4-е издание [2 тома] (2007) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Включает творческие биографии ведущих специалистов в области энергетики, гидротехники, ряда смежных дисциплин.
-
-Составлена на основе материалов, представленных отдельными организациями, работающими в области энергетики, а также компьютерных баз данных Научного издательства "Гуманистика"; архивов и коллекций научных институтов, библиотек и исследователей, (   Читать дальше...   )Жанр: биографическая энциклопедияИздательство: "Гуманистика" (СПб)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925E563BFC16D878B8D44761ED8056AB461C2A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730512   (53100) от 16.06.2024
-
-Helen Gubby | English Legal Terminology Legal Concepts in Language. Fourth edition (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legal English is a professional language. This book is designed for law students who have followed their law studies in a language other than English. Textbooks on English law are too detailed for those who want to understand English legal terminology rather than English law itself. Legal dictionaries are useful but, as the words are ordered alphabetically, terms (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Eleven International PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18755FDA78A431A8EC3EBCF7450AE1F988BD0387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730568   (53105) от 16.06.2024
-
-Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53105.jpg" />
-</div>
-
-
-###  Подробнее
-
-French Conversation is the go-to guide for expanding conversational fluency. Organized into 11 units, it presents realistic everyday dialogues, followed by helpful instruction on correct syntax and word usage, as well as lots of conversation-ready phrases.
-Inside... you'll learn how to Engage in dialogues that illustrate practical conversations. Expand your French (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730590   (53115) от 16.06.2024
-
-Р.А. Сапожников и др. | Основы технической кибернетики (1970) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53115.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложены основные положения теории информации, общие принципы построения систем автоматического управления, математический аппарат для описания непрерывных и дискретных сигналов, проблема устойчивости, надежность систем автоматического регулирования и другие вопросы технической кибернетики. По теоретическим темам приведены расчетные примеры. В книге приводятся (   Читать дальше...   )Жанр: Технические наукиИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31E50DD86868AE0BD433AD1F6D1B5396606A833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730316   (53194) от 15.06.2024
-
-Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (2018) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comprehensive subject review for every section of the exam
-Valuable practice with complex reading comprehension passages and higher-level math problems
-7 full-length practice tests (4 in the book, 3 online) with detailed answer explanations
-Drills for each test section—Reading, Writing and Language, and Math(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Princeton ReviewФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCB5541A39C10234C661E1A1A261CAF8AF245A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730355   (53196) от 15.06.2024
-
-Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth edition (2019) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53196.jpg" />
-</div>
-
-
-###  Подробнее
-
-The concise clarity of this book makes it a handy reference for anyone interested in good writing-as well as a quick and ideal guide for freshman composition courses, writing courses across the disciplines, and as a supporting text in courses that require clear and direct writing. Style: The Basics covers the elemental principles of writing that will help students (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E416F10F811A7EE26633C8CECD81EF672328FEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730336   (53231) от 15.06.2024
-
-Diane Engelhardt | Perfect Phrases for ESL. Third edition (2022) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfect Phrases for ESL: Conversation Skills is filled with hundreds of ready-to-use English phrases to help you navigate your way through social and business situations. There are phrases for talking with friends, offering opinions, collaborating with co-workers, addressing misunderstandings, and more. The book also includes common slang expressions you can use (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2661A4E7EFBA18BB25142FAB0F89B7D42636116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730102   (53300) от 14.06.2024
-
-Tammi J. Schneider, Shelley L. Birdsong | The Bible Book (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53300.jpg" />
-</div>
-
-
-###  Подробнее
-
-The stories, events, and teachings contained in the scriptures of the Old and New Testaments of the Bible, from Genesis to Revelations explained with accessible text and bold graphics.
-The Bible Book explores the ideas and beliefs key to the teachings of the most widely printed religious book of all time. This highly visual book highlights more than 100 of the most (   Читать дальше...   )Жанр: познавательная религиозная  литератураЯзык: английскийИздательство: D.K. PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA330B06249EBF53C11E5DF42092E21AAD2B148E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730033   (53340) от 14.06.2024
-
-А.Е. Каплянский, А.П. Лысенко, Л.С. Полотовский | Теоретические основы электротехники (1972) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53340.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются элементы электрических цепей, их линейные и нелинейные параметры, основы теории источников и приемников, осуществляющих взаимное преобразование электромагнитной и механической энергии. Излагаются теория линейных и нелинейных цепей с сосредоточенными параметрами при постоянном и переменном токе, при переходных процессах, установившиеся и переходные (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8633217AD5E4CBB4FB8109810C417DC4349F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730121   (53344) от 14.06.2024
-
-Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53344.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Language Files: materials for an Introduction to Language and Linguistics" has become one of the most widely adopted, consulted, and authoritative introductory textbooks to linguistics ever written. The scope of the text makes it suitable for use in a wide range of courses, while its unique organization into student-friendly, self-contained sections allows (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Ohio State University PressФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6437FFBC83466B028F2FDDD63E19795B5E383E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729994   (53425) от 13.06.2024
-
-Emma Eberlein O.F. Lima, Samira A. Lunes | Falar, ler, escrever portugues. Um curso para estrangeiros. (2 издание) (2006) [PDF] [PT]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Falar, ler, escrever português - Um curso para estrangeiros. Livro do aluno (com a nova ortografia). Este livro, através de método estrutural-comunicativo, leva o aluno totalmente principiante a entender, falar, ler e escrever português com fluência e segurança, em nível de linguagem coloquial correta. É destinado a adultos (   Читать дальше...   )Жанр: учебное пособиеЯзык: португальскийИздательство: Editora Pedagogica E UniversitariaФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3C6A64105D054650E9AAF5BE824E889D690137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729889   (53429) от 13.06.2024
-
-Christopher Seely, Kenneth G. Henshal | The Complete Guide to Japanese Kanji (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53429.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Complete Guide to Japanese Kanji: (JLPT All Levels) Remembering and Understanding the 2136 Standard Characters includes: Clear, large-sized entries, All of the General Use Joyo Kanji Characters, Japanese readings and English meanings, stroke-count, stroke order, usage examples, mnemonic hints for easy memorization.
-This book is essential to anyone who is planning (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Tuttle PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694FCFBB3F2F0059BD04B7C066AC096A08FDA040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729947   (53447) от 13.06.2024
-
-Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn over 500 words and move up a level with our course book English Unlocked! Over 100 pages of quality learning. Your complete, self-study English learning pack.
-Inside...
-How to learn English with us.
-How to access Hot English.(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Hot English PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9F0BF1F97143063A5B97A475F661C62A8E18DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729893   (53449) от 13.06.2024
-
-Р.С. Гутер, Б.В. Овчинский | Элементы численного анализа и математической обработки результатов опыта (1970) [DJVU]
+Оомия Нобумицу | Замечательные научные теории (2021) [PDF]
 
 >>Научная и техническая литература
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53449.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первая часть содержит основные методы вычислительной математики: приближенное решение уравнений и систем, простейшие задачи линейной алгебры, параболическую интерполяцию, численное интегрирование и решение дифференциальных уравнений. Вторая часть посвящена теории вероятностей в объеме, предусмотренном общей программой втузов. В третьей части рассматривается теория (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+Важные научные открытия делают реальностью то, о чём ещё совсем недавно писали фантасты. Какие идеи в науке можно считать прорывными и как они изменили нашу жизнь? В этой книге затрагиваются концепции, принципы и законы, которые стали ключевыми для развития цивилизации и технологий.
+Автор рассказывает о масштабных достижениях учёных - начиная с изобретений древности (   Читать дальше...   )Жанр: Научно-популярная литература, Естественные науки, АстрономияПеревод: К.В. ПавловскаяФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15A634BB92FF7AD1AA8C9CA6684CF665A4B6B9C2
+magnet:?xt=urn:btih:9513C0C1C3A07638318F12BFFFB19D9678D38B0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,26 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729677   (53508) от 12.06.2024
+###  Публикация: 1483659   (1006613) от 15.07.2021
 
-В.С. Попов, С.А. Николаев | Общая электротехника с основами электроники (1972) [DJVU]
+Пим ван Ломмель | Сознание за пределами жизни. Наука о жизни после смерти (2021) [FB2]
 
 >>Научная и техническая литература
->>Учебники
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53508.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006613.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге рассмотрены электрические цепи, электрические машины и трансформаторы, электротехнические намерения и приборы, электропривод и аппаратура управлением, передача и распределение электрической энергии, электронные лампы, гаэоразрядные приборы, полупроводниковые приборы, фотоэлектрические приборы, усилители и генераторы.
-Книга предназначена для учащихся техникумов (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
+Что думает современная наука о жизни после смерти? Автор этой книги – всемирно известный голландский кардиолог, исследователь опыта клинической смерти. Как практикующий врач, раз за разом вытаскивавший пациентов «с той стороны», он своими глазами видел невероятные случаи возвращения к жизни и из первых уст слышал невыдуманные рассказы своих пациентов о том, что они (   Читать дальше...   )Жанр: Истории из жизни, Популярно о медицинеПеревод: Ульяна СапцинаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AAB86FB98DF538E4733EE76021253A9C9E84A71
+magnet:?xt=urn:btih:FDB8799E111C8B48F89BB87406F99B44F57BDF5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,26 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729666   (53509) от 12.06.2024
+###  Публикация: 1483825   (1006478) от 16.07.2021
 
-В.С. Попов, С.А. Николаев | Электротехника (1969) [DJVU]
+Ричард Роуэн | Три тысячелетия секретных служб мира. Заказчики и исполнители тайных миссий и операций (2021) [FB2]
 
 >>Научная и техническая литература
->>Учебники
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53509.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Содержание книги соответствует программе курса электротехники для техникумов, дополненной вопросами новой техники: электрические машины автоматических устройств; основы электроавтоматики; вычислительные устройства; электротехнология.
-В книге рассматриваются основные вопросы расчета цепей постоянного и переменного токов, краткая теория измерения электрических и неэлектрических (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
+Американский исследователь Ричард Уилмер Роуэн посвятил свой труд истории деятельности спецслужб, охватывая три тысячелетия работы секретных агентов разных стран. Автор исследует практику и эволюцию слежки от королевских опочивален до двурушнического объединения, от автократичных заговоров и интриг до государственных форм «черной лестницы». Будучи не только оружием (   Читать дальше...   )Жанр: Военное дело / спецслужбы, Популярно об историиПеревод: О. И. ЛапиковаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F771994B92F7ACFA4B037CAE4DE5B48B8BB0695B
+magnet:?xt=urn:btih:0DDB39C1CA678DB68D003300079D8FBBA6EF7803
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,26 +77,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729672   (53515) от 12.06.2024
+###  Публикация: 1484135   (1006375) от 17.07.2021
 
-В.И. Константинов, А.Ф. Симонов | Сборник практических примеров и задач по общей электротехнике (1972) [PDF]
+Сон Чжунхо | Корея Южная и Северная. Полная история (2021) [EPUB]
 
 >>Научная и техническая литература
->>Учебники
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53515.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге собраны примеры и задачи из электротехнической практики, снабженные подробными пояснениями, анализом полученных результатов и практическими выводами. Кроме того, даны задачи для самостоятельной проработки (без решений , но с ответами).
-Задачи соответствуют теоретическому материалу, изложенному в учебнике В. С. Попова и С. А. Николаева «Электротехника» (изд-во (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+Корея – удивительная, самобытная страна, которой, находясь рядом с такими яркими и сильными соседями, как Китай и Япония, удалось сохранить свою уникальность.
+
+Автор описывает историю Кореи с древнейших времен и до наших дней, показывает, как ее географическое положение, экономическая, культурная и политическая ситуации влияли на развитие страны, рассказывает о том (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно об историиФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9CB3109EAE00A73136ED18CF8C1CAD629D82EA9
+magnet:?xt=urn:btih:A9E0C0D58B375C68D098B9C3A7A20EE987924102
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,27 +105,582 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729755   (53517) от 12.06.2024
+###  Публикация: 1484060   (1006369) от 17.07.2021
 
-Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
+Али Хан, Уильям Патрик | Следующая пандемия. Инсайдерский рассказ о борьбе с самой страшной угрозой человечеству (2021) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инсайдерский рассказ врача о борьбе с инфекционными болезнями – самыми массовыми убийцами на планете – и о панике, которая настигает нас и усугубляет проблему. Али Хан рассказывает, откуда приходят эпидемии и как они распространяются, раскрывает способы борьбы и обсуждает эффективность вакцинации. Захватывающее повествование, полное научных фактов, предостережений (   Читать дальше...   )Жанр: Истории из жизни, Популярно о медицине, ЭпидемиологияПеревод: Василий ГороховФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C168329D366806434BB2754F3DCA61F7FBF734AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484107   (1006338) от 17.07.2021
+
+Джордж Оруэлл | 1984. Книга для чтения на английском языке (2018) [PDF, FB2, EPUB, MOBI] [En]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53517.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TOEFL iBT recycles opinion-based and fact-based arguments for testing purposes from start to finish. If you want a high score, you need essential argument scoring strategies. Learn how to maximize scoring by rhetorically analyzing all reading, listening, speaking and writing tasks.
+Вниманию читателей предлагается знаменитый роман-антиутопия английского писателя Джорджа Оруэлла «1984», в котором он изобразил возможное будущее человечества как тоталитарный иерархический строй, основанный на изощрённом физическом и духовном порабощении, пронизанный всеобщим страхом и ненавистью.
 
-TOEFL iBT от начала до конца использует аргументы, основанные на мнениях и фактах, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Nova PressФормат: PDFКачество: Обработанный скан
+Полный неадаптированный текст романа снабжён комментариями и словарем. (   Читать дальше...   )Жанр: Английский язык, Зарубежная классика, Литература 20 векаФормат: PDF, FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:715D24F212003636D31D0ED782DFED5315683BA8
+magnet:?xt=urn:btih:B31FE446FB80D96982C26D941CE4706BD43ABE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484380   (1006122) от 19.07.2021
+
+Сергей Платонов | Полный курс лекций по русской истории (2006) [FB2, EPUB, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006122.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Полный курс лекций по русской истории» – уникальное издание, в основу которого легли лекции, прочитанные С.Ф. Платоновым в Петербургском университете и на Бестужевских курсах. После очерков Д.И. Иловайского лекции С.Ф. Платонова стали самым подробным обобщающим изданием, в котором огромный период российской истории – от расселения славян в Европе до Великих реформ (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D722E9ED6318BE051EFCB57DBE792819E6BE1995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484743   (1005917) от 21.07.2021
+
+Адриенна Мэйор | Митридат. Отважный воин, блестящий стратег, зловещий отравитель. 120–63 гг. до н. э. (2015) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адриенна Мэйор, преподаватель древней истории Стэнфордского университета, впервые преподносит читателю полную историю одного из самых безжалостных царей, мятежника-мечтателя, бросившего вызов власти Рима в I веке до н. э., Митридата. Макиавелли восхищался его военной гениальностью, европейские короли гонялись за его секретным противоядием… Одаренный высоким интеллектом (   Читать дальше...   )Жанр: Биографии и Мемуары, ИсторияПеревод: Л. ОгареваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C4BCB87597A47B808A2C2E7FFBCDA2E2D96CFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484765   (1005896) от 21.07.2021
+
+Владимир Тюрин | Руководство по оформлению ДТП на дороге (2020) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать если попал в ДТП? Кому звонить и как его оформлять? Ответы на эти вопросы есть в моем руководстве, прочтите или сохраните его и вы всегда справитесь с оформлением ДТП или сможете помочь другим участникам ДТП.Жанр: Руководства, Страховое право, ЮриспруденцияФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E3FFB2CFB8A0BFC5FCADE659CDE6EDC500155C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 668304   (1005582) от 24.07.2021
+
+Генри Стенли | Черезъ страну карликовъ (1905) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стэнли, Генри Мортон (1841-1904), журналист, исследователь Африки. В 1871-1872 гг. как корреспондент газеты "Нью-Йорк геральд" участвовал в поисках Давида Ливингстона; вместе с ним исследовал озеро Танганьика. Дважды пересек Африку: в 1874-1877 гг. с востока на запад, проследил почти все течение реки Конго (Заир), исследовал озеро Виктория, открыл озеро (   Читать дальше...   )Жанр: Путешествия, историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36CC191E64E554436F88DA6F879B5F9B91ECB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485313   (1005408) от 25.07.2021
+
+Франс де Вааль | Наша внутренняя обезьяна. Двойственная природа человека (2021) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга одного из известнейших приматологов мира Франса де Вааля посвящена эволюционным истокам человеческой натуры, ее двойственности и биологическим корням.
+Де Вааль рассматривает четыре ключевые стороны нашей природы – стремление к власти, потребность в сексе, склонность к актам насилия и проявлениям доброты – и на основании многолетних наблюдений за человекообразными (   Читать дальше...   )Жанр: Антропология, Научно-популярная литература, Первобытное обществоПеревод: Анна ОлефирФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172D5BE3DF47A4733BAF6C07DE4437828CA949EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485418   (1005372) от 25.07.2021
+
+Подборка | Сборник книг по VoIP или IP-телефонии [30 книг] (2002-2019) [PDF, DJVU, FB2, EPUB] [EN, RU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005372.jpg" />
+</div>
+
+
+###  Подробнее
+
+VoIP (Voice over Internet Protocol) или IP-телефония - это технология, которая обеспечивает передачу голоса в сетях с пакетной коммутацией по протоколу IP, частным случаем которых являются сети Интернет, а также другие IP - сети (например, выделенные цифровые каналы).
+Голосовой сигнал из канала VoIP может непосредственно поступать на IP-телефон, подключенный к IP-сети (   Читать дальше...   )Жанр: Компьютерные технологии, сетевые коммуникации, телефонияФормат: PDF, DJVU, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3BD64179ECCCB41ED01B23C05A910ED90B60C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485434   (1005255) от 26.07.2021
+
+А.В. Солодов, В.Д. Мунистер | Экономика знаний. Блокчейн и умные контракты (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005255.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии проведено обобщение теоретических подходов к исследованию способов применения технологии блокчейн в образовании и науке. Дано описание блокчейна и технологий, использующих его в основе своей работы,  предоставлена общая характеристика истории развития и устройства работы рассматриваемой технологии в контексте цифровой экономии, которая сопровождена (   Читать дальше...   )Жанр: Учебное изданиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F4CDF526535287ED2C5368452A44954BF25945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485751   (1005181) от 27.07.2021
+
+Уильям М. Макговерн | Древние империи Центральной Азии. Скифы и гунны в мировой истории (2021) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Монтгомери Макговерн – американский исследователь, профессор Северо-Западного университета, штат Иллинойс, антрополог, журналист и путешественник – представляет свой труд по истории Центральной Азии, отмечая ее значение в развитии цивилизаций Древнего мира. Макговерн обращает внимание на важную роль, которую играла Центральная Азия в культурной истории человечества (   Читать дальше...   )Жанр: История Древнего мира, Популярно об историиПеревод: Л.А. ИгоревскийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CA928D54F984B646EA98D1DD44DC7C3D834D7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485882   (1005058) от 28.07.2021
+
+Кэтрин Мэнникс | Как мы умираем. Ответ на загадку смерти, который должен знать каждый живущий (2021) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэтрин Мэнникс проработала более тридцати лет в паллиативной помощи и со всей ответственностью заявляет: мы неправильно относимся к смерти.
+
+Эта тема, наверное, самая табуированная в нашей жизни. Если всевозможные вопросы, касающиеся пола и любви, табуированные ранее, сейчас выходят на передний план и обсуждаются, про смерть стараются не вспоминать и задвигают как (   Читать дальше...   )Жанр: Истории из жизни, Популярно о медицинеПеревод: Т. ГальцеваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7022E8BBD992B7B3C61B1F5FF165B08F63B98CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486181   (1004975) от 29.07.2021
+
+Александр Бондаренко | Военные контразведчики (2019) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга — это рассказ о столетней истории и славных боевых делах военной контрразведки ВЧК — ОГПУ — НКВД — КГБ — ФСБ России, а также — о ее людях. Но это не биография одной конкретной личности и не сборник очерков. Говоря об истории службы, автор постарался рассказать о многих ее сотрудниках, что позволит читателю получить достаточно полное представление (   Читать дальше...   )Жанр: Военное дело, спецслужбы, Документальная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936E7FAEBEB80C27A3979B445D23C762EEAED6F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486129   (1004973) от 29.07.2021
+
+Мишель Сапане | Репортаж из морга. Как судмедэксперт заставляет говорить мертвых (2021) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мишель Сапане – судмедэксперт с более чем 30-летним стажем работы. Каждый год его команда вскрывает и изучает более 450 тел, помогая следствию установить причины смерти и даже найти преступника.
+Повешенный бизнесмен с пулей в голове, мертвец без лица у железной дороги, задушенный мужчина в советском противогазе… У всех них разные загадочные истории, но один конец (   Читать дальше...   )Жанр: Медицина, Криминалистика, Научно-популярная литератураПеревод: О.С. КурашФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9154CE57FCCD1BF911B9686B0F12C1B389647445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643679   (1004786) от 30.07.2021
+
+Сергей Южаков | Большая энциклопедия [20 томов] (Раритетное издание) (1900-1907) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая энциклопедия: Словарь общедоступных сведений по всем отраслям знания под редакцией С. Н. Южакова — российская универсальная энциклопедия, выпущенная книгоиздательским товариществом «Просвещение» (Санкт-Петербург) совместно с Библиографическим институтом (Лейпциг, Вена), издававшим немецкий словарь Майера (Meyer), взятый за образец при составлении энциклопедии.Жанр: Раритеты, энциклопедияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D796C969528559BC90535CC2FCD0EC444F97AD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486558   (1004709) от 31.07.2021
+
+Сергей Шумский | Воспитание машин. Новая история разума (2021) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каковы социальные и экономические последствия развития машинного интеллекта и как изменится наша жизнь в ближайшие десятилетия? Отвечая на эти вопросы, известный российский специалист в области искусственного интеллекта Сергей Шумский использует исторический подход, отслеживая смену технологических эпох вплоть до сегодняшних дней.
+
+Появление машинного интеллекта (   Читать дальше...   )Жанр: Информатика и вычислительная техника, Книги о компьютерах, Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C60DB305748F490C6232341388404E9917232A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486545   (1004643) от 31.07.2021
+
+В. П. Большаков, А. В. Чагина | 3D-моделирование в КОМПАС-3D версий V17 и выше. Учебное пособие для вузов (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004643.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается известная российская программа КОМПАС-3D, основными компонентами которой являются система трехмерного моделирования КОМПАС-3D и чертежный редактор КОМПАС-График. Система КОМПАС постоянно совершенствуется, в версиях V17 и выше, по сравнению с предыдущими, произошли существенные изменения в интерфейсе и терминах. Эти изменения отражены в четырех (   Читать дальше...   )Жанр: Программы, Проектирование, Учебники и пособия для вузовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631C97F64EE07D1B34A79DB42BA370A27C0B30D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486726   (1004607) от 01.08.2021
+
+В.И. Сисаури | Японский роман X-XII вв. (2011) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена развитию японского средневекового романа, не имеющего аналогов в литературе других стран соответствующей эпохи. В книге анализируются дошедшие до нашего времени произведения, созданные в период Х-ХII вв., выявляются их истоки, взаимосвязь, влияние на них сочинений других жанров, в том числе буддийской литературы, анализируется стиль. Средневековый (   Читать дальше...   )Жанр: Филологические науки, Литературоведение и критикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA1AC301466C636B5CB9FE6D1C353A2BCFB0B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486673   (1004594) от 01.08.2021
+
+А.А. Росляков | Краткий очерк истории Туркменистана (до присоединения к России) (1956) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основное место в работе уделено истории туркмен и их предков. Однако, история туркменского народа так тесно переплетена с историей других народов Средней Азии, что ограничиться изложением событий, происходивших на территории, заселенной туркменами, было бы в ряде случаев неправильно и невозможно.Жанр: История Туркменистана, ИсториографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C588524106A23E0DEDD5FB50A43E9D923DC631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486678   (1004581) от 01.08.2021
+
+С.Г. Агаджанов | Очерки истории Огузов и Туркмен средней Азии IX-XIIIв. (1969) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004581.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемой книге исследуется комплекс проблем истории предков туркменского народа. Значительное место в монографии занимают проблемы социально-экономического строя и военно-политической истории огузов и туркмен. Специальная глава монографии посвящена происхождению сельджукидов и сельджукскому движению X—XI вв. Приводится очерк истории государства сырдарьинских (   Читать дальше...   )Жанр: Историография, История ТуркменистанаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F168062EFB244753798DC2B202444C243EF5D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486819   (1004570) от 01.08.2021
+
+Н.А. Дубова (отв. ред.) | Туркмены (2016) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой очередной том энциклопедической этнологической серии «Народы и
+культуры»: обобщает исторические, этнографические, антропологические материалы, собранные и опубликованные до настоящего времени по различным аспектам истории и культуры туркменского народа.
+В книге освещаются история изучения туркменской этнографии, история туркменского народа, (   Читать дальше...   )Жанр: ЭтнологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6940A72D367DBEFCAD2F155DD45983B48DFFA3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486674   (1004551) от 01.08.2021
+
+А.Н. Кононов | Родословная Туркмен (сочинение Абу-л-Гази Хана Хивинского) (1958) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004551.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагает биография Абул-л-Гази, дается общая историческая характеристика положения в Хорезме в XVII в., представляется социальный анализ узбекско-туркменских отношений в это время, вырисовывается картина внутренней жизни туркменских племен, излагается история наиболее крупных из этих племен, показывается роль Ирана в событиях описываемого периода и многое (   Читать дальше...   )Жанр: Историография, История ТуркменистанаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E10163EE0E902DB7BE1A77C42A68C408CC8D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349443   (1004490) от 01.01.2020
+
+М.Д. Евтифьев | Огненные крылья. История создания реактивной авиации СССР (2005) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга историка авиации и ракетной техники М.Д. Евтифьева посвящена малоизвестным страницам истории советской реактивной авиации. В ней впервые рассказывается о выдающихся авиаконструкторах, инженерах и испытателях, самоотверженно трудившихся над созданием отечественной реактивной авиации. Книга адресована не только специалистам авиационной и ракетно-космической техники, (   Читать дальше...   )Жанр: Военная история, Военная техникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4BD13EDBC4E148859EF5D58C2FA1FEC955C442
 ```
 
 https://mybot314.ru/tekegram_catalog/

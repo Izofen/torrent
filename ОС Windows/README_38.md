@@ -1,135 +1,25 @@
-###  Публикация: 1841441   (1048019) от 11.12.2025
+###  Публикация: 1798142   (17708) от 20.05.2025
 
-Windows 7 SP1 with Update [7601.28021] AIO (x64) by SURASOFT (v25.12.09) [Ru]
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов от MSDN.
-ru_windows_7_professional_with_sp1_x64_dvd_621772.iso
-ru_windows_7_ultimate_with_sp1_x64_dvd_618249.iso
-ru_windows_7_enterprise_with_sp1_x86_dvd_620274.iso(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEB06285D2C0F89A03A16DA252CAE6E1BE668A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841685   (1048059) от 13.12.2025
-
-Windows 7 SP1 7601.28064 x64 3in1 by OneSmiLe [12.12.2025] [Ru]
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-• ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774
-• ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
-• ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABE2152F0641CA47460C97092F887BEC3C87C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841519   (1048280) от 13.12.2025
-
-Windows 10 22H2 19044.6691/19045.6691 by SURASOFT (v25.12.09) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c.iso
-ru_windows_10_enterprise_ltsc_2021_with_update_19044.6456_aio_2in1_x64_dvd
-Были интегрированы обновления по 09 декабря 2025 года.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60DA3AEE201EE9BB5C9E459B149D3E4EAD0477C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842361   (1048578) от 16.12.2025
-
-Microsoft® Windows® 11 Enterprise LTSC x64 24H2 RU by OVGorskiy 12.2025
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048578.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинального образа операционной системы Windows 11 Enterprise LTSC от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: накопительные обновления и небольшой набор необходимых приложений. Сборка предназначена для тех, кто желает получить (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244AEA5862679FE3E76421E73482B7D2A936742F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842784   (1048782) от 18.12.2025
-
-Microsoft Windows 11 [10.0.26200.7462], Version 25H2 (Updated December 2025) - Оригинальные образы от Microsoft MSDN [Ru]
+Microsoft Windows 10 [10.0.19045.5854], Version 22H2 (Updated May 2025) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048782.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.5854.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0622D681DB12D2813F7DE3156DBEABCFB7D85DF7
+magnet:?xt=urn:btih:7DDA6112C183E0AB30E1C19F151E6ECD935110C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,67 +27,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842787   (1048876) от 16.12.2025
+###  Публикация: 1798148   (17706) от 20.05.2025
 
-Windows Server [10.0.25398.2025], version 23H2 (Updated December 2025) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89ACB645A49BB68EA03336758BF6CFFBCAD4FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842786   (1048877) от 16.12.2025
-
-Windows Server 2025 LTSC [10.0.26100.7462], Version 24H2 (Updated December 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC [10.0.20348.3692], Version 21H2 (Updated May 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Windows Server 2025 поможет вам справиться с вызовами будущего и обеспечит актуальную безопасность, производительность и гибкость. Повышайте продуктивность благодаря оптимизированной работе в сети, ускоренному хранилищу и возможностям гибридного облака, которые адаптируются под ваши потребности. Идите в ногу с прогрессом за счет модернизированной системы (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F2DAEDE1D5149142E7618B79D5B38063CEA27D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842785   (1048878) от 16.12.2025
-
-Windows Server 2022 LTSC [10.0.20348.4529], Version 21H2 (Updated December 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048878.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17706.jpg" />
 </div>
 
 
@@ -207,7 +45,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36B0F4C041BF8FFC9F579B1777B0E00CFDA6CF4B
+magnet:?xt=urn:btih:E02A7529A3C9E703F8C1437DEEEA15FCBC408914
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,15 +53,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842783   (1048879) от 16.12.2025
+###  Публикация: 1798149   (17685) от 20.05.2025
 
-Microsoft Windows 11 [10.0.26200.7462], Version 25H2 (Updated December 2025) - Оригинальные образы от Microsoft MSDN [En]
+Windows Server [10.0.25398.1611], version 23H2 (Updated May 2025) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7C8F73E439A5F3A6CE8DE58E333FF54C83B71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798144   (17678) от 20.05.2025
+
+Microsoft Windows 11 [10.0.22631.5335], Version 23H2 (Updated May 2025) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048879.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17678.jpg" />
 </div>
 
 
@@ -233,7 +97,7 @@ Windows 11 - это серия операционных систем, разра
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36EBA6F7DC9FA47F79858F08965994157B02560C
+magnet:?xt=urn:btih:17577314DFF56C358DAC0E1E2E2988F1073EDBA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,15 +105,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842782   (1048880) от 16.12.2025
+###  Публикация: 1798147   (17637) от 21.05.2025
 
-Microsoft Windows 11 [10.0.26100.7462], Version 24H2 (Updated December 2025) - Оригинальные образы от Microsoft MSDN [Ru]
+Microsoft Windows 11 [10.0.26100.4061], Version 24H2 (Updated May 2025) - Оригинальные образы от Microsoft MSDN [Ru]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048880.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17637.jpg" />
 </div>
 
 
@@ -259,7 +123,7 @@ Windows 11 - это серия операционных систем, разра
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D0F129495AA3ABBE3C7AA8DDAFFB8B33E4B7ADC
+magnet:?xt=urn:btih:B3F3D95A376C05CA00CB4503C0F6185164D891DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,15 +131,182 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842781   (1048881) от 16.12.2025
+###  Публикация: 1797955   (17495) от 22.05.2025
 
-Microsoft Windows 11 [10.0.26100.7462], Version 24H2 (Updated December 2025) - Оригинальные образы от Microsoft MSDN [En]
+Windows 10 Enterprise LTSC 2021 21H2 19044.5854 (Updated May 2025) by FaTaL [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборки основаны на официальных образах MICROSOFT MSDN (дата выпуска: ноябрь 2021):
+ru-ru_windows_10_enterprise_ltsc_2021_x86_dvd_cdf355eb.iso
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
+(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D0A6A032D93475B509A51D95C084A34ACE4B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798180   (17469) от 22.05.2025
+
+Windows 11 PRO 23H2 22631.5335 Update 19 by Ghost Spectre [En]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрано из официального образа Windows 11 23H2 22631.5335.
+— Superlite эта версия уже настроена - для опытных пользователей - подходит для игр и стриминга.
+— Compact это нетронутая версия, без изменений, только удаление приложений/ненужных программ - для обычных пользователей - подходит для работы в офисе, ноутбуков, планшетов, серверов и т. д.
+(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEB7BB54E0F8082FB492DF2E1EF310E225F484F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801247   (15118) от 10.06.2025
+
+Антивирусная утилита AVZ 6.00 (08.05.2025) (Неофициальная)
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15118.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVZ - Бесплатная быстро работающая антивирусная утилита. Включает в себя собственно AVZ и дополнительные утилиты AVZGuard/AVZPM/BootCleaner.
+Основное назначение - обнаружение и удаление SpyWare и AdWare модулей, а также Dialer (Trojan.Dialer), троянских программ, BackDoor модулей, сетевых и почтовых червей, TrojanSpy, TrojanDownloader, TrojanDropper.
+По сути, AVZ (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCD5F4D6BB03EB0EDC6AB2E49ADBEA4E55FE4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802559   (14370) от 17.06.2025
+
+Windows Server 2025 LTSC [10.0.26100.4349], Version 24H2 (Updated June 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Windows Server 2025 поможет вам справиться с вызовами будущего и обеспечит актуальную безопасность, производительность и гибкость. Повышайте продуктивность благодаря оптимизированной работе в сети, ускоренному хранилищу и возможностям гибридного облака, которые адаптируются под ваши потребности. Идите в ногу с прогрессом за счет модернизированной системы (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80287ECFF656AEA23E436141A991C26BE31D00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802551   (14350) от 17.06.2025
+
+Microsoft Windows 10 [10.0.19045.5965], Version 22H2 (Updated June 2025) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048881.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.5965.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E39CDA149C1AF29749A8880FF0E5B72C6EB8C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802557   (14344) от 17.06.2025
+
+Windows Server 2022 LTSC [10.0.20348.3807], Version 21H2 (Updated June 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE91C1871333E4F87A6CC7F78AFE901766A8C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802555   (14340) от 17.06.2025
+
+Microsoft Windows 11 [10.0.26100.4349], Version 24H2 (Updated June 2025) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14340.jpg" />
 </div>
 
 
@@ -285,7 +316,7 @@ Windows 11 - это серия операционных систем, разра
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41BA4D85C2E4BC9C0639792575FB15D0FB3A9B64
+magnet:?xt=urn:btih:29C37094EC152435E8B41A5C1AFCD1BB946AEF90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,28 +324,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843180   (1049111) от 19.12.2025
+###  Публикация: 1802554   (14337) от 17.06.2025
 
-Windows 11 PRO 25H2 26200.7462 Update 2 by Ghost Spectre [En]
+Microsoft Windows 11 [10.0.22631.5472], Version 23H2 (Updated June 2025) - Оригинальные образы от Microsoft MSDN [Ru]
 
 >>ОС Windows
->>Сборки Windows 11
+>>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049111.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Собрано из официального образа.
-— Superlite эта версия уже настроена - для опытных пользователей - подходит для игр и стриминга.
-— Compact это нетронутая версия, без изменений, только удаление приложений/ненужных программ - для обычных пользователей - подходит для работы в офисе, ноутбуков, планшетов, серверов и т. д.
-(   Читать дальше...   )Язык интерфейса: Английский
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:530FCFE8F72BED4559231FEDE581ED9C82166550
+magnet:?xt=urn:btih:295AB34A3D328C394805AC96B3182653FB019468
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,25 +350,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842902   (1049164) от 18.12.2025
+###  Публикация: 1802558   (14326) от 17.06.2025
 
-Microsoft Office LTSC Professional Plus 2024 v.16.0.17932.20620 (Win10/11) Repack by Reshacker (Multi)
+Windows Server [10.0.25398.1665], version 23H2 (Updated June 2025) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
->>Песочница ПО и сборок Windows
+>>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049164.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Office 2024 – это локализованная версия пакета офисных приложений от компании Microsoft, которая предлагает обновления и улучшения в сравнении с предыдущими версиями. Он предназначен как для пользователей, работающих в офисе, так и для домашнего использования, предоставляя широкий спектр инструментов для работы с документами, таблицами и презентациями.Язык интерфейса: Английский, Украинский
+Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D815880B979BFD72AFF73A97AE4C6A36D999CF2
+magnet:?xt=urn:btih:9ABC8D109CE1B61C2EC24CA688E8618A6F8048D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,25 +376,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844298   (1049813) от 26.12.2025
+###  Публикация: 1802553   (14324) от 17.06.2025
 
-Windows 11 Pro х64 Version 25H2 Build 26200.7462 by Igors_VL [RU]
+Microsoft Windows 11 [10.0.22631.5472], Version 23H2 (Updated June 2025) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
->>Сборки Windows 11
+>>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049813.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настроенная авторская сборка Windows 11 Pro с автоматизированной установкой, запускаемой из BIOS (При загрузке с установочного носителя через BIOS/UEFI).Разработчик: MicrosoftЯзык интерфейса: Русский
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:324DA1C2B7A4330515C4E42A8F567509546752D1
+magnet:?xt=urn:btih:5117100079196A02B354F966882BF06D36CE11CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,26 +402,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844916   (1050331) от 31.12.2025
+###  Публикация: 1802556   (14272) от 18.06.2025
 
-Windows 11 25h2 24in1 (incl. LTSC 24H2) +/- Office 2024 by SmokieBlahBlah 2025.12.28 [Ru/En]
+Microsoft Windows 11 [10.0.26100.4349], Version 24H2 (Updated June 2025) - Оригинальные образы от Microsoft MSDN [Ru]
 
 >>ОС Windows
->>Сборки Windows 11
+>>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050331.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-6 редакций Windows 11 (русские и английские) с обновлениями по декабрь 2025, основанных на оригинальном русском дистрибутиве и интегрированными системными библиотеками
-+6 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены (   Читать дальше...   )Язык интерфейса: русский, английский
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9AEA92B1B0302686C98D8F9CBAAE955F1959AEF
+magnet:?xt=urn:btih:78A7E2FBEE67B29B5D10B06A1099E4B85E995B0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,25 +428,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845603   (1050768) от 02.01.2026
+###  Публикация: 1802552   (14175) от 19.06.2025
 
-Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2024 by Eagle123 (12.2025) [Ru/En]
+Microsoft Windows 10 [10.0.19045.5965], Version 22H2 (Updated June 2025) - Оригинальные образы от Microsoft MSDN [Ru]
 
 >>ОС Windows
->>Сборки Windows 10
+>>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050768.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 10 v22H2 19045.6691 и Windows 10 Корпоративная LTSC v21H2 19044.6691, включающие в себя 5 редакций x64 с русским и английским интерфейсом и 2 облегченные x64 Lite-редакции, с обновлениями по 12.2025, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.5965.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BCCA8E27FF74EC6C6ACEE5665DDABEE310AE92A
+magnet:?xt=urn:btih:478AD136BE766672F80D0263098A0555C584E92C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,28 +457,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847839   (1052492) от 17.01.2026
+###  Публикация: 1806409   (11543) от 14.07.2025
 
-Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7623 [Ru]
+Recovery Fujitsu-Siemens Computers Windows Vista Home Premium (x86) [Ru/En]
 
 >>ОС Windows
->>Сборки Windows 11
+>>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052492.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка сделана из оригинальных образов
-Используется лаунчер от ФБ
-ru-ru_windows_11_business_editions_version_25h2_updated_dec_2025_x64_dvd_a8801117
-Установлены обновления по 14.01.2026(   Читать дальше...   )Язык интерфейса: Русский
+Данные образы предназначены для восстановления ОС на модели ноутбуков FSC Amilo Pi 2530, 2540, 2550,  а также FSC Amilo Xi 2550.  После восстановления ОС устанавливается Mic!rosoft Windows Vista Home Premium ×32bit со всеми заводскими настройками.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3E7556BC11CA314717BC0E02887CAF1BD55A8EC
+magnet:?xt=urn:btih:122D20CC5AF31939F50A96BA2284E064339D9257
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,28 +483,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847837   (1052493) от 16.01.2026
+###  Публикация: 1806576   (11505) от 14.07.2025
 
-Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6809 [Ru]
+Recovery Fujitsu-Siemens Computers Windows Vista Home Basic (x86) [Ru/En]
 
 >>ОС Windows
->>Сборки Windows 10
+>>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052493.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка сделана из оригинальных образов
-Используется лаунчер от ФБ
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
-Установлены обновления по 14.01.2026 года включительно(   Читать дальше...   )Язык интерфейса: Русский
+Образы диска предназначены для восстановления ОС на модели ноутбуков: FSC Amilo Pi 2530, 2540, 2550, а также FSC Amilo Xi 2550.
+После процедуры восстановления устанавливается Microsoft Windows Vista Home Basic ×32bit со всеми заводскими настройками.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2084C44568719A002C1C6432D07490E898F22D35
+magnet:?xt=urn:btih:7D049E8EE28D1D590827C4D69A9EADC619266DD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,28 +510,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848259   (1052743) от 17.01.2026
+###  Публикация: 1806928   (11475) от 15.07.2025
 
-Windows 11 24h2 (build 26100.7623) Enterprise LTSC 2024 by Izual Soft [v14.01.26] [Ru/En]
+Windows Server 2025 LTSC [10.0.26100.4652], Version 24H2 (Updated July 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
->>Песочница ПО и сборок Windows
+>>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052743.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка создана на основе оригинальных файлов UUP.
-Магазин и Защитник не удален.
-Remote Desktop Server. Microsoft OneDrive удалено.
-DirectX 9.0, 7-ZIP интегрированы.(   Читать дальше...   )Язык интерфейса: Русский, Английский
+Microsoft Windows Server 2025 поможет вам справиться с вызовами будущего и обеспечит актуальную безопасность, производительность и гибкость. Повышайте продуктивность благодаря оптимизированной работе в сети, ускоренному хранилищу и возможностям гибридного облака, которые адаптируются под ваши потребности. Идите в ногу с прогрессом за счет модернизированной системы (   Читать дальше...   )Язык интерфейса: Английский, Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5607D54DE560A3F44BCA1784CD4F2A86FA8188C
+magnet:?xt=urn:btih:EFC6D7337DC821AD4B5CE3984D4FF6C819CCE2AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,28 +536,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848391   (1052745) от 17.01.2026
+###  Публикация: 1806924   (11454) от 15.07.2025
 
-Windows 7 SP1 7601.28117 x64 3in1 by OneSmiLe [17.01.2026] [Ru]
+Microsoft Windows 11 [10.0.26100.4652], Version 24H2 (Updated July 2025) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
->>Сборки Windows 7
+>>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052745.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка сделана из оригинальных образов
-• ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774
-• ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
-• ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671(   Читать дальше...   )Язык интерфейса: Русский
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD2B32E9383167054B57F2B795B2BCC0CB2604ED
+magnet:?xt=urn:btih:570B2EACDF60261A1DE83DBF935D0EBAB0577E5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,25 +562,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848522   (1052978) от 17.01.2026
+###  Публикация: 1806923   (11452) от 15.07.2025
 
-Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 01.2026 by OVGorskiy
+Microsoft Windows 11 [10.0.22631.5624], Version 23H2 (Updated July 2025) - Оригинальные образы от Microsoft MSDN [Ru]
 
 >>ОС Windows
->>Сборки Windows 10
+>>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052978.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-немного настроенные, обновленные и максимально приближенные к оригинальным русским образам ОС "Windows® 10™" от Microsoft 64-х бит. разрядности и разных  редакций, объединенных в 1 образ (x64) стандартными средствами от Microsoft ADK (DISM). Включает в себя обновлённые, почти "чистые", почти не модифицированные образы ОС Windows 10 Pro, Home и (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1C9FFB1549E2DCD5D8E01D12621835856A52CED
+magnet:?xt=urn:btih:94B46D63A0F7267FC44FBCA1D3BE681E948AD9A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,28 +588,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848361   (1052993) от 17.01.2026
+###  Публикация: 1806920   (11430) от 15.07.2025
 
-Windows 11 25h2 (build 26200.7623) (24in1) (x64) Store NoApp by Izual Soft [v15.01.26] [Ru/En]
+Microsoft Windows 10 [10.0.19045.6093], Version 22H2 (Updated July 2025) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
->>Песочница ПО и сборок Windows
+>>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052993.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11430.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка создана на основе оригинальных файлов UUP.
-Защитник и Store удалены
-App удалено
-Remote Desktop Server. Microsoft OneDrive удалено.(   Читать дальше...   )Язык интерфейса: Русский, Английский
+Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.6093.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C8D95B39CD191F40DA07B23303677B79ABBD877
+magnet:?xt=urn:btih:33325AD3A325B3141644762165F5BE6D09E5CB9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,28 +617,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848349   (1052994) от 17.01.2026
+###  Публикация: 1806926   (11428) от 15.07.2025
 
-Windows 11 25h2 (build 26200.7623) (24in1) (x64) NoStore NoApp by Izual Soft [v15.01.26] [Ru/En]
+Windows Server 2022 LTSC [10.0.20348.3932], Version 21H2 (Updated July 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
->>Песочница ПО и сборок Windows
+>>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052994.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка создана на основе оригинальных файлов UUP.
-Защитник не удален.
-Store, App удалены
-Remote Desktop Server. Microsoft OneDrive удалено.(   Читать дальше...   )Язык интерфейса: Русский, Английский
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A535DEE1F7D2533425236018400A13F910EC05E
+magnet:?xt=urn:btih:1450659797A6DD5C66F1EE5DE1171AF92CA0FEBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,28 +643,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848467   (1052995) от 17.01.2026
+###  Публикация: 1806922   (11408) от 15.07.2025
 
-Windows 10 22h2 (build 19045.6809) (20in1) (x64) NoStore NoApp Nodefender by Izual Soft [v16.01.26] [Ru/En]
+Microsoft Windows 11 [10.0.22631.5624], Version 23H2 (Updated July 2025) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
->>Песочница ПО и сборок Windows
+>>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052995.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка создана на основе оригинальных файлов UUP.
-Remote Desktop Server. Microsoft OneDrive удалено.
-DirectX 9.0, 7-ZIP интегрированы.
-Store, App, defender удалены (No означает отсутствие, удаление Nodefender удален)(   Читать дальше...   )Язык интерфейса: Русский, Английский
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27EDFACF0E109FCC4B980A91E38C6DE2B14CDA32
+magnet:?xt=urn:btih:E6CC1EF3E0530206D4F0BD79A43FF91F3A3EBD9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,57 +669,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848325   (1052996) от 17.01.2026
+###  Публикация: 1806927   (11407) от 15.07.2025
 
-Windows 10 22h2 (build 19045.6809) (20in1) (x64) Store NoApp by Izual Soft [v16.01.26] [Ru/En]
+Windows Server [10.0.25398.1732], version 23H2 (Updated July 2025) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
->>Песочница ПО и сборок Windows
+>>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052996.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка создана на основе оригинальных файлов UUP.
-Магазин и Защитник не удален.
-Remote Desktop Server. Microsoft OneDrive удалено.
-DirectX 9.0, 7-ZIP интегрированы.(   Читать дальше...   )Язык интерфейса: Русский, Английский
+Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB165C6E8CB7AA337752CFBDAD6C0A6A5B3D7D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848320   (1052997) от 17.01.2026
-
-Windows 10 22h2 (build 19045.6809) (20in1) (x64) NoStore NoApp by Izual Soft [v16.01.26] [Ru/En]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана на основе оригинальных файлов UUP.
-Защитник не удален.
-Store, App удалены (No означает удаление)
-Remote Desktop Server. Microsoft OneDrive удалено.(   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A3C16F3D6D8EF8F1288F56C871D5293C5D9F4A
+magnet:?xt=urn:btih:B85ABBB7DF090DA8A2641688615BEAFF49770F13
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,52 +1,24 @@
-###  Публикация: 1599702   (159545) от 24.12.2022
+###  Публикация: 868872   (895435) от 12.02.2015
 
-3D print - Rick and Morty - IT Mashup [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159545.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Рик и Морти» (англ. Rick and Morty) — американский комедийный научно-фантастический анимационный сериал для взрослых.
-Сериал посвящён злоключениям циничного безумного учёного Рика Санчеса и его наивного, капризного и неуверенного в себе внука Морти; создатель сериала Ройланд озвучивает обоих персонажей. Сериал, выросший из хулиганской анимационной пародии на франшизу (   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786B64C7A88D59B783AA848E12AD282D4A416F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599614   (159555) от 24.12.2022
-
-3D print - Amaterasu [STL]
+3D модели - Evermotion - Archmodels Vol. 136 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159555.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Аматерасу, также известная как Ōkami Amaterasu является вымышленным персонажем видеоигры Ōkami от Capcom. Она - белый волк, основанный на японской богине Аматерасу в японской мифологии.
+Очередной сборник 3d моделей от Evermotion!
 
-Модель предоставлена в разобранном виде (6 частей)
-Оригинальные размеры модели: ~102x86 h:123mmФормат: STL
+В данный сборник вошли 102 высокополигональных моделей деревьев: 34 типа в трёх вариантах.Формат: V-Ray|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F47844F465F8F1C68695C204A92B3501702C8C26
+magnet:?xt=urn:btih:E5BAD49F6248C88B7A9A1EF9E4C26511C45C9F05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599694   (159556) от 24.12.2022
+###  Публикация: 1370793   (894814) от 28.03.2020
 
-3D print - Pokemon Houndour Evolution [STL]
+3D модели - Hum3D - Peterbilt 330 Chassis Truck 3-axle 2003 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159556.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хаундур - четвероногий клыкастый покемон с коротким черным мехом и красным подбрюшьем и мордой. Уши и хвост короткие и заостренные. Из верхней челюсти выступают два клыка, а треугольный нос черного цвета. На лодыжках есть белые полосы, а на спине - ребристые гребни. На лбу у гончара упрощенный, стилизованный череп с глазницами, образующими бровь над глазами. У него (   Читать дальше...   )Формат: STL
+3d модель автомобиля марки PeterbiltФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF8A38F2BD3C04D474155FCAB1A36E6F124AE26B
+magnet:?xt=urn:btih:C3C831227B46D18540D07B395067A84946F3B719
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,57 +52,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599633   (159559) от 24.12.2022
+###  Публикация: 1370703   (894806) от 28.03.2020
 
-3D print - Pokemon Planter Set [STL]
+3D модели - TurboSquid - Maserati Levante S Q4 GranSport 2019 - 1341071 [V-Ray|*.max, 3DS, C4D, FBX, OBJ, XSI, MB, LWO]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159559.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 покемонов держащих в руках горшочек для сукулентов.
+3d модель автомобиля марки  MaseratiФормат: V-Ray|*.max, 3DS, C4D, FBX, OBJ, XSI, MB, LWO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D77D7D70B9BFE210DEC31D9A09B93F1F69AB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370813   (894801) от 28.03.2020
+
+3D модели - Hum3D - Peterbilt 340 Dump Truck 2009 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894801.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки PeterbiltФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C1CC9C38A5CE73FE8D2823926C02E1AE3F7097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370679   (894776) от 28.03.2020
+
+3D модели - 3DExport - Kitbash268 piece - part-1 - 130648 [MAX, FBX, OBJ, STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высокие и низкополигональные элементы для ZBrush кистей - 268 штукФормат: MAX, FBX, OBJ, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050500EBC2BC281C9188727E12E24E66B8F941E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 638651   (893609) от 03.04.2013
+
+3D материалы - Качественные материалы для Rhino V-ray и SketchUp V-ray [vismat]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Материалы предустановлены для использования в Rhino V-ray или SketchUp V-ray, но Вы можете использовать эти текстуры с другими движками, такими как Maxwell, Brazil, Scanline
+Общее количество материалов - 463
 
-Размер моделей:
-Bulbasaur: 74.8x103.9 h:87.2mm(   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F168C7EFF6B88C8342FE214C7B63412FD0E336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599616   (159571) от 24.12.2022
-
-3D print - Pochita Beautyshot [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почита - главный герой серии "Человек-бензопила". Это лучший друг Денджи, который был с ним с самого детства и позже заключил с ним контракт в обмен на то, что он "покажет ему его мечты".
-Позже выясняется, что он - самый страшный дьявол в аду, известный как Дьявол Бензопилы, дьявол, воплощающий страх перед бензопилами.
+Установка для SketchUp V-ray:
 
-Модель предоставлена в (   Читать дальше...   )Формат: STL
+1. Распаковать в папку с библиотеками материалов понравившиеся файлы.
+2. Запустить Google SketchUp Pro.
+3. В редакторе материалов выбрать в главном меню Material Editor.
+4. В открывшемся окне  появится набор текстур и опции к ним, щелкаем правой кнопкой в поле текстур слева, выбираем пункт Import material.
+5. Указываем путь к одному из наших файлов библиотек и нажимаем Открыть.(   Читать дальше...   )Формат: vismat
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0865AF5D93D831503DC3AF93BC2A9A74E7995AC
+magnet:?xt=urn:btih:505A70D11B96834C90C09A66E39BFE8BE1C928BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,27 +165,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599386   (159736) от 23.12.2022
+###  Публикация: 638634   (893577) от 03.04.2013
 
-3D print - Geralt of Rivia [STL]
+3D материалы - Коллекция материалов для SketchUp [skm]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159736.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Геральт из Ривии, прозванный Белым Волком и Мясником из Блавикена (ориг. Geralt z Rivii) — главный герой литературной саги и протагонист последующих игр, ведьмак из Школы Волка, профессиональный охотник на монстров, один из лучших фехтовальщиков Севера.
-
-Модель предоставлена в разобранном виде.Формат: STL
+Все файлы находятся в отдельных папках. Тематика: покрытия стен, полов, различные поверхности. Общее количество материалов - 3759.Формат: skm (родной формат SketchUp любой версии)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45072E657245FD9F708013D5AF3E4C047293F6D1
+magnet:?xt=urn:btih:AF5680738B57C7E554A133EDD3B2C08D138D9368
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +191,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599379   (159744) от 23.12.2022
+###  Публикация: 1370822   (893284) от 29.03.2020
 
-3D print - Bust of Geralt [STL]
+3D модели - Hum3D - Peterbilt 362 Tractor Truck 2002 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159744.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Геральт из Ривии, прозванный Белым Волком и Мясником из Блавикена (ориг. Geralt z Rivii) — главный герой литературной саги и протагонист последующих игр, ведьмак из Школы Волка, профессиональный охотник на монстров, один из лучших фехтовальщиков Севера.
-
-Модель предоставлена в 3х частях: пьедестал, бюст Геральта и рука с мечом.
-В собранном виде примерно 190мм высотой.Формат: STL
+3d модель автомобиля марки PeterbiltФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E02CB633B9973DF6E7FAE0CB39EC4CA95B62FB2
+magnet:?xt=urn:btih:A0EEF0F6DA531D935260B46E0639C2658D0BD7AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +217,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599377   (159749) от 23.12.2022
+###  Публикация: 1371066   (893282) от 29.03.2020
 
-3D print - Star-Lord Chibi [STL]
+3D модели - Tesla semi truck [3DS, C4D, FBX, LWO, MAX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159749.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Звездный Лорд (Питер Джейсон Квилл) - вымышленный персонаж и супергерой, появляющийся в американских комиксах, издаваемых Marvel Comics. Персонаж, созданный Стивом Энглехартом и Стивом Ганом, впервые появился в Marvel Preview #4 (январь 1976 года).
-В данной 3d-модели представлен в гномоподобном образе.
-Оригинальные размеры: 295.8x149.3 h:259.8mm
-Имеются файлы как (   Читать дальше...   )Формат: STL
+3d модель автомобиля марки Tesla
+Скриншоты из моего рендера KeyShot 9Формат: 3DS, C4D, FBX, LWO, MAX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ED344CF6BF0472942FFC7DB1B4935D291922920
+magnet:?xt=urn:btih:83B98542CA031525535D0140435A3CD090BC03E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,27 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599102   (160048) от 22.12.2022
+###  Публикация: 1371048   (893276) от 29.03.2020
 
-3D print - HellBat Helmet [STL]
+3D модели - 3DExport - Western Star 4900 SB Day Cab Chassis Truck 2008 - 196482 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160048.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хеллбат - это броня, созданная Лигой Справедливости и разработанная и созданная Бэтменом, чтобы помочь ему сражаться в битвах, превышающих его уровень силы.
-Оригинальный размер 155.7х199.1 h:260.1mm
-Так же поставляется в "разрезанном" варианте для возможности отливки на маленького размера столах.Формат: STL
+3d модель автомобиля марки Western StarФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA9427EE3346CA3401E722A3B87D43634A53ADBE
+magnet:?xt=urn:btih:29982AD7A50A4ECA07BB883A4909165CDABC0C67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,26 +270,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599107   (160053) от 22.12.2022
+###  Публикация: 1371070   (893252) от 29.03.2020
 
-3D print - Gol D Roger [STL, OBJ]
+3D модели - Hum3D - GMC Topkick C8500 Regular Cab Tanker Truck 2004 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160053.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гол Д. Роджер, более известный как Золотой Роджер, был легендарным пиратом, который, будучи капитаном пиратов Роджера, носил титул Короля пиратов и владел легендарным сокровищем, известным как One Piece.
-В раздаче предоставлен по частям для более простого отлива и дальнейшего соединения.Формат: STL, OBJ
+3d модель автомобиля марки GMCФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCF491FD95C468A4B3F4E8EC52043237F2B5FCB0
+magnet:?xt=urn:btih:170C7016E06257A9A5B93641A8185A476B091A47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,26 +296,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598886   (161128) от 21.12.2022
+###  Публикация: 1371076   (893182) от 29.03.2020
 
-3D print - Girl in a chinese dress [STL]
+3D модели - Hum3D - Volvo VAH (630) Tractor Truck 2012 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161128.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красивая девочка в китайском платье.
-Оригинальный размер 92.5х83.6 h:137mmФормат: STL
+3d модель автомобиля марки VolvoФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C800DE185892A3C0B92AD9B3093A383F5C1619E8
+magnet:?xt=urn:btih:26342DB0DE8D239AD90508828CF3EB6341E7F901
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,26 +322,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598890   (161182) от 21.12.2022
+###  Публикация: 1371136   (893100) от 29.03.2020
 
-3D print - Kanna Kamui [STL]
+3D модели - KitBash3D - Ancient Temples [MAX, MA, OBJ, FBX, BLEND]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161182.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Канна Камуи, является одной из главных героинь "Miss Kobayashi's Dragon Maid". Канна - девочка-дракон, которая была изгнана из своего мира в результате своих шалостей.
-Оригинальный размер 80.8х55.4 h:110.5mmФормат: STL
+Создайте выветрившиеся храмы Южной Америки из прошлого или постройте таинственные чужеродные земли с помощью многочисленных храмовых фасадов, сооружений, жилищ, арок, колонн и многого другого. Если вы хотите построить цивилизацию майя или научно-фантастические инопланетные миры, трещины в этом наборе, украшенные патиной, сделают ваш воображаемый мир настоящим!.Формат: MAX, MA, OBJ, FBX, BLEND
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E495C1F79ADFE46281C9758AA11174AF9D854C0
+magnet:?xt=urn:btih:3AC25B67C6CB02BF162490476118759EFAD3D21F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -333,25 +348,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598725   (161737) от 20.12.2022
+###  Публикация: 640024   (889928) от 05.04.2013
 
-3D print - Gawr Gura Christmas (Hololive) [STL]
+3D модели - Огромная библиотека объектов для ArchiCAD [gsm]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161737.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Gawr Gura — виртуальный ютубер. Она является членом Hololive English - Myth (стилизованный как HoloMyth). Она дебютировала 13 сентября 2020 года и с тех пор стала самым подписанным виртуальным ютубером, собрав более 4 миллионов подписчиков. Ее прямые трансляции сосредоточены на развлечениях и в основном состоят из Let's Plays, караоке и чатов с аудиторией. В Японии (   Читать дальше...   )Формат: STL
+Большая коллекция библиотечных элементов для ArchiCADа. Большой выбор объектов, большинство разделов содержит подразделы. Поддерживает для всех версий ArchiCAD.Формат: gsm
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B0E37F03627BD7B0CF8513E611EE51DBB83EDCE
+magnet:?xt=urn:btih:0F06C38DCAC996964B093BD4D973DC443CE18B46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,25 +374,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826496   (167370) от 19.10.2025
+###  Публикация: 640296   (888303) от 06.04.2013
 
-3D модели - Fab - Modular Military Character [UASSET]
+3D модели - 10ravens 3D 024 - Modern dining furniture 01 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167370.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Создайте своего уникального персонажа из более чем 400 различных модулей или просто воспользуйтесь одним из 20 готовых пресетов.Формат: UASSET
+Данная коллекция, имеющая ID: 10ravens_3D_024_Modern_dining_furniture_01, включает в себя высокополигональные модели в колличестве 61 модели обеденной мебели в стиле Модерн. В раздаче присутствуют модели как сами по себе (стол/стул), так и группой (4-6 стула + стол).Формат: .max; .jpg;
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1D438B3E296887B2198EFEE56D82E2AC5E2E3F4
+magnet:?xt=urn:btih:42675C0996FBA70C057A20B83D9F52535DCCCAAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -385,25 +400,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515518   (168970) от 07.12.2021
+###  Публикация: 640444   (888254) от 06.04.2013
 
-3D модели - Hum3D - Toyota Vellfire Aero with HQ interior 2015 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D модели - 10ravens 3D 022 - Classic lights 02 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168970.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ToyotaФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+Данная коллекция, имеющая ID: 10ravens_3D_022_Classic_lights_02, включает в себя 40 высокополигональных моделей освещения: люстры, бра, торшеры... в классическом стиле.Формат: .max; .jpg;
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1DE84F6EAB3438D8A1E78A8F0D4800D9A499D9E
+magnet:?xt=urn:btih:C5E989790806489A5E0F3B0B38A7941FCB3DBC89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -411,25 +426,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515452   (168997) от 07.12.2021
+###  Публикация: 640279   (888197) от 06.04.2013
 
-3D модели - TurboSquid - Jeep Gladiator 2020 - 1370758 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D модели - 10ravens 3D 013 - Kitchen decorations 01 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168997.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки JeepФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+Данная коллекция, имеющая ID: 10ravens_3D_013_Kitchen_decorations_01, включает в себя 40 высокополигональных моделей декорации для кухонь, таких как кофемолки, фрукты в корзинах, ножи/тарелки/половники/кастрюли и пр.Формат: .max; .jpg;
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BC4AA83F5D32D2DDC84F55420217ABC47803B52
+magnet:?xt=urn:btih:8904C2612E89443670E88BAFAECD7459BBF75175
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -437,25 +452,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515507   (169002) от 07.12.2021
+###  Публикация: 640500   (888182) от 06.04.2013
 
-3D модели - 3ddd - Mercedes Benz CLS500 [V-Ray|*.max, OBJ, FBX]
+3D модели - 10ravens 3D 014 - Outdoor furniture 02 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169002.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Высокодетализированная 3d модель Mercedes Benz CLS 500. Детализация интерьера 50%. Включены все материалы и текстуры. Модификатор Turbo Smooth применен к некоторым объектам с максимальным значением 2.Формат: V-Ray|*.max, OBJ, FBX
+Данная коллекция, имеющая ID: 10ravens_3D_014_Outdoor_furniture_02, включает в себя 40 высокополигональных моделей экстерьера, таких как: лежаки, столы для пикника, освещение, бассейны, беседки...Формат: .max; .jpg;
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63D8D5B49AB3F768551A3CA9A1BC6613F8222D5E
+magnet:?xt=urn:btih:047208CC999DF2012C67B778B9A86C50C1A83FB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,25 +478,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515443   (169128) от 07.12.2021
+###  Публикация: 1494624   (887053) от 08.09.2021
 
-3D модели - Hum3D - Ford Crown Victoria New York Taxi 2005 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D модели - Сборник 3д моделей MagicaVoxel [VOX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169128.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки FordФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+Этот сборник создал я и моя сестра.
+В него входят 3д модели для программы MagicaVoxel. Сейчас им занимается только моя сестра и обновлять его будет, если будет востребован на NNM.Формат: VOX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53C9A1C4E0DC450582D5CAEE0116D4E2859FD4F8
+magnet:?xt=urn:btih:D58EFD3D366283B109B1335CFF50618F5DB780E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,25 +505,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515512   (169133) от 07.12.2021
+###  Публикация: 1372208   (886271) от 02.04.2020
 
-3D модели - Hum3D - LTI TX4 London Taxi 2006 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D модели - Evermotion - Archmodels vol. 216 [V-Ray|*.max, C4D, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169133.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки TX4Формат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+Archmodels vol. 216 включает в себя 40 профессиональных, очень подробных 3d моделей для архитектурных визуализаций. Эта коллекция поставляется с высококачественными моделями для продуктового магазина. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max, C4D, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E5789B9EA6F5D1C66938775460D0B583C3AE19E
+magnet:?xt=urn:btih:B30B92C3330204476BE07A568CA3DFBF52A0885A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,25 +531,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515510   (169160) от 07.12.2021
+###  Публикация: 1494812   (885914) от 09.09.2021
 
-3D модели - Hum3D - Toyota FJ Cruiser with HQ interior 2010 [Scanline|V-Ray|*.max, OBJ, C4D, FBX]
+3D модели - TurboSquid - 1978 Ford F-250 Crewcab - 1282651 [FBX, MAX, LXO, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169160.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ToyotaФормат: Scanline|V-Ray|*.max, OBJ, C4D, FBX
+3d модель автомобиля марки FordФормат: FBX, MAX, LXO, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AC99493850960779260C298C7BB1C74B8DB2A8B
+magnet:?xt=urn:btih:E8B4C3508E76E954C61AC80258B3C9BF34C762CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,25 +557,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515447   (169182) от 07.12.2021
+###  Публикация: 1494886   (885813) от 09.09.2021
 
-3D модели - Hum3D - Honda CR-Z (ZF1) 2011 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D модели - Hum3D - Honda GL 1800 Gold Wing 2018 [Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169182.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки HondaФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+3d модель мото марки Honda.Формат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23153211DE811AABF8162D89E89386A9F50E256C
+magnet:?xt=urn:btih:904D61F48C3BD32B505D9F459175E5E39BB7DF40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,25 +583,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515353   (170107) от 06.12.2021
+###  Публикация: 1494805   (885810) от 09.09.2021
 
-3D модели - TurboSquid - Audi S4 Avant 2017 - 963594 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D модели - Hum3D - Ford B-700 Thomas Conventional School Bus 1984 [V-Ray|*.max, 3DS, ASC, C4D, FBX, LWO, OBJ, STL, WRL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170107.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки AudiФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+3d модель автобуса марки Ford.Формат: V-Ray|*.max, 3DS, ASC, C4D, FBX, LWO, OBJ, STL, WRL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EE267ECBB89B63E5FCAE06FF5B466903BF75FCF
+magnet:?xt=urn:btih:3D88A415F5BC760B0415F1828D3863AC3260C5D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,25 +609,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515357   (170128) от 06.12.2021
+###  Публикация: 1494890   (885804) от 09.09.2021
 
-3D модели - Free3D - Toyota Crown RS Advance 2018 - 9902 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D модели - Hum3D - Honda Ridgeline Baja Race Truck 2016 [Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170128.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ToyotaФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+3d модель автомобиль марки Honda.Формат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15BC3F405996E730B8915B20CD703A3156198669
+magnet:?xt=urn:btih:C95743A8CDB7EE96E3968CDE9E78B9FD31560A22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,25 +635,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515347   (170149) от 06.12.2021
+###  Публикация: 1494896   (885784) от 09.09.2021
 
-3D модели - TurboSquid - Audi RS6 avant 2020 - 1455032 [MAX, FBX, OBJ]
+3D модели - Hum3D - Honda VFR1200F 2015 [Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170149.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки AudiФормат: MAX, FBX, OBJ
+3d модель мото марки Honda.Формат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:277E14E2A446B40FEDA8175FC48107B3FB10F88C
+magnet:?xt=urn:btih:140BE5E8C74614AE88DD898673BE5D38F9D89FDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,51 +661,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344213   (170800) от 09.12.2019
+###  Публикация: 1494817   (885781) от 09.09.2021
 
-3D модели - KitBash3D - WARZONE [MA, OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте разрушающуюся инфраструктуру любого затронутого войной города в недавней истории или полностью разрушенного городского пейзажа постапокалиптического кошмара мегаполиса. С помощью этого комплекта вы можете выбирать между частично разрушенными башнями, зданиями и автострадами, которые разрушены на полпути, а также множеством разрушенных стен и обломков, чтобы (   Читать дальше...   )Формат: MA, OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7FB4B14F80B97318791E4E05C2A9269A356822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344200   (170807) от 09.12.2019
-
-3D модели - KitBash3D - Mini Kit: Cyberpunk [MAX, OBJ, FBX]
+3D модели - Hum3D - Toyota Alphard 2015 [V-Ray|*.max, 3DS, C4D, FBX, OBJ, STL, WRL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170807.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создавайте научно-фантастические дистопии или перенаселенные мегаполисы в футуристическом размытии неонов, криминала и непознаваемых повелителей.Формат: MAX, OBJ, FBX
+3d модель автобуса марки Toyota.Формат: V-Ray|*.max, 3DS, C4D, FBX, OBJ, STL, WRL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56387B09595D7039952E0CA7E61D5BFBE0B24F92
+magnet:?xt=urn:btih:0411665F29BE6EAF081261123E0BCE8F92EB7DAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

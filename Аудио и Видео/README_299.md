@@ -1,54 +1,25 @@
-###  Публикация: 1478801   (1007497) от 09.07.2021
+###  Публикация: 1525422   (129505) от 20.01.2022
 
-Fancy - Get Your Kicks (1985) [AAC|~369 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice (5:06)
-02. Get Your Kicks (5:30)
-03. L.A.D.Y O. (4:19)
-04. Slice Me Nice / Chinese Eyes (Special Mix) (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22822AA48AC49C8B6C94DE87EE5517787B634C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477161   (1007498) от 09.07.2021
-
-Scatman John - Scatman's World (1995) [AAC|~329 Kbps] <Pop>
+VA - Ibiza Chillout (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007498.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcom To Scatland (0:54)
-02. Scatman's World (3:45)
-03. Only You (3:46)
-04. Quiet Desperation (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:50
+01. Kieloval - Space Thoughts (5:53)
+02. Pique Dame - Souvenir de Bordeaux (6:14)
+03. Ackeret - Unofficial Meeting (6:03)
+04. Duenec - Innuendo (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48D10717DA600C2187CFFCDE7AB859A8343E55BD
+magnet:?xt=urn:btih:ADC67F0DB42F69DE2FC87FF77DD19AEBE06AE070
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478556   (1007500) от 09.07.2021
+###  Публикация: 1525417   (129496) от 20.01.2022
 
-VA - Jangrua Vol. I (2020) [AAC|~310 Kbps] <Psy-Trance>
+VA - Reggaeton Nocturno, Vol. 3 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007500.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Totem Hotel, Nora - Elektronik Waveporn Terror (10:20)
-02. Data Entry - Ketanf (8:13)
-03. Thongoro, Monomano - Brisskar (11:12)
-04. Data Entry, FoldingCircus - Solid Space (8:08)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:04:49
+01. Danna Paola, Skinny Happy, Yera, Trapical - Polo A Tierra (3:26)
+02. Luis Fonsi, KAROL G - Calypso (Remix) (3:04)
+03. Jhay Cortez, Mariah Angeliq - Costear (Remix) (3:45)
+04. Kevin Roldan, Zion & Lennox - PPP (Remix) (3:35)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:16:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7A787D1BAB7ECCC54BDDC05552AF65900264625
+magnet:?xt=urn:btih:84C1C1EF1E02CBBD036FA8FB2BB79F26B7F87BF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476527   (1007502) от 09.07.2021
+###  Публикация: 1525370   (129494) от 20.01.2022
 
-Curses - Next Wave Acid Punx (2021) [AAC|~328 Kbps] <Electronic>
+VA - Stil vor Talent 300, Pt. 3 (2021) [AAC|~326 Kbps] <Melodic House, Progressive House, Organic House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007502.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Borghesia - Z.M.R. (3:51)
-02. Gina X Performance - Kaddish (4:17)
-03. Suicide - Wild In Blue (2005 Remaster) (4:34)
-04. DEMOLITION GROUP - You Better Stay Alive (5:11)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:39:41
+01. Oliver Koletzki - Get on the Bus (3:45)
+02. Deorbiting - Ocean Drive Miami 84 (7:00)
+03. Deer Jade - Perfect Place Perfect Time (5:43)
+04. Daniel Rateuke - Godana (7:15)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:51:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1E7D475A597F7E3B09FB9DC46D0B80F808D5E22
+magnet:?xt=urn:btih:F6BBA06C1AC8A5EA13F001B58AFD8E46B176D314
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475136   (1012279) от 07.06.2021
+###  Публикация: 1525425   (129490) от 20.01.2022
 
-Любовь Успенская - Любимый (1993) [AAC|~301 Kbps] <Chanson>
+VA - Colours of Lounge, Vol. 2 (2022) [AAC|~324 Kbps] <Chill Out, Lounge, Downtempo, Soulfull House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012279.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ещё не поздно (3:52)
-02. Найди себя (4:34)
-03. Мой звёздный сад (4:26)
-04. Гусарская рулетка (5:05)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:49:30
+01. Matthew Daniel, Lina Loi - Joy (Alternative Version) (3:00)
+02. Svendaq - Sweep Melodies (Original Mix) (4:18)
+03. Velvet Dreamer, Tim Gelo - White Wine of the Moon (Original Mix) (5:29)
+04. Stepo Del Sol - Paris at Night (Original Mix) (3:56)(   Читать дальше...   )Жанр: Chill Out, Lounge, Downtempo, Soulfull HouseПродолжительность: 02:23:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D545D40673D7193D0AD46B1E72D6FF6C513652F2
+magnet:?xt=urn:btih:939B62E9A5771CDCB676D1D717041019DA760AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475289   (1012285) от 07.06.2021
+###  Публикация: 1525366   (129480) от 20.01.2022
 
-Любовь Успенская - Не забывай (1993) [AAC|~347 Kbps] <Chanson>
+VA - Stil vor Talent 300, Pt. 2 (2021) [AAC|~315 Kbps] <Melodic House, Progressive House, Organic House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012285.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Вступление (1:54)
-02. Я боюсь, он не любит меня (4:44)
-03. Заклятье (5:09)
-04. Я милого узнаю по походке (3:10)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:43:43
+01. Lunar Plane - Aegean (7:37)
+02. Township Rebellion - About a Tribe (7:36)
+03. Tim Engelhardt, Ben Haydie - Open Silence (6:38)
+04. Elif (tr) - Juno (7:30)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:49:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06FDF66FCC799C9B7E32FD7CC27F640CE021478E
+magnet:?xt=urn:btih:247C07E2A38AA61082D1846F7C02AE356B2576C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475031   (1012510) от 05.06.2021
+###  Публикация: 1525359   (129479) от 20.01.2022
 
-Василий Головачев | Очень большой лес.  Пенталогия (2021) [M4B|AAC]
+VA - My Electronic Kitchen, Vol. 3 (2017) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Аудиокниги (AAC)
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012510.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В африканских джунглях загадочным образом пропадает археологическая экспедиция ЮНЕСКО. Что это? Мистическая месть разгневанных богов за потревоженные храмы или банальная, но от этого не менее страшная работа местных бандформирований, нацеленных на захват заложников? Спасти российских участников экспедиции отправляется спецгруппа под командованием майора Реброва, (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 40:21:09
+01. Florito - 90 Degrees Fahrenheit (3:59)
+02. James Butler - Praia Bossa (2:53)
+03. Luc Forlorn - Full of Love (4:43)
+04. Emelie Christiansson - Silly Boy (3:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:09:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:662F7EB9F3CCEEE24E260FDA8D42DCD47207B737
+magnet:?xt=urn:btih:B6DA7A205B415C1F8DC95F0323D7E1882655989F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472854   (1013927) от 27.05.2021
+###  Публикация: 1525365   (129477) от 20.01.2022
 
-Армия мертвецов / Army of the Dead (2021) WEB-DL [1080p] ATV
+VA - Stil vor Talent 300, Pt. 1 (2021) [AAC|~326 Kbps] <Melodic House, Progressive House, Organic House>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013927.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Лас-Вегасе произошло нашествие ходячих мертвецов. В городе почти не осталось живых, что подталкивает главного героя к идее провернуть крупное ограбление. Он собирает команду наёмников и отправляется в одно из самых опасных мест на земле в надежде сорвать куш.Производство: США / The Stone QuarryЖанр: Ужасы, боевик, драмаРежиссер: Зак СнайдерАктеры: Дэйв Батиста, Элла Пёрнелл, Ана де ла Регера, Маттиас Швайгхефер, Нора Арнезедер, Хироюки Санада, Рауль Кастильо, Майкл Кэссиди, Гаррет Диллахант, Тиг Нотаро, Саманта Уин, Тео Росси, Омари Хардвик, Лион Бекуив, Сара МинникПеревод: ДублированныйСубтитры: Русские, украинские, английские, румынскиеПродолжительность: 02:28:23
+01. Sam Shure - Simmer (7:06)
+02. Brigado Crew, Ubbah - Into the Future (5:43)
+03. Skala - Voices of Eqi (6:47)
+04. Hidden Empire - Baba Ghanoush (7:15)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:55:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68EB99319843CE8E9D6E269ADD607002D8E6675A
+magnet:?xt=urn:btih:41636641DC4CD7AA82674449D4CE10CCE9D03113
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,26 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472791   (1014154) от 26.05.2021
+###  Публикация: 1525357   (129473) от 20.01.2022
 
-Поцелуй навылет / Kiss Kiss Bang Bang (2005) WEB-DL [1080p] [Open Matte] ATV
+VA - My Electronic Kitchen, Vol. 1 (2016) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014154.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Незадачливый воришка Гарри со своим напарником грабят магазин детских игрушек, но из-за оплошности напарника срабатывает сигнализация, и героям приходится бежать. Гарри удается спастись от преследования полицией на прослушивании актёров, которое он с успехом проходит и попадает в Голливуд на вечеринку звёзд. Там он встречает детектива Перри, который приставлен к (   Читать дальше...   )Производство: США / Warner Bros., Silver PicturesЖанр: Боевик, триллер, комедия, криминал, детективРежиссер: Шейн БлэкАктеры: Роберт Дауни мл., Вэл Килмер, Мишель Монахэн, Корбин Бернсен, Дэш Майок, Ларри Миллер, Рокмонд Данбар, Шаннин Соссамон, Анджела Линдвэлл, Индио Фалконер ДауниПеревод: Дублированный, профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английские
-*В озвучке М. Яроцкого присутствует ненормативная лексика!Продолжительность: 01:42:50
+01. Sifat - Khwaja Ji (4:16)
+02. Naoki Kenji - Hoshi (4:49)
+03. Gordon Geco - Cruiser (3:47)
+04. Ambitus - Fear Takes Hold (Interlude) (1:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0ED01F1D5747DDCA53D4566DF5CCBBA9DEE70641
+magnet:?xt=urn:btih:F763D8421AB69155DB5ED8C23F8F3D76792BEA2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472296   (1014282) от 25.05.2021
+###  Публикация: 1525358   (129471) от 20.01.2022
 
-Токийский декаданс / Topazu / Tokyo Decadence (1992) BDRip [576p] iPad [MVO]
+VA - My Electronic Kitchen, Vol. 2 (2017) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014282.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодая проститутка Ай по прозвищу Топаз после встречи с музыкантом-садомазохистом Сато, считавшим её «единственной надеждой нашей гнилой Японии», проходит по кругам современного ада. Она вынуждена удовлетворять потребности закомплексованных и жестоких японских бизнесменов и бандитов, с неизбывной тоской вспоминая о своём уже канувшем в небытие «учителе».Производство: Япония / Cinemabrain, Japan Video Distribution (JVD) Co. Ltd., Melsat Inc.Жанр: Драма, эротикаРежиссер: Рю МуракамиАктеры: Михо Никайдо, Саёко Амано, Тэнмэй Кано, Масахико Симада, Яёи Кусама, Тиэ Сэма, Магаясу Исихара, Хироси Миками, Нами Носаки, Кан МикамиПеревод: Профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:52:29
+01. Tom Appl - I Love Bossa (5:25)
+02. JVasion - Silent Helm (5:22)
+03. Florito - Balearic Air (4:37)
+04. Stefan Reh, C. Nakoinz - Go Down Well (7:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:28:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BDE34ECE78E1CB16D940307ADB8FEA2773591B0
+magnet:?xt=urn:btih:8E8C4EA69D95A0A5BCB20F326B88394CD526FDBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,25 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471580   (1014957) от 21.05.2021
+###  Публикация: 1525354   (129467) от 20.01.2022
 
-Коммуналка / La comunidad (2000) BDRip [1080p] [MVO] ATV
+Guenter Haas - Tales of a Broken Planet (2013) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014957.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джулия работает агентом по продаже недвижимости. Найдя сумму денег в размере трехсот миллионов песет, скрытую в квартире скончавшегося арендатора, хочет ими завладеть. Единственная альтернатива столкнуться с гневом очень особенного сообщества соседей, которыми руководит администратор. Теперь она без скрупулезности готова использовать все хитрости, чтобы достигнуть (   Читать дальше...   )Производство: Испания / Antena 3 Televisión, Lolafilms S.A., Vía DigitalЖанр: Ужасы, триллер, комедия, криминал, детективРежиссер: Алекс де ла ИглесиаАктеры: Кармен Маура, Эдуардо Антуна, Мария Аскерино, Хесус Бонилья, Марта Фернандес Муро, Пака Габалдон, Ане Габарян, Санчо Грация, Эмилио Гутьеррес Каба, Кити МанверПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: ОтсутствуютПродолжительность: 01:49:29
+01. Tales of a Broken Planet (4:32)
+02. Cayo Coco (6:18)
+03. The Choice (4:35)
+04. 1st Floor Lobby (4:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:55:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B84AADC7FCE7E26933B285BFE1EB2988F648349
+magnet:?xt=urn:btih:F0F1EAE0F26A58C09413B4A1C9B09583E2F62B82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,52 +288,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471403   (1015109) от 20.05.2021
+###  Публикация: 1525670   (129285) от 21.01.2022
 
-Калифорния / Kalifornia (1993) WEB-DL [1080p] [Unrated] [Open Matte] [MVO] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист и его любовница-фотограф, изучают поведение убийц-маньяков, собирая материалы для книги. В особенности их интересуют места, где совершаются преступления. Они отправляются в экспедицию на автомобиле и ненароком подсаживают в машину еще одну парочку.
-Уж лучше бы они этого не делали - ведь угрюмый заросший детина, сопровождаемый писклявой дурехой, - сумасшедший (   Читать дальше...   )Производство: США / PolyGram Filmed Entertainment, Viacom Productions, Propaganda FilmsЖанр: Триллер, драма, криминалРежиссер: Доминик СенаАктеры: Брэд Питт, Дэвид Духовны, Джульетт Льюис, Мишель Форбс, Кэти Ларсон, Дэвид Милфорд, Джон Заркен, Дэвид Роуз, Томми Чаппелль, Джадсон ВонПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английскиеПродолжительность: 01:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F53619A3D9F5C5003A3364F226C604C27649ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470647   (1015451) от 18.05.2021
-
-Уйти не прощаясь / French Exit (2020) WEB-DL [1080p] [MVO] ATV
+Мюнхен: На пороге войны / Munich: The Edge of War (2021) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015451.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-План умереть 60-летней светской львицы Фрэнсис Прайс, пока не кончились деньги, не сработал. Муж скончался 20 лет назад, и некогда огромное наследство почти полностью иссякло. На последние деньги она перебирается в Париж, чтобы провести остаток жизни в скромной квартирке вдали от внимания. Компанию ей составляют сын Малкольм и воплощение покойного супруга — кот Маленький (   Читать дальше...   )Производство: Канада, Ирландия, Великобритания, США / Blinder Films, Elevation Pictures, Rocket Science, Saalgo Productions, Screen Siren Pictures Inc., Téléfilm Canada, Terminal City PicturesЖанр: Драма, комедияРежиссер: Азазель ДжейкобсАктеры: Мишель Пфайффер, Лукас Хеджес, Трэйси Леттс, Валери Махаффей, Сьюзэн Койн, Имоджен Путс, Даниэль Макдональд, Исаак Де Банколе, Дэниэл ДиТомассоПеревод: Профессиональный многоголосыйСубтитры: Русские, украинские, английскиеПродолжительность: 01:52:49
+Осень 1938 года, Европа на грани войны. Гитлер готовится к вторжению в Чехословакию, и правительство Великобритании во главе с Невиллом Чемберленом отчаянно пытается найти мирное решение. Британский госслужащий Хью Легат и немецкий дипломат Пауль фон Хартманн отправляются в Мюнхен на экстренную конференцию. После начала переговоров старые друзья оказываются в эпицентре (   Читать дальше...   )Производство: Великобритания / Turbine Studios, NetflixЖанр: Биография, драма, история, триллерРежиссер: Кристиан ШвоховАктеры: Лив Лиза Фрис, Джордж Маккэй, Яннис Нивёнер, Nick Wymer, Джессика Браун-Финдли, Рафаэль Соволе, Марк Льюис Джонс, Алекс Дженнингс, Джереми Айронс, Людвиг ЗимонПеревод: ДублированныйСубтитры: Русские, украинские, английскиеПродолжительность: 02:11:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BE8CF1356797BA6E2F2B653072DDBFFD2222BA0
+magnet:?xt=urn:btih:75B805EF260D14F4879BCF11B2CD3EE46DCECF41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,25 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470788   (1015464) от 18.05.2021
+###  Публикация: 1525721   (129260) от 21.01.2022
 
-Парфюмер: История одного убийцы / Perfume: The Story of a Murderer (2006) BDRip [720p] [Open Matte] ATV
+VA - Africa Gets Physical, Vol. 2 (2019) [AAC|~331 Kbps] <Afro House, Deep House>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015464.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жестокий, никогда не знавший любви, сирота Жан-Батист Гренуй настоящих успехов достиг лишь на одном поприще – среди парфюмеров ему никогда не было равных. По его духам сходит с ума весь высший свет, не подозревая о том, какой страшной ценой будет получен последний, идеальный аромат.Производство: Германия, Франция, Испания, США / Castelao Producciones S.A., Constantin Film Produktion, Davis-FilmsЖанр: Драма, криминалРежиссер: Том ТыкверАктеры: Бен Уишоу, Дастин Хоффман, Алан Рикман, Рейчел Херд-Вуд, Биргит Минихмайр, Шан Томас, Тимоти Дэвис, Дора Романо, Сара Форестье, Дэвид КолдерПеревод: Дублированный, авторский одноголосыйСубтитры: Русские, английскиеПродолжительность: 02:27:15
+01. Bruce Loko - Do It Right (6:41)
+02. Shimza - Champagne (6:04)
+03. Aero Manyelo, Oluhle - Siza Sizwe (7:40)
+04. Blanka Mazimela - Ten 2 Killi (7:38)(   Читать дальше...   )Жанр: Afro House, Deep HouseПродолжительность: 01:48:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A703B82E53BE9293AD59EA462F6C1BB5B0AC5AA
+magnet:?xt=urn:btih:6636ED6ADABD8D3DA0320FAF3E276877311EE486
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -382,25 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470724   (1015466) от 18.05.2021
+###  Публикация: 1525720   (129249) от 21.01.2022
 
-Мастер меча / Geomgaek / The Swordsman (2020) BDRip [720p] ATV
+VA - Africa Gets Physical, Vol. 1 (2017) [AAC|~335 Kbps] <Afro House, Deep House>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015466.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чосон, 1623 год. После свержения монарха Кванхэ-гуна страна погружается в хаос. Через несколько лет солдаты империи Цин забирают крестьян на чужой территории в рабы, их предводитель ищет достойного соперника для поединка на мечах, а простая девушка пытается найти лекарство для слепнущего отца.Производство: Корея Южная / ISU Venture Capital, KTH, Opus PicturesЖанр: История, боевикРежиссер: Джэ Хун ЧхвеАктеры: Чан Хёк, Ким Хён-су, Джо Таслим, Чон Ман-щик, Ли На-гён, Ли Мин-хёк, Чхве Джин-хо, Чи Сын-хён, Чи Гон-у, Кон Сан-аПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:40:39
+01. Aero Manyelo - Mooki (6:24)
+02. Ryan Murgatroyd - Kanna (7:02)
+03. Black Coffee, TOSHI - Buya (Loco Dice Kliptown Love Remix) (7:05)
+04. Thor Rixon, Theresa Toy - Theresa Toy (5:59)(   Читать дальше...   )Жанр: Afro House, Deep HouseПродолжительность: 01:47:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D50163EBC07C2EEAC5B53E1DA8DB23206DCDCD28
+magnet:?xt=urn:btih:6CAA9E12A95ACA602D31210368A0001780F4F79F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -408,25 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470604   (1015467) от 18.05.2021
+###  Публикация: 1525723   (129242) от 21.01.2022
 
-Маленькая рыбка / Little Fish (2020) WEB-DL [1080p] [MVO] ATV
+VA - Africa Gets Physical, Vol. 3 (2020) [AAC|~331 Kbps] <Afro House, Deep House>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015467.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пара пытается сохранить свои отношения, в то время как вирус потери памяти распространяется и угрожает стереть историю их любви.Производство: США, Канада / Automatik Entertainment, Black Bear Pictures, Oddfellows EntertainmentЖанр: Фантастика, драма, мелодрамаРежиссер: Чед ХартиганАктеры: Оливия Кук, Джек О’Коннелл, Стефани Соколински, Рауль Кастильо, Дэвид Леннон, Маккензи Кардвэлл, Росс Виртанен, Heather Decksheimer, Натали Фэрроу, Рональд РобинсонПеревод: Профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:41:11
+01. Blanka Mazimela, Kórus, Sobantwana - Gcwanini (8:32)
+02. Nizhe DeSoul - Euphoria (6:52)
+03. Kopoy Zukar - Izalamane (7:42)
+04. Shivers Bw - Tsodilo (6:45)(   Читать дальше...   )Жанр: Afro House, Deep HouseПродолжительность: 02:00:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B60AD01063DA3A9616344F64DB70B54E04908C8A
+magnet:?xt=urn:btih:A76D94F8CFA43571D0A8B91912B36F704AE00708
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,25 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470597   (1015472) от 18.05.2021
+###  Публикация: 1525725   (129226) от 21.01.2022
 
-Августовская рапсодия / Hachi-gatsu no rapusodi (1991) WEB-DL [720p] [MVO] ATV
+VA - Africa Gets Physical, Vol. 4 (2022) [AAC|~336 Kbps] <Afro House, Deep House>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015472.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм посвящен теме памяти об атомной бомбардировке Нагасаки и тому, как для современного человека, не затронутого трагедией лично, вообще возможно аутентично выстраивать свое отношение к этому событию и говорить о нем, в том числе через разницу между поколениями и нациями.Производство: Япония / Feature Film Enterprise II, 	Kurosawa Production Co. Ltd., Shochiku Films Ltd.Жанр: ДрамаРежиссер: Акира КуросаваАктеры: Сатико Мурасэ, Хисаси Игава, Наруми Каясима, Томоко Отакара, Мицунори Исаки, Тосиэ Нэгиси, Хидэтака Ёсиока, Тёитиро Каварадзаки, Миэко Судзуки, Ричард ГирПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английскиеПродолжительность: 01:37:36
+01. Thakzin, Kitty Amor - Khoisan (4:24)
+02. Dawgpound - Egypt (6:40)
+03. Un_Nown, Zikhona - Sikelela (7:38)
+04. Drega, Maline Aura - Mama Dear (6:32)(   Читать дальше...   )Жанр: Afro House, Deep HouseПродолжительность: 02:03:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAE8CAB23C1DDC65EFC99187BF70DCBCDB3080A1
+magnet:?xt=urn:btih:89D054A817DB6BDF2C0EF063B6C11CE00C28EE3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,25 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469870   (1016089) от 14.05.2021
+###  Публикация: 1525790   (129177) от 21.01.2022
 
-Поступь хаоса / Chaos Walking (2021) WEB-DL [1080p] ATV
+VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulful House, Tech House>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016089.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2257 год. Тодд обнаруживает загадочную девушку Виолу, потерпевшую крушение на его родной планете, где женщины давно исчезли, а все мужчины страдают от вируса — существуют в пространстве бесконечных мыслеобразов, которое называют шумом: рядом с другим человеком совершенно невозможно утаить свои воспоминания и мысли. В такой агрессивной реальности Виоле, чьи чувства (   Читать дальше...   )Производство: США, Канада, Гонконг, Люксембург / Lionsgate, Quadrant PicturesЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Даг ЛайманАктеры: Том Холланд, Дэйзи Ридли, Демиан Бичир, Дэвид Ойелоуо, Курт Саттер, Синтия Эриво, Бетани Энн Линд, Мадс Миккельсен, Ник Джонас, Рэй МаккиннонПеревод: Дублированный, профессиональный многоголосый, любительский двухголосыйСубтитры: Русские, английскиеПродолжительность: 01:48:53
+01. Cookie Monsterz, Michelle Weeks, Qubiko - Spread Love (Unreleased Qubiko Dub) (6:41)
+02. Mata Jones - Esa Y Aqui (Unreleased Original Mix) (6:38)
+03. Dennis Ferrer, K.T. Brooks, Philip Z - How Do I Let Go (Unreleased Philip Z Dub) (6:31)
+04. Dino MFU, Alxndra Good, David Morales - Not True (Unreleased David Morales Reprise) (6:21)(   Читать дальше...   )Жанр: Deep House, Soulful House, Tech HouseПродолжительность: 03:49:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02DF1E323D0FEADD81BA42717916F104AB30D823
+magnet:?xt=urn:btih:4D24260F18DDA2C518C201F68508AF6624314B36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,25 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469660   (1016254) от 13.05.2021
+###  Публикация: 1525540   (129175) от 21.01.2022
 
-Будь моим Кириллом (2021) WEB-DL [1080p] ATV
+VA - The Very Best of Chill Out, Vol. 1 (2015) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Отечественное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016254.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Неуверенная в себе девушка Саша врет семье, что встречается с красавчиком Кириллом, хотя он — всего лишь ее тренер по бегу, с которым она боится даже заговорить. Муж сестры Паша знает правду, но у него и своих проблем хватает — у них с женой уже год не было секса. Записавшись вместе на беготерапию, Саша и Паша решают, что смогут убежать от проблем вместе.Производство: Россия / Good Story Media, ТНТЖанр: КомедияРежиссер: Алла ЕлисееваАктеры: Виталийс Семёновс, Анастасия Евграфова, Анна Антонова, Иван Мулин, Сергей Степин, Ирина РозановаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:35:08
+01. Lemongrass, Jane Maximova - Deep River (6:29)
+02. SilverNight - Silence (6:55)
+03. Barclay & Cream - Surrender (Alexander Metzger Beach Mix) (3:55)
+04. Jens Jakob - Antimatter 1 (10:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08AB26F0A793DF656340E7879EE1ADD1D85127C3
+magnet:?xt=urn:btih:09CC06264E351249CCA685E6E2B5DF1B4E2866D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,25 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469290   (1016557) от 11.05.2021
+###  Публикация: 1525544   (129172) от 21.01.2022
 
-Барб и Звезда едут в Виста дель Мар / Barb and Star Go to Vista Del Mar (2021) BDRip [720p] ATV
+VA - The Very Best of Chill Out, Vol. 3 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016557.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Барб и Стар дружат уже много лет. Они практически все свободное время проводят вместе, всячески поддерживая друг друга. Однажды им в голову приходит прекрасная идея отправиться в совместный отпуск. Они живут в небольшом городке, где жизнь течет слишком размеренно и скучно. Подругам не хватает ярких эмоций, поэтому они решают отправиться к океану, в очаровательный (   Читать дальше...   )Производство: США / Gloria Sanchez Productions, Lionsgate, Redrum, StellieЖанр: КомедияРежиссер: Джош ГринбаумАктеры: Энни Мумоло, Кристен Уиг, Рейн Дои, Адриан Макала, Патрик Бристоу, Джейми Дорнан, Джордан Блэк, Рэйчел Дугай, Иэн Гомес, Венди Маклендон-КовиПеревод: Профессиональный многоголосыйСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 01:46:59
+01. York - Interlude (0:57)
+02. Marga Sol, Mike Vale, NDKj - Say My Name (Marga Sol's Chill Mix) (3:43)
+03. CaPa - The Way We Live (3:48)
+04. Eskadet - A Bientot (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C7448A9C631998A26E21D72C6D457A90A21B259
+magnet:?xt=urn:btih:F96282DBE6FD68E9FA16C679521062E46F4E7D28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,25 +517,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468885   (1016736) от 10.05.2021
+###  Публикация: 1525676   (129170) от 21.01.2022
 
-В ожидании моря (2013) WEB-DL [1080p] ATV
+Paul Oakenfold - Shine On (2022) [AAC|~310 Kbps] <EDM, House, Drum & Bass>
 
 >>Аудио и Видео
->>Отечественное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016736.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм об ушедшем море, о рыбаках, которые остались без воды. Марат, капитан рыболовецкого судна, попадает в тюрьму на десять лет. А когда он возвращается домой — аула уже нет, нет и моря, только голая степь.Производство: Россия, Германия, Франция, Бельгия, Казахстан, Украина / Ввысь, Казахфильм, Палас ФильмЖанр: ДрамаРежиссер: Бахтиер ХудойназаровАктеры: Динмухаммед Ахимов, Егор Бероев, Детлев Бук, Раджаб Гусейнов, Даулет Кекельбаев, Павел Прилучный, Арман Асенов, Анастасия Микульчина, Саёра СафариПеревод: Не требуется (русский)Субтитры: Русские, английские (SDH)Продолжительность: 01:44:48
+01. Zanzebaar (1:47)
+02. Paul Oakenfold, Baby E - Shine On (2:33)
+03. Paul Oakenfold, Lizzy Land - Waterfall (Orchestral Mix) (2:42)
+04. White Lights (3:19)(   Читать дальше...   )Жанр: EDM, House, Drum & BassПродолжительность: 00:56:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCCDD3DFBA40BBBA0ED916231C0C842FCFB1559A
+magnet:?xt=urn:btih:6242D6C4261B26EF291A2FBFA44AA0EC444902CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,25 +546,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370066   (1016841) от 09.05.2021
+###  Публикация: 1525785   (129153) от 21.01.2022
 
-Солдатик (2018) WEB-DL [1080p] ATV
+VA - Relaxing Chillout (2022) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Отечественное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016841.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История о волнующих и героических событиях, произошедших в жизни самого маленького солдата — героя Великой Отечественной Войны, шестилетнего Сережи Алешкова. Он потерял всех своих родных, попал в действующую армию. С шестилетним мальчиком затеяли игру в солдатика, чтобы сохранить ему детство, а он, чтобы соответствовать этому почетному для него званию, стал настоящим (   Читать дальше...   )Производство: Россия, Белоруссия / Мосфильм, ДжемСтудияЖанр: Драма, военныйРежиссер: Виктория ФанасютинаАктеры: Андрей Андреев, Виктор Добронравов, Дарья Урсуляк, Андрей Новик, Зураб Миминошвили, Анатолий Калмыков, Ольга Колокольцева, Николай Кучиц, Иван Щетко, Светлана КожемякинаПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:26:23
+01. Logophilia - Surfaces (6:03)
+02. Ace Of Duty - Prerogatives (6:13)
+03. Chiffre 100 - Summer Longing (Radio Mix) (3:48)
+04. Lusser - Asterism (5:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:44:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3439E98C3BD9F99C52A1CCBB4B42D5D5E0BD0B82
+magnet:?xt=urn:btih:75093B23F8F62F5C04F922F600315366A8BB456D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,25 +575,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468701   (1016894) от 09.05.2021
+###  Публикация: 1525690   (129141) от 21.01.2022
 
-Душа / Soul (2020) BDRip [480p] iPod
+VA - Buddah's Chill 3 (2013) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016894.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уже немолодой школьный учитель музыки Джо Гарднер всю жизнь мечтал выступать на сцене в составе джазового ансамбля. Однажды он успешно проходит прослушивание у известной клубной певицы и, возвращаясь домой вне себя от счастья, падает в люк и умирает. Теперь у Джо одна дорога — в Великое После, но он сбегает с идущего в вечность эскалатора и случайно попадает в Великое (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Пит Доктер, Кемп ПауэрсАктеры: Джейми Фокс, Тина Фей, Грэм Нортон, Рэйчел Хаус, Анджела Бассетт, Алиси Брага, Ричард Айоади, Филисия Рашад, Доннел Роулингс, Амир-Халиб ТомпсонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full) Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:40:32
+01. Phoungh Ann - Rufiyaa (4:51)
+02. Katoey - Pattaya Hood (3:42)
+03. Keisuke Sakai - Yama Nemuru (6:44)
+04. Michael e - Precious Jewel (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:040C166A532331C76112862493D0C9ABF2B1B2C8
+magnet:?xt=urn:btih:6C4BE34F0E3A2CB54695571FAA66AE9197155CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,25 +604,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468674   (1017036) от 08.05.2021
+###  Публикация: 1525716   (129139) от 21.01.2022
 
-Восемь сотен (Восемьсот) / Ba Bai / The Eight Hundred (2020) BDRip [1080p] [MVO] ATV3
+VA - Buddah's Chill 6 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017036.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 октября 1937 года, Японо-китайская война. 400 солдат из 524-го полка 88-й дивизии Народно-революционной армии Китая четыре дня и четыре ночи ведут оборону склада Сыхан в Шанхае от многократно превосходящих сил Императорской армии Японии. А в это время на другом берегу реки Суджоу идёт мирная жизнь — обычные граждане и представители иностранных государств наблюдают (   Читать дальше...   )Производство: Китай / Beijing Diqi Yinxiang Entertainment, Huayi Brothers MediaЖанр: Военный, боевик, драма, историяРежиссер: Гуань ХуАктеры: Ван Цяньюань, Чжан И, Цзян У, Хуан Чжичжун, Чжан Цзюнъи, Охо Оу, Ду Чунь, Вижен Вэй, Чжан Юхао, Тан ИсиньПеревод: Любительский многоголосыйСубтитры: Русские, английскиеПродолжительность: 02:22:33
+01. Joey Supaporn - 1001 Bangkok Nights (3:40)
+02. Krystian Shek, Ray Maddison - Thai Palm Bay (Play At Beach Mix) (4:43)
+03. Billy Esteban - Aliman (3:44)
+04. Lazy Hammock - Apocalyptic Journey (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CF7670D62DDCDD7D53BFDF9D50D08D72D8E35C5
+magnet:?xt=urn:btih:B4F90C609D5C462186B1468CDA0CA90BEF729C70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,25 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468249   (1017193) от 07.05.2021
+###  Публикация: 1525697   (129133) от 21.01.2022
 
-Зоя (2020) WEBRip [1080p] ATV3
+VA - Buddah's Chill 4 (2015) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Отечественное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017193.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осень 1941 года. Вчерашняя школьница Зоя Космодемьянская уходит добровольцем в диверсионную школу. Её партизанский отряд попадает в засаду, а девушка схвачена немцами при попытке поджечь сарай. Допросы и пытки ни к чему не привели. Она не сказала ничего, что могло бы сорвать выполнение заданий другим группам. Немцы не смогли узнать даже её настоящее имя. Эта жертва (   Читать дальше...   )Производство: Россия / Киностудия им. М. Горького, Триикс МедиаЖанр: История, биография, военный, драмаРежиссер: Максим Бриус, Леонид ПляскинАктеры: Карина Разумовская, Анна Уколова, Дарья Юргенс, Дмитрий Быковский-Ромашов, Александр Вонтов, Жан-Марк Биркхольц, Вольфганг Черны, Евгений Романцов, Никита Кологривый, Анастасия МишинаПеревод: Не требуется (русский)Субтитры: Русские (форсированные (хардсаб) на немецкую речь)Продолжительность: 01:38:30
+01. Latif Rayhan - Aleppo (2:26)
+02. Djadi - Open Sesame (3:06)
+03. Dewi Lestari - Bunga Mawar (2:53)
+04. Michael e - Reminiscence (6:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9757814C8934AFA134F2900DBABE3DF56C262D26
+magnet:?xt=urn:btih:FD27E0054736667AB5D283A170F77B4DC556820E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,25 +662,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468222   (1017194) от 07.05.2021
+###  Публикация: 1525719   (129130) от 21.01.2022
 
-Увиденное и услышанное / Things Heard & Seen (2021) WEB-DL [1080p] ATV3
+VA - Buddah's Chill 8 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017194.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1979 год. Кэтрин вынуждена оставить работу мечты в Нью-Йорке и вместе с мужем и 4-летней дочерью переехать в провинциальный городок, где супругу предложили должность преподавателя в местном колледже. Семейство покупает там дом и неплохо обживается, хотя Кэтрин и страдает от недостатка общения. Но вскоре в доме начинает ощущаться постороннее присутствие.Производство: США / Likely StoryЖанр: Драма, фэнтезиРежиссер: Шари Спрингер Берман, Роберт ПульчиниАктеры: Аманда Сайфред, Джеймс Нортон, Наталия Дайер, Алекс Нюстадтер, Рэй Сихорн, Майкл О’Киф, Карен Аллен, Джек Гор, Ф. Мюррэй Абрахам, Ана Софиа ХегерПеревод: Дублированный, профессиональный многоголосыйСубтитры: Русские, украинские, английскиеПродолжительность: 02:01:27
+01. Phoungh Ann - Rufiyaa (4:51)
+02. Yantra Mantra - Pink City (Ayurveda Mix) (3:56)
+03. Shadi Fares - Champagne Beach (5:29)
+04. Latif Rayhan - Aleppo (2:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:21:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC517C45147B3AF9CF00B985AEA07B2909FC2569
+magnet:?xt=urn:btih:01B4DDC0E3320646E3272E5A85DF783D67CA1164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525683   (129128) от 21.01.2022
+
+VA - Buddah's Chill 1 (2010) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airstream One - Southern Light (Original Mix) (4:50)
+02. Cinemascope - Chanson du Chine (Original Mix) (7:15)
+03. Simon Le Grec - Its Only Love (Radio Edit) (4:00)
+04. Beatkonexion - Wavin' HiFi (Original Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9C7F81CBC25826FB88BFC8665F5AF55400C07B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525787   (129109) от 21.01.2022
+
+VA - Ibiza Lounge (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wermuth - Intertwining Lives (5:46)
+02. Élan Vital - Extravagance (5:55)
+03. Fascinating Case - Immersive Experiences (5:40)
+04. Lovers in Motion - A Matter of When (6:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7511A94659F37F9E16232FA6CB83B2D900DE8A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,18 +1,156 @@
-###  Публикация: 485981   (90569) от 24.04.2012
+###  Публикация: 1417554   (355205) от 21.10.2020
 
-Языковые пакеты Microsoft Windows Server 2008 SP2 (x64-x86) [Multi]
+Windows Server, Version 20H2 (10.0.19042.508) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90569.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Носители со сгруппированными языковыми пакетами для Windows Server® 2008 с пакетом обновления 2 (SP2) позволяют использовать интерфейс пользователя на нескольких языках в средах, в которых установлена такая система. Добавление одного или нескольких языковых пакетов в образ обеспечивает поддержку одного или нескольких языков в устанавливаемой операционной системе Windows Server® 2008 с пакетом обновления 2 (SP2). Благодаря этому крупные организации могут глобально развертывать один и тот же образ с необходимыми локализованными интерфейсами пользователя.Название программы: Языковые пакеты Microsoft Windows Server 2008 SP2 (x64-x86)Язык интерфейса: Многоязычный
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EDF7AB62068E21CD96CCBD8A34D65CAC10C3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331710   (322373) от 16.10.2019
+
+Windows Server, Version 1909 (10.0.18363.418) - Оригинальные образы от Microsoft MSDN [En/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A4EE7340388FD5F241D220BF0191CB61A26D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837789   (257669) от 18.11.2025
+
+Windows Server 2022 LTSC [10.0.20348.4405], Version 21H2 (Updated November 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D4E5615C8BF59E90F0FE57E3263CF161E3AE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837790   (257668) от 18.11.2025
+
+Windows Server 2025 LTSC [10.0.26100.7171], Version 24H2 (Updated November 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Windows Server 2025 поможет вам справиться с вызовами будущего и обеспечит актуальную безопасность, производительность и гибкость. Повышайте продуктивность благодаря оптимизированной работе в сети, ускоренному хранилищу и возможностям гибридного облака, которые адаптируются под ваши потребности. Идите в ногу с прогрессом за счет модернизированной системы (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD1BFD96A67331B9C04EB6D57AE62D1FE4A129A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837791   (257667) от 18.11.2025
+
+Windows Server [10.0.25398.1965], version 23H2 (Updated November 2025) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1846074AD0419EA2CC296EC223B4D12C1F8C9F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498959   (256545) от 21.05.2012
+
+Windows Server 2003 R2 Standard OEM SP1 (x86) [ENGLISH]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2003 (кодовое название при разработке - Whistler Server, внутренняя версия - Windows NT 5.2) - операционная система семейства Windows NT от компании Microsoft, предназначенная для работы на серверах. Она была выпущена 24 апреля 2003 года.
+
+Windows Server 2003 является новой версией Windows 2000 Server и серверным вариантом операционной системы Windows XP. Изначально Microsoft планировала назвать этот продукт «Windows .NET Server» с целью продвижения своей новой платформы Microsoft .NET. Однако впоследствии это название было отброшено, чтобы не вызвать неправильное представление о .NET на рынке программного обеспечения.
+
+Windows Server 2003 доступен в четырёх основных изданиях, каждое из которых ориентировано на определённый сектор рынка.
+
+Все эти издания, за исключением Web Edition, доступны также в 64-разрядных вариантах (AMD64 и IA-64). Включение поддержки 64-разрядных процессоров даёт системам возможность использовать большее адресное пространство и увеличивает их производительность.
+
+Standard (   Читать дальше...   )Название программы: Windows Server 2003 R2 Standard OEM SP1Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -24,15 +162,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701406   (116607) от 20.02.2024
+###  Публикация: 1633735   (252227) от 16.05.2023
 
-Windows Server 2022 LTSC [10.0.20348.2322], Version 21H2 (Updated February 2024) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.1726 (Updated May 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116607.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252227.jpg" />
 </div>
 
 
@@ -42,7 +180,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C191B1E5E3CEF4295177C3D431C8FD0EF27F71A
+magnet:?xt=urn:btih:5C6BD6A37D3884D6DF572674DADAB78AE952D2F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,67 +188,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701407   (116613) от 20.02.2024
+###  Публикация: 1537340   (250039) от 16.03.2022
 
-Windows Server [10.0.25398.709], version 23H2 (Updated February 2024) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12579D8AE2C620423803EEBB5F2978C4577E952E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693009   (122263) от 18.01.2024
-
-Windows Server [10.0.25398.643], version 23H2 (Updated January 2024) - Оригинальные образы от Microsoft MSDN [En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.587 (Updated March 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E7CEF923FC4ABFDE6F53FC0F5765523B6DCDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693008   (122291) от 18.01.2024
-
-Windows Server 2022 LTSC [10.0.20348.2227], Version 21H2 (Updated January 2024) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122291.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250039.jpg" />
 </div>
 
 
@@ -120,7 +206,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CED55244FEE3D0A8389C725B746DE0F3BEE00641
+magnet:?xt=urn:btih:9D57C6A7E6409FBFFAD058BBAD1551E486E7C33B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,15 +214,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685787   (127167) от 19.12.2023
+###  Публикация: 1545508   (240584) от 19.04.2022
 
-Windows Server 2022 LTSC [10.0.20348.2159], Version 21H2 (Updated December 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.643 (Updated April 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127167.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240584.jpg" />
 </div>
 
 
@@ -146,7 +232,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FB4664A77A3A82C8FB02CEE4663BA88A43A9958
+magnet:?xt=urn:btih:8648B746492BBD245721F6C028E2B171874D0887
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,67 +240,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685788   (127172) от 19.12.2023
+###  Публикация: 1551844   (234619) от 17.05.2022
 
-Windows Server [10.0.25398.584], version 23H2 (Updated December 2023) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749062A864F56750EF020D0264F24A57388E0CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525041   (130508) от 18.01.2022
-
-Windows Server, Version 20H2 (10.0.19042.1466) (Updated January 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.707 (Updated May 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FD913296DA8D6C3860B2EE5D25DAF17918C015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525042   (130553) от 18.01.2022
-
-Windows Server 2022 LTSC, Version 21H2 Build 20348.469 (Updated January 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130553.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234619.jpg" />
 </div>
 
 
@@ -224,7 +258,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCCB9F76E33FD8177A0AA502EBF5CF2605DEE43E
+magnet:?xt=urn:btih:908CE0260EC22FC370CCFAC12BE50112DC7CFD34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,15 +266,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678551   (141000) от 23.11.2023
+###  Публикация: 1558950   (213132) от 23.06.2022
 
-Windows Server 2022 LTSC, Version 21H2 Build 20348.2113 (Updated November 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.768 (Updated June 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141000.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213132.jpg" />
 </div>
 
 
@@ -250,7 +284,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:974551BA05A453EB555A9123997340B620BA68B5
+magnet:?xt=urn:btih:4FF19F13AFF795C382BE9072BF553F57711043F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,15 +292,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518918   (150270) от 22.12.2021
+###  Публикация: 1564657   (212379) от 19.07.2022
 
-Windows Server 2022 LTSC, Version 21H2 Build 20348.405 (Updated December 2021) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.825 (Updated July 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150270.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_212379.jpg" />
 </div>
 
 
@@ -276,7 +310,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F5B98AA2076C5AF862CF135986AD55E3C3A3171
+magnet:?xt=urn:btih:E19EBB4E832618A3701A135595A08EFD75416C4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,41 +318,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518917   (150395) от 22.12.2021
+###  Публикация: 1577973   (207617) от 20.09.2022
 
-Windows Server, Version 20H2 (10.0.19042.1415) (Updated December 2021) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D5C589634CDF6AA0085435420194EA4C3E0651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598869   (161009) от 21.12.2022
-
-Windows Server 2022 LTSC, Version 21H2 Build 20348.1366 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.1006 (Updated September 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161009.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207617.jpg" />
 </div>
 
 
@@ -328,7 +336,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DFA04F465481B2AF34173CD64DC28238C69D515
+magnet:?xt=urn:btih:372356ADEB7AF1C46E605116FF708BCFF9F58BE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,67 +344,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346357   (163281) от 19.12.2019
+###  Публикация: 1570327   (205464) от 16.08.2022
 
-Windows Server, Version 1909 (10.0.18363.535) - Оригинальные образы от Microsoft MSDN [En/Ru]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20687B2BB28A339CDC595EF9C77B7E3ADB444B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346353   (163458) от 19.12.2019
-
-Windows Server, Version 1903 (10.0.18362.535) - Оригинальные образы от Microsoft MSDN [En/Ru]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.887 (Updated August 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE891B42963AEA5AB1EBC4D3EFCA8C7F9BD330C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669764   (172549) от 17.10.2023
-
-Windows Server 2022 LTSC, Version 21H2 Build 20348.2031 (Updated October 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172549.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_205464.jpg" />
 </div>
 
 
@@ -406,7 +362,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:221EF143001556763D315B4A4760CAE8C2ED27AB
+magnet:?xt=urn:btih:E01DF48D2782DB408448140755A386D804F5D32F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,15 +370,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662992   (187245) от 19.09.2023
+###  Публикация: 1584456   (205053) от 19.10.2022
 
-Windows Server 2022 LTSC, Version 21H2 Build 20348.1970 (Updated September 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.1129 (Updated October 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187245.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_205053.jpg" />
 </div>
 
 
@@ -432,7 +388,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE3CCC04C2DE7E8ECBA6D26D75884E958D524670
+magnet:?xt=urn:btih:014CEE0A1A82DB6A252B7EF94AB0906382C75F62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,41 +396,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590875   (187601) от 16.11.2022
+###  Публикация: 1614398   (202489) от 22.02.2023
 
-Windows Server 2019 LTSC, Version 1809 Build 17763.3650 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки (файловые сервера, сервера приложений, инфраструктурные роли и т.п.). Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра (Server Core) и в (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D7005BEF3D23FBCDDC8D79F82A97B63C4E6E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590876   (187637) от 16.11.2022
-
-Windows Server 2022 LTSC, Version 21H2 Build 20348.1249 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.1547 (Updated February 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187637.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202489.jpg" />
 </div>
 
 
@@ -484,7 +414,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9B8078BEA2272DB6BBAF697A5CE0AD8B683AA1E
+magnet:?xt=urn:btih:EB3276551E5A7FB7A12C349A44F442ED7117FF5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,67 +422,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827502   (188070) от 21.10.2025
+###  Публикация: 1620788   (200928) от 21.03.2023
 
-Windows Server 2025 LTSC [10.0.26100.6899], Version 24H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Windows Server 2025 поможет вам справиться с вызовами будущего и обеспечит актуальную безопасность, производительность и гибкость. Повышайте продуктивность благодаря оптимизированной работе в сети, ускоренному хранилищу и возможностям гибридного облака, которые адаптируются под ваши потребности. Идите в ногу с прогрессом за счет модернизированной системы (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAFFCE28CEE5F465E39F0DB05ABCF9C305FE3FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827501   (188072) от 21.10.2025
-
-Windows Server [10.0.25398.1913], version 23H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.1607 (Updated March 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DB639D30EDDC660550B5EFE85A2BEDF017FFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827500   (188074) от 21.10.2025
-
-Windows Server 2022 LTSC [10.0.20348.4294], Version 21H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188074.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200928.jpg" />
 </div>
 
 
@@ -562,7 +440,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DE1D1824EEC97625F460920C0E1D4B4DCAC245F
+magnet:?xt=urn:btih:58434BD2E9998EA777BCAD0287F9BAD7038BD4E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,15 +448,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653395   (194227) от 15.08.2023
+###  Публикация: 1627390   (199566) от 18.04.2023
 
-Windows Server 2022 LTSC, Version 21H2 Build 20348.1906 (Updated August 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.1668 (Updated April 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194227.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199566.jpg" />
 </div>
 
 
@@ -588,33 +466,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E542AF9B49E8E45D9B13BFAF86E09E6B6F5EA3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647466   (195505) от 18.07.2023
-
-Windows Server 2022 LTSC, Version 21H2 Build 20348.1850 (Updated July 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32129A61E9F5DEE244CF5607DC9F3F60486331B9
+magnet:?xt=urn:btih:6C32E80669D8DF51FED08DDB7E1C8A589E7BA11C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,15 +500,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627390   (199566) от 18.04.2023
+###  Публикация: 1647466   (195505) от 18.07.2023
 
-Windows Server 2022 LTSC, Version 21H2 Build 20348.1668 (Updated April 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
+Windows Server 2022 LTSC, Version 21H2 Build 20348.1850 (Updated July 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
 
 >>ОС Windows
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199566.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195505.jpg" />
 </div>
 
 
@@ -666,7 +518,163 @@ Windows Server 2022 впервые обеспечивает расширенну
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C32E80669D8DF51FED08DDB7E1C8A589E7BA11C
+magnet:?xt=urn:btih:32129A61E9F5DEE244CF5607DC9F3F60486331B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653395   (194227) от 15.08.2023
+
+Windows Server 2022 LTSC, Version 21H2 Build 20348.1906 (Updated August 2023) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_194227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E542AF9B49E8E45D9B13BFAF86E09E6B6F5EA3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827500   (188074) от 21.10.2025
+
+Windows Server 2022 LTSC [10.0.20348.4294], Version 21H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE1D1824EEC97625F460920C0E1D4B4DCAC245F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827501   (188072) от 21.10.2025
+
+Windows Server [10.0.25398.1913], version 23H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DB639D30EDDC660550B5EFE85A2BEDF017FFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827502   (188070) от 21.10.2025
+
+Windows Server 2025 LTSC [10.0.26100.6899], Version 24H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Windows Server 2025 поможет вам справиться с вызовами будущего и обеспечит актуальную безопасность, производительность и гибкость. Повышайте продуктивность благодаря оптимизированной работе в сети, ускоренному хранилищу и возможностям гибридного облака, которые адаптируются под ваши потребности. Идите в ногу с прогрессом за счет модернизированной системы (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAFFCE28CEE5F465E39F0DB05ABCF9C305FE3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590876   (187637) от 16.11.2022
+
+Windows Server 2022 LTSC, Version 21H2 Build 20348.1249 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B8078BEA2272DB6BBAF697A5CE0AD8B683AA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590875   (187601) от 16.11.2022
+
+Windows Server 2019 LTSC, Version 1809 Build 17763.3650 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки (файловые сервера, сервера приложений, инфраструктурные роли и т.п.). Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра (Server Core) и в (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D7005BEF3D23FBCDDC8D79F82A97B63C4E6E82
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,155 +1,22 @@
-###  Публикация: 1850196   (1054302) от 
+###  Публикация: 1782389   (26187) от 28.02.2025
 
-Д. Пачеко, С. Сгро | Принципы модернизации программных архитектур (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробное руководство по проектированию масштабируемого и поддерживаемого программного обеспечения, написанное признанными экспертами в области программных архитектур. Рассматриваются основные сложности монолитных приложений и антипаттерны, которые приводят к проблемам их масштабирования и сопровождения. Изложены принципы качественного проектирования, включая слабую (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BECA884584EE2D9E3AE53EEA687FFCDAEA6DBBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850197   (1054303) от 
-
-П.П. Урбанович, Д.М. Романенко | Компьютерные сети. Учебное пособие (2022) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даны общие понятия и определения из области компьютерных сетей и технологий, описаны сетевые компоненты. Приведены наиболее распространенные виды топологий, используемые для физического соединения компьютеров в сети, основные методы доступа к каналу связи, рассмотрены применяемые на практике физические среды передачи данных. Передача данных в сети рассматривается (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Инфра-ИнженерияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20718120DAA7B157856956578FB178F2CD1C1F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850202   (1054307) от 
-
-Shane Brubaker | Bioinformatics with Python Cookbook. 4th Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enhance your bioinformatics toolbox with practical Python recipes, tips, and tricks for key tasks like aligning sequence data, calling variants, and building Infrastructure as Code.
-Key Features
-Perform sequence analysis at primary, secondary, and tertiary levels using Python libraries
-Solve real-world problems in the fields of phylogenetics, protein design, and (   Читать дальше...   )Жанр: Bioinformatics, BiotechnologyЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C695E5A0273384E0E2DFF528AE75480DF79BE210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850637   (1054612) от 
-
-Wei Qi Yan | Robotic Vision. From Deep Learning to Autonomous Systems (Advances in Computer Vision and Pattern Recognition) (2026) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Robotic vision represents the cutting edge of modern computing, combining artificial intelligence, deep learning, and advanced robotics to enable intelligent machines. As universities worldwide pivot from conventional machine learning to robotic vision, this book serves as an essential guide for researchers, educators, and students entering this transformative field. (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BB486B77591E1B7158C68F04FA769FF44DE0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850634   (1054613) от 
-
-Juan Pablo Buritica, James Turnbull | Engineering Leadership. The Hard Parts: Navigating Chaos to Build Teams That Deliver (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Whether they're building a startup or scaling an established org, engineering leaders know the real job is keeping chaos under control. In a world of shifting priorities, scarce resources, and rapid change, leadership means embracing the unknown, managing moving targets, and creating clarity where there's none. Sometimes, you're building the plane as you're flying (   Читать дальше...   )Жанр: Business Project Management, Software Design, Testing & Engineering, Leadership & MotivationЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F9442939925FA2DF30549DA2207B9C18C45B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850906   (1054872) от 
-
-Д. Бернштейн | Паттерны для начинающих программистов на Java (2024) [PDF]
+Дэн Вандеркам | Эффективный TypeScript: 83 способа улучшить код. Второе издание (2025) [PDF]
 
 >>Компьютерная литература
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054872.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге, призванной научить начинающего программиста решать конкретные задачи по программированию на языке Java, вводится понятие паттерна — некоего заранее заготовленного «рецепта» решения, который можно применить в виде готового фрагмента кода. Используя впоследствии данный набор паттернов, молодой разработчик сможет на их основе быстро решать довольно сложные (   Читать дальше...   )Жанр: Учебное пособиеИздательство: АСТФормат: PDFКачество: Обработанный скан
+Способен ли TypeScript устранить проблемы, которыми так знаменит JavaScript? Да, но его изучение потребует определенных усилий, времени и практики. 83 правила позволят ускорить и облегчить знакомство с TypeScript. Каждое правило — это конкретная рекомендация, рассказывающая на примерах что можно и чего нельзя делать в TypeScript и как грамотно работать с этим языком. (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Е.П. МатвееваИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31F89AFF64106BCFC1F824C9A9F6C87A1A9C40F9
+magnet:?xt=urn:btih:67F9B5A99B648E3602AFC75441840C015F770CF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +24,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850894   (1054879) от 
+###  Публикация: 1782374   (26181) от 28.02.2025
 
-АСТ | Секреты GIT. Никогда не теряй свой код! (2024) [PDF]
+Г. Стриплинг, М. Абель | Машинное обучение с малым объемом кодирования (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26181.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге подробно представлены три проблемно-ориентированных вида машинного обучения (Machine  leaming,  ML):  автоматизированное обучение AutoML без кодирования, обучение BigQuery  ML  с малым объемом кодирования и обучение с применением пользовательского кода на основе библиотек scikit-leam  и Keras. При этом от читателя не требуется глубоких предварительных знаний в (   Читать дальше...   )Жанр: Машинное обучение. Учебное пособиеПеревод: авторизованныйИздательство: АЛИСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14A039D18240EB293022ECB0D5508B06C8E03C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784402   (25159) от 10.03.2025
+
+Пол Керзон, Питер МакОуэн | Волшебство и вычисления: практическое пособие для начинающих фокусников и программистов (2025) [PDF]
 
 >>Компьютерная литература
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054879.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данное издание может стать незаменимым помощником для любого пользователя системы контроля версий Git, в наши дни широко распространенной в сфере разработки программного обеспечения благодаря своей «продвинутое» и универсальности. Авторы разделов этой книги — опытные разработчики, постоянно и активно использующие Git в решении повседневных задач при написании и систематизации (   Читать дальше...   )Жанр: Учебное пособиеИздательство: АСТФормат: PDFКачество: Обработанный скан
+Каждая глава шаг за шагом раскрывает секреты выполнения простых фокусов, а затем в увлекательной форме рассказывает о связанных с ними фундаментальных идеях информатики.
+Эта книга объединяет информатику, когнитивную психологию и другие научные методы для знакомства читателей с основами информатики в доступной и интересной форме. Каждая из 50 глав описывает простой (   Читать дальше...   )Жанр: программирование, алгоритмы, учебное пособиеПеревод: В.И. БахурИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:765071B4D8816D533319A2CEFCB62E2F259E8C2C
+magnet:?xt=urn:btih:3DDA9FC28EFADE60DBA450B24AC2D3C4976EB6A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,25 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850966   (1054882) от 
+###  Публикация: 1784531   (25054) от 11.03.2025
 
-Н.И. Гурин, А.Г. Скоморохов | Аналитические вычисления в системе REDUCE (1989) [DJVU]
+Р. Романов | Рисуем на пару с нейросетью! (2023) [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054882.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассмотрены основные возможности системы аналитических вычислений на ЭВМ REDUCE, одной из самых развитых в мире систем компьютерной алгебры. Приведено множество примеров, иллюстрирующих особенности работы системы в различных ситуациях. В качестве примеров использованы в основном фрагменты программ, созданных авторами для решения конкретных физических задач. Даны (   Читать дальше...   )Жанр: МатематикаИздательство: Наука и техникаФормат: DJVUКачество: Обработанный скан
+Книга «Рисуем на пару с нейросетью» – это неформальный обучающий курс рисования в приложении Dreamerland. Автор в увлекательной форме знакомит читателя с методом генерации изображений, основанном на создании так называемых промптов – словесных описаний будущих картинок. Автор предлагает собственную оригинальную методику использования связных текстов для создания (   Читать дальше...   )Жанр: Учебно-практические пособия. Нейросетевое моделирование. Изобразительное искусствоИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39F9AD6F76C3F75CD8373A9063267157F12429C8
+magnet:?xt=urn:btih:E609B85320889B9639D3FDD25C6FF0A66B7E7FC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,381 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851232   (1055053) от 
+###  Публикация: 1784899   (24849) от 13.03.2025
 
-Ю.Е. Воскобойников | Статистический анализ экспериментальных данных в пакетах MathCAD и Excel (2022) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит изложение методов и алгоритмов математической статистики, решения задач фильтрации, аппроксимации, спектрального и гармонического анализа, возникающих при обработке и анализе экспериментальных данных.
-Приводятся необходимые теоретические положения и соответствующие расчетные соотношения. Отдельное внимание уделяется реализации этих соотношений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BAE9D1AD3F7EB3267ED7FB824A4AA769929E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851231   (1055054) от 
-
-Bill Lubanovic | Introducing Python. Modern Computing in Simple Packages. 3rd Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stuck in a coding conundrum? Whether you're an advanced beginner, an intermediate developer, or a curious newcomer, the complexities of coding can often feel like a labyrinth with no exit. With Python, however, you can start writing real code quickly—but where should you start?
-In this updated third edition, Bill Lubanovic acts as your personal guide to Python, offering (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B891304A751A976EDD338A1768E0E4F36BF994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851228   (1055055) от 
-
-Liz Rice | Container Security. Fundamental Technology Concepts That Protect Cloud Native Applications. 2nd Edition (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055055.jpg" />
-</div>
-
-
-###  Подробнее
-
-As containerized and cloud native applications become foundational to modern software infrastructure, the need for a deep, conceptual understanding of their security implications has never been more urgent. Container Security, second edition, offers a rigorous yet practical examination of the technologies that underpin container platforms—equipping developers, operations (   Читать дальше...   )Жанр: Computer Networking, Cloud Computing, Computer Network SecurityЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0060DB96E6722AFA9242537B84BC6C1D635C47F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851226   (1055056) от 
-
-Mayo Oshin, Nuno Campos | Learning LangChain. Building AI and LLM Applications with LangChain and LangGraph (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055056.jpg" />
-</div>
-
-
-###  Подробнее
-
-If you're looking to build production-ready AI applications that can reason and retrieve external data for context-awareness, you'll need to master--;a popular development framework and platform for building, running, and managing agentic applications. LangChain is used by several leading companies, including Zapier, Replit, Databricks, and many more. This guide (   Читать дальше...   )Жанр: Natural Language Processing, Customer Relations, Computer ScienceЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1C6639DB1D0F55C541D1051EE9CD01398079E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851223   (1055057) от 
-
-Abi Aryan | LLMOps. Managing Large Language Models in Production (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Here's the thing about large language models: they don't play by the old rules. Traditional MLOps completely falls apart when you're dealing with GenAI. The model hallucinates, security assumptions crumble, monitoring breaks, and agents can't operate. Suddenly you're in uncharted territory. That's exactly why LLMOps has emerged as its own discipline.
-
-LLMOps: Managing (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Artificial Intelligence Expert Systems, Natural Language ProcessingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964C916C9564305D57DCE6439F2CFFF69C3A4CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851222   (1055058) от 
-
-Chenyang Shi | Mastering Algorithms with Python. A Practical Approach to Problem Solving and Python Implementation (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gain a solid understanding of algorithms and improve your problem-solving abilities using Python code. With practical examples and clear explanations, this book bridges the gap between dense academic texts and overly simple industry guides.
-
-Focusing on the logic behind essential algorithms such as Breadth First Search (BFS), Depth First Search (DFS), Divide-and-Conquer, (   Читать дальше...   )Жанр: Computer Algorithms, Programming Algorithms, Python ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77948D65247D41E5EF1E9F463A48C9927E50D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851221   (1055059) от 
-
-Alan Simpson | Python Automation For Dummies (2026) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Streamline Your Workflow and Boost Productivity with Python Automation
-
-In today's workplaces, there's a high demand for know-how on the Python programming language, especially for writing time-saving scripts that can simplify routine work tasks. Python Automation For Dummies delivers, with simple explanations of how you can use Python to automatically wrangle data (   Читать дальше...   )Жанр: Software Design Tools, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F17B156995B8FCD4F7578520A0F665F6B0EC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851216   (1055064) от 
-
-Майк МакГрат | Программирование для начинающих. Основные принципы. 2-е издание (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открывать новое бывает непросто, но с «Программированием для начинающих» вы легко погрузитесь в мир ИТ даже при отсутствии опыта. Следуйте понятным инструкциям, выполняйте интересные практические задания. Внутри есть вся необходимая информация, рассмотрены ключевые концепции разработки и подобраны наглядные цветные примеры. Вы научитесь: писать программный код на (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: Эксмо, БомбораФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5346FE337BA186B500C57F844A4B0347990C558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851215   (1055065) от 
-
-Н. Крокер | Разработка с ИИ. Как эффективно использовать ChatGPT и Copilot (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Использование ИИ-инструментов вроде Copilot и ChatGPT похоже на наем суперумного и быстрого джуниор-разработчика, который готов взяться за любую задачу — от исследования до рефакторинга. Работа с ИИ помогает писать код быстрее, улучшать качество приложений и даже реализовывать идеи, которые могли быть недоступными вашей команде. Эта книга покажет, как использовать (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AD1146DD57787EFFDD407D55D24CE80AC490A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851214   (1055066) от 
-
-Дэвид Кларк, Поль Кларк | SDR на практике. Основы разработки программно-определяемого радио (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет читателям освоить основы разработки и применения программно-определяемой радиосвязи (software-defined radio, SDR). Благодаря
-сочетанию обучающих материалов с примерами продвинутых приложений вы получите надежную основу для углубленного изучения современных беспроводных систем.
-Издание будет полезно инженерам, разрабатывающим прототипы радиоустройств, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Books.kzФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F21E72C33C6A859075E9566DFD2134C2E69164D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851212   (1055067) от 
-
-Nicole Koenigstein | Transformers in Action (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Understand the architecture that underpins today’s most powerful AI models.
-
-Transformers are the superpower behind large language models (LLMs) like ChatGPT, Gemini, and Claude. Transformers in Action gives you the insights, practical techniques, and extensive code samples you need to adapt pretrained transformer models to new and exciting tasks.
-(   Читать дальше...   )Жанр: Data Processing, Natural Language Processing, Computer ScienceЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DFFA9E47B05B701FCA5B79E35C57EF62707100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851209   (1055068) от 
-
-Joseph Schmuller | Statistical Analysis with Python For Dummies. 1st Edition (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wrangle stats as you learn how to graph, analyze, and interpret data with Python
-
-Statistical Analysis with Python For Dummies introduces you to the tool of choice for digging deep into data to inform business decisions. Even if you're new to coding, this book unlocks the magic of Python and shows you how to apply it to statistical analysis tasks. You'll learn to (   Читать дальше...   )Жанр: Mathematical & Statistical Software, Statistics, Python ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E34C3883E5017C8F32EC4A52712BC69ED5612E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851207   (1055069) от 
-
-Marco Peixeiro | Time Series Forecasting Using Foundation Models (2026) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Make accurate time series predictions with powerful pretrained foundation models!
-
-You don’t need to spend weeks—or even months—coding and training your own models for time series forecasting. Time Series Forecasting Using Foundation Models shows you how to make accurate predictions using flexible pretrained models.
-(   Читать дальше...   )Жанр: Data Processing, Computer Programming Languages, Python ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988E3A6B1D1A71788F730DEEE2DA52A31204C667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851206   (1055070) от 
-
-Joos Korstanje | Advanced Forecasting with Python. Mastering Modern Forecasting Techniques with Machine Learning and Cloud Tools. Second Edition (2025) [PDF, EPUB] [EN]
+Кит Борн | Раскрытие потенциала данных с помощью генеративного ИИ и технологии RAG (2024) [PDF]
 
 >>Компьютерная литература
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055070.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24849.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Advanced Forecasting with Python, Second Edition, is a comprehensive and practical guide to mastering modern forecasting techniques using Python. Designed for data scientists, analysts, and machine learning practitioners, this updated edition bridges the gap between classical forecasting models and cutting-edge, AI-powered techniques that are reshaping the field.Жанр: Artificial Intelligence, Statistics, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+RAG позволяет системам ИИ выйти за рамки ограничений своих обучающих данных и получить доступ к актуальной и предметно-ориентированной информации, что делает их более универсальными, адаптируемыми и ценными в реальных сценариях. Эта книга служит путеводителем по миру RAG. Она наполнена примерами кода, демонстрирующими инструменты и технологии, такие как LangChain, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD96263C0513578142DB7B6EEB58E66A64F4EF8E
+magnet:?xt=urn:btih:C4FDA063C5A8C7E6658E2E6E8AFAEAE7305A1567
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,25 +129,241 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851205   (1055071) от 
+###  Публикация: 1785114   (24743) от 14.03.2025
 
-Robin Nixon | Learning PHP, MySQL & JavaScript. A Step-by-Step Guide to Creating Dynamic Websites. 7th Edition (2025) [PDF, EPUB] [EN]
+Александр Шалабодов | Искусственный интеллект для всех: Автоматизируй, твори, вдохновляйся (2025) [FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Искусственный интеллект - реальность!
+Эта книга - практическое руководство по освоению нейросетей и GPT для повседневной жизни, работы и творчества. Без сложных терминов вы узнаете, как работает GPT, какие задачи решает и как сделать его своим помощником.
+Для студентов, программистов, предпринимателей и всех, кто хочет использовать ИИ для творчества, продуктивности (   Читать дальше...   )Жанр: Книги о компьютерах. Учебное пособие. Руководства.Издательство: Издательские решения в системе РидероФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E299242CE22A952CA0FC665CFBBE1468101689E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785365   (24628) от 15.03.2025
+
+Фелиция Хесс | Практическое пособие. Blender 4 для любителей и профессионалов. Моделинг, анимация, VFX, видеомонтаж (2025) [PDF] [AD]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые инструменты 4-ой версии Blender дают 3D-художникам больше творческой свободы без оглядки на законы физики. Обновлённое меню модификаторов, улучшенная привязка объектов к поверхности, поддержка визуального отображения эффектов от нодов, более простая реализация анимации – всё это заметно упростит процесс моделирования, анимации и рендеринга, но и поможет улучшить (   Читать дальше...   )Жанр: 3D моделирование, Анимация, VFX, ВидеомонтажИздательство: СОЛОН-ПРЕССФормат: PDFКачество: Обработанный сканРеклама: На страницы наложены ватермарки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4446192239955206E959C99E635651C4FF52A2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785366   (24627) от 15.03.2025
+
+А.М. Адонин | Blender 3D. Полное руководство (2025) [PDF] [AD]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга станет отличным помощником для комфортного вхождения в мир 3D-моделирования с помощью бесплатного и многофункционального редактора Blender. Она предназначена как для абсолютных новичков, так и для пользователей, уже имеющих определённый опыт в 3D-графике.Жанр: 3D моделированиеИздательство: Наука и ТехникаФормат: PDFКачество: Обработанный сканРеклама: На страницы наложены ватермарки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30CA0BF91DEA5D3BD8AC065262BFD4B90D5951C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786960   (23794) от 23.03.2025
+
+Кодекс Нейронов | Как пользоваться чатом GPT (2025) [PDF, EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23794.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпоху стремительного развития технологий искусственного интеллекта, умение эффективно взаимодействовать с языковыми моделями становится неотъемлемым навыком для каждого. Книга "Как пользоваться чатом GPT" предлагает читателям освоить одно из самых мощных ИИ современности — чат-бота GPT.
+
+В условиях, когда информация доступна на каждом шагу, способность (   Читать дальше...   )Жанр: Нейронные сетиИздательство: АвторФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F61455116D2FC2F8BB14D1A73F943A729C2AEF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787679   (23505) от 26.03.2025
+
+Д. Халилов | ChatGPT на каждый день (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23505.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приведены основы работы с нейросетью ChatGPT, ее использования для бизнес и маркетинговых задач. Основа книги – 300 готовых промтов, заданий для генерации огромного количества материалов – от постов до сложных маркетинговых документов (Карта Путешествия Клиента, CustDev и других).
+Качество результата работы нейросети зависит от детальной проработки промта, (   Читать дальше...   )Жанр: Нейронные сети. Интернет-маркетинг. ChatGPTИздательство: Альпина ПаблишерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AE6319E8C06378922190F08A0B61DA69E997A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787657   (23470) от 26.03.2025
+
+Г. Харт-Дэвис | Бронебойные запросы ChatGPT. Используйте силу ИИ для успеха и прибыли (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы наверняка уже слышали о ChatGPT и его невероятном потенциале. Возможно, вы даже пытались использовать его несколько раз, просто чтобы увидеть его в действии. Но задумывались ли вы когда-нибудь, на что действительно способен ChatGPT?
+Данная книга откроет вам истинную мощь больших языковых моделей (LLM), таких как ChatGPT. В книге опытный преподаватель информационных (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2549D7BD10F7DF32A88E63CE744A5FB55813C818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786838   (23396) от 27.03.2025
+
+Кодекс Нейронов | Искусство промтов. Как создавать идеальные запросы для ChatGPT и генерации изображений (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой подробное руководство для всех, кто хочет научиться создавать качественные тексты и изображения с помощью искусственного интеллекта. В ней вы найдёте пошаговые инструкции по составлению чётких и конкретных промтов*, которые помогут ИИ лучше понять ваши ожидания и создать именно тот результат, который вам нужен.
+
+Книга охватывает широкий (   Читать дальше...   )Жанр: Учебное пособие. Искусственные нейронные сетиИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2743785276EDCB0251F1FB13B8075091A330094C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787775   (23376) от 27.03.2025
+
+Алексей Михнин | ChatGPT для саморазвития: Освоения программирования, консалтинга и изучения иностранных языков (2023) [PDF, EPUB, FB2, RTF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена возможностям использования чат-бота ChatGPT для самообразования и повышения производительности в различных областях. В ней подробно рассматриваются примеры применения чат-бота для изучения программирования на Python, ABAP. Для консультирования в сфере SAP ERP, для создания макросов в Excel, а также для изучения английского языка. Книга демонстрирует (   Читать дальше...   )Жанр: Компьютерная литература. СаморазвитиеИздательство: ЛитРесФормат: PDF, EPUB, FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7B26AD9068985DFC7A5B68DDFCEFAE493D053B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788083   (23286) от 28.03.2025
+
+Л. Портер, Д. Зингаро | Программирование на Python с помощью GitHub Copilot и ChatGPT (2024) [PDF]
 
 >>Компьютерная литература
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055071.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Build interactive, data-driven websites with the potent combination of open source technologies and web standards, even if you have only basic HTML knowledge. With the latest edition of this popular hands-on guide, you'll tackle dynamic web programming using the most recent versions of today's core technologies: PHP, MySQL, JavaScript, CSS, HTML5, jQuery, Node.js, (   Читать дальше...   )Жанр: PHP Programming, MySQL Guides, Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+В наши дни люди пишут компьютерные программы совсем не так, как раньше. Используя GitHub Copilot, можно простым языком описать, что должна делать программа, а искусственный интеллект тут же сгенерирует ее. Узнайте, как создавать и улучшать программы на Python с помощью ИИ, даже если прежде вы не написали ни строчки компьютерного кода. Сэкономьте время на рутинном (   Читать дальше...   )Жанр: Компьютерная литература, нейросети, программированиеИздательство: ПитерФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED285EE72CAB1A7B32194BD359F50EAAF4145B03
+magnet:?xt=urn:btih:C53E71F7BB1A0CE33E263E99964943D82A4061A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,27 +371,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851204   (1055072) от 
+###  Публикация: 1788061   (23271) от 28.03.2025
 
-Jerome Gotangco, Luca Berton | Red Hat Enterprise Linux 9 for SysAdmins. A technical guide for building secure production systems using RHEL 9 administration (English Edition) (2025) [PDF] [EN]
+Петр Панда, Арина Сычева | ChatGPT. Мастер подсказок (2024) [PDF, EPUB]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055072.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Red Hat Enterprise Linux (RHEL) is the de facto standard for Linux in the enterprise and the latest version (RHEL 9) offers the best of open-source software to date with the stability and security provided by the biggest name in open-source, Red Hat.
-
-The book begins with an introduction to RHEL 9's features, architecture, and its role in the open-source ecosystem, (   Читать дальше...   )Жанр: Linux Programming, Linux & UNIX Administration, Linux Networking & System AdministrationЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+Уже сейчас нейросети выполняют тысячи контент-задач в разных сферах. От слоганов, статей и постов до учебных программ, выступлений и подбора креативных идей. Умение грамотно «общаться» с ИИ все чаще становится серьезным и порой даже главным карьерным или личным бонусом.
+Именно развитию навыков работы с ChatGPT и другими контентными ИИ (промт-инжиниринг) и посвящена (   Читать дальше...   )Жанр: Компьютерная литература, нейросетиИздательство: ПитерФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:557995A1F61EA5177D892B97FCAA57942658EA49
+magnet:?xt=urn:btih:14FC0EB0AE7057D675C106A00DAB12ED7865A1FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,27 +398,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851202   (1055073) от 
+###  Публикация: 1788072   (23268) от 28.03.2025
 
-Annegret Junker | Mastering Domain-Driven Design. Collaborative modeling with domain storytelling, event storming, and context mapping (English Edition) (2025) [PDF] [EN]
+С. Вольфрам | Как устроен ChatGPT (2024) [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055073.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mastering Domain-Driven Design provides a comprehensive guide to understanding and implementing DDD, an approach to software development that helps you tackle complex projects by aligning your code with the core business concepts.
-
-The book explains the process for designing and modernizing software applications, applying Domain-Driven Design methods to all design (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Software Design, Testing & Engineering, Internet & TelecommunicationsЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+Никто этого не ожидал — даже его создатели: ChatGPT ворвался в наш мир как искусственный интеллект, способный создавать тексты, словно человек. Но как именно он работает? Что происходит внутри его «ИИ-разума»?
+В этой книге выдающийся ученый и пионер вычислительной техники Стивен Вольфрам предлагает понятное и увлекательное объяснение устройства нейросети, основываясь (   Читать дальше...   )Жанр: Компьютерная литература, нейросетиИздательство: МИФФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A7ACB256B6A2BEB9BD07ADECA5ECA34E2BAA43B
+magnet:?xt=urn:btih:292D3A90629B29DFADE25B161DAA36B76C92FB7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,25 +425,269 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851195   (1055075) от 
+###  Публикация: 1788086   (23262) от 28.03.2025
 
-Brian Beuken | The Fundamentals of C/C++ Game Programming. 2nd Edition (2026) [PDF, EPUB] [EN]
+Ранас Мукминов | Промпты ChatGPT 4o (2024) [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055075.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book gives novice coders an understanding of the methods and techniques used in professional games development. Projects are designed to help develop and strengthen problem solving and basic C/C++ skills. This book also helps develop familiarity with Microsoft Visual Studio’s ability to target and use fixed/restricted hardware, which are key skills in console (   Читать дальше...   )Жанр: Rendering & Ray Tracing, Game Programming, Graphics & Multimedia ProgrammingЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Внутри книги:
+- Подробная инструкция по получению и активации доступа к ChatGPT 4.0 Plus Premium.
+- Советы и рекомендации по использованию ИИ в различных задачах: написание текстов, генерация идей, программирование, создание контента и многое другое.
+- Более 100 готовых промптов для продуктивной работы и творчества.(   Читать дальше...   )Жанр: Компьютерная литература, нейросетиИздательство: ЛитресФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A41A1250071F3A466E3D131B9AFA663217087B24
+magnet:?xt=urn:btih:066ABC3B375FFE19927ED4986F388F8FC234944C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788062   (23248) от 28.03.2025
+
+ChatGPT-4; М.Р. Брослав, О.А. Яблокова (сост.) | Автобиография нейросети (2023) [PDF, EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга, написанная нейросетью, – уникальное путешествие в мир искусственного интеллекта. Нейросеть открывает двери в свой виртуальный мир, рассказывая о своем происхождении, развитии и обширных возможностях.
+«Автобиография нейросети. Искусственный интеллект, который научился общаться» – невероятный взгляд на внутреннюю работу искусственного интеллекта. Нейросеть (   Читать дальше...   )Жанр: Компьютерная литература, нейросетиИздательство: АСТФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48D02FA67302CF62B96789B10986AAD059B9610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788077   (23242) от 28.03.2025
+
+Александр Чичулин | Правильные запросы ChatGPT (2023) [PDF, EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Правильные запросы ChatGPT. Ваше взаимодействие с виртуальными помощниками.
+Раскройте весь потенциал ChatGPT» содержит важные рекомендации по составлению эффективных запросов в ChatGPT. От ясности и грамматики до шаблонов и примеров, читатели узнают, как эффективно общаться с ChatGPT и другими ИИ помощниками. Благодаря практическим советам и упражнениям эта (   Читать дальше...   )Жанр: Компьютерная литература, нейросетиИздательство: Издательские решения в системе RideroФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F46284686658A9A17EF931E90E0D65DC9E4B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788069   (23238) от 28.03.2025
+
+Ильдар Султангулов | Магия ChatGPT (2024) [PDF, DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23238.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Магия ChatGPT" – практическое руководство, которое проведет вас через все этапы работы с одной из самых продвинутых нейросетей современности. Эта книга откроет для вас новые возможности – от создания контента до автоматизации рутинных задач. Здесь вы найдете пошаговые инструкции, советы и примеры запросов, которые помогут освоить и эффективно использовать (   Читать дальше...   )Жанр: Компьютерная литература, нейросетиИздательство: СамиздатФормат: PDF, DJVUКачество: Изначально электронное (ebook), Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A258D7292D4ED1B81AAB956BDDE4F0E8E2C6B7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788921   (22849) от 01.04.2025
+
+Михаил Евгеньевич Фленов | Библия C#. Шестое издание (2024) [PDF, DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена программированию на языке C# для платформы Microsoft . NE T, начиная с основ языка и разработки программ для работы в режиме командной строки и заканчивая созданием современных веб-приложений. Материал сопровождается большим количеством практических примеров. Подробно описывается логика выполнения каждого участка программы. Уделено внимание вопросам (   Читать дальше...   )Жанр: Программирование. Интернет и технологииИздательство: БХВ-ПетербургФормат: PDF, DJVUКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3088273122F0D7999FCC78FFEDD2F01DB7DAA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790999   (21692) от 12.04.2025
+
+Ярослав Суков | Python. Основы программирования (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга охватывает широкий спектр тем, связанных с использованием Python для решения различных задач. Каждая глава посвящена отдельной области применения Python, предоставляя подробное описание библиотек, инструментов и примеров их использования. Изучение этих тем позволяет разработчикам, ученым и специалистам в различных областях эффективно использовать язык программирования (   Читать дальше...   )Жанр: Обучение программированию. Языки программированияИздательство: Самиздат, LitresФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A810B76319616DFF0981B9C130AC524C8744CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790996   (21689) от 12.04.2025
+
+Дмитрий Зверев | Нейросеть ChatGPT - расширенная версия (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот инфопродукт специально для тех, кому нужна четкая и доступная для быстрого внедрения информация.
+Это конкретные инструкции по нейросети ChatGPT.
+По шагам вы пройдете, весь процесс и сможете освоить навык создания неограниченного количества единиц уникальной информации.
+На примерах из практики.(   Читать дальше...   )Жанр: Учебное пособие. Курс. Искусственный интеллект, Нейронные сети.Издательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9EEA810E80202170A580992BFFD1F0D2C49236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791196   (21670) от 12.04.2025
+
+Сергей Николенко | Машинное обучение: основы (2025) [PDF, DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Машинное обучение давно уже стало синонимом искусственного интеллекта. Оно проникло во многие аспекты нашей жизни и стало одной из важнейших областей современной науки. Эта книга — путеводитель по ключевым идеям машинного обучения. Вы узнаете, как методы машинного обучения получаются из
+основных принципов теории вероятностей, пройдёте путь от теоремы Байеса до обобщённых (   Читать дальше...   )Жанр: Информационные технологии. ПрограммированиеИздательство: ПитерФормат: PDF, DJVUКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67036E4BC04C16D7B2A5E0AA7D9035DB53037DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791355   (21593) от 13.04.2025
+
+Фабио Стояно | Figma: проектирование и прототипирование интерфейсов в соответствии с принципами UX/UI [2 книги] (2023, 2024) [PDF, EPUB] [RU, EN]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Figma — онлайн-сервис для разработки интерфейсов и прототипирования с возможностью организации совместной работы в режиме реального времени. Книга охватывает обширный спектр функций Figma – включая переменные, условное прототипирование и инструменты искусственного интеллекта.
+Вы узнаете, как превратить статические проекты интерфейса в динамические интерактивные прототипы, (   Читать дальше...   )Жанр: Информационные технологии. Веб-дизайнПеревод: В.С. ЯценковЯзык: русский, английскийИздательство: Packt Publishing, ДМК ПрессФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E0B13EAE92F9053F74B553FF0E6332D4C55CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791237   (21568) от 13.04.2025
+
+Data mesh в действии | Я. Майхжак, С. Балноян, М. Сивяк (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потребность эффективно хранить большие объемы данных и обращаться к ним стала одной из ключевых потребностей любого бизнеса. Сетка данных (data mesh) – это новый способ децентрализовать управление данными, радикально повышая их безопасность и доступность. Хорошо спроектированная сетка данных позволяет потреблять данные в режиме самообслуживания и помогает избавляться (   Читать дальше...   )Жанр: Базы данных. Хранение информации. Компьютерные технологии. Интернет.Перевод: Н. ГригорьеваИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1C0093476DA2E7052644A9C49BADA957AEBB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

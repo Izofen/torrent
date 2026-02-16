@@ -1,22 +1,25 @@
-###  Публикация: 1806897   (11196) от 17.07.2025
+###  Публикация: 1603128   (1045881) от 08.01.2023
 
-А. Антонов (сост.) | Рыбалка от А до Я (2006) [PDF, FB2, EPUB]
+Carnal Forge - The More You Suffer (2003) [APE|Lossless|image + .cue] <Thrash Metal, Death Metal>
 
->>Разное (категория книг)
->>На досуге
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11196.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Смело утверждаем: ни в одной другой книге, кроме нашей энциклопедии, вы не встретите вместе таких именитых авторов и не найдете столь полной и обьемной информации о любительской ловле каждого конкретного вида рыб, а их здесь - 15! Наша книга расскажет где и каким образом ловить рыбу, поможет определить места её обитания, познакомит с географией рек и озер страны, (   Читать дальше...   )Жанр: хобби / увлечения, рыболовствоИздательство: Рипол КлассикФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+01. H.B.F. Suicide
+02. Deathblow
+03. Ripped & Torn
+04. Destroy Life(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2E689B127547FF9835F6D344457D099714CC2C1
+magnet:?xt=urn:btih:9ED9A3F0A498E1A2261B1FA5AF98C6934DDCB619
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807195   (11197) от 17.07.2025
+###  Публикация: 1602910   (1045880) от 08.01.2023
 
-Дерзость (1971) WEBRip [H.264/1080p]
+Therein - The Void Affinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11197.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 1942-1943 годах под Винницей, фашистами была обустроена так называемая восточная ставка Гитлера - огромный подземный комплекс «Вервольф». В результате сложнейшей операции советским разведчикам удается раскрыть местонахождение секретного объекта врага.Производство: СССР / Одесская киностудияЖанр: военныйРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Николай Олялин, Владимир Гуляев, Валентина Гришокина, Борис Зайденберг, Владимир Балон, Татьяна Чернова, Юрий Дубровин, Федор Одиноков, Александр Суснин, Григорий МихайловПродолжительность: 01:34:40
+01 - And the Wind Guides Us into the Storm (01:10)
+02 - The Hollow Anthems (04:19)
+03 - A Coming Dead Generation (04:56)
+04 - Straightforward (04:53)(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 01:02:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9DBB2BE868A1DD58278E0544BD9E2CD778AA6F9
+magnet:?xt=urn:btih:79124026C5F9C8549DCB54722A009F1A46C70EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,75 +56,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807046   (11198) от 17.07.2025
+###  Публикация: 1603132   (1045879) от 08.01.2023
 
-Джон Харпер | ELITE. И здесь колесо. (2014) [FB2]
+Brimstone - Carving A Crimson Career (1999) Promo CD [APE|Lossless|image + .cue] <Power Metal>
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11198.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Elite: And Here The Wheel — официальный художественный роман, написанный писателем-фантастом Джоном Харпером в мае 2014 года. В романе описывается загадочная планета Сунтилл.
-Роберт Гарри, отставной военный офицер, а ныне предводитель пиратов, не хочет ничего, кроме как сохранить свою жизнь и обеспечить безопасность своей команды. Но захваченное им грузовое судно, (   Читать дальше...   )Жанр: Фантастика.Перевод: Любительский. Dreamer.Издательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A773813D2B9EFD5B129A8FAFC85C184C272796A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807038   (11199) от 17.07.2025
-
-Shotcut 25.05.11 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shotcut - мощное кроссплатформенное приложение с открытым исходным кодом, с помощью которого пользователи могут просто и быстро производить все стандартные операции по обработке видео. Данная программа позволяет быстро редактировать, коллажировать видеоролики с помощью широкого набора настраиваемых аудио и видео фильтров, менять настройки видео и аудио, указывать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD79A999088213514A43EEFE16B52BDB8F76AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807065   (11200) от 17.07.2025
-
-Очередное достижение: 1000 релизов от artushj!!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поздравляем нового очередного релизера-тысячника
-artushj
+01. Breaking The Waves 3:50
+02. Pagan Sons 6:07
+03. Autumn 4:54
+04. Carving A Crimson Career 5:19(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:03
 
 ## Скачать торент
 ```bash
@@ -130,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807226   (11201) от 17.07.2025
+###  Публикация: 1603007   (1045878) от 08.01.2023
 
-Сборники - The Professional Logo Creators Kit [PSD, AI, JPG, PNG, ABR, ASL]
+Vic Dickenson & Urbie Green - Slidin' Swing (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Сборники
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11201.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создавайте потрясающие профессиональные логотипы, используя более 1200 графических элементов и 70 предлагаемых бесплатных шрифтов. Если вы хотите сэкономить время, просто отредактируйте один из уже включенных 300 шаблонов логотипов. Все элементы и логотипы организованы в виде редактируемой векторной графики в понятных файлах ai и psd. После того, как ваш логотип (   Читать дальше...   )Формат: PSD, AI, JPG, PNG, ABR, ASL
+01. When You Were Young, Maggie [4:53]
+02. Nice Work If You Can Get It [4:43]
+03. You Brought A New Kind Of Love To Me [5:18]
+04. Everybody Loves My Baby [9:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:48:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B105AA252F24C9BBA076C54CB78017D0C40DA178
+magnet:?xt=urn:btih:ED1FC549AD1B4198E6AEDE98D84CC0A769F6C8B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,27 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807186   (11202) от 17.07.2025
+###  Публикация: 1603072   (1045877) от 08.01.2023
 
-Проекты - VideoHive - Photo Slideshow || Photo Gallery - 57110261 [AEP]
+Where's My Bible - Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Death 'n' Roll>
 
->>Проекты
->>Слайдшоу (проекты)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11202.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Минималистичное слайд-шоу для ваших творческих задач.
-
-Музыка очищена и предоставлена.Формат: AEP
+01. Chapter I: Escape (04:26)
+02. Chapter II: Void (04:42)
+03. Chapter III: Nest (03:43)
+04. Chapter IV: Origin (03:23)Жанр: Deathcore, Death 'n' RollПродолжительность: 00:16:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F40792E2C935C95ADBDDE1F1C9EA85680AA4EEC
+magnet:?xt=urn:btih:0C5B28DB1FD65048E6B5A791499EA8F7CAA283D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807156   (11203) от 17.07.2025
+###  Публикация: 1603251   (1045876) от 08.01.2023
 
-Воздушная дорога в Китай / High Road to China (1983) BDRip [H.264]
+Cryptopsy - Whisper Supremacy (1998) [APE|Lossless|image + .cue] <Death Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11203.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ева, отважная и весьма самостоятельная девушка из высшего лондонского общества. Судьба преподнесла ей трудную проблему - где-то в Китае пропал ее отец, и вот уже на его приличное состояние претендует партнер, оказавшийся негодяем. Спасти ситуацию может только пропавший отец, но где его искать - Китай далеко, а время поджимает. Неразрешимая задача, но не для Евы - (   Читать дальше...   )Производство: США, Югославия, Гонконг / City Films, Golden Harvest Company Ltd., Jadran Film, Pan Pacific ProductionsЖанр: драма, мелодрама, приключения, военныйРежиссер: Брайан Дж. ХаттонАктеры: Том Селлек, Бесс Армстронг, Джек Уэстон, Уилфорд Бримли, Роберт Морли, Брайан Блессид, Кассандра Гава, Майкл Ширд, Линда Ла Планте, Тимоти КарлтонПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: 01:45:29
+01. Emaciate
+02. Cold Hate, Warm Blood
+03. Loathe
+04. White Worms(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C817AE8BDDDA272EB9DE0BCC4181B066F89708A2
+magnet:?xt=urn:btih:D98B08A3043EA7F25A91F8015B7AEEA9488F90DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,26 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807215   (11204) от 17.07.2025
+###  Публикация: 1602956   (1045875) от 08.01.2023
 
-Катерина из России / Caterina di Russia (1963) DVDRip [VO]
+Nails - Unsilent Death (2010) 10 Year Anniversary Edition, Remaster 2020 [APE|Lossless|image + .cue] <Grindcore>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11204.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На одной из площадей Петербурга толпа окружает карету Их Императорских Высочеств Петра и Екатерины. Испугавшись, Пётр приказывает капитану казаков графу Орлову открыть огонь по толпе, но граф отказывается выполнять приказ Великого князя. За невыполнение приказа Орлов депортирован в Сибирь.
-Вскоре императрицы Елизаветы Петровны не стало, и началось короткое правление (   Читать дальше...   )Производство: Италия, Франция, Югославия / Roma Film, SNC, ЗагребфильмЖанр: драма, историяРежиссер: Умберто ЛенциАктеры: Хильдегард Кнеф, Серджо Фантони, Джакомо Росси Стюарт, Анджела Каво, Эннио Бальбо, Леонардо Ботта, Vera Besusso, Джанни Соларо, Энцо Фьермонте, Тина ЛаттанциПеревод: Одноголосый любительский (shachter58)Язык озвучки: Русский, ИтальянскийСубтитры: ОтсутствуютПродолжительность: 01:38:42
+01. Conform
+02. Scum Will Rise
+03. Your God
+04. Suffering Soul(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:22:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51A80244E80CFF5AA38092919A22811372AF65DA
+magnet:?xt=urn:btih:6C4C789FB4067BC00D41B4E41D7C5AA1AE7C6E95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807154   (11205) от 17.07.2025
+###  Публикация: 1603013   (1045874) от 08.01.2023
 
-Иконки - UI8 - Graphic Design 3D Icon Set [PNG, BLEND]
+Karin Krog - Sweet Talker: The Best Of Karin Krog (1963 - 2005) 2CD, 2005, Grappa [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
 
->>Графика, Арт, Разное
->>Иконки и аватарки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11205.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор из 59 3D-иконок для графического дизайна.Формат: PNG, BLEND
+CD1:
+01. You'd Better Love Me [4:12]
+02. Nice Work If You Can Get It [3:05]
+03. Ribbon of Sand [3:20](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 02:06:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BD8611714448E1BBB5916389FC5A60DCE06F4FA
+magnet:?xt=urn:btih:192A9D58E3F352F236E8B95BE062A0F33818F3D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807110   (11206) от 17.07.2025
+###  Публикация: 1603019   (1045873) от 08.01.2023
 
-iDownerGo Video Downloader 10.2.6 RePack (& Portable) by elchupacabra [Multi/Ru]
+Tri-Fi - A Tri-Fi Christmas (2011) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11206.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iDownerGo – это приложение для загрузки мультимедийных файлов, которое предоставляет пользователям возможность сохранять видео и музыку с более чем десяти тысяч веб-сайтов, включая такие популярные платформы, как YouTube, Dailymotion, Vimeo, Spotify, а также социальные сети: Facebook, TikTok, X (Twitter) и Instagram. Это приложение ориентировано на пользователей, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Frosty the Snowman [4:39]
+02. O Holy Night [6:37]
+03. Carol of the Bells [3:43]
+04. Joy to the World [3:57](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9558C94710842626CC1697011177FA6906570AC
+magnet:?xt=urn:btih:36FB654137DF1372A19A0DD6E98D6CA5BB5C13B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -289,25 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807246   (11207) от 17.07.2025
+###  Публикация: 1602949   (1045872) от 08.01.2023
 
-Фоны - ArtStation - 26 Black Paper Texture Backgrounds - 76kO [JPG]
+Tryckvag - Legacy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11207.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект содержит 26 файлов JPG формата A4 высокого разрешения. Вы можете использовать этот пакет в своих проектах, веб-дизайне и печатном дизайне, для создания фонов, текстур, плакатов, листовок, открыток, буклетов, брошюр, произведений искусства, блогов, любых презентаций и рекламных акций, заставок и обоев.Формат: JPGРазрешение файлов: 5040x7128
+01 - Legacy (04:29)
+02 - Freak Of Nature (03:57)
+03 - Pull The Trigger (04:23)
+04 - I Surrender (03:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:714F8E0E864F1BA061B6B4E6B8B4BA64CC78C96C
+magnet:?xt=urn:btih:E6EDFEFA00EA443F0E178B7CBA9662A40D8CB532
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,25 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807111   (11208) от 17.07.2025
+###  Публикация: 1602864   (1045871) от 08.01.2023
 
-YT Downloader 9.12.20 RePack (& Portable) by elchupacabra [Ru/En]
+The Temple - Of Solitude Triumphant (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11208.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01 - Me To Lichno Tou Astrou (03:03)
+02 - The Foundations (10:09)
+03 - Reborn in Virtue (07:10)
+04 - Profound Loss (07:01)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:49:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C1DAAA2ADFCC1B174E3B6FFD4FDA3E8AB36BF82
+magnet:?xt=urn:btih:0E85D048A3D3E180C2E43F629C3EA615498D454A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,25 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807211   (11209) от 17.07.2025
+###  Публикация: 1603028   (1045870) от 08.01.2023
 
-Иконки - Envato - Data Server 3D Icon Pack - D6TJ24N [PNG, BLEND, GLB, OBJ]
+Douglas Avery - Take My Rider (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Графика, Арт, Разное
->>Иконки и аватарки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11209.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Matcha Food and Drink 3D Illustration, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNG, BLEND, GLB, OBJРазрешение файлов: 3000x3000
+01. Bad Luck Blues (4:34)
+02. Take My Rider (5:13)
+03. Malibu Burnin' (4:15)
+04. Just Keep Lovin' Her (2:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A14236EEBCAA1E263CA9333703F22CB6F6DF29DB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,25 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807174   (11210) от 17.07.2025
+###  Публикация: 1603063   (1045869) от 08.01.2023
 
-Яндекс Браузер 25.6.2.425 (x64) [Multi/Ru]
+Allison - One (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11210.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Яндекс Браузер с новыми нейросетевыми возможностями и улучшениями существующих функций. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, перевод и озвучивание видео с нескольких языков, интегрированный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Let Your Hair Down (4:08)
+02. Without A Woman (3:48)
+03. Sometimes (3:20)
+04. I've Been Waiting (3:32)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BFF13C17B8D7C89A36EAD0B420B5A6D2D8200F8
+magnet:?xt=urn:btih:C7F200988F2CC4AF35EB189E4F1E026C2E18CDDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807047   (11211) от 17.07.2025
+###  Публикация: 1603056   (1045868) от 08.01.2023
 
-Ян Бадевский | Цикл "Инквизитор" [6 книг] (2023-2025) [FB2]
+Weeping Kin - Gnawing (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal>
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11211.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я - Гримаун. Великий волшебник, потомок богов, истребитель нечисти.
-Вся моя жизнь была посвящена защите людей от всякой грязи, лезущей из Разломов,
-и я добился немалых успехов на этом поприще. Сражение с Легендарной Тварью было эпичным, и я победил, но...
-Умер, чтобы воскреснуть в новом мире.(   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы в магические миры, Боевое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+01 - Where Eras End (08:56)
+02 - One With Nothing (07:34)
+03 - The Gift You Gave (12:54)
+04 - Burgeoning (11:34)(   Читать дальше...   )Жанр: Melodic Doom MetalПродолжительность: 01:01:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C0A0A32B6E898A96A52EDAF716828031A27A717
+magnet:?xt=urn:btih:19588A08D3C0FD57E5CE9A805C8BE629595B30A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,25 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807240   (11212) от 17.07.2025
+###  Публикация: 1602911   (1045867) от 08.01.2023
 
-Проекты - VideoHive - AI Interaction UI Kit - 57202674 [AEP]
+Epica - Consign To Oblivion (2005) [OGG Vorbis|480 Kbps] <Rock, Symphonic Metal>
 
->>Проекты
->>Элементы (проекты)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11212.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-UI Kit включает в себя промты, экшн кнопки, компоненты пользовательского интерфейса чат-бота и элементы голосового ИИ.Формат: AEP
+01. Hunab Ku - A new Age Dawns - prologue
+02. Dance of Fate
+03. The Last Crusade - A new Age Dawns - 1
+04. Solitary Ground(   Читать дальше...   )Жанр: Rock, Symphonic MetalПродолжительность: 00:55:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC4B2AE6E4415774132F389C5C7EC40E88BE27B5
+magnet:?xt=urn:btih:E34D65A98CD9502AA4F1495EDF9AE187888A1266
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,25 +433,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807217   (11213) от 17.07.2025
+###  Публикация: 1602971   (1045866) от 08.01.2023
 
-Иконки - Envato - Food Delivery 3D Icon - AP7HNTR [PNG, BLEND, FBX, OBJ]
+Frost - Out In The Cold (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Графика, Арт, Разное
->>Иконки и аватарки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11213.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Food Delivery 3D Icon, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNG, BLEND, FBX, OBJРазрешение файлов: 3000x3000
+01. Wasting Your LuvЖанр: Heavy MetalПродолжительность: 00:46:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:405F458410218B30AFB3C728E5A8984AC6EEC2EE
+magnet:?xt=urn:btih:EC55A81AC50643E4C52540CF6EEA39C2F157EDD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,25 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807129   (11214) от 17.07.2025
+###  Публикация: 1603041   (1045865) от 08.01.2023
 
-Ready or Not (2023) [Ru/Multi] (88602/dlc) Repack FitGirl [LSPD Bundle - Censored]
+Number Nine - Guilty (1997) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
->>Win Игры
->>Action (FPS)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11214.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лос-Суэнос. Полиция Лос-Суэноса сообщает о небывалом всплеске преступности в городе. Отряды специального назначения, или спецназа, направлены для урегулирования таких опасных ситуаций, как захват заложников, угрозы взрыва, перестрелки с подозреваемыми, забаррикадировавшимися в зданиях, и не только. Горожан просят соблюдать осторожность при передвижении по городу (   Читать дальше...   )Тип издания: RepackРазработчик: VOID InteractiveЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Корейский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+01. The Verdict (0:42)
+02. Livin' On My Own (3:33)
+03. Survive (3:59)
+04. Not Tomorrow But Today (3:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3096EC520AE6EEE2314874ABFCF808D02A1697BB
+magnet:?xt=urn:btih:F31EFC11E8758582A9223D927699318297B69673
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,25 +488,170 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668574   (11215) от 17.07.2025
+###  Публикация: 1603024   (1045864) от 08.01.2023
 
-Книга-инструкция "Бросаем онанизм" (2015) [PDF]
+Andrew Borg - Let Me Dream Our Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Dream Our Life (4:40)
+02. Way Down (3:09)
+03. Walk Into My Arms (5:26)
+04. Devil On My Back (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D24CCF75784550EFB702CB6B9293EB6D2CD3D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603237   (1045863) от 08.01.2023
+
+Heartscore - The Edge Of Times (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Final Hug 04:14
+02. Highway Killer 02:46
+03. The Coastline 03:26
+04. Spit It Out 02:37(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE69740A4EA191A7F27C6C696C071902CE69F445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603089   (1045862) от 08.01.2023
+
+Ram Cheung - 19-22 Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing That Thing (3:23)
+02. Shake That Thing (4:04)
+03. Worried Blues (4:33)
+04. I Just Want Someone (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F5DB7E963343AD317BD84F256B4E8E0A0E2E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603033   (1045861) от 08.01.2023
+
+White Skies - Black Tide (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Do You Know About Love (4:14)
+02. Emily (4:12)
+03. Midnight Rendezvous (5:05)
+04. Kiss Me (As I Say Goodbye) (4:59)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42773E25EA155A125BE999EC820660FAFA0E0106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602947   (1045860) от 08.01.2023
+
+VA - Lounge & Chill Out Moods, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - Without You (Remastered) (5:21)
+02. Sunset Boulevard Project - Guitarra Y Sol (4:30)
+03. Project Blue Sun - Dame Tu Amor (6:18)
+04. Smooth Deluxe & Josephine Sinclar - My People (5:27)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09685FE77F9996A586AEF0590F586AC8875B0AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602999   (1045859) от 08.01.2023
+
+Святитель Димитрий Ростовский | Руно Орошенное (2003) [PDF, DJVU]
 
 >>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11215.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Здравствуй, Друг!Жанр: секс-руководства, сексологияИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+Замечательное произведение свт. Димитрия, Ростовского чудотворца, написано по следам многочисленных чудесных исцелений, происшедших при образе Пресвятой Богородицы в черниговском Свято-Ильинском монастыре в XVII веке. Чудесам исцелений предшествовало появление слёз на иконе, что позволило автору сравнить это событие с ветхозаветным чудом, когда Божественная роса, (   Читать дальше...   )Жанр: ПравославиеЯзык: Русский + ЦерковнославянскийФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C51EED3AEA614DCF18922BAF785D7E52AE2AE5A
+magnet:?xt=urn:btih:F2625866C64C8358A5163DE7015C8AB4074A169E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,27 +659,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789408   (11216) от 17.07.2025
+###  Публикация: 1602925   (1045858) от 08.01.2023
 
-Виктория ПреобРАженская | Авторские Видео (2007-2025) WEBRip [RU, EN] [Обновляемая]
+VA - Chill N' Orient - Essential Oriental Chill Out Moods (2006) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
 
->>След.
->>Другие видеокурсы
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11216.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильмы Виктории ПреобРАженской — о Мировой Женственности, Явление Которой было предсказано всеми известными софиологами и философами, включая святых старцев и пророков.
-
-Титанический Труд на Земле, Который Совершает Матерь Мира, навека Записан в ИзТарию человечества. Каждое Её Слово, каждая Мысль, каждый Миг Нахождения Матери Духа в Мире Материи — это Подвиг Её Безмерной (   Читать дальше...   )Производство: «Космическое Полиискусство Третьего Тысячелетия Виктории ПреобРАженской»©Жанр: Вебинары, Видеоответы, Творческие вечера, Эзотерика, Духовное саморазвитиеЯзык озвучки: Русский, АнглийскийПродолжительность: 322:12:07
+01. Amira Alaf - Khandhalha (3:33)
+02. Oman Chali - New Hopes (2:55)
+03. No.on - Morning (4:00)
+04. Love Reprise - A Special Gift (1:04)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 00:42:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1ED47B098D9FECE75F831B565F04C7BCA31B6DA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,25 +688,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807122   (11217) от 17.07.2025
+###  Публикация: 1603276   (1045857) от 08.01.2023
 
-Смерть единорога / Death of a Unicorn (2025) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit]
+Эми Маккаллох | Нечем дышать (2022) [MP3, Людмила Чайковская]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11217.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ридли вынуждена провести выходные с отцом-трудоголиком Эллиотом. И когда кажется, что их отношения может спасти только чудо, они сбивают… настоящего единорога. Алчная семейка, на которую работает Эллиот, тут же решает монетизировать его целебные свойства. Но настоящее волшебство начинается с появлением родителей детёныша, ведь свирепые единороги открывают охоту на жадных (   Читать дальше...   )Производство: США, Венгрия / A24, Ley Line Entertainment, Monoceros MediaЖанр: комедия, фэнтези, ужасыРежиссер: Алекс ШарфманАктеры: Пол Радд, Дженна Ортега, Дэвид Паскуэзи, Энтони Кэрриган, Ричард Э. Грант, Теа Леони, Уилл Поултер, Джессика Хайнс, Denise Delgado, Кэтрин ЭрбеПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, full), Английские (PGS)Продолжительность: 01:47:23
+Герметичный триллер в экстремальных условиях высокогорья: ты оказался один на один со стихией, страшным кислородным голоданием и человеком, способным на крайнее зло.
+Что испытывает человек, когда стоит на краю самой высокой точки мира?
+Сесили Вонг понятия не имеет.Жанр: Зарубежные детективы, ТриллерыПродолжительность: 11:28:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DF62C88E821EC7E6FB03CE66487B7F3DDC0C927
+magnet:?xt=urn:btih:454384E2CA2DB4F82A222833152267320054560B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,102 +716,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807182   (11218) от 17.07.2025
+###  Публикация: 1602938   (1045856) от 08.01.2023
 
-Всё будет отлично / Everything's Going to Be Great (2025) WEB-DL [H.264/1080p] [MVO]
+VA - Chill Out Lounge Moods, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11218.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь семьи артистов Смарт спокойной не назовешь: особенности профессии вынуждают их перебираться из одного штата в другой, чтобы зарабатывать. Годами семейство выступает в театрах и получает жалкие гроши. На непростом пути Смартов — утраты и потери, которые необходимо пережить, чтобы в итоге обрести путь к себе и вожделенный покой. Хватит ли им сил преодолеть все (   Читать дальше...   )Производство: США / Lionsgate, Amaze Film + Television, Astute FilmsЖанр: драма, комедияРежиссер: Джон С. БейрдАктеры: Эллисон Дженни, Брайан Крэнстон, Бенджамин Эван Эйнсуорт, Джек Чемпион, Саймон Рекс, Крис Купер, Лаура Бенанти, Кэди Хаффмен, Джессика Клемент, Иэн ХоПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русский, английскийСубтитры: русские (full - AI), английские (full, SDH), французскиеПродолжительность: 01:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3FB9D0E0104AA01CD98A619CB613CF53070D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807087   (11219) от 17.07.2025
-
-GRID Legends: Deluxe Edition v1.1.4RC7 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высокооктановый автоспорт. Беспощадное соперничество. Зашкаливающий уровень адреналина.
-Разработанная Codemasters игра GRID Legends представляет собой уникальное сочетание аркадных гонок и реалистичного симулятора управления, которое оставляет конкурентов далеко позади.Тип издания: PaidРелиз состоялся: 06.02.2025Разработчик: Feral InteractiveПоддерживаемая ОС: Android 12+ (Только для AArch64, arm64-v8a)Жанр: ГонкиЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5113B263249C416F41587F68672BE424EC91ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791585   (11220) от 17.07.2025
-
-Кирилл Клеванский | Цикл "Матабар" [5 книг] (2024-2025) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мы слышали легенды про великих магов, но знаем ли мы как эти истории начинаются? Ардан Эгобар, юноша живущий в отдаленном уголке Империи Новой Монархии, не знает. Не знает, что эта история про него. Пока не знает...
-
-В мире где пыхтят паровозы на железных дорогах, где в небесах застыли громадные дирижабли; где в городах можно встретить одетых в пиджаки орков, (   Читать дальше...   )Жанр: Боевое фэнтези, Приключения, ФантастикаИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0012408BC7EDE3F341E587DD89308DF703F7D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807076   (11221) от 17.07.2025
-
-В Firefox и Safari будет включена поддержка WebGPU
-
->>Компьютеры и комплектующие
->>Компьютерные новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Mozilla приняла решение активировать в Firefox поддержку API WebGPU и языка шейдеров WGSL (WebGPU Shading Language). Для платформы Windows поддержка WebGPU будет включена по умолчанию в выпуске Firefox 141, намеченном на 22 июля. Затем в течение нескольких месяцев поддержку WebGPU планируют активировать в сборках для Linux и macOS, а через некоторое время (   Читать дальше...   )
+01. 351 Lake Shore Drive & Genius Jane - Moon Shadow (Vincent Honca Mix) (5:45)
+02. Marco Moli - Flashpoint (3:21)
+03. Sunset Boulevard Project - Don't Stop The Groove (5:21)
+04. Nexus 5 - Hold Tight (4:43)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:02:30
 
 ## Скачать торент
 ```bash

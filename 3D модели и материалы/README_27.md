@@ -1,22 +1,22 @@
-###  Публикация: 1511931   (787788) от 23.11.2021
+###  Публикация: 503756   (260121) от 31.05.2012
 
-3D print - CGTrader - Scooby Doo 3D print [OBJ, STL]
+3D модели - Evermotion - Archmodels Vol. 095 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787788.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель Скуби-Ду - из американского мультсериала, включающий множество мультсериалов, снятых с 1969 года до наших дней.Формат: OBJ, STL
+Сборник высокодетализированных 3d моделей оборудования для частных домов: спутниковых тарелок, всевозможной аппаратуры для систем безопасности, домофонов, камер видеонаблюдения, сигнализаций, а так же много конструкций  погодных станций,  ставень, защитных ролет, козырьков, маркиз, навесов и почтовых ящиков.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD305FE3FD25906E95BE7ACE861F67E1916B1FDA
+magnet:?xt=urn:btih:EBDFD4AC3C4619478C4F8321312D0C0D276C6C02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511927   (787791) от 23.11.2021
+###  Публикация: 1835956   (252363) от 08.11.2025
 
-3D модели - Hum3D - Volvo Electric Tractor Truck 2019 [3DS, C4D, FBX, LWO, MAX, MB, OBJ, STL, WRL]
+3D print - Kiba Monster - Pokemons Iniciales Diorama [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787791.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки VolvoФормат: 3DS, C4D, FBX, LWO, MAX, MB, OBJ, STL, WRL
+Покемоны для ваших полочек.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30DDFCD60BF5680E49D4E41B9A2AB5816EF89A8B
+magnet:?xt=urn:btih:C63B197E29E3EBDF38AC07717ADB1AEDDA3CD79F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511949   (787792) от 23.11.2021
+###  Публикация: 1836023   (252362) от 08.11.2025
 
-3D модели - Hum3D - UAZ Patriot (3163) 2014 [3DS, C4D, FBX, LWO, MB, Mental Ray|Scanline|V-Ray|*.max, OBJ, STL]
+3D print - Nice X Collectibles - ZOMBIE X-FORCE WOLVERINE [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787792.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252362.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки UAZФормат: 3DS, C4D, FBX, LWO, MB, Mental Ray|Scanline|V-Ray|*.max, OBJ, STL
+Зверь восстал… и он голоден как никогда. Наш Росомаха из «Зомби Икс-Форс» стремительно врывается в коллекцию Nice X Collectibles.
+
+Эта невероятно детализированная скульптура придаёт брутальный, неживой вид всеми любимому когтистому мутанту. От разорванной плоти до основания кладбища — каждая деталь кричит о ужасающем совершенстве.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23ED263780D8275AA6B856471077FF6257D91488
+magnet:?xt=urn:btih:BAEF75EDABDAB84723270533949E6D52C627200A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +78,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275976   (788905) от 14.01.2019
+###  Публикация: 1836059   (252353) от 08.11.2025
 
-3D модели - Daz 3D - Сборник 3D моделей #21 [DUF]
+3D print - Nice X Collectibles - Zombie Spider-Man Diorama [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788905.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор 3d моделей для DAZ 3D - из 66шт, категории Clothing, People, Animation, Structures.Формат: DUF
+Паутинник восстал из мёртвых — и он голоден! Эта безумная диорама «Человек-паук против Зелёного гоблина». Она полна жутких деталей и подвижности в каждом дюйме скульптуры.
+
+Масштаб 1/6, предварительно поддерживаемый STL, готовый к печати — эта модель создана для коллекционеров, которым нравится, когда их герои немного подгнили.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5449419A0E7D2DB18A2577D09E407052DF4E95EB
+magnet:?xt=urn:btih:C060154A4279FED120E3A784169A50F651F96668
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,26 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275603   (789719) от 12.01.2019
+###  Публикация: 1836079   (252315) от 08.11.2025
 
-3D модели - Daz 3D - Eva 8 Pro Bundle - 55723 [DUF]
+3D print - Nomnom Figures - Katara from Avatar [STL, LYS]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789719.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Eva 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Катара, маг воды из Южного Племени Воды, изгибает воду вокруг себя, словно в грациозном танце, создавая ощущение контроля и изящества.Формат: STL, LYS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF5E1ACA087518034415DEF59AEA27D6D9734330
+magnet:?xt=urn:btih:558289F04B73E0CBFED47BE1EBC2DA2648DDE4DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,26 +132,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275608   (789783) от 12.01.2019
+###  Публикация: 1633615   (252221) от 16.05.2023
 
-3D модели - Daz 3D - Lee 8 Pro Bundle - 55069 [DUF]
+3D модели - ArtStation - Mars - Model Pack - 8k 32Bit Terrain + 7 Posed Characters + Rover [FBX, MAX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789783.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Lee 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Набор моделей, вдохновленный Марсом, создан для быстрого создания прототипов или концепт-арта. Будет работать с любым движком рендеринга или программным обеспечением.Формат: FBX, MAX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEBD487FE9C37DE6F0B1E568B5004BB5652A1A76
+magnet:?xt=urn:btih:E25F23AA0BE2FD6CC45D5B89F072819D567A7634
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,26 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275359   (790371) от 11.01.2019
+###  Публикация: 1633963   (252187) от 18.05.2023
 
-3D модели - Daz 3D - Nix 8 Pro Bundle - 56193 [DUF]
+3D модели - Maxtree - Plant Models Vol 8 [Corona|V-Ray|*.max, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790371.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Nix 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Plant Models Vol 8 - это коллекция высококачественных 3D-моделей растений. Включает в себя 12 видов, всего 84 отдельных модели.Формат: Corona|V-Ray|*.max, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FF83ED703F165BB333EE79BB6C73F1F9AB03627
+magnet:?xt=urn:btih:1E7510DD794625A85394B58BD7AD3647DF491492
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,26 +184,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275367   (790380) от 11.01.2019
+###  Публикация: 1835780   (251908) от 07.11.2025
 
-3D модели - Daz 3D - Christian 8 Pro Bundle - 57919 [DUF]
+3D print - MyMiniFactory - Moonlight Minis - The Crystal Vanguard Base set - 478590 [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790380.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Christian 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Это базовый релиз на март 2025!
+
+Добро пожаловать в Кристальный Авангард!Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D054667CC56D70A618654B2F78EFC81E43562B25
+magnet:?xt=urn:btih:6E23E3B0A820C0AFE67C38F9CC33A229AC1E0F1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,25 +212,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510516   (790712) от 17.11.2021
+###  Публикация: 1835803   (251876) от 07.11.2025
 
-3D модели - KitBash3D - Props: Medieval Market [FBX, MAX, OBJ]
+3D print - Neko Figurines - Reze (Chainsaw Man) [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790712.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Воплотите в жизнь все свои фантазии и средневековые миры с помощью палаток, бочек, повозок, арок, оружия, посуды, столов, кувшинов, ящиков, корзин, лестниц, холстов, тканей, буханок хлеба, мертвой рыбы и многого другого из этого набора! Более крупные предметы также имеют детализированный интерьер, чтобы придать смелости вашим торговым лагерям, анклавам ведьм, рыцарским (   Читать дальше...   )Формат: FBX, MAX, OBJ
+Привет, ребята! Делимся нашим релизом Reze от Chainsaw Man!Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCC638369A4EA5BF3F833F02228B10D1D41331C7
+magnet:?xt=urn:btih:E7EC99ACBC36D225C810C9AF6455B846AAA21C17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,25 +238,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510280   (791316) от 16.11.2021
+###  Публикация: 1835949   (251775) от 08.11.2025
 
-3D модели - Chyuuties [Fanart]: Sailor Moon [STL]
+3D print - CA 3D Studios - The Boxing Legend [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791316.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_251775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем Chyuties - мой собственный милый взгляд на коллекционирование в стиле одиночек (например, Funko Pops, QPockets или даже Dudes).Формат: STL
+Рокки Бальбоа.
+
+Также добавлена ​​база с более высокими тросами.
+(   Читать дальше...   )Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE1D1672F659E4653618B5AA8415E74A87A45065
+magnet:?xt=urn:btih:4182E185B66CC663BB1DC038321D9BC1467FC7CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,25 +267,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510082   (791873) от 15.11.2021
+###  Публикация: 1835671   (251699) от 07.11.2025
 
-3D print - Gambody - Vulcan Tank 3D Printing Model | Assembly [STL]
+3D print - Cults3D - B3DSERK - Darkseid Sculpture [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791873.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Модель 3D-печати Vulcan Tank поставляется в 5 версиях для каждого типа 3D-принтера (FFF / FDM, DLP / SLA и SLS).Формат: STL
+B3DSERK с гордостью представляет скульптуру Дарксайда.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F5E14B3E761A99712EB277D4F3113B720A506C9
+magnet:?xt=urn:btih:A17B3C9A5D2148B9A3F4EFC3290C800C4B0AF48B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,25 +293,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510214   (791878) от 15.11.2021
+###  Публикация: 1835710   (251682) от 07.11.2025
 
-3D модели - Unreal Engine - Modular Sci-Fi Interior [UASSET]
+3D print - Cults3D - B3DSERK - Guy Gardner Sculpture [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791878.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Modular Sci-Fi Interior разработан для создания атмосферы класса AAA. Из 68 компонентов можно легко построить любые коридоры и комнаты космического корабля, лаборатории, инженерные сооружения и другие футуристические помещения. Все модульные части правильно масштабированы и совместимы друг с другом. Настраиваемые материалы позволяют разнообразить сцену. Пак идеален (   Читать дальше...   )Формат: UASSET
+B3DSERK с гордостью представляет скульптуру Гая Гарднера.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B6C3469F44826DB58A22AFFEB851F155BE690D5
+magnet:?xt=urn:btih:9B5C4F8CF02AD0B0F2E84D5BA7C76154E5EB52CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,25 +319,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274791   (792134) от 08.01.2019
+###  Публикация: 1835607   (251268) от 06.11.2025
 
-3D модели - Daz 3D - Millennium Dragon [DUF]
+3D print - MyMiniFactory - Miniatures Blueprint - Arabian Nights Pack - 300569 [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792134.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор 3d моделей для DAZ 3D Драконы из категории AnimalsФормат: DUF
+В этом пакете вы получите:
+
+-3 Camel Centaurs
+-Djinn Malzatar(   Читать дальше...   )Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B2D7736D130E18AD12196EB89CA15B4625BC8E5
+magnet:?xt=urn:btih:758F1E1106D80870F2F76C77B75A4B329CF6B095
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,25 +348,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387088   (792313) от 31.05.2020
+###  Публикация: 1835293   (251004) от 05.11.2025
 
-3D модели - Hum3D - Ural Solo sT 2013 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D print - Heroes Infinite - Mortenburg Chronicles: Dark Lords of the Ever Shifting Sands [STL, LYS]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792313.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель мотоцикла марки UralФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+Приветствую тебя, дорогой участник Heroes Infinite!
+
+Выход этого месяца для меня особенный, потому что он возвращает нас к приключениям с персонажами Мортенбурга и некоторым личным воспоминаниям.
+(   Читать дальше...   )Формат: STL, LYS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56E2A386D1B0F05216CE701BF458F16F8F7BD00D
+magnet:?xt=urn:btih:C46B2DC7ACCA4D5B215E5F8290CF49F28DC9AE2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,25 +377,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387081   (792358) от 31.05.2020
+###  Публикация: 1835345   (250975) от 05.11.2025
 
-3D модели - Hum3D - Toyota RAV4 5-door 2001 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D print - Kaidan 3D - Sasuke Uchiha Evil [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792358.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ToyotaФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+Kaidan3d с гордостью представляет Саске в его самой темной форме!Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1671B091ADF82A74A0C35181747852B659735401
+magnet:?xt=urn:btih:C7CF16BF67266ECD510E17866E0818DEF498275C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,25 +403,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387059   (792382) от 31.05.2020
+###  Публикация: 1835579   (250911) от 06.11.2025
 
-3D модели - Hum3D - VAZ Lada 21099 1990 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D print - Cults3D - Vandalier85 - Kureiji Ollie [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792382.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ВАЗФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+Старшеклассница-зомби восстала из могилы. Она направилась домой, полагаясь на воспоминания, сохранившиеся с тех пор, как она была ещё жива.
+Вернувшись, она обнаружила, что дом превратился в закусочную с лапшой! И чтобы вернуть себе свой дом, она решила стать виртуальным ютубером.
+У Олли очень сильная склонность к крикам. Всегда делайте звук потише во время её трансляций. (   Читать дальше...   )Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF71B60161E3E4207E7495833A06203685BC225D
+magnet:?xt=urn:btih:1C8A42F5FC92AC1D2D9B374211B7222F4763F9E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,25 +431,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387072   (792385) от 31.05.2020
+###  Публикация: 1835450   (250836) от 06.11.2025
 
-3D модели - Hum3D - Toyota Hiace Passenger Van 1967 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+3D print - Kaidan 3D - Kirito [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792385.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ToyotaФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+Ознакомьтесь с этой фанатской моделью Кирито из популярной франшизы. Этот подробный STL-файл идеально подходит для поклонников и создателей аниме, представляя собой высококачественную версию для 3D-печати. ​​Независимо от того, являетесь ли вы геймером или любителем, оживите Кирито с лёгкостью. Эта модель не требует поддержек и идеально подходит для демонстрации (   Читать дальше...   )Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D536650BDB327495449D52E161727F349CDF7BA5
+magnet:?xt=urn:btih:91C611D2C7E619FE46B12C6A24224D3AD8925E85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,25 +457,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387057   (792395) от 31.05.2020
+###  Публикация: 1835474   (250801) от 06.11.2025
 
-3D модели - Hum3D - VAZ Lada 2103 1972 [MAX, FBX, OBJ]
+3D print - Kaidan 3D - Statue of God [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792395.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ВАЗФормат: MAX, FBX, OBJ
+Kaidan3d с гордостью представляет молчаливого бога!Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5259999394CEE7B2C987CAA0EBDD70840CF61B22
+magnet:?xt=urn:btih:F3B6DD068460A5C8EC02447524634D755CD3D92C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,25 +483,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387062   (792462) от 31.05.2020
+###  Публикация: 1835493   (250745) от 06.11.2025
 
-3D модели - Hum3D - Toyota ToyoAce Flatbed 2006 [MAX, FBX, OBJ]
+3D print - KcStudio - Sam Porter Bridges [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792462.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ToyotaФормат: MAX, FBX, OBJ
+Сэм Портер из Death Stranding 2.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8124D3B0158BCB2C8C7044365ED95AF81B31AE76
+magnet:?xt=urn:btih:2F5AD7A2F959D56DEEBE71322D9C882E86165582
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -496,26 +509,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200816   (793693) от 23.01.2018
+###  Публикация: 1835140   (250569) от 05.11.2025
 
-3D модели - Daz 3D - Animation [DUF]
+3D print - Bee Figures - Naruto - Naruto Classic [STL, 3MF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793693.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор поз для DAZ 3D из категории Animation. В состав входят сборники с офсайта Animation, Combat, Expressions, Interacting figures, Pin up.
-G3F and G8FФормат: DUF
+Фан-арт - Наруто - Naruto Classic
+Полная версия: масштаб 1:10 - разделенный
+Тестовая печать была выполнена и работает правильно.Формат: STL, 3MF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08ECCE774A520165481AE9F5FB7F5F569C3C2EC2
+magnet:?xt=urn:btih:07566D2B30891EA218545275375202773C5CEC4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,26 +537,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200824   (793698) от 23.01.2018
+###  Публикация: 1835129   (250561) от 05.11.2025
 
-3D модели - Daz 3D - Everyday [DUF]
+3D print - Bee Figures - Akame - Akame Ga kill [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793698.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор одежды от повседневной до вечерних платьев для DAZ 3D из категории People.
-Для Genesis 3 и Genesis 8Формат: DUF
+Фан-арт - Akame - Akami Ga Kill
+Full: масштаб 1:10
+Stls - 180 мм и 90 мм
+Тестовая печать была выполнена и работает правильно.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E98756E1765991E2E3C8FBAAE336601146D46C90
+magnet:?xt=urn:btih:3B7EBC39906D9BB8F77784708537CAF8F1299FAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,25 +566,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274209   (793932) от 06.01.2019
+###  Публикация: 1835134   (250559) от 05.11.2025
 
-3D модели - Hum3D - BMW X5 (G05) M sport 2019 [V-Ray|*.max, 3DS, C4D, FBX]
+3D print - Bee Figures - Conker - Conker’s Bad Fur Day [STL, 3MF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793932.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки BMWФормат: Сorona|Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL, SKP, PSD
+Конкер вернулся и стал ещё безумнее! Представляем вам самую смелую и дерзкую белку в играх, пришедшую прямо из легендарной игры Conker's Bad Fur Day — теперь в полностью детализированной 3D-версии, готовой к печати! Эта фигурка с её культовым внешним видом, военной экипировкой и взрывным характером — настоящая дань уважения культовой классике от Rare.Формат: STL, 3MF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3B3A8C6C8A5B2724DDAD584F67D2BA47A6A8846
+magnet:?xt=urn:btih:6C05F4E5A556FC3DBF639C26597EC6DCD6548907
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,25 +592,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274218   (793991) от 06.01.2019
+###  Публикация: 1835180   (250538) от 05.11.2025
 
-3D модели - Hum3D - Holden Colorado Space Cab Divisional Van 2018 [V-Ray|*.max, 3DS, C4D, FBX]
+3D print - Bee Figures - Nezuko - Demon Slayer Kimetsu no Yaiba [STL, 3MF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793991.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки HoldenФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
+Прямо из аниме «Рассекающий демонов: Убийца демонов: Убийца демонов» представляем вам милую, но невероятно сильную Незуко , теперь в ее потрясающей 3D-версии!
+
+Полная версия: масштаб 1:10 — разделена
+Тестовая печать выполнена и работает корректно.Формат: STL, 3MF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CB4A7C87936E3CF1EA11286A2884586867C00C6
+magnet:?xt=urn:btih:C01A51F886503E9A58275C8BDFDF451B54524622
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,25 +621,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274305   (793992) от 06.01.2019
+###  Публикация: 1835236   (250520) от 05.11.2025
 
-3D модели - Hum3D - Toyota Hilux Double Cab Chassis SR 2019 [V-Ray|*.max, 3DS, C4D, FBX]
+3D print - MyMiniFactory - Bestiarum Miniatures - Fae Wanderer x2 - Dark Forest - Demons - 386298 [STL, LYS]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793992.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ToyotaФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
+Феи — светящиеся существа, яркие создания, издавна обитающие в тайных уголках Доадена. Существуя тысячелетиями, они были древними ещё тогда, когда человечество было ещё молодым, и держали свои странные дворы в глубинах, недоступных любопытным взглядам низших рас.Формат: STL, LYS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6934ACF19F7C79C8139CFB661549FDB89D0F6E58
+magnet:?xt=urn:btih:5554200EDC7D7AAA87F7BE8A660D8164080AAC86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,25 +647,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274213   (793996) от 06.01.2019
+###  Публикация: 1834721   (250498) от 04.11.2025
 
-3D модели - Hum3D - Lexus LX 2016 [V-Ray|*.max, 3DS, C4D, FBX]
+3D print - KcStudio - Gustave & Sophie Diorama from Clair Obscur: Expedition 33 [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793996.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки LexusФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL, PSD
+Диорама Гюстава и Софи из Clair Obscur: Expedition 33Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C792141817E205FA53DBE71CA2FB68F2887B4B38
+magnet:?xt=urn:btih:8E66CF92602963B441442DB9E7EBA341335A0FBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,25 +673,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274315   (794046) от 06.01.2019
+###  Публикация: 1834734   (250488) от 04.11.2025
 
-3D модели - SQUIR - Toyota IQ EV 2013 [Mental Ray|*.max, 3DS, C4D, FBX]
+3D print - Neko Figurines - Hinako (Silent Hill F) [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794046.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ToyotaФормат: Mental Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, WRL
+Привет, ребята! Делимся нашим релизом Hinako из Silent Hill F! Статуя Инари и кукла взаимозаменяемы.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63E630DB78122D0AD3E34822DD11FF32FDD29167
+magnet:?xt=urn:btih:588D8298077025CD2B7A838C39C523E7E162ADE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

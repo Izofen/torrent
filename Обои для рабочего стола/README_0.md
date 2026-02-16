@@ -1,23 +1,22 @@
-###  Публикация: 1789242   (22614) от 03.04.2025
+###  Публикация: 1352590   (1001003) от 14.01.2020
 
-Обои - Eternal Mix Wallpapers Part 52 [JPG]
+Обои - Desktop Wallpapers Full HD. Part (549) [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22614.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9D0924A23A65FACEE52BC2663C09D1DC921649D
+magnet:?xt=urn:btih:C97FD47B449F6BF7752959CABC515A5C1E610EE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,26 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789047   (22698) от 02.04.2025
+###  Публикация: 1351919   (1001000) от 14.01.2020
 
-Обои - Eternal Mix Wallpapers Part 51 [JPG]
+Обои - Mega Wallpaper Pack On Theme "City" [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22698.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Качественные FullHD (1920x1080) обои для рабочего стола - города мира.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A027E02E0B773994F7D656699ABBC96E46162ECA
+magnet:?xt=urn:btih:46B0F4E2A062B54CDA213B257B5228CD1C4906EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,26 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788836   (22798) от 01.04.2025
+###  Публикация: 1352593   (1000998) от 14.01.2020
 
-Обои - Eternal Mix Wallpapers Part 50 [JPG]
+Обои - Desktop Wallpapers Full HD. Part (551) [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22798.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F58CC6E611EF75AC2FDAD44F1A79DD753AB4E5F
+magnet:?xt=urn:btih:672B3A388756994B0808A3D116ADBAF142E26356
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,26 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788573   (23037) от 30.03.2025
+###  Публикация: 1352582   (1000990) от 14.01.2020
 
-Обои - Eternal Mix Wallpapers Part 49 [JPG]
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (293) [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23037.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15C640166B790A5E2726CF11BBE4D6158A74ACCD
+magnet:?xt=urn:btih:BAD344D6B5347341D210D268B866756265AD48B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,26 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788358   (23117) от 29.03.2025
+###  Публикация: 1352595   (1000989) от 14.01.2020
 
-Обои - Eternal Mix Wallpapers Part 48 [JPG]
+Обои - Desktop Wallpapers Full HD. Part (552) [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23117.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:414C73C9FAE84A06EB4C048D58863A5AF8001E56
+magnet:?xt=urn:btih:CCC01798E907368678AECFD0884C797C58BFC2DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,26 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788138   (23250) от 28.03.2025
+###  Публикация: 1352589   (1000988) от 14.01.2020
 
-Обои - Eternal Mix Wallpapers Part 47 [JPG]
+Обои - Desktop Wallpapers Full HD. Part (548) [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23250.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69547C92279718BFA950A4B525DECC1B8408D2DE
+magnet:?xt=urn:btih:A11C467A378EE280A306A42622CB6057BEFF8FE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,26 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787255   (23662) от 24.03.2025
+###  Публикация: 1352599   (1000981) от 14.01.2020
 
-Обои - Eternal Mix Wallpapers Part 46 [JPG]
+Обои - Ultra HD 3840x2160 Wallpaper Pack 411 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23662.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A5D6E5FA89E2E6CF160167352B3A37710CB317A
+magnet:?xt=urn:btih:E9A1CEB601280D9683B00DB20FE8EF3B018D1CDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,26 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786908   (23872) от 22.03.2025
+###  Публикация: 1352584   (1000978) от 14.01.2020
 
-Обои - Eternal Mix Wallpapers Part 45 [JPG]
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (294) [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23872.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D97819BFA69E78FD2D1DE57B49A74DCBEB2027D9
+magnet:?xt=urn:btih:481530CB890624C1491F929C1BC3A2DF9ACD145E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,26 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786694   (23980) от 21.03.2025
+###  Публикация: 1352597   (1000970) от 14.01.2020
 
-Обои - Eternal Mix Wallpapers Part 44 [JPG]
+Обои - Desktop Wallpapers Full HD. Part (553) [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23980.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C58DA620814A8E62B93364B25594A37240BB792
+magnet:?xt=urn:btih:D821923C0D92BBD3D02064B6EB66182EF3A33B05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,26 +232,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786462   (24096) от 20.03.2025
+###  Публикация: 597859   (1000518) от 02.01.2013
 
-Обои - Eternal Mix Wallpapers Part 43 [JPG]
+[Wallpapers] World of Animals (02.01.13)
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24096.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+[Wallpapers] World of Animals (02.01.13)
+Название: World of Animals (02.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3600х2800
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8940D8CE9EDD0E1F34D4C87CE522C5076C83668
+magnet:?xt=urn:btih:5C9E13E637EA6B923C4FC635C1A40A57EC2C6195
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -268,26 +262,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785892   (24288) от 18.03.2025
+###  Публикация: 599108   (999793) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 42 [JPG]
+[Wallpapers] New 2013 Wallpaper Pack 8
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24288.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 43 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+[Wallpapers] New 2013 Wallpaper Pack 8
+Название: New 2013 Wallpaper Pack 8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C35315FA896BBB108A6B9019C4A7B3ABE8A7C08
+magnet:?xt=urn:btih:15354A908C2ACDB12D8074DB870AFF712E4735B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,26 +292,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785551   (24483) от 16.03.2025
+###  Публикация: 599109   (999790) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 41 [JPG]
+[Wallpapers] New 2013 Wallpaper Pack 9
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24483.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+[Wallpapers] New 2013 Wallpaper Pack 9
+Название: New 2013 Wallpaper Pack 9
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050/1600х1200- 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AB16FAAA3F31FD1F4A3D34A3A26F79EAE9B664D
+magnet:?xt=urn:btih:8E590AF7B16FD571E349DF3336750A8EF0A258B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,26 +322,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785279   (24586) от 15.03.2025
+###  Публикация: 599097   (999789) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 40 [JPG]
+[Wallpapers] New 2013 Wallpaper Pack 6
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24586.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+[Wallpapers] New 2013 Wallpaper Pack 6
+Название: New 2013 Wallpaper Pack 6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C52AE0ADFED9693D5FBD7F74F3D1A1D233703CFE
+magnet:?xt=urn:btih:E0A1455477F3E2CF46015BED6998A0BD439B2D81
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,26 +352,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785035   (24701) от 14.03.2025
+###  Публикация: 599107   (999778) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 39 [JPG]
+[Wallpapers] New 2013 Wallpaper Pack 7
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24701.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+[Wallpapers] New 2013 Wallpaper Pack 7
+Название: New 2013 Wallpaper Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D17A412E5B2F4E2EFA6905AB5E358A4534E3306F
+magnet:?xt=urn:btih:80400221235E775B989C9436472B904630B7852D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,26 +382,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784436   (25141) от 10.03.2025
+###  Публикация: 598739   (999767) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 37 [JPG]
+55 HQ Wallpapers (03.01.13) [Wallpapers]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25141.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C138130FDAA380C6C82859B02186172123F004AE
+magnet:?xt=urn:btih:19F43B7FD8A212AE325F225B38E5F3EEAAAEC1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,26 +408,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784273   (25146) от 10.03.2025
+###  Публикация: 599127   (999747) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 36 [JPG]
+[Wallpapers] New 2013 Nature Wallpaper Pack 1
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25146.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+[Wallpapers] New 2013 Nature Wallpaper Pack 1
+Название: New 2013 Nature Wallpaper Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:370F3BD183C0EDA4C425F8AFB842231AE24B1F0D
+magnet:?xt=urn:btih:E5BC07DE64F3EFCF6BF6F1DB995CCDC505A36F6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,26 +438,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784132   (25223) от 09.03.2025
+###  Публикация: 599204   (999745) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 35 [JPG]
+[Wallpapers] New 2013 Wallpaper Pack 14
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25223.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+[Wallpapers] New 2013 Wallpaper Pack 14
+Название: New 2013 Wallpaper Pack 14
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66224AD23F2E51F9735F848EDB0F2F8ACB6B6D5B
+magnet:?xt=urn:btih:AF5041BE04BDA40E744A2879565A017B80407E83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,26 +468,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783620   (25432) от 07.03.2025
+###  Публикация: 599138   (999740) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 33 [JPG]
+[Wallpapers] World Architecture (05.01.13)
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25432.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+[Wallpapers] World Architecture (05.01.13)
+Название: World Architecture (05.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A50B02819CE5532C9DA18E3E5146FA76F9E118E5
+magnet:?xt=urn:btih:9E79A3DC276DE3D3D9BE5053D588C04CFCF31825
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,26 +498,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783827   (25436) от 07.03.2025
+###  Публикация: 599110   (999739) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 34 [JPG]
+[Wallpapers] New 2013 Wallpaper Pack 10
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25436.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+[Wallpapers] New 2013 Wallpaper Pack 10
+Название: New 2013 Wallpaper Pack 10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58B8BE9113844E8178A6C7232A6133079C70C6C9
+magnet:?xt=urn:btih:755150310B1EAD04F510209A4E2CDE5356283227
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,26 +528,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783394   (25663) от 05.03.2025
+###  Публикация: 599071   (999727) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 32 [JPG]
+Best HD Wallpapers Pack (05.01.13) [Wallpapers]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25663.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AAC51042765DE0FEB1DE6B3F99A017034CBA804
+magnet:?xt=urn:btih:73D22B0D368C528A8E501545E50C9200288FC9D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,26 +554,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783240   (25766) от 04.03.2025
+###  Публикация: 599069   (999717) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 31 [JPG]
+Computer Desktop Wallpapers Collection (05.01.13) [Wallpapers]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25766.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:597CF93D6F197B45A61FE93FC55D10F88D4B2913
+magnet:?xt=urn:btih:B7FDCF5CB6A9D1EEA7C25BE281AFC205E9F586B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,26 +580,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783032   (25870) от 03.03.2025
+###  Публикация: 599074   (999714) от 05.01.2013
 
-Обои - Eternal Mix Wallpapers Part 30 [JPG]
+60 HQ Wallpapers (05.01.13) [Wallpapers]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25870.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6B534A2883F4C756637BC1CC37EF6E32036A291
+magnet:?xt=urn:btih:71E68729631678172A0A4826D02BE6F7C96A8E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,25 +606,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782750   (25955) от 02.03.2025
+###  Публикация: 599221   (999705) от 05.01.2013
 
-Обои - С 8 Марта! [JPG]
+[Wallpapers] New 2013 Wallpaper Pack 15
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25955.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999705.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев С 8 Марта! в HD формате.Формат: JPGРазрешение файлов: 3840x2160
+[Wallpapers] New 2013 Wallpaper Pack 15
+Название: New 2013 Wallpaper Pack 15
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29C319F2DC489FF7CE80FDCFED1754CEC0A5F5A7
+magnet:?xt=urn:btih:A70B67A228F5D4A14E1C780C9DF826F8B6EB0257
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,26 +636,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782857   (25974) от 02.03.2025
+###  Публикация: 599666   (999372) от 06.01.2013
 
-Обои - Eternal Mix Wallpapers Part 29 [JPG]
+[Wallpapers] Vastness of the cosmos (06.01.13)
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25974.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+[Wallpapers] Vastness of the cosmos (06.01.13)
+Название: Vastness of the cosmos (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3200х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6565C799F1C57AA25C8E35186B46602685FBB981
+magnet:?xt=urn:btih:B98E696D567677A8E3DA45422EC36E4047F80EAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,26 +666,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782638   (26083) от 01.03.2025
+###  Публикация: 599416   (999351) от 06.01.2013
 
-Обои - Eternal Mix Wallpapers Part 28 [JPG]
+Wide Wallpapers - anime (06.01.13) [Wallpapers]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26083.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3BB1B9D02735B78747F1B463229E67F93C356B1
+magnet:?xt=urn:btih:6E3D4F313CCFFF5D8A79023F02C7756DD9DC0C86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,26 +692,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782395   (26163) от 28.02.2025
+###  Публикация: 600611   (998668) от 09.01.2013
 
-Обои - Eternal Mix Wallpapers Part 27 [JPG]
+Nature Wallpapers (08.01.13) [Wallpapers]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26163.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция обоев на разную тематику.
-Количество: 43 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3962B171CFF7E174F4721CFB0655E33E0D2D10D2
+magnet:?xt=urn:btih:3F608C5A2199510DB247408718B53E4F6BD5A9AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

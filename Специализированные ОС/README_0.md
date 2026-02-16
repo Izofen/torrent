@@ -1,25 +1,24 @@
-###  Публикация: 929122   (520199) от 18.08.2015
+###  Публикация: 1215219   (757774) от 26.03.2018
 
-NAS4Free 10.2.0.2.1778 (Prester) [amd64, i386] 2xCD, 4xIMG
+Proxmox VE 5.1 [x64] 1xCD
 
->>След.
+>>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520199.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NAS4Free — встраиваемая (embedded) операционная система с открытым исходным текстом (Open Source) для сетевого хранилища NAS (Network-Attached Storage).
+Proxmox Virtual Environment (Proxmox VE) — система виртуализации с открытым исходным кодом, основанная на Debian GNU/Linux. Разрабатывается австрийской фирмой Proxmox Server Solutions GmbH, спонсируемой Internet Foundation Austria.
 
-NAS4Free основана на ОС FreeBSD, поддерживает обмен между ОС семейств Windows, Apple и UNIX-подобных.
-ОС включает: Sun ZFS v5000 (Feature Flags) (RAID-Z, RAIDZ-2 & RAIDZ-3), программный RAID (0,1,5), JBOD, шифрование, (   Читать дальше...   )
+В качестве гипервизоров использует KVM и LXC (начиная с версии 4.0, в версиях до 3.4 включительно вместо него использовался OpenVZ). (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BB75C10D2032CBD06318AF551B7CCAFA93BF28A
+magnet:?xt=urn:btih:5078C0728CA8FA409E328E9B9D9E0B24FE2D5092
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,15 +26,124 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 927758   (523818) от 14.08.2015
+###  Публикация: 1224254   (666993) от 09.05.2018
 
-Parted Magic 2015_08_12 [i686,amd64] 1xCD
+Openfiler 2.99.1 + 2.99.2 [x86_64] 2xCD
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523818.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Openfiler — это операционная система, которая предоставляет возможность выделять файловые устройства NAS и блочные устройства SAN. Она была создана компанией Xinit Systems и базируется на rPath Linux. Это свободное программное обеспечение с лицензией на основе GNU General Public License v. 2. Программное обеспечение с открытым кодом от сторонних разработчиков.
+Кодовая (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9331A63FE74A3170ED9C0E5485DEC0E275CC6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138229   (664036) от 29.05.2017
+
+Rescatux 0.41b1 [i386, i486, x86-64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rescatux новый rescue GNU/Linux CD/USB основанный на Debian, с дружественным меню для управления задачами восстановления и решения ряда других проблем в операционных системах.
+
+Включает в себя следующие инструменты: Super Grub2 Disk; восстановление GRUB / GRUB2; проверяет и исправляет файловые системы; очищает пароли Windows; позволяет изменить пароли Gnu/Linux; (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A241083E73130BCC3FF250D2C824BFF6CFD8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226070   (655436) от 20.05.2018
+
+Rockstor 3.9.1 [x64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux-дистрибутив Rockstor 3.9, предназначенный для развёртывания сетевых (NAS) и облачных хранилищ. Дистрибутив построен на пакетной базе CentOS и использует для локального хранения файловую систему Btrfs, а для внешнего доступа протоколы Samba/CIFS, NFS, SFTP и AFP.
+
+Особенностью Rockstor является поддержка запуска дополнительных приложений-обработчиков, упакованных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52701005C8AB5EBB4BCB7B269805B77824AAE87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226080   (655372) от 20.05.2018
+
+FreeNAS 11.1-U4 [x64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив для быстрого развёртывания сетевого хранилища (NAS, Network-Attached Storage). Дистрибутив основан на кодовой базе FreeBSD, отличается интегрированной поддержкой ZFS и возможностью управления через веб-интерфейс, построенный с использованием Python-фреймворка Django. Для организации доступа к хранилищу поддерживается FTP, NFS, Samba, AFP, rsync и iSCSI, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9EF065DE4E4CF3565AC225B1A50851F8CB68F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291490   (652088) от 26.03.2019
+
+Parted Magic 2019.03.17 [i686/amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652088.jpg" />
 </div>
 
 
@@ -45,7 +153,7 @@ Parted Magic — готовое решение для работы с разде
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20AC27D71DD229373BC6B2AC5B563DB7CE2759E8
+magnet:?xt=urn:btih:E5084B1F05238135139E55DDDC7759AF06967C26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,71 +161,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 927191   (529329) от 12.08.2015
+###  Публикация: 1142364   (642258) от 14.06.2017
 
-OpenMediaVault 2.1 [x86+x64] 2xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529329.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenMediaVault это сетевое хранилище следующего поколения (NAS), решение основанное на Debian Linux. Он содержит услуги, такие как SSH, (S) FTP, SMB / CIFS, DAAP медиа-сервер, Rsync, BitTorrent клиент и многое другое. Благодаря модульной конструкции он может быть расширен с помощью плагинов.
-OpenMediaVault в первую очередь предназначен для использования в домашних (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2879076159C34F979C311E656CACF26DBCC95EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926699   (531024) от 11.08.2015
-
-NAS4Free 9.3.0.2.1681 (Nayla) [amd64, i386] 2xCD, 4xIMG
+Parted Magic 2017.06.12 [i686/amd64] 1xCD
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531024.jpg" />
-</div>
-
-
-###  Подробнее
-
-NAS4Free — встраиваемая (embedded) операционная система с открытым исходным текстом (Open Source) для сетевого хранилища (Network-Attached Storage).
-
-NAS4Free основана на ОС FreeBSD, поддерживает обмен между ОС семейств Windows, Apple и UNIX-подобных.
-ОС включает: Sun ZFS v5000 (Feature Flags) (RAIDZ, RAIDZ2 & RAIDZ3), программный RAID (0,1,5), шифрование, S.M.A.R.T., (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0EBDFEF4A294077D3404ADBE02F173B03E1866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239713   (534602) от 07.08.2018
-
-Parted Magic 2018.08.06 [i686/amd64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534602.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642258.jpg" />
 </div>
 
 
@@ -127,7 +179,7 @@ Parted Magic — готовое решение для работы с разде
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:643A36830E22BC62FC0177AE866127DC46ECBFEC
+magnet:?xt=urn:btih:FFFD4593079504428387E010FCE1C7050C1D8E30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,15 +187,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306045   (555731) от 03.06.2019
+###  Публикация: 1034374   (622285) от 19.07.2016
 
-Parted Magic 2019.05.30 [i686/amd64] 1xDVD
+Parted Magic 2016.07.12 [i686/amd64] 1xCD
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555731.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622285.jpg" />
 </div>
 
 
@@ -153,61 +205,7 @@ Parted Magic — готовое решение для работы с разде
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27635A27178CADEBA77C4965717BE1308706ED21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919681   (578554) от 23.07.2015
-
-MikroTik RouterOS 5.26 [x86] 5.26 Level 6 [x86] 1xCD
-
->>След.
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операционная система RouterOS, превращающает обычный PC в мощный маршрутизатор. Функции:policy routing, RIP v1/v2, OSPF, BGP, PPPtP, IPSec, PPPoE, DHCP, firewall, NAT, управление пропускной способностью (bandwidth management), HotSpot сервер, Dial In/Out.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9454C5259122401E236F7633C9F5E8CFC78E4D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221617   (599473) от 24.06.2018
-
-Интернет Контроль Сервер 5.2 [x86, amd64] (deb)
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российское UTM-решение. Универсальный шлюз безопасности. Контентная фильтрация, категории трафика SkyDNS, модуль DLP и IP-телефонии, встроенный антивирус, учет трафика и контроль доступа, прокси-сервер, защита корпоративной сети, почта, FTP-, Web- и jabber-сервер. Включен в Единый Реестр Российского ПО для ЭВМ и БД.
-
-Интернет Контроль Сервер — интернет-шлюз для учёта (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4195C48B7F7761AE7368612282131E857BABE03C
+magnet:?xt=urn:btih:FEF0A01AA12D559FC8953DCD02B2368BE620DF20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,15 +242,69 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034374   (622285) от 19.07.2016
+###  Публикация: 1221617   (599473) от 24.06.2018
 
-Parted Magic 2016.07.12 [i686/amd64] 1xCD
+Интернет Контроль Сервер 5.2 [x86, amd64] (deb)
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622285.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российское UTM-решение. Универсальный шлюз безопасности. Контентная фильтрация, категории трафика SkyDNS, модуль DLP и IP-телефонии, встроенный антивирус, учет трафика и контроль доступа, прокси-сервер, защита корпоративной сети, почта, FTP-, Web- и jabber-сервер. Включен в Единый Реестр Российского ПО для ЭВМ и БД.
+
+Интернет Контроль Сервер — интернет-шлюз для учёта (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4195C48B7F7761AE7368612282131E857BABE03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919681   (578554) от 23.07.2015
+
+MikroTik RouterOS 5.26 [x86] 5.26 Level 6 [x86] 1xCD
+
+>>След.
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционная система RouterOS, превращающает обычный PC в мощный маршрутизатор. Функции:policy routing, RIP v1/v2, OSPF, BGP, PPPtP, IPSec, PPPoE, DHCP, firewall, NAT, управление пропускной способностью (bandwidth management), HotSpot сервер, Dial In/Out.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9454C5259122401E236F7633C9F5E8CFC78E4D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306045   (555731) от 03.06.2019
+
+Parted Magic 2019.05.30 [i686/amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555731.jpg" />
 </div>
 
 
@@ -262,7 +314,7 @@ Parted Magic — готовое решение для работы с разде
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEF0A01AA12D559FC8953DCD02B2368BE620DF20
+magnet:?xt=urn:btih:27635A27178CADEBA77C4965717BE1308706ED21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,15 +322,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142364   (642258) от 14.06.2017
+###  Публикация: 1239713   (534602) от 07.08.2018
 
-Parted Magic 2017.06.12 [i686/amd64] 1xCD
+Parted Magic 2018.08.06 [i686/amd64] 1xCD
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642258.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534602.jpg" />
 </div>
 
 
@@ -288,7 +340,7 @@ Parted Magic — готовое решение для работы с разде
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFFD4593079504428387E010FCE1C7050C1D8E30
+magnet:?xt=urn:btih:643A36830E22BC62FC0177AE866127DC46ECBFEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,15 +348,71 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291490   (652088) от 26.03.2019
+###  Публикация: 926699   (531024) от 11.08.2015
 
-Parted Magic 2019.03.17 [i686/amd64] 1xCD
+NAS4Free 9.3.0.2.1681 (Nayla) [amd64, i386] 2xCD, 4xIMG
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652088.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531024.jpg" />
+</div>
+
+
+###  Подробнее
+
+NAS4Free — встраиваемая (embedded) операционная система с открытым исходным текстом (Open Source) для сетевого хранилища (Network-Attached Storage).
+
+NAS4Free основана на ОС FreeBSD, поддерживает обмен между ОС семейств Windows, Apple и UNIX-подобных.
+ОС включает: Sun ZFS v5000 (Feature Flags) (RAIDZ, RAIDZ2 & RAIDZ3), программный RAID (0,1,5), шифрование, S.M.A.R.T., (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0EBDFEF4A294077D3404ADBE02F173B03E1866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927191   (529329) от 12.08.2015
+
+OpenMediaVault 2.1 [x86+x64] 2xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529329.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenMediaVault это сетевое хранилище следующего поколения (NAS), решение основанное на Debian Linux. Он содержит услуги, такие как SSH, (S) FTP, SMB / CIFS, DAAP медиа-сервер, Rsync, BitTorrent клиент и многое другое. Благодаря модульной конструкции он может быть расширен с помощью плагинов.
+OpenMediaVault в первую очередь предназначен для использования в домашних (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2879076159C34F979C311E656CACF26DBCC95EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927758   (523818) от 14.08.2015
+
+Parted Magic 2015_08_12 [i686,amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523818.jpg" />
 </div>
 
 
@@ -314,7 +422,7 @@ Parted Magic — готовое решение для работы с разде
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5084B1F05238135139E55DDDC7759AF06967C26
+magnet:?xt=urn:btih:20AC27D71DD229373BC6B2AC5B563DB7CE2759E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,53 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226080   (655372) от 20.05.2018
+###  Публикация: 929122   (520199) от 18.08.2015
 
-FreeNAS 11.1-U4 [x64] 1xCD
+NAS4Free 10.2.0.2.1778 (Prester) [amd64, i386] 2xCD, 4xIMG
 
->>Linux, Unix и другие ОС
+>>След.
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655372.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дистрибутив для быстрого развёртывания сетевого хранилища (NAS, Network-Attached Storage). Дистрибутив основан на кодовой базе FreeBSD, отличается интегрированной поддержкой ZFS и возможностью управления через веб-интерфейс, построенный с использованием Python-фреймворка Django. Для организации доступа к хранилищу поддерживается FTP, NFS, Samba, AFP, rsync и iSCSI, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9EF065DE4E4CF3565AC225B1A50851F8CB68F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226070   (655436) от 20.05.2018
-
-Rockstor 3.9.1 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux-дистрибутив Rockstor 3.9, предназначенный для развёртывания сетевых (NAS) и облачных хранилищ. Дистрибутив построен на пакетной базе CentOS и использует для локального хранения файловую систему Btrfs, а для внешнего доступа протоколы Samba/CIFS, NFS, SFTP и AFP.
+NAS4Free — встраиваемая (embedded) операционная система с открытым исходным текстом (Open Source) для сетевого хранилища NAS (Network-Attached Storage).
 
-Особенностью Rockstor является поддержка запуска дополнительных приложений-обработчиков, упакованных (   Читать дальше...   )
+NAS4Free основана на ОС FreeBSD, поддерживает обмен между ОС семейств Windows, Apple и UNIX-подобных.
+ОС включает: Sun ZFS v5000 (Feature Flags) (RAID-Z, RAIDZ-2 & RAIDZ-3), программный RAID (0,1,5), JBOD, шифрование, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52701005C8AB5EBB4BCB7B269805B77824AAE87B
+magnet:?xt=urn:btih:9BB75C10D2032CBD06318AF551B7CCAFA93BF28A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,27 +459,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138229   (664036) от 29.05.2017
+###  Публикация: 544113   (492820) от 06.09.2012
 
-Rescatux 0.41b1 [i386, i486, x86-64] 1xCD
+FreeNAS 8.2.0 [x86, x64] (2xCD)
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664036.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Rescatux новый rescue GNU/Linux CD/USB основанный на Debian, с дружественным меню для управления задачами восстановления и решения ряда других проблем в операционных системах.
+Особенностью FreeNAS 8.2.0-RELEASE является тесная интеграция средств командной строки для управления разделами ZFS с графическим интерфейсом FreeNAS. Реализована возможность запуска произвольного сервиса и взаимодействия с ним в jail-окружении FreeBSD через графический интерфейс FreeNAS.
 
-Включает в себя следующие инструменты: Super Grub2 Disk; восстановление GRUB / GRUB2; проверяет и исправляет файловые системы; очищает пароли Windows; позволяет изменить пароли Gnu/Linux; (   Читать дальше...   )
+Добавлена поддержка целевой перезагрузки iSCSI; поддержка графического интерфейса для различных аппаратных средств хранилищ SAS и FC; из web-интерфейса FreeNAS возможен вызов Webshell; конфигурирование scrubs-операций разделов ZFS с помощью графического интерфейса; в графическом интерфейсе задействованы новейшие web-тулкиты, включая использование мобильных браузеров; сценарий автоматической настройки разделов ZFS (на поддерживающих эту опцию аппаратных средствах).
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27A241083E73130BCC3FF250D2C824BFF6CFD8F7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,26 +487,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224254   (666993) от 09.05.2018
+###  Публикация: 1057656   (472503) от 29.09.2016
 
-Openfiler 2.99.1 + 2.99.2 [x86_64] 2xCD
+Proxmox VE 4.3 [x64] 1xCD
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666993.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Openfiler — это операционная система, которая предоставляет возможность выделять файловые устройства NAS и блочные устройства SAN. Она была создана компанией Xinit Systems и базируется на rPath Linux. Это свободное программное обеспечение с лицензией на основе GNU General Public License v. 2. Программное обеспечение с открытым кодом от сторонних разработчиков.
-Кодовая (   Читать дальше...   )
+Proxmox Virtual Environment (Proxmox VE) — система виртуализации с открытым исходным кодом, основанная на Debian GNU/Linux.
+В качестве гипервизоров использует KVM и OpenVZ. Соответственно, способна выполнять любые поддерживаемые KVM ОС (Linux, *BSD, Windows и другие) с минимальными потерями производительности и Linux без потерь.
+Управление виртуальными машинами и (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9331A63FE74A3170ED9C0E5485DEC0E275CC6BA
+magnet:?xt=urn:btih:25D1264E8B9C4F45DDDB3B177F7446BF85676EDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,150 +515,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215219   (757774) от 26.03.2018
+###  Публикация: 1408729   (453166) от 13.09.2020
 
-Proxmox VE 5.1 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proxmox Virtual Environment (Proxmox VE) — система виртуализации с открытым исходным кодом, основанная на Debian GNU/Linux. Разрабатывается австрийской фирмой Proxmox Server Solutions GmbH, спонсируемой Internet Foundation Austria.
-
-В качестве гипервизоров использует KVM и LXC (начиная с версии 4.0, в версиях до 3.4 включительно вместо него использовался OpenVZ). (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5078C0728CA8FA409E328E9B9D9E0B24FE2D5092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126683   (764151) от 19.04.2017
-
-OPNSense 17.1.4-OpenSSL [i386, amd64] 2xCD, 6xIMG
+SystemRescueCD 6.1.8 [x86/x64] 2xCD
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект OPNsense - форк дистрибутива для создания межсетевых экранов pfSense.
-
-Целью создания OPNsense является желание сформировать открытый дистрибутив, который мог бы обладать функциональностью на уровне коммерческих решений для развёртывания межсетевых экранов и сетевых шлюзов. При этом, в отличие от pfSense, проект позиционируется как неподконтрольный одной компании, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289FFEDEACCB909DFF32D1776AEB219AA4219D7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394413   (764212) от 04.07.2020
-
-pfSense Community Edition 2.4.5p1 [amd64] 1xCD, 3xIMG
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764212.jpg" />
-</div>
-
-
-###  Подробнее
-
-pfSense - компактный дистрибутив для создания межсетевых экранов и сетевых шлюзов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7EBC1FDD9236F09EA2BA94D052C9D0BDF068D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394300   (764277) от 04.07.2020
-
-OpenMediaVault (Usul) 5.3.9 [amd64] 1 CDxCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Openmediavault это сетевое хранилище следующего поколения (NAS), решение основанное на Debian Linux. Он содержит службы, такие как SSH, (S) FTP, SMB / CIFS, Rsync, BitTorrent клиент и многое другое. Благодаря модульной конструкции он может быть расширен с помощью плагинов.
-OpenMediaVault в первую очередь предназначен для использования в домашних условиях или небольших (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9B4520BBBD44BEA7F7EC0633547FD6E155D239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394283   (764354) от 04.07.2020
-
-OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A314CEE7A5E73E3723B3D7F4C8C71855E835C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394415   (764364) от 04.07.2020
-
-SystemRescueCD 6.1.6 [x86/x64] 2xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764364.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453166.jpg" />
 </div>
 
 
@@ -584,7 +533,7 @@ SystemRescueCd — это спасательной диск в системе Li
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA538C504CDD00DDC35AE23D354D89A9334CB10E
+magnet:?xt=urn:btih:1A444E67C2C143E27F9542AB30A2C84E1DB20949
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,28 +541,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209979   (778904) от 01.03.2018
+###  Публикация: 942709   (453094) от 01.10.2015
 
-NAS4Free build 11.1.0.4.5127 amd64 1xCD 3xIMG BUILD 11.1.0.4.5127 [amd64 (64-bits) versions only] 1xCD
+Parted Magic 2015_09_29 [i686, amd64] 1xCD
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778904.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NAS4Free - встраиваемая (embedded) операционная система с открытым исходным текстом (Open Source) для сетевого хранилища NAS (Network-Attached Storage).
+Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CAEBB378AA34F339DAD33C0240A603BE5129B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318989   (433227) от 05.09.2019
+
+XigmaNAS 12.0.0.4.6766 [amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433227.jpg" />
+</div>
+
+
+###  Подробнее
+
+XigmaNAS — свободная операционная система для сетевого хранилища. Является прямым продолжением проекта FreeNAS. В июле 2018 года был переименован на XigmaNAS и зарегистрирован 11 сентября 2018 года. XigmaNAS основана на последних версиях операционной системы FreeBSD.
 
-NAS4Free основана на ОС FreeBSD, поддерживает обмен между ОС семейств Windows, Apple и UNIX-подобных.
-ОС включает: Sun ZFS v5000 (Feature Flags) (RAID-Z, RAIDZ-2 & RAIDZ-3), программный RAID (0,1,5), JBOD, шифрование, (   Читать дальше...   )
+Поддерживает обмен между Windows, Apple и UNIX-подобными системами. Она включает в себя ZFS версии (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B6FDF2CB8206998E3DBBAA77B5A612F1E5601F3
+magnet:?xt=urn:btih:6C17CE0087EB8A4C859367BAF72EBDA44C266A13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,15 +595,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274648   (790875) от 10.01.2019
+###  Публикация: 1324101   (418132) от 12.09.2019
 
-Parted Magic 2019.01.03 [i686/amd64] 1xCD
+Parted Magic 2019.09.03 [i686/amd64] 1xDVD
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790875.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418132.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Parted Magic — готовое решение для работы с разде
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA0DC3EED6F02FD94BAC3D761F727B64065FAA6E
+magnet:?xt=urn:btih:65EF8FF83787C2EA979409702F68AFD586D09063
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,26 +621,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012724   (793264) от 01.05.2016
+###  Публикация: 1413184   (409331) от 03.10.2020
 
-Parted Magic 2016-04-26 [x86, x64] 1xCD
+OPNSense 20.7-OpenSSL 20.7 [amd64] 1xCD, 3xIMG
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793264.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Parted Magic - дистрибутив на основе Linux, предназначенный для различных дисковых операций: очистка, восстановление, создание файловой системы, разбиение на разделы, клонирование, резервное копирование. Так же в дистрибутиве содержатся утилиты тестирования и диагностирования.
-Система является Live-версией, не требующий инсталляции. Загрузка возможна с CD, USB или (   Читать дальше...   )
+Проект OPNsense - форк дистрибутива для создания межсетевых экранов pfSense.
+
+OPNsense is an open source, easy-to-use and easy-to-build FreeBSD based firewall and routing platform. OPNsense includes most of the features available in expensive commercial firewalls, and more in many cases. It brings the rich feature set of commercial offerings with the benefits of (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B781F01873A995A65B134695687D197384D66325
+magnet:?xt=urn:btih:EAAE2F72B6BA81F0AC1A22FF0839E38DCA00C908
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,15 +649,45 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200802   (794532) от 22.01.2018
+###  Публикация: 566299   (398674) от 27.10.2012
 
-Parted Magic 2018.01.08 [i686_amd64] 1xCD
+FreeNAS 8.3.0 [x86, x64] (2xCD)
 
 >>Linux, Unix и другие ОС
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794532.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда разработчиков FreeNAS объявила о выходе FreeNAS 8.3.0-RELEASE. FreeNAS 8.3.0 основан на FreeBSD 8.3 с поддержкой версии 28 файловой системы ZFS. Это является важной вехой в развитии FreeNAS, в результате чего в систему интегрированы плагины поддержки ZFS версии 28. Развитие версии FreeNAS 8,2 прекращается, так как и ZFS версии 15, и FreeBSD 8.2, больше не поддерживаются.
+
+Значительных различий между 8.3.0-RC1 и релизом практически нет. В основном, исправлены ошибки и незначительно улучшены возможности GUI.
+
+FreeNAS 8.2.0 остался в разделе, а не перенесен в архив из-за указанных особенностей перехода на новую версию ZFS.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416967   (362064) от 18.10.2020
+
+Parted Magic 2020.10.12 [x64]
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362064.jpg" />
 </div>
 
 
@@ -692,7 +697,7 @@ Parted Magic — готовое решение для работы с разде
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D80FDF639877031843F79B728232CB83EE77887E
+magnet:?xt=urn:btih:03DDC83B367FD93AB37B8BB62CDCB9DA5D634845
 ```
 
 https://mybot314.ru/tekegram_catalog/

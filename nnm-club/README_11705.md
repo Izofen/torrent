@@ -1,25 +1,54 @@
-###  Публикация: 1168871   (405062) от 25.09.2017
+###  Публикация: 1044302   (567463) от 19.08.2016
 
-Antonella Catanese - Red Inside (2012) Jazzy Record Label [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+VA - Running Beats 11 - Musik Zum Laufen (Inkl 5 KM & 10 KM Mix) (2016) [MP3|250~294 Kbps] <House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix  -  5 KM Power-Lauf  30:24
+02. DJ Mix  -  10 KM Power-Lauf  1:00:10
+03. Nora En Pure  -  On the Beach (Short Edit)  3:31
+04. Milk & Sugar with Barbara Tucker  -  My Lovin (Mat.Joe Radio Edit)  3:41(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 03:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:148E53C470B57F901BA176CF6C1124CE38F8CE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044394   (567462) от 19.08.2016
+
+Jimmy Burns - It Ain't Right (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405062.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sogno [05:53]
-02. Era una estate [04:20]
-03. Like a tune [06:32]
-04. Canto dell'anima [03:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:48
+01. Big Money Problem (3:30)
+02. Will I Ever Find Somebody (4:01)
+03. Snaggletooth Mule (3:59)
+04. Long As You're Mine (3:51)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:58:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59BDB192B7F6510EFCC6891FC98964EFB3B26C54
+magnet:?xt=urn:btih:C226D3DE8BFED70B843F5D7D99B1A31EF8919F02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168929   (405063) от 25.09.2017
+###  Публикация: 1044230   (567461) от 19.08.2016
 
-Paul Motian - Play Monk And Powell (1999) Winter & Winter [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Amon Ra - We Never Said Good-Bye (2015) [FLAC|Lossless|image + .cue] <Neo Progressive>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405063.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We See [04:53]
-02. I'll Keep Loving You [05:44]
-03. Brilliant Corners [07:51]
-04. Rootie Tootie [04:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:46:34
+01. Master of Strings (5:34)
+02. Time Will Come to Your Rescue (9:33)
+03. The Long Dark Road (4:55)
+04. Where When and Why (6:33)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 01:11:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CDEF6599E03FFDF70131A7A86736A1868B6CA6D
+magnet:?xt=urn:btih:4C332F2C8BBB525D002E6A011F42D10BF1B68D7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168863   (405064) от 25.09.2017
+###  Публикация: 1044206   (567460) от 19.08.2016
 
-The Teodross Avery Quartet - In Other Words (1994) GRP [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Fatal Embrace - Slaughter To Survive (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405064.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. High Hopes [05:21]
-02. Our True Friends [06:24]
-03. One to Love [05:21]
-04. An Ancient Civilization [05:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:16
+01. The Upcoming Cruelty (Intro) 01:23
+02. Revelation 04:42
+03. Hellhounds 04:13
+04. Dungeons of Dread 04:06(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFB7AD89D262C9BF3E5935D21794AAD418DBBBFC
+magnet:?xt=urn:btih:867D584F94B7137F4DC83F064A0A5EFFA2793E93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +114,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563483   (405072) от 21.10.2012
+###  Публикация: 1044176   (567459) от 19.08.2016
 
-Журнал | COSCOS hair fashion №4 [октябрь-ноябрь 2012] [PDF]
+В теме. Сирийский передел (18.08.2016) SATRip
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405072.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание адресовано тем, кого волнуют вопросы красоты и здоровья. Актуальные модные тенденции, информация о лучших косметических марках и процедурах, консультации экспертов и интервью с профессионалами beauty-индустрии, с ведущими стилистами, мастерами парикмахерского дела и модными дизайнерами. Вы можете быть уверены - это мнение, которому стоит доверять.Формат: PDF
+"В теме": Сергей Воронин – о гражданской войне в Сирии. Как Сирия стала важнейшим стратегическим объектом для целого ряда стран, рассказал политолог и ведущий программы "В теме" Сергей Воронин.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56555B5C8EBB4421211FB528097B5CEEB26B388D
+magnet:?xt=urn:btih:44B3E7AA76AF85FA4D38F7228B1D2408300FA5DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,34 +140,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563581   (405075) от 21.10.2012
+###  Публикация: 1043596   (567458) от 19.08.2016
 
-VA - Позитивная музыкальная энергия (2012) [MP3|256 кб/с]<Pop>
+Софья и Наталья Самуиловы | Отцовский крест (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567458.jpg" />
+</div>
+
+
+###  Подробнее
+
+В воспоминаниях сестер Софьи и Натальи Самуиловых о дореволюционном детстве, о любимом отце – провинциальном священнике Сергии, впоследствии погибшем в заключении, звучит живой отголосок ушедшей эпохи. Судьба семьи Самуиловых неразрывно переплелась с трагической судьбой страны в XX веке. Перенося читателя в российскую глубинку 1910–1930-х годов, авторы раскрывают (   Читать дальше...   )Жанр: духовная прозаПродолжительность: 32:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C2000FEC2D169AD47EF51573EB94E83285942A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044186   (567457) от 19.08.2016
+
+VA - Летний Заводной Музон 9 (2016) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405075.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Вера Брежнева и DJ Smash - Любовь На Расстоянии
-02. Юлия Беретта - Такси
-03. Orbital - Where Is It Going (Live Style Mix)
-04. Иракли - Осень
-05. DJ HaLF & Женя Юдина - Два Сердца (Extended Mix)
-06. Cranksters - My First Love (Radio Edit)
-07. Arash feat. Sean Paul - She Makes Me Go
-08. Mariya (Мария) - Ты Тот (Kapler Remix)
-09. DJ Niki feat. SODA - Я это ты (cover radio remix)
-10. Leven Mervox - Waiting The Past (Running Man Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 08:12:15
+001. Френды - Смотри Как Я Танцую
+002. Fallulah - Vandalain
+003. Денис Барканов - Доченька
+004. Drowning Pool - Push(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF9C1AED135BE60CC72A695819F990580AD21694
+magnet:?xt=urn:btih:A2DD0F3D2C6D7A72B23418ED97403E9F74EBBB78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -146,27 +195,284 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563604   (405077) от 21.10.2012
+###  Публикация: 1044241   (567456) от 19.08.2016
 
-Чистосердечное признание . Правда и ложь Николая Баскова (2012.10.21) SATRip
+Dan Patlansky - Introvertigo (2016) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run
+02. Poor Old John
+03. Sonova Faith
+04. Loosen Up The Grip(   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990FAD046DD45D0B77FDA7DC839DF7EB10EC5B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044315   (567455) от 19.08.2016
+
+VA - DJ Club Charts (2016.2) (2016) [MP3|251~278 Kbps] <House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various artists  -  DJ Club Charts 2016.2 - The Mix, Pt. 1  1:04:39
+02. Various artists  -  DJ Club Charts 2016.2 - The Mix, Pt. 2  1:07:02
+03. Robin Schulz feat. Akon  -  Heatwave (Remady Remix)  3:47
+04. R3HAB & Quintino  -  Freak (Sam Feldt Remix Edit)  3:17(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 04:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3F1EB8754553C09B228F8B269FEC2D38990794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044216   (567454) от 19.08.2016
+
+VA - Ultimate Vocal Trance Anthems (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaimo K & Sarah Russell  -  Why Can't You Love Me (Edit)  4:05
+02. Cold Rush & Elles De Graaf  -  Daydreamer (Alan Morris Radio Edit)  4:19
+03. Alex Ender & Jo Cartwright  -  Trembling Sadness (Edit)  3:04
+04. Chris Metcalfe & Sue Mclaren  -  Stardust (Edit)  3:51(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A30BC9661DD9C193D0535F1B88E9CA003F33390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043947   (567453) от 19.08.2016
+
+VA - Хитовые Летние Песни 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567453.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Axero Feat. Tau - What For
+002. Эмма М - Душа
+003. John Newman Feat. Charlie Wilson - Tiring Game
+004. Зелим Бакаев - Иллюзия(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FBCA7A7DF56C1CABD996D92BDDA5BFE0C055EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304051   (567452) от 24.05.2019
+
+Rymden - Reflections & Odysseys (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Trio>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflections (1:10)
+02. The Odyssey (6:03)
+03. The Peacemaker (0:38)
+04. Pitter-Patter (5:15)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano TrioПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E87693D2DA3431104C3471841EDC35A33ED50D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304138   (567451) от 24.05.2019
+
+Lance Richards - Friends (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grudge 04:41
+02. Lay Down And Love Me 04:29
+03. Whose Heart Here Is Breaking 04:11
+04. Coming Home 04:05(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADC0A9F87E3F1221FF85E32B55ECED88ACE0C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304049   (567450) от 24.05.2019
+
+Общество памяти игумении Таисии (изд.) | Молитвы и наставления подвижников благочестия (2004) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567450.jpg" />
+</div>
+
+
+###  Подробнее
+
+...Любовь к Богу, выражающаяся прежде всего в молитве пламенной и постоянной, в поставлении храма Святой Троице в сердце нашем и в предстоянии пред Его престолом, как горящая лампадка, с краткой, но частой молитовкой, стараясь ею наполнять день и ночь, когда не спишь. Тогда станет понятно слово апостола Петра древним христианам: вы «сами, как живые камни, устрояйте (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A18175234B790B238A209E187D1764D6A4CF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303717   (567449) от 24.05.2019
+
+MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SKURM - Baa (Long Away) (MRUKS Remix)
+02. SKURM - VIT16 (MRUKS Remix)Жанр: Funky, RetrowaveПродолжительность: 00:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CA597B385026B2585231EF1E6B1995B8ADDE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304055   (567448) от 24.05.2019
+
+Silverstein - Redux: The First 10 Years (2019) [FLAC|Lossless|tracks + .cue] <Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smashed Into Pieces (3:40)
+02. Smile In Your Sleep (3:16)
+03. American Dream (3:10)
+04. Bleeds No More (3:16)(   Читать дальше...   )Жанр: Rock, Post-HardcoreПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8371420F0F3FCD77789D0AEB8AE55E1333842919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304179   (567447) от 24.05.2019
+
+Футбол. Чемпионат Европы 2020. Отборочный турнир. 2-й тур. День 1-й. Обзор матчей (2019) IPTVRip [H.264/1080p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405077.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа существует уже более 10 лет. Все это время в ней показывали только эксклюзивы — материалы, которые невозможно увидеть где-либо еще. Разнообразные темы и, конечно же, чистосердечные признания. Герои передачи доверяют зрителям самые сокровенные тайны. Корреспонденты и продюсеры программы — профессионалы, способные, оставаясь за кадром, заставить нас взглянуть на многие вещи и события под новым углом. Это документальная программа только о том, что действительно интересно. Здесь все реально, все эмоционально и обязательно актуально.В выпуске: Кто позолотил ему голос?
-Что у него было с дочерью Монсеррат Кабалье, с Максаковой и с Волочковой, а также с Фёдоровой, Повалий и другими?
-Николай Басков — обо всем и обо всех — в программе «Чистосердечное признание»Жанр: ДокументальныйПродолжительность: ~ 00:36:19
+24 марта 2019
+Чемпионат Европы 2020. Отборочный турнир.
+Обзор матчей 2-го тура.
+День 1-йТелекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:29:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AB0276DA42FF97F9F6E344FEC2AD2DC9780CC02
+magnet:?xt=urn:btih:F522B3C7F1877E5A9C2DEB2DAF6A47E05CC35C66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -174,34 +480,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563266   (405078) от 21.10.2012
+###  Публикация: 1304107   (567446) от 24.05.2019
 
-VA - XXXL Клубничка №40 MTV (2012) (2012) [MP3|256 кб/с]<Pop>
+Jimmy Smith - 5 Original Albums (1959 - 1965) 5CD, Universal, 2018 [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Organ Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405078.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Melissa Gorga feat. Santino Noir - I Just Wanna
-02. Jay Sean - I Don't Know
-03. Reea - Come And Get My Love (Radio Edit)
-04. Abel The Kid & Julio Iglesias Jr. Feat. Snoop Dogg - A Piece Of My Love
-05. Michel Nekoz - I Like It
-06. Toby Deville - Mamma Maria (Scotty Remix Edit)
-07. Aerofeel5 Feat. Eva Kade - Friday Night
-08. Tripl Feat. Eliad & Lila - Bailando (Radio Edit)
-09. Deadmau5 Feat. Gerard Way - Professional Griefers (Radio Edit)
-10. Julia Volkova - Didnt Wanna Do It(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:16
+CD1 - Home Cookin':
+01. See See Rider [6:36]
+02. Sugar Hill [5:20]
+03. I Got A Woman [3:56](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Organ JazzПродолжительность: 03:11:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFA8BE473EC321760E39C8F8829A6F94C1724F09
+magnet:?xt=urn:btih:6DA43395BDEC44137663CCB2FF45A35DC70EAEB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,25 +509,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563180   (405080) от 21.10.2012
+###  Публикация: 1304037   (567445) от 24.05.2019
 
-Журнал | Militaria XX wieku Special №5 [2012] [PDF]
+Com Truise - Persuasion System (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
 
->>Журналы
->>Другие журналы
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405080.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Польский военно-исторический журнал. Интересные статьи и много фотоматериалов и иллюстраций.Формат: PDF
+01. Worldline
+02. Persuasion System
+03. Gaussian
+04. Ultrafiche Of You(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 00:33:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D84CE2D3DB4C6EE6CA5A5A7730E849267BF22D3
+magnet:?xt=urn:btih:BCF9725313F5A17976848C17EC59C8A1583077E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,430 +538,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 562755   (405084) от 21.10.2012
+###  Публикация: 1304186   (567444) от 24.05.2019
 
-Computer Desktop Wallpapers Collection (20.10.12) [Wallpapers]
+Футбол. Чемпионат Европы 2020. Отборочный турнир. 2-й тур. День 2-й. Обзор матчей (2019) IPTVRip [H.264/1080p-LQ]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405084.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_567444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7728E65833FEEC1BF525C4572C7647E5C4B6DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563477   (405089) от 21.10.2012
-
-Marty Weintraub - Dolphin Dance (2001) [MP3|320 кб/с]<New age, Instrumental, Relax, Sounds of nature>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405089.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:46) 01. The Littlest Ballerina
-(4:56) 02. One Kind Word
-(5:48) 03. Seafarer's Way
-(4:57) 04. The Gift
-(4:22) 05. Shadow
-(5:30) 06. Mermaid
-(6:09) 07. Are You Sleeping
-(6:26) 08. Dolphin Dance
-(7:14) 09. The Foggy Moors
-(6:51) 10. SlipstreamЖанр: New age, Instrumental, Relax, Sounds of natureПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BE026C7D0A36FB4AEA8BD17770C981461E05A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563474   (405094) от 21.10.2012
-
-Журнал | Лечитесь с нами №№5 - 12 [май - декабрь 2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание публикует письма читателей о том, как они с помощью народных средств избавились от той или иной болезни (астма, мозоли, шпоры, дисбактериоз и др.).Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18890B1DB7A27836A9F1AA8D0E89FCB910B7963C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563077   (405095) от 21.10.2012
-
-VA - Зарубежный Свежачок (2012) [MP3|256 кб/с]<Поп, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone House feat. Black D - Love Is Free (Radio Edit)
-02. Benni Cinkle - Gotta Get Out
-03. ASAP Rocky feat. Lana Del Rey - Ridin
-04. Pixie Lott - Love You More
-05. Azul ZK - Mr. Saxobeat (Radio Edit)
-06. Rick Ross feat. Omarion - Ice Cold
-07. Claudio Cristo & Tamy - Together
-08. Usher - Numb
-09. DJ Ella feat. Ricky J - Welcome To The Club (Radio Edit)
-10. Alexandra Stan - Lemonade (Rudedog Radio Edit)(   Читать дальше...   )Жанр: Поп, DanceПродолжительность: 05:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F83215FB0659CD82FC52203964F0D097031CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562747   (405097) от 21.10.2012
-
-HQ Wallpapers Perfect Women (19.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E52C1F1F54AF8E98F0F7500407C94663349E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561759   (405098) от 21.10.2012
-
-Chordotomy - The Precious Ideal (2012) [MP3|320 кб/с]<Brutal Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Einklang 04:10
-02. Philosophy Of Suffering 04:06Жанр: Brutal DeathПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753F7CAB895C40FB9000D51412CD44EB9B62E535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563069   (405101) от 21.10.2012
-
-VA - Новый Зарубежный Экспресс (2012) [MP3|256 кб/с]<Dance, Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405101.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJs From Mars & Fragma - Insane (In Da Brain) (DJ Ross & Alessandro Viale Radio Remix)
-002. Britney Spears - Look Who's Talking Now
-003. Maison feat. Dragen - Rio De Janeiro
-004. Serge Falcon feat. Sabina - Wrong man
-005. Paloma Faith - Picking Up The Pieces
-006. Jens O - Body & Soul (Radio Edit)
-007. Lana Del Rey - Video Games
-008. Sunrise Inc - Mysterious girl
-009. Birdy - People Help The People
-010. Calvin Harris feat. Ne-Yo - Let's Go (Radio Edit)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1A7A2A00406B38A35B8ACFCEEBEBE203051364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563070   (405102) от 21.10.2012
-
-VA - Осенний Турбомодный 50+50 (2012) [MP3|256 кб/с]<Поп, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Stretch feat. Di Land - I Need You (Radio Edit)
-02. T-Killah feat. Лоя - Вернись (Fire Flame & Horizont Remix)
-03. Picco - La Maquina (Original Radio Edit)
-04. Юля Паго - LoveЛето
-05. Frisco Disco vs Boney M feat. Ski - Ma Baker (Bernasconi vs. Frisco Disco Edit)
-06. Иракли - Белая ночь
-07. Dr. Bellido feat. Papa Joe - Seorita (Radio Edit)
-08. Artik feat. Asti - Облака (DJ Alex Radioso Radio Edit)
-09. Simon From Deep Divas feat. Debbie - Everybody's Free (Freaky Radio Mix)
-10. DJ Aristocrat & Элона (Mark Twen) & Алексей Потехин - Ла-Ла-Ла(   Читать дальше...   )Жанр: Поп, DanceПродолжительность: 06:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC4E17D68E71752EFA4632D294309D5E3427E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562757   (405104) от 21.10.2012
-
-Gilrs Wallpaper Collection (20.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D166BF4901BABC9AA08CC110F01E1F0B5916D9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561764   (405105) от 21.10.2012
-
-Meathook - Facing Deformity (2012) [MP3|320 кб/с]<Brutal Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remnants Of An Experimental Surgery 03:23
- 02. Bloated Corpse 02:03
- 03. Facing Deformity 03:56
- 04. Macerated 02:07Жанр: Brutal DeathПродолжительность: 00:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF2C5F62567CA833079B805EE8DA8A86E921054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562751   (405106) от 21.10.2012
-
-Gilrs Wallpaper Collection (19.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C55CD07B9FB1589A35A51D9043CA99AC6565985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562749   (405107) от 21.10.2012
-
-Wallpapers Sexy Girls Pack (19.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 6000x3992
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7357C263CE9E4C9917701D9329433781A995894E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562756   (405108) от 21.10.2012
-
-Wallpapers Sexy Girls (20.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 4368х2912
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895DD11075BA527A8A9043B9F7414B17C7099EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562750   (405109) от 21.10.2012
-
-Wallpapers Sexy Girls (19.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 3000х1875
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F0001C18CDD217C60AE5967D40ACE8CA3A3002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562740   (405117) от 20.10.2012
-
-KMS Server for Windows 8 [Английский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Виртуальных машин для активации Windows 8 Volume Профессиональная и Ентерпрайз.
-Windows 7 KMS - Виртуальная машина с Активированным KMS сервером (счетчик = 50, на 17.10.2012), может активировать Windows Vista, Windows 7 VL, Windows 8 VL.
-Windows 7 GUEST - Виртуальная машина для "накрутки" счетчика запросов на активацию. Требуется для включения режима активации в Windows 7 KMS. (Требуется значение счетчика запросов >=25)
-VMware Player - бесплатная версия системы виртуальных машин, требуется для запуска  вышеописанных ВМашин.
-
-(   Читать дальше...   )Название программы: KMS Server for Windows 8Язык интерфейса: Английский
+25 марта 2019
+Чемпионат Европы 2020. Отборочный турнир.
+Обзор матчей 2-го тура.
+День 2-йТелекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:31:46
 
 ## Скачать торент
 ```bash
@@ -670,21 +567,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561948   (405119) от 20.10.2012
+###  Публикация: 1304026   (567443) от 24.05.2019
 
-Windows 7 SP1 WPI USB FLASH x86 x64 v 30.001.12 By StartSoft  [Русский]
+Э.А. Гранстрем | Вдоль полярных окраин России. Путешествие Норденшельда вокруг Европы и Азии в 1878-1880 гг (1898) [PDF]
 
->>3
->>4
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405119.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_567443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка создана на базе оригинальных образов ru_Windows7_Ultimate_SP1_x86_dvd_6677463 Final и ru_Windows7_Ultimate_SP1_x64_dvd_677391 Final и представлена для ознакомления. В своем составе имеет 8 редакций Windows 7 SP1 с разными разрядностями, а так же WPI. По окончании установки все редакции выходят активированными. Во все редакции интегрированы последние обновления с сайта производителя системы, в том числе и обновленный MS.NET FrameWork 4. Произведены все необходимые настройки системы, отключены контроль учетных записей и Служба по совместимости программ. Образ создан при помощи программы UltraISO и предназначен для создания загрузочного Flash накопителя.Название программы: Windows 7 SP1 WPI USB FLASH x86 x64 v 30.001.12 By StartSoftЯзык интерфейса: Русский
+Эта иллюстрированная книга Эдуарда Андреевича Гранстрема (1843–1918 гг.), русского писателя, автора популярных книг для юношества, рассказывает о первом успешном плавании по Северному морскому пути, которое совершил финский географ и исследователь Арктики Нильс Адольф Эрик Норденшельд (1832–1901 гг.) на пароходе "Вега" в 1878–1879 гг. Предположение о возможности (   Читать дальше...   )Жанр: ИсторияФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -696,26 +593,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 562173   (405120) от 20.10.2012
+###  Публикация: 1234750   (567442) от 07.07.2018
 
-SolidWorks 2013 SP0.0 x32 / x64 Full Multilanguage Editions 2013 SP0.0 [Multilanguage (Русский в наличие)]
+Ashampoo Burning Studio 19.0.2.6 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>След.
->>Архив Программ
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405120.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_567442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SolidWorks – система автоматизированного проектирования, инженерного анализа и подготовки производства изделий любой сложности и назначения.
-SolidWorks является ядром интегрированного комплекса автоматизации предприятия, с помощью которого осуществляется поддержка жизненного цикла изделия в соответствии с концепцией CALS-технологий, включая двунаправленный обмен данными с другими Windows-приложениями и создание интерактивной документации.
-В зависимости от класса решаемых задач заказчикам предлагается три базовых конфигурации системы: SolidWorks, SolidWorks Professional и SolidWorks Premium.
-Разработчиком САПР SolidWorks является SolidWorks Corp. (США), независимое подразделение компании Dassault Systemes (Франция) – мирового лидера в области высокотехнологичного программного обеспечения.
-Разработки SolidWorks Corp. характеризуются высокими показателями качества, надежности и производительности, что в сочетании с квалифицированной поддержкой делает SolidWorks лучшим решением для промышленности.
-Комплексные решения (   Читать дальше...   )Название программы: SolidWorks 2013 SP0.0 x32 / x64 Full Multilanguage EditionsЯзык интерфейса: Multilanguage (Русский в наличие)
+Ashampoo Burning Studio - это всё то, о чём Вы просили. Откройте простейший способ достичь профессиональных результатов с чрезвычайно интуитивной, компактной, ещё более мощной программой для записи. Видео DVD с полностью анимированными меню, музыкальные CD с собственными обложками, защищённые паролем резервные копии данных и многое другое всего в паре кликов от Вас. (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
 
 ## Скачать торент
 ```bash
@@ -727,29 +619,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561644   (405121) от 20.10.2012
+###  Публикация: 1234826   (567441) от 07.07.2018
 
-Live CD7+XP (Seven+Kompact) x86 Update 17.10.2012 [Русский]
+Положитесь на Пита / Lean on Pete  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
 
->>След.
->>LiveCD/DVD/Flash
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405121.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_567441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Загрузочный диск с операционными системами Windows Seven PE и Windows XP LEX LIVE STARTLEX (обе с поддержкой сети), которая загружается с компакт-диска или с USB устройства в оперативную память Вашего ПК, для теста, ремонта и лечения системы и компонентов компьютера. Диск собран на загрузчике BOOTMGR , что позволит грузиться при любой версии биос.
-
-В состав сборки вошли LiveCD Seven Xemom1 (06.08.2012) и LEX LIVE STARTLEX DX MEDIA 2011. Оба лайва используют один набор программ - в результате минимум веса .
- Для полного счастья неплохо-бы добавить хотя б один полноценный антивирь . я не добавил из-за тормоз инета .
-Диск создавался под себя, может кому-то понравится. За основу взяты диски от Xemom1 и LEX, многое убрано\дополнено и переработано. Выражаю свою огромную благодарность Xemom1 и LEX за практическую помощь и советы по созданию этого диска.Название программы: Live CD7+XP (Seven+Kompact) x86 Update 17.10.2012Язык интерфейса: Русский
+Одинокий подросток Чарли в компании украденной лошади отправляется на поиски своей последней родственницы - давно пропавшей тети. Его ждет опасное и печальное путешествие на пути к простой мечте о доме.Производство: Великобритания / BFI Film Fund, Bureau, The, Film4Жанр: драма, приключенияРежиссер: Эндрю ХэйАктеры: Стив Бушеми, Клоэ Севиньи, Стив Зан, Томас Манн, Трэвис Фиммел, Айанна Беркшир, Фрэнк Галлегос, Роберт Дж. Олин, Джозеф Бертот, Джулия Прад’хомме, Дэна Милликэн, Джастин Рэйн, Чарли Пламмер, Джейсон Раус, Сюзанн Стокер, П.И. ИнгрэмПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 02:01:59
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234739   (567440) от 07.07.2018
+
+BBC. Земля: Один потрясающий день / Earth: One Amazing Day (2017) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_567440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один обыкновенный и впечатляющий день из жизни разных представителей дикой природы: от неприметных насекомых до царственных хищников. Чем занимаются от рассвета до заката жители джунглей и ледников, морей и пустынь? Они выходят на охоту, борются за выживание, растят детенышей и втягиваются в круговорот удивительных приключений.Производство: Великобритания, BBC Earth Film ProductionsЖанр: Документальный, научно-популярный, семейныйРежиссер: Ричард Дэйл, Фань Лисинь, Питер ВебберПеревод: Дублированный (Николай Дроздов) (Лицензия BD RUS)Субтитры: Русские, английскиеПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234641   (567438) от 07.07.2018
+
+Фокстрот / Foxtrot (2017) WEB-DLRip [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_567438.jpg" />
+</div>
+
+
+###  Подробнее
+
+На пороге фешенебельной квартиры Михаэля и Дафны появляется военный эскорт с трагическим известием — их сын погиб, исполняя свой воинский долг. Супруги опустошены ужасной вестью. Михаэль пытается совладать с приступами ярости, боли, отчаяния и дурноты, жена находится под воздействием снотворного. А в это время на отдаленном КПП юные солдаты борются со скукой армейской (   Читать дальше...   )Производство: Израиль, Швейцария, Германия, Франция / Bord Cadre FilmsЖанр: ДрамаРежиссер: Самуэль МаозАктеры: Лиор Ашкенази, Сара Адлер, Йонатан Ширай, Шира Хаас, Декель Адин, Йехуда Альмагор, Шауль Амир, Гефен Баркай, Рами БузаглоПеревод: Многоголосый закадровый, профессиональный (Официальный звук)Субтитры: ОтсутствуютПродолжительность: 01:46:27Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234789   (567436) от 07.07.2018
+
+Джейсон Шрейер | Кровь, пот и пиксели. Обратная сторона индустрии видеоигр (2018) [PDF, RTF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая книга об игровой индустрии от известного американского журналиста Джейсона Шрейера. Автор собрал сотни уникальных и захватывающих историй создания лучших компьютерных игр десятилетия, рассказанных ему самими создателями. Получилась жизненная и нетривиальная книга о том, что стоит за каждой культовой игрой современности и какой ценой ее разработчики выпускают (   Читать дальше...   )Жанр: Зарубежная деловая литература, Зарубежная компьютерная литература, Истории успехаФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD53E2513C7FBEB6C490D5BB536BCEE6E4FA193
 ```
 
 https://mybot314.ru/tekegram_catalog/

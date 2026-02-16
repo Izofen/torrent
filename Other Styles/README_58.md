@@ -1,240 +1,25 @@
-###  Публикация: 206525   (355050) от 18.11.2013
+###  Публикация: 1121803   (799220) от 04.04.2017
 
-Behzad - 4 albums (1999 - 2007) [MP3|320 кб/с]<New age, Flamenco, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_355050.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:13) 01. Bemirid (Rumi)
-(3:58) 02. Love Stories
-(4:54) 03. Persian New Year
-(2:51) 04. Roots
-(4:38) 05. Exhausted
-(4:04) 06. Barbie
-(4:58) 07. If You Go a Way
-(4:03) 08. Tears & Sensations
-(6:00) 09. Rest On My Shoulders
-(4:19) 10. Trapped in the Darkness(   Читать дальше...   )Жанр: New age, Flamenco, FolkПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723663   (355312) от 18.11.2013
-
-Хелависа & Лазерсон и друзья - Новые Ботинки (2013) [MP3|320 кб/с]<Folk-Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355312.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sgt. Early's Dream/Rectory Reel
-2. Nead na Lachan
-3. An Spealadóir/Brògan Ùra
-4. Cowboi-2013
-5. Y Ddau Farch
-6. The Brown and the Yellow Ale
-7. Alasdair Mhic Cholla Ghasda
-8. M'Fhearann Saidhbhi
-9. Hùg Air A' Bhonaid Mhòir
-10. Coisich, A Ruin(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCCCF0BFEB9198311AFC019A35CF9E7E8AA6900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177834   (355496) от 28.10.2017
-
-Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ragnarok Suite (08:53)
-02. Running Short on Options (02:47)
-03. Thor: Ragnarok (01:10)
-04. Weird Things Happen (01:47)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8661D686F91294C0051308A401E72BC3BF28B6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177833   (355501) от 28.10.2017
-
-Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ragnarok Suite (08:53)
-02. Running Short on Options (02:47)
-03. Thor: Ragnarok (01:10)
-04. Weird Things Happen (01:47)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0517EC09545EA89654164F9A15C343172FC05818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177837   (355630) от 28.10.2017
-
-Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные дела 2 (A Netflix Original Series Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin in Hawkins (02:36)
-02. Home (01:50)
-03. Eulogy (03:40)
-04. On the Bus (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119B32CC7F7AC50BF627D0F5B10F507630FA4E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837279   (355751) от 03.11.2014
-
-Estas Tonne - 8 альбомов (2002-2013) [MP3|320 Kbps] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эстас Тонне - мастер гитары, «гитарист дорог» мира. Его музыка уходит корнями в культуру фламенко и испанской классической гитары, однако вобрала в себя отголоски самых различных стилей, языков и культур. Называя себя современным трубадуром, последние годы он путешествует по миру (от США до Индии, от Мексики до Израиля), давая уличные концерты и выступая на престижных (   Читать дальше...   )Список альбомов:
-2002 - Black and White World (with Michael Shulman)
-2004 - Dragon of Delight, Vol.II
-2008 - 13 Songs of Truth(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 08:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E708999D5A6E33604E5A281704F95EFFA2A3CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177829   (355783) от 28.10.2017
-
-Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Warning (03:13)
-02. President Meeting (03:49)
-03. What About Us (02:08)
-04. Hong Kong Falling (03:50)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD96A44C5406A811EBF29877B4D21D78EEF11DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951832   (355875) от 01.11.2015
-
-Fridrik Karlsson - Chillout Heaven (2006) [APE|tracks+.cue]<New Age, Chillout, Relaxation>
+Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image + .cue] <New Age>
 
 >>Other Styles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355875.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chillout Heaven [9:45]
- 02. Rest your Mind [8:37]
- 03. Chillout Zone [10:36]
- 04. In the Moment [10:26](   Читать дальше...   )Жанр: New Age, Chillout, RelaxationПродолжительность: 01:00:14
+01. Holly Jolly Christmas
+02. So This Is Christmas
+03. We Wish You A Merry Christmas/Feliz Navidad
+04. Jingle Bell Rock(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:31:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E04C46ECCB286D9C56229842250545559C77B1AC
+magnet:?xt=urn:btih:4007DB576F91C49C97336FCE1F375674FDAAB55A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -242,146 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177825   (355940) от 28.10.2017
+###  Публикация: 1121908   (799197) от 04.04.2017
 
-Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Warning (03:13)
-02. President Meeting (03:49)
-03. What About Us (02:08)
-04. Hong Kong Falling (03:50)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038057D11C7E8A224350DB90584889FC65B0E696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329025   (355959) от 03.10.2019
-
-Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoyt's Office (01:25)
-02. Defeated Clown (02:39)
-03. Following Sophie (01:33)
-04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95ECDD5FC991EAA221A7ADCB422D02943B7054B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178514   (356119) от 28.10.2017
-
-Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clary (3:43)
- 02. Fallen Leaves (3:30)
- 03. Sound of the Soul (3:34)
- 04. The Four of Us (3:31)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEA5F61B7C90D11A26D107BBC2DCEBE28CEE5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329023   (356306) от 03.10.2019
-
-Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoyt's Office (01:25)
-02. Defeated Clown (02:39)
-03. Following Sophie (01:33)
-04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C64A48B5AF3B33E5D40C8881EA3D90F1E07DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329024   (356404) от 03.10.2019
-
-Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356404.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По поводу саунда Джокера - то отличная работа. А в фильме (не видел), наверно, вообще роскошно это будет.
-И эта работа уже получила награду "Премия Soundtrack Stars" на Венецианском кинофестивале.
-В общем новый сильный игрок появился на рынке композиторов. Молодец Hildur.01. Hoyt's Office (01:25)
-02. Defeated Clown (02:39)
-03. Following Sophie (01:33)
-04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
+01. Prologue (02:18)
+02. We Are the Division (03:45)
+03. Precinct Siege (04:40)
+04. The Garden (05:40)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8333EBF66518C51E60F091D73F376C489EDEDB5D
+magnet:?xt=urn:btih:0DACCD869CE9C7D00ECEA4F36D087564F3538D15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,28 +56,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329030   (356422) от 03.10.2019
+###  Публикация: 1121913   (799196) от 04.04.2017
 
-DJ Taz Rashid - A Story of Satori (2015) [MP3|320 Kbps] <New age, World music, Ambient>
+Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash (01:59)
+02. Heatseeker (03:32)
+03. Alone in the White (03:31)
+04. Welcome to the Village (03:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16436D53A904EA6F1F023239F5ABA9B24B40EFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121905   (799183) от 04.04.2017
+
+Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (02:18)
+02. We Are the Division (03:45)
+03. Precinct Siege (04:40)
+04. The Garden (05:40)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B338AC4AF168703D6B69D81E634F17DC7159A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121914   (799118) от 04.04.2017
+
+Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash (01:59)
+02. Heatseeker (03:32)
+03. Alone in the White (03:31)
+04. Welcome to the Village (03:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE36B725F3207A4C1B3965DC411A4C9F0ECE8DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122372   (798852) от 05.04.2017
+
+Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television Series) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samuel Sim - Hourglass (The Halcyon Main Title Theme) (03:17)
+02. Beverley Knight - Marvellous Party (03:46)
+03. Jamie Cullum - Forever (02:57)
+04. Kara Tointon / Chris Egan & The Sonny Sullivan Band - Mr. Heartache (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A10050EC48927144818811B74EA3498EAC786BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122501   (798844) от 05.04.2017
+
+VA - Celtic Voyage (2016) [MP3|320 Kbps] <New Age, Celtic, Folk, World>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356422.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Etholodge (04:08)
-02. Prajna (03:25)
-03. Initiation (04:58)
-04. Atlan Winds (05:54)(   Читать дальше...   )Жанр: New age, World music, AmbientПродолжительность: 01:05:36
+01. Midori - The Rivers Of Home
+02. Medwyn Goodall - The Fire Dance
+03. Florie Brown - Garrai Na Bhfeileoig/The Hunters Purse/June Apple/Silver Spire
+04. Saor Patrol - Toomtabard(   Читать дальше...   )Жанр: New Age, Celtic, Folk, WorldПродолжительность: 01:16:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46B1FE2E9973BB8BCD5F9DD8475B52AB3723CFD7
+magnet:?xt=urn:btih:D71DCB04F7BA328304D9E1DDD9FC78729B1134D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329092   (356504) от 03.10.2019
+###  Публикация: 1122513   (798824) от 05.04.2017
 
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [FLAC 2.0|24/48|tracks|WEB-DL] <Soundtrack>
+VA - Deep Ocean Escapes: Calming Waters, Blissful Sea, Ambient Relaxing, Ocean Waves (2017) [MP3|320 Kbps] <New Age, Chillout, Ambient>
 
 >>Other Styles
->>OST (Hi-Res)
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356504.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
+01. Gentle Crystal Sounds Divine - Relaxing Ocean Waves
+02. Calming Water Cosort - Energy Flow of Nature
+03. Tropical Ocean Waves Oasis - Beautiful Ocean Waves
+04. Relaxing Nature Sounds Collection - Chakra Alignment(   Читать дальше...   )Жанр: New Age, Chillout, AmbientПродолжительность: 01:55:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09E3C8667E81CF36489939735230CC69E3E6BDE6
+magnet:?xt=urn:btih:60C532655918DE3081E0E54B9CFD6FB11268E68E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,28 +230,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256459   (356560) от 21.10.2018
+###  Публикация: 1122371   (798814) от 05.04.2017
 
-Jennifer Thomas - The Fire Within (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
+Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television Series) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samuel Sim - Hourglass (The Halcyon Main Title Theme) (03:17)
+02. Beverley Knight - Marvellous Party (03:46)
+03. Jamie Cullum - Forever (02:57)
+04. Kara Tointon / Chris Egan & The Sonny Sullivan Band - Mr. Heartache (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD4C6087B1DFB671FD77D3C3149DCF68C102555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507287   (798447) от 04.11.2021
+
+David Wilson - Romance After Hours (2005) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
 
 >>Other Styles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356560.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Fire Within (feat. The Rogue Pianist)
-02. Awakening
-03. Girl in the Mirror
-04. Rise of the Phoenix(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:45:06
+David Wilson (22.09.1945) - американский скрипач и музыкант, известный своими стилизованными аранжировками, как популярной музыки, так и оригинальных композиций. Кроме скрипки играет еще на фортепиано, гитаре, аккордеоне и флюгельгорне. Работал в оркестре Henry Mancini в последние годы его жизни. Его дискография насчитывает десять альбомов, у меня же в коллекции (   Читать дальше...   )01. Everybody Loves Somebody Sometime (4:06)
+02. Am I Blue (3:41)
+03. Go Away Little Girl (4:02)
+04. Come Rain or Come Shine (4:30)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:153642211E77EF2B11516D4D18EA5CB2691343DC
+magnet:?xt=urn:btih:F8E743EDCD306FD7A40051A6D88750F3754A5F37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,28 +288,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329091   (356630) от 03.10.2019
+###  Публикация: 1507320   (798415) от 04.11.2021
 
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Clannad - Studio Albums (1973 - 2013) 13 CD [APE|Lossless|image + .cue] <Celtic, Irish Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clannad (Кла́ннад) — ирландская музыкальная группа.
+Музыку Clannad можно охарактеризовать как синтез кельтского фолка, рока, нью-эйдж и джаза. Поют на гэльском (ирландском) и английском языках.
+
+В состав группы входят Мойя Бреннан (Máire Brennan), её родные братья Кирон Бреннан (Ciarán Brennan) и Пол Бреннан (Pól Brennan), и двоюродные дяди Ноэль (   Читать дальше...   )1973 — Clannad (The Pretty Maid)
+1975 — Clannad 2
+1976 — Dúlamán
+1980 — Crann Úll(   Читать дальше...   )Жанр: Celtic, Irish Folk, New AgeПродолжительность: 09:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED50D7A15E5D5F8E5B641A6843E8AA292A09E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507657   (798086) от 06.11.2021
+
+Александр Зацепин - Оригинальная Музыка К Кинофильмам (2020) [FLAC|Lossless|image + .cue] <Soundtrack, Score>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356630.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
+Командир Счастливой "Щуки" 1972
+1-1		Вступление	2:36
+1-2		Встреча	2:05
+1-3		Давным-давно Была Война. 1-й Вариант	1:24(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 04:59:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B893CFE9751C9CE235E3DE209EA28A3A9731B45
+magnet:?xt=urn:btih:F2D3304EA28538539524EBA2008FB99F15585A84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,28 +349,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329084   (356631) от 03.10.2019
+###  Публикация: 1385310   (797765) от 24.05.2020
 
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Shakti Loka - Deep Black (2020) [MP3|320 Kbps] <Ethnic, Trip-hop, Mantras>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adi Purusham (Intro)
+02. Ganga
+03. Bhajahu Re Mana
+04. Yamuna(   Читать дальше...   )Жанр: Ethnic, Trip-hop, Mantras, Psychedelic, Indie, SynthpopПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED61821B47E771064111CD186A14E584C316A43C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011083   (796981) от 27.04.2016
+
+Carlos Garo - Entrance To The Parallel Universe (2015) [FLAC|Lossless|tracks] <New Age, Ambient, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entering the Universe    01:32
+02. Infinite Space    04:14
+03. Desert    05:06
+04. The World Keeps on Spinning    05:01(   Читать дальше...   )Жанр: New Age, Ambient, EnigmaticПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51807E2FDA5F9D69B5FB69FDB5E477AA3A27E474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199997   (796941) от 19.01.2018
+
+VA - Intimate Piano - Body & Soul (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henry Mancini & Orchestra - As Time Goes By (2:25)
+02. Gordon Langford & Orchestra - Body & Soul (2:37)
+03. Bill Synder - Cocktails for Two (2:52)
+04. Roger Williams - Dream a Little Dream of Me (3:12)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383AD32493426188965237095B41157FA79499D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200001   (796911) от 19.01.2018
+
+VA - Intimate Piano: Canadian Sunset (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is A Many Splendored Thing (Gordon Langford, His Piano & Orchestra) (2:55)
+02. Moonglow (Douglas Gamley, His Piano & His Orchestra) (3:07)
+03. Rhapsody In Blue (Henry Mancini) (3:27)
+04. Moonlight In Vermont (Gordon Langford, His Piano & Orchestra) (2:57)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8FEDC6C2E584E08DAFAAEFAF99E497358A6B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200110   (796889) от 19.01.2018
+
+First Aid Kit - Ruins (2018) [FLAC|Lossless|tracks] <Indie Folk, Country Folk, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebel Heart
+02. It's a Shame
+03. Fireworks
+04. Postcard(   Читать дальше...   )Жанр: Indie Folk, Country Folk, AmericanaПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CA868B2E161D981C585A091E6303E0AF5C9FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 103840   (796642) от 09.11.2021
+
+VA - The World Of Jeeves And Wooster (1992) [FLAC|Lossless|tracks] <OST>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356631.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
+01. Jeeves and Wooster
+Дживс и Вустер - заглавная тема.
+02. Jeeves and Wooster say What Ho!
+Вступительное слово от Дживса и Вустера (на англ.)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A80C8CD68B55419531012CF4FC6D129C685A5F60
+magnet:?xt=urn:btih:36DE92B135E9CE3C04D088071E3C5ECF0519C4F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,28 +523,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329090   (356632) от 03.10.2019
+###  Публикация: 1200386   (796260) от 20.01.2018
 
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+James Last - Russland Zwischen Tag Und Nacht (1989) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
 
 >>Other Styles
->>OST
+>>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356632.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
+01. Mitternacht in Moskau
+02. Kalinka
+03. Der rote Sarafan
+04. Russischer Volkstanz(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:52:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:010B545F1DADF20478E467A6567FE3A5D215594D
+magnet:?xt=urn:btih:CE830DB42AF232EA07DDBC6E5A248982EA249428
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,28 +552,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329102   (356636) от 03.10.2019
+###  Публикация: 1200398   (796252) от 20.01.2018
 
-Jуhann Jуhannsson - The Theory of Everything / Вселенная Стивена Хокинга (Original Motion Picture Soundtrack) (2014) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
+James Last - Classics From Russia (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
 
 >>Other Styles
->>OST (Lossless)
+>>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356636.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cambridge, 1963 (01:42)
-02. Rowing (01:42)
-03. Domestic Pressures (02:37)
-04. Chalkboard (01:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
+01. Second Waltz
+02. Der Verzauberte See
+03. Scheherazade
+04. Andante Variationen Nr.6(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:07:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF3EBAD0FDC86A95BF2ABEB1EC85E41732D791F5
+magnet:?xt=urn:btih:2EDC8C2DD8817D18A045DF3D517C0DE4B3B7990B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,144 +581,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329071   (356637) от 03.10.2019
+###  Публикация: 1200215   (796146) от 20.01.2018
 
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5219B60E23FB76262FAAC490F0083FBD29E436F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329083   (356638) от 03.10.2019
-
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B767A3CC194821AD9B66AB0F3AAE46D3BDEE2D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329115   (356641) от 03.10.2019
-
-Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeker Of The Serpent's Eye (02:12)
-02. Starling (02:15)
-03. Mandy Love Theme (04:39)
-04. Horns Of Abraxas (01:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895C453BAD7471C936B1D9A8F67AEC2B08A12AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329070   (356642) от 03.10.2019
-
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B0697726DF45FF8C93804150EA24A0FBF50B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329079   (356643) от 03.10.2019
-
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Алексей Рыбников - Музыка Космоса (2006) [APE|Lossless|image + .cue] <Soundtrack>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356643.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+01. Свет Звёзд (Через тернии к звёздам)
+02. Письма (Большое космическое путешествие)
+03. Тема Полёта (Полёт с космонавтом)
+04. Гроза (Через тернии к звёздам)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E54C597433E4DF7FB27A14ED5E18C66BCCDFBB16
+magnet:?xt=urn:btih:5CE40FBD19A034C58BAC2BF6B89A8E726378E5A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -737,28 +610,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329078   (356732) от 03.10.2019
+###  Публикация: 1200700   (795524) от 21.01.2018
 
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+The London Studio Orchestra and Singers - For Lovers Only: Great Romantic Themes (1997) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening>
 
 >>Other Styles
->>OST
+>>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356732.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+1. I Just Called To Say I Love You (4:22)
+2. Never Gonna Let You Go (3:19)
+3. With You I'm Born Again (3:12)
+4. Baby Come To Me (3:15)(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 03:22:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DC9E776F80B510ECFECEEEFD380A056AF21FF04
+magnet:?xt=urn:btih:7E31275D7CFFA818832A8C5559FF51DDE3F383F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012042   (795516) от 29.04.2016
+
+Myristica - Star-Filled Skies (2016) [MP3|320 кб/с] <New Age, Neoclassical, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down by the Willow Tree
+02. Star-Filled Skies
+03. Tree of Life
+04. Two Skies(   Читать дальше...   )Жанр: New Age, Neoclassical, RelaxПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E87871642FD6051D41BFAC0C936C1EED669BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509062   (795486) от 11.11.2021
+
+VA - The Best Christmas Album In The World...Ever! 2021 (2021) [MP3|320 Kbps] <Christmas, Pop, Rock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Thank God It's Christmas
+02. Band Aid 30 - Do They Know It's Christmas?
+03. Sam Smith - Have Yourself A Merry Little Christmas
+04. Justin Bieber - Mistletoe(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 03:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67DB638690343CEC5544BCAB38C4B3FA7FD34EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011672   (795451) от 29.04.2016
+
+Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, Celtic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelpie / The Cliffs Of Moher 03:33
+02. The Wind That Shakes The Barley 03:11
+03. Jovano Jovanke / Ciuleandra 05:25
+04. Dimna Juda 02:22(   Читать дальше...   )Жанр: Folk, World, Country, CelticПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C129CE82B254DC37528CC016CBC9723F6193A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011032   (795447) от 29.04.2016
+
+Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The White Winds - The White Boat (First View)  1:51
+02.  Hall of the Stairs - Hall of the Mosaics (Meeting You)  5:04
+03.  The Glass Hall (Choose the Crystal) - The Play of the Five Balls - The Five P...  7:36
+04.  The Woman and the Stone  4:25(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4378BF5DBAD56BFC72695CFDC8CB2A08141A7C4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

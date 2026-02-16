@@ -1,22 +1,257 @@
-###  Публикация: 1072526   (351827) от 13.11.2016
+###  Публикация: 1754426   (40786) от 10.10.2024
 
-Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Христос  суперзвезда 2LP (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Classic Rock>
+The Suspenders - Funkology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't stop (let's go!) (2:47)
+02. Get Down and Boogie (3:59)
+03. Got Funk in My Bones (2:43)
+04. Groovin' to the Vibe (2:46)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A54F334D6BDE0459D72DC62BE9BB732B4808EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754404   (40785) от 10.10.2024
+
+The Smoothies - Echoes of Velvet: A Journey Through (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missing You All Night (2:35)
+02. Sunday Wine (2:36)
+03. Vintage Love (3:22)
+04. Golden Years (2:36)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95C630527CDEEB16BF8AC90A423491E333EC330E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754408   (40783) от 10.10.2024
+
+The Smoothies - Soulful Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Groove of Your Love (3:27)
+02. Together Forever (3:06)
+03. Summer Fades (2:49)
+04. Missing You (My Friend) (2:38)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E253BB1A524821C5F977121D987357128EA44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754399   (40781) от 10.10.2024
+
+Summer Jazz Paradise, Instrumental Jazz Music Ambient and Swing Background - Summer 2024 Vintage Swing Jazz Collection (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Swing, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Jazz Paradise - Swingin' in the Sunshine (3:24)
+02. Instrumental Jazz Music Ambient - Jazz by the Pool (3:36)
+03. Breezy Afternoon Swing (3:52)
+04. Summer Jazz Paradise - Starlit Serenade (3:51)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DE584B196F1585E3BB63216AFBA7CFD70D43BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754409   (40776) от 10.10.2024
+
+The Smoothies - Velvet Vibes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Longing Echoes (3:05)
+02. Lonely Roads (2:49)
+03. Hold me close stay right here (2:54)
+04. Moonlit Groove (2:47)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DFD366AC5605EFB2A4CFAA1B08BB39440BEB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754490   (40772) от 10.10.2024
+
+John Lennon - Mind Games (Meditation Mixes) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind (Mind Games Meditation Mix / Binaural ∿Gamma Waves∿ 100Hz) (10:02)
+02. Magic (Mind Games Meditation Mix) (10:58)
+03. Space (Mind Games Meditation Mix / Binaural ∿Theta Waves∿ 8Hz) (5:42)
+04. Seed (Mind Games Meditation Mix) (5:59)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E109EC1988BFD972F4F41C3D5D812C588299B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754398   (40767) от 10.10.2024
+
+Ezra Collective - Dance, No One's Watching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:22)
+02. The Herald (3:45)
+03. Palm Wine (5:14)
+04. cloakroom link up. (Act 1) (0:25)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F5BADF52D8CBE978323CCB222C7E5CFB245C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754436   (40766) от 10.10.2024
+
+Blacksmith Tales - Pathway to Hamlet’s Mill (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog, Symphonic Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamlet's Mill Overture (9:03)
+02. Key to the Temple (6:04)
+03. C'è Casa a 30 Miglia (3:28)
+04. The Flame Within (6:17)(   Читать дальше...   )Жанр: Progressive Rock, Heavy Prog, Symphonic ProgПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDEEDD3E3B90DF0D01B19F8739CA69586335C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575577   (40712) от 11.10.2024
+
+Axel Rudi Pell - Studio Albums (28 releases) (1989-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351827.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Classic RockПродолжительность: 01:27:10
+Аксель Руди Пелль (нем. Axel Rudi Pell; 27 июня 1960, Ваттеншейд, Арнсберг, ФРГ) — немецкий гитарист, играющий в стиле мелодичный хеви-метал, а также композитор и музыкальный продюсер. Основатель одноимённого проекта Axel Rudi Pell.1989 - Wild Obsession
+1991 - Nasty Reputation
+1992 - Eternal Prisoner
+1993 - The Ballads (Compilation)Жанр: Heavy/Power Metal, Hard RockПродолжительность: 28:28:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
+magnet:?xt=urn:btih:584F4A6A3A62C72AC07FA1D95796F2C7D873DD02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 952780   (353034) от 02.11.2015
+###  Публикация: 1754491   (40684) от 11.10.2024
 
-Roger Waters – Amused To Death (1992, 2015 Remaster) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <rock, progressive rock>
+The Offspring - Supercharged (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk-Rock>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353034.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.    The Ballad of Bill Hubbard    04:20
-2.    What God Wants, Part I    06:00
-3.    Perfect Sense, Part I    04:15
-4.    Perfect Sense, Part II    02:51(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:12:43
+01. Looking Out For #1 (3:17)
+02. Light It Up (2:53)
+03. The Fall Guy (2:35)
+04. Make It All Right (3:34)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:32:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28F260DEAD20908F84B3601378340A23FB75B32F
+magnet:?xt=urn:btih:5F653A821D829308402A5726D6B7AAF6403F82E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,34 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 723949   (355313) от 18.11.2013
+###  Публикация: 1754498   (40682) от 11.10.2024
 
-Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Rock, Pop>
+Duran Duran - Danse Macabre (2023) Deluxe Edition, 2024, BMG [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355313.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-1. Are You Sincere  2:00
-2. It's Midnight  3:20
-3. My Boy  2:55
-4. Girl Of Mine 3:40
-5. Take Good Care Of Her  2:50
-6. I'll Never Fall In Love Again  3:40
-Сторона 2
-1. Your Love's Been A Long Time Coming  2:50
-2. Spanish Eyes  2:23(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:34:55
+01. Masque Of The Pink Death (3:17)
+02. Nightboat (4:23)
+03. Black Moonlight (3:07)
+04. Love Voudou (4:29)(   Читать дальше...   )Жанр: Alternative, Pop RockПродолжительность: 01:01:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AA570B4A405ABB69A5FE4F54E2857DEE7564F15
+magnet:?xt=urn:btih:C77009811FD26D3C406A7492CEF88835212663B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,57 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328786   (356126) от 03.10.2019
+###  Публикация: 1695340   (40673) от 11.10.2024
 
-Paul Mauriat - El Bimbo & Toccata (2019) 1975-73 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356126.jpg" />
-</div>
-
-
-###  Подробнее
-
-El Bimbo (1975)
-
-01. El Bimbo
-02. The Way We Were(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54185DDD9E953C0BE5782265D3B7F192F40F86C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256019   (356441) от 21.10.2018
-
-Гости Из Будущего - Ева. Полная Версия (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop, Euro House>
+Ad Infinitum - Studio Albums (5 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356441.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Intro
-A2 Люби Меня По-Французски
-A3 Он Чужой
-A4 Не Говори О Любви(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 01:14:43
+Ad Infinitum — швейцарско-немецкая симфо-метал группа. Первоначально это был сольный проект швейцарской певицы Мелиссы Бонни, который преобразовался в полноценную группу с приходом барабанщика Никласа Мюллера, басиста Йонаса Асплинда и гитариста Адриана Тесенвитца.2020 - Chapter I: Monarchy
+2020 - Chapter I: Revisited
+2021 - Chapter II: Legacy
+2023 - Chapter III: DownFall(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:41:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73114A96360FF284768223FF621C97B8E70469A1
+magnet:?xt=urn:btih:D5BB6ED316B3FCDC8FC10C3C88A10E24A298DA49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -146,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071877   (356463) от 11.11.2016
+###  Публикация: 1755305   (40392) от 14.10.2024
 
-Various Artists - Le Silence (2003) [DTS 4.0|44.1/16|image +.cue|SACD] <electronic music, downtempo, ambient>
+Океан Ельзи (Okean Elzy) - Lighthouse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356463.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.    Incogniddo – Sun And Water    05:39
-02.    In Credo – La Guitarra (Short Dreamtake Mix)    04:20
-03.    Skysurfer – The Ending (Short Cut)    04:30
-04.    Incogniddo – It’s A Pleasure    03:42(   Читать дальше...   )Жанр: ambientПродолжительность: 01:04:20
+01. Voices Are Rising [00:03:13]
+02. Lighthouse (feat. John Rzeznik) [00:03:15]
+03. Might Have Been a Dream [00:03:16]
+04. Love on Fire [00:03:39](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1D9A9E993E01391D1EF8204854BB3123F7ED4A7
+magnet:?xt=urn:btih:6D25D389D0E2E0978A7822AC141F2238F67E27F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -175,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256278   (356551) от 21.10.2018
+###  Публикация: 1755320   (40389) от 14.10.2024
 
-The Music Of San Marco/Soloist Di Zagreb - Vivaldi - The Four Seasons/Concerto Grosso op. 3/8 in A minor (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Baroque>
+October London - October Nights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356551.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Spring Concerto in E major RV 269
-01 Allegro
-02 Largo
-03 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:56:28
+01. Slander My Name [00:02:43]
+02. Touch on Me [00:03:10]
+03. A Beautiful Woman [00:03:24]
+04. 3rd Shift [00:02:46](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:53:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A762169DA14E395D09C5BEECF03B15202834F9D1
+magnet:?xt=urn:btih:84CC8422696C367B89F59E48F88360CBE55DD66C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -204,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256012   (356688) от 21.10.2018
+###  Публикация: 1755094   (40382) от 14.10.2024
 
-Three Dog Night - Coming Down Your Way (1975) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+Marina Viotti / Fred Chappuis / Vincent Flückiger - Melankhôlia: In Darkness Through The Light (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical, Vocal Music (Secular and Sacred),  ...
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356688.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Til the World Ends
-A2 You Can Leave Your Hat On
-A3 Good Old Feeling
-A4 Mind over Matter(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:42
+01. Prelude [00:01:45]
+02. Mourn, Mourn, Day is with Darkness Fled [00:00:55]
+03. Stay Time a While Thy Flying (Version for Voice, Archlute and Electric Guitar) [00:02:48]
+04. Old Man [00:03:23](   Читать дальше...   )Жанр: Classical, Vocal Music (Secular and Sacred), Vocal RecitalsПродолжительность: 00:58:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7012E518BDE96ECCCB29451FFE786590F4C9B6F6
+magnet:?xt=urn:btih:FCFACB03D3DF017E1605904266E5330F398A0321
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,57 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256001   (356691) от 21.10.2018
+###  Публикация: 1580496   (40372) от 14.10.2024
 
-Saint-Saens - Symphonies (Carnival of the Animals, Phantasy E flat Major, Organ Symphony №3 C minor) (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carnival of the Animals
-01. Introduction et marche royale du lion (Introduction and Royal March of the Lion)
-02. Poules et coqs (Hens and Roosters)
-03. Hemiones (animaux veloces) (Wild Donkeys Swift Animals)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD2C86480B45946949490126DB3A6DC3A1FAC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255995   (356699) от 21.10.2018
-
-Placido Domingo - Placido Domingo And Friends (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Vocal>
+Death Angel - Studio Albums (11 releases) (1987-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356699.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Umberto Giordano - Fedora (Amor Ti Vieta), Placido Domingo
-A2 Verdi - Luisa Miller (Quandro Le Serre), Placido Domingo
-A3 Mozart - La clemenza di Tito (Parto Parto), Martha Senn
-A4 Puccini - Intermezzo: (Manon Lescaut, Ch'ella Mi Creda), Placido Domingo(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 00:46:46
+Death Angel — филиппино-американская трэш-метал-группа из города Конкорд, штат Калифорния, образованная в 1982 году.1987 - The Ultra-Violence
+1988 - Frolic Through The Park
+1990 - Act III
+2004 - The Art Of DyingЖанр: Thrash MetalПродолжительность: 08:58:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33136F64EAFBA3B5B3CCE40D48271A51645FC462
+magnet:?xt=urn:btih:7D1738461AB73FF03163965EB876B1CA5658BE31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577444   (356764) от 18.09.2022
+###  Публикация: 1755123   (40370) от 14.10.2024
 
-Emigrate (Rammstein, Richard Kruspe) - Studio Albums (4 releases) (2007 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial Metal>
+Andrea Bignasca - Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356764.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Emigrate — сайд-проект, основанный Рихардом Круспе, сооснователем группы Rammstein и её гитаристом. Проект появился в 2005 году во время творческого перерыва Rammstein после выпуска пятого альбома Rosenrot.2007 - Emigrate
-2014 - Silent So Long
-2018 - Million Degrees
-2021 - The Persistence Of MemoryЖанр: Industrial MetalПродолжительность: 02:55:11
+01. A Song (3:58)
+02. Stranger (4:00)
+03. Together Whatever (4:43)
+04. Only Love (4:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7D8805CFB71D7A56BF46607287FCFBCAE293341
+magnet:?xt=urn:btih:6DA99BE29E0C72D9822755009398009DD22AE693
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 952170   (358285) от 31.10.2015
+###  Публикация: 1755129   (40369) от 14.10.2024
 
-The Alan Parsons Project - I Robot (1977) Reissue /1982, Arista Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+Gonzalo Araya - Floripa´s Mood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Harmonica>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358285.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. I Robot (6:02)
-A2. I Wouldn't Want To Be Like You (3:23)
-A3. Some Other Time (4:06)
-A4. Breakdown (3:53)(   Читать дальше...   )Производство: Arista RecordsЖанр: Progressive RockПродолжительность: 00:41:05
+01. CHAMPAGNE AND REFFER (4:46)
+02. COME ON IN MY KITCHEN (4:37)
+03. T-BONE SHUFFLE (5:00)
+04. BABY WHAT YOU WANT ME TO DO (5:14)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:28:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B9840B532FDF4A68C2B717B5EEA03070BF1ACCF
+magnet:?xt=urn:btih:B04514EFEAA8F286596065A659B81543E7051DE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328689   (360652) от 01.10.2019
+###  Публикация: 1755128   (40368) от 14.10.2024
 
-The Beatles - Abbey Road (1969) UMG, 2019 [FLAC 5.1|48/24|Lossless|tracks + .cue] <Classic Rock>
+Courtnay & The Unholy Reverie - Mercy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360652.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Come Together (4:21)
-02. Something (3:02)
-03. Maxwell's Silver Hammer (3:28)
-04. Oh! Darling (3:27)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:30
+01. Vulture, Vulture! (5:01)
+02. Mercy (5:00)
+03. Graves (3:16)
+04. Lost at Sea (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49003E00433BED111B736DE7F5B28B736A41642D
+magnet:?xt=urn:btih:EC79D8DE8F7F1EAA969A451EBBBBC4B6F7788EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -378,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328431   (363130) от 30.09.2019
+###  Публикация: 1755131   (40367) от 14.10.2024
 
-Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Ri] <Pop, Jazz, Easy Listening>
+Ilario Ferrari Trio - Above the Clouds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363130.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hadakano Venus
-02. Nagisa Nite
-03. Kuchibeni Enka
-04. Kimi Ga Utsukushisugite(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: Pop, Jazz, Easy Listening
+01. Earthrise (4:09)
+02. Morning Samba (4:49)
+03. Walking On The Yellow Line (6:20)
+04. Beyond The Horizon (4:05)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E139619DF26ECD6CDD4BF3E1E4CAC694A8526B9
+magnet:?xt=urn:btih:716AE1503B026DAA6106AD246BB97AF16357FDC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576418   (364260) от 15.09.2022
+###  Публикация: 1755225   (40366) от 14.10.2024
 
-Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Blues, Rhythm & Blues>
+Schizophrenic Demon - Jazietto (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364260.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Мы Все Любим Музыку
-02. Разбитое Сердце
-03. Старая Река
-04. С Тех Пор, Как Встретил Тебя(   Читать дальше...   )Жанр: Blues, Rhythm & BluesПродолжительность: 00:09:05
+01. Fast Heartbeats (2:10)
+02. A Fast Lane Melody (2:11)
+03. A Fast-Paced Love Affair (2:09)
+04. Chasing the Breeze (2:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4CC52CC861C73F32509F20ABB73900DBBBF8C18
+magnet:?xt=urn:btih:1551988CB3B34739CE3F829F22241C82B2780CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416428   (364973) от 17.10.2020
+###  Публикация: 1755231   (40365) от 14.10.2024
 
-Santana - Santana III (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Latin>
+The Headhunters - The Stunt Man (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364973.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Batuka
-A2 No One To Depend On
-A3 Taboo
-A4 Toussaint L'Overture(   Читать дальше...   )Жанр: Psychedelic Rock, LatinПродолжительность: 00:41:54
+01. The Stunt Man (5:59)
+02. Attitude Of Gratitude (5:42)
+03. Embraceable You (7:05)
+04. ESP (4:06)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69AE9BFE323CA7F40FB23B1DE856B28C914BD70E
+magnet:?xt=urn:btih:69BEE3B3AA876F89C78CFB72489BCA7E9ADC191F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255147   (365728) от 17.10.2018
+###  Публикация: 1755218   (40364) от 14.10.2024
 
-Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Heavy Metal>
+Samy Thiebault - In Waves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365728.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rapid Fire (4:08)
-02. Metal Gods (4:00)
-03. Breaking The Law (2:36)
-04. Grinder (3:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:06
+01. Armelle CIPPE - In Waves (5:25)
+02. Devenirs (4:15)
+03. Armelle CIPPE - Rituals (4:31)
+04. Horizons (5:33)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03BE611D1BAD9E26B3E4A979616B4983A45386C1
+magnet:?xt=urn:btih:CBDE85CA5BC0130E1C774FBEEFEE514454EE1BA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 836126   (366127) от 30.10.2014
+###  Публикация: 1755124   (40363) от 14.10.2024
 
-Giorgio & Martin Koppehele - Lichtmond 3: Days Of Eternity (2014) [DTS-ES Discrete 6.1 44.1/16 | .wav+.cue (Blu-ray)] <NewAge|Ambient>
+Blues Factory - III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366127.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Nightflight to Chronos (Part 1)
-2. Nightflight to Chronos (Part 2)
-3. Feel the Spirit
-4. Wheel of Time(   Читать дальше...   )Жанр: NewAge, AmbientПродолжительность: 00:56:02
+01. Unhappy Girl (5:52)
+02. Rolling Man (4:29)
+03. Time To Make Mistake (5:33)
+04. Mountain Man (5:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCCA963D79C779DE628ADCE4895E1F312BB0E161
+magnet:?xt=urn:btih:18EB0BD40047B7DA0138DBCC39A7E66B445DC7A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,34 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 252811   (366279) от 03.11.2010
+###  Публикация: 1755138   (40362) от 14.10.2024
 
-Robert Miles - Organik (2001) [DTSCD][UP]<Trance, Instrumental>
+Myles Kennedy - The Art Of Letting Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_366279.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40362.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tsbol
-02. Separation
-03. Paths
-04. Wrong
-05. It's All Coming Back
-06. Pour Te Parler
-07. Trance Shapes
-08. Connections
-09. Release Me
-10. Improvisations Part 1(   Читать дальше...   )Жанр: Trance, InstrumentalПродолжительность: 01:03:52
+01. The Art Of Letting Go (4:37)
+02. Say What You Will (3:34)
+03. Mr. Downside (4:17)
+04. Miss You When You're Gone (4:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:22
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1CB2EEBEF24698820F9BBEA721F39CB5375B192B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,202 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328054   (367505) от 28.09.2019
+###  Публикация: 1755166   (40361) от 14.10.2024
 
-Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
+Robespierre - Rainy Wednesday (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367505.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sekai Wa Futari No Tameni
-02. Kitaguni No Aoi Sora
-03. Koi
-04. Nagisa No Senorina(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
+01. Tears (3:52)
+02. It Could've Been (4:26)
+03. Shot (3:16)
+04. Summernights (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327959   (367684) от 28.09.2019
-
-The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367684.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Need Some1 (2:43)
-A2. Light Up The Sky (3:20)
-A3. We Live Forever (3:43)
-B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass, Big BeatПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950683   (367881) от 27.10.2015
-
-Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Rock'n'Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can Can You Party
-02. Best Of British
-03. Still In Love
-04. Sounds Like Fun(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 01:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328046   (368012) от 28.09.2019
-
-Yujiro Mabuchi '68 All Stars - Attractive Tenor-Sax Mood Best 16 (1973) [FLAC 2.0|44,1/16|tracks +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watashi No Kare Wa Hidarikiki
-02. Hitorikko Amaekko
-03. Muneippai No Kanashimi
-04. Ai No Kurashi Dosei Jidai(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFCF68DFA330C20F90284DE40338B5615755663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328062   (368157) от 28.09.2019
-
-Teruo Yoda & Dreamy Mood Orchestra - The Enchanted (1967) [FLAC 2.0|44,1/16|tracks +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasbah No Onna
-02. Omoide No Koibito
-03. Koyubi No Omoide
-04. Shiritakunai No(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345B0C02C05BE67D1FDB3FD9EE5CDDBFDF3062D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254967   (370157) от 15.10.2018
-
-Modern Talking - The 1-st Album (1985) [FLAC 2.0 24/96|Lossless|tracks|Vinyl-Rip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370157.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. You're My Heart, You're My Soul (5.36)
-A2. You Can Win If You Want (3.55)
-A3. There's Too Much Blue In Missing You (5.30)
-A4. Diamonds Never Made A Lady (4.40)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EF9B7D2F0635157555C873D48345536816A334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176194   (371361) от 21.10.2017
-
-The Doors - The Singles (2017) 1973 [AC3 4.0 CD-DA|44.1/16|image+cue|BD-Audio] <rock, psychedelic rock, blues rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Do You Love (6:25)
-02. Soul Kitchen (3:34)
-03. Hello, I Love You (2:17)
-04. People Are Strange (2:13)(   Читать дальше...   )Жанр: psychedelic rockПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D304A65DACA89C3DB56CFED0732812A6B9963C8
+magnet:?xt=urn:btih:09837FF68837C8546751A48509A8BF30E3FF224C
 ```
 
 https://mybot314.ru/tekegram_catalog/

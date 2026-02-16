@@ -1,155 +1,22 @@
-###  Публикация: 1850243   (1054253) от 
+###  Публикация: 1818108   (2774) от 14.09.2025
 
-Alexander Rybak - Fairytales (2009) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll with the Wind [00:03:34]
-02. Fairytale [00:03:03]
-03. Dolphin [00:04:15]
-04. Kiss and Tell [00:03:21](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208987B9D52D14FABBF021276DED791715D94FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850240   (1054254) от 
-
-YT Downloader 10.1.8 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054254.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F764AB80AA39981F7EF2E4D277505F3D8BAC2321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850224   (1054255) от 
-
-В августе 44-го (2001) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 1944 года. Белоруссия уже освобождена, однако с её территории регулярно выходит в эфир группа лазутчиков, передавая врагам важную информацию о советских войсках. На поиски шпионов в район запеленгованной рации отправляется отряд во главе с офицером СМЕРШа.Производство: Россия, Беларусь / Министерство культуры Республики Беларусь, БеларусьфильмЖанр: военный, детектив, боевик, драма, историяРежиссер: Михаил ПташукАктеры: Евгений Миронов, Владислав Галкин, Юрий Колокольников, Беата Тышкевич, Алексей Петренко, Александр Феклистов, Рамаз Чхиквадзе, Александр Балуев, Ярослав Бойко, Анджей Печиньски и др.Субтитры: русскиеПродолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAB9BF803E20038D8DE2C37E6510C023318A12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849854   (1054256) от 
-
-Он наблюдает за тобой / He's Watching You (Black Spines) (2026) WEBRip [H.264/1080p] [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток, расследующий череду загадочных убийств в своём маленьком городке, находит коллекцию VHS-кассет, которые могут пролить свет на личность печально известного серийного убийцы.Производство: США / Palm Drive Productions, Amasia Entertainment, Palm Drive ProductionsЖанр: ужасы, триллерРежиссер: Джордон ФоссАктеры: Элизабет Ю, Кая Розенталь, Ванесса Рубио, Джанни ДеЧенцо, Кевин Портер, Ян Луис Кастельянос, Гэвин Дж. Коноп, Николь Элизабет Бергер, Тиана Ле. Гилберт Овуор, Брэндон Мелом, Кейси МиллсПеревод: Многоголосый профессиональный (MUZOBOZ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:32Реклама: присутствуют аудио и видео вставки рекламы, баннер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA6648340D2BC64D1A631A9FF27B48F1659F02C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850218   (1054257) от 
-
-Сайлент Хилл 2 / Silent Hill: Revelation (2012) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хизер терзается ночными кошмарами с одиннадцатилетнего возраста и вынуждена со своим отцом постоянно менять место жительства, скрываясь от таинственных сил. Накануне своего восемнадцатого дня рождения Хизер, вернувшись домой, обнаруживает, что её отец исчез. Единственное, что она нашла дома — нарисованный на стене оккультный символ с надписью «отправляйся в Сайлент (   Читать дальше...   )Производство: Канада, Франция, Япония / Anibrain Digital Technologies, KonamiЖанр: ужасы, триллер, детективРежиссер: Майкл Дж. БассеттАктеры: Аделаида Клеменс, Кит Харингтон, Дебора Кара Ангер, Мартин Донован, Малкольм МакДауэлл, Кэрри-Энн Мосс, Шон Бин, Рада Митчелл, Роберто Кампанелла, Эрин Питт и др.Перевод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255D807E78821ABCB4D62312E1D6DBFC9D8C2760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850235   (1054258) от 
-
-Растровый клипарт - Adobe Stock - Vintage Lambs & Lambaders Isolated Transparent #2 [PNG]
+Текстуры - Creative Market - 25 Plastic Wrap Textures - 4375957 [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054258.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-29 стоковых изображений с лампами из Adobe Stock. Оригинальные названия сохранены.Формат: PNGРазрешение файлов: 4128x1152 - 9977x5779
+25 текстур пластиковой упаковки.Формат: JPGРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48D4296A8D25C9F866E8B0BB504BC38A6AF5691F
+magnet:?xt=urn:btih:B34158355B98430DA48459C738E4F2837DCAA49B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850232   (1054259) от 
+###  Публикация: 1818081   (2773) от 14.09.2025
 
-Проекты - VideoHive - Camera Movement Transitions - 61545525 [AEP]
+Шрифты - Creative Market - Thorn & Tale - A Refined Serif Font - 291576352 [OTF, TTF]
 
->>Проекты
->>Элементы (проекты)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054259.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите свои видеопроекты на новый уровень с помощью шаблона Camera Movement Transitions — профессионально разработанного видеошаблона, созданного для получения потрясающих визуальных результатов с минимальными усилиями. Этот шаблон создан с учетом гибкости и простоты использования, что делает его подходящим для создателей любого уровня — будь вы создатель контента, (   Читать дальше...   )Формат: AEP
+Thorn & Tale — контрастный шрифт с засечками, созданный с учётом элегантности и выразительности. Этот шрифт, разработанный для брендинга класса люкс, редакционного дизайна, упаковки и эффектных типографических заявлений, сочетает в себе классическую изысканность и современную выразительность.Формат: OTF, TTFПоддержка кириллицы: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95D41584F96D583CE72644B08F5B72CF11680557
+magnet:?xt=urn:btih:4C744FF6224FE6A172608921C4B9D35C776CED98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850228   (1054260) от 
+###  Публикация: 1818112   (2772) от 14.09.2025
 
-Melissa Bonny - Cherry Red Apocalypse (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal>
+Various - Bat Head Soup - Tribute To Ozzy (2000) Japanese Edition, 2023, TOCP, Compilation [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054260.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm a Monster [00:03:15]
-02. Snake Bite [00:03:25]
-03. Devil On My Tongue [00:03:18]
-04. The Teeth Of My Thieves [00:03:56](   Читать дальше...   )Жанр: Alternative-MetalПродолжительность: 00:45:19
+01. Tim "Ripper" Owens, Yngwie Malmsteen, Tim Bogert, Tommy Aldridge, Derek Sherinian - Mr. Crowley
+02. Mark Slaughter, Brad Gillis, Gary Moon, Eric Singer, Paul Taylor - Over the Mountain
+03. Lemmy, Richie Kotzen, Tony Franklin, Vinnie Colaiuta - Desire
+04. Dee Snider, Doug Aldrich, Tony Levin, Jason Bonham - Crazy Train(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:54:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDCFB7F016419843FE5E3A35F5554AFBFDD242FB
+magnet:?xt=urn:btih:0B9BFC44A18767C697C2729A0163254722DAF8CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +79,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850225   (1054261) от 
+###  Публикация: 1818067   (2771) от 14.09.2025
 
-Роберт Хайнлайн | Вне всяких сомнений (2026) [MP3, ReadMic]
+Nightwish - Over The Hills And Far Away (2001) Japanese Edition, Reissue, 2022, Universal Music Group [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over The Hills And Far Away 5:04
+02. 10th Man Down 5:24
+03. Away 4:33
+04. Astral Romance (2001 Version) 5:22(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3293013EA970714AB3FA045F201A24C2F12E3BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818069   (2770) от 14.09.2025
+
+Пресеты - Will Khoury Photography - WKpresets - Heirloom Pack [LRTEMPLATE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор WKpresets Heirloom Pack вдохновлён семейными альбомами и отпечатками — фотографиями, которые вы передаёте следующему поколению и с помощью которых рассказываете удивительные истории.
+
+Набор Heirloom Pack создаёт ностальгический эффект редактирования с приглушёнными светлыми участками, слегка выцветшим чёрным и лёгкой зернистостью. Он создан, чтобы придать вашим (   Читать дальше...   )Формат: LRTEMPLATE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58582D1132679A3889B7CA3A939C9EB80544E9F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818038   (2769) от 14.09.2025
+
+Андрей Кивинов | Зона личной безопасности (Книга 3). Испытательный срок (2025) [MP3, Андрей Финагин]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054261.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ещё одна тайна раскрыта! Ничто не скроется от взгляда учёных, обладающих пытливым умом. Наконец-то можно выдохнуть и сказать: "Теперь-то мы знаем секрет голов истуканов с острова Пасхи!".Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:30:26
+Третья книга цикла «Зона личной безопасности» о буднях сотрудников правоохранительных органов. Детективная история, раскрывающая нюансы оперативной работы и сложности, с которыми сталкиваются стражи порядка.
+Новобранец отдела собственной безопасности полиции Роман Фокин проходит испытательный срок. Первое же дело ставит его перед серьезным выбором. Человек, спасший (   Читать дальше...   )Жанр: Детектив, боевикИздательство: Аудиокнига (АСТ)Продолжительность: 07:13:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6040811E230D18ADB0D324D29485531FD7C498E5
+magnet:?xt=urn:btih:4704CB85BEF808D3830C0F85980EA9948F10585F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,28 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850221   (1054262) от 
+###  Публикация: 1817999   (2768) от 14.09.2025
 
-VA - Winter Drive On FM Waves (2026) [MP3|320 Kbps] <Pop, Dance>
+Sophie Ellis-Bextor - Perimenopop (2025) [MP3|320 Kbps] <Pop>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054262.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ezra Jot - Bang O Bang (03:31)
- 002. Little Rainy - Be Closer (03:01)
- 003. Paul B.Ny - Clouds In My Coffee (02:05)
- 004. George Mars - Crown On (02:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:00:19
+01 - Relentless Love [4:04]
+02 - Vertigo [3:32]
+03 - Taste [2:51]
+04 - Stay On Me [3:08](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0764271979D9E17BEADF535E9402E2E3DB346AD0
+magnet:?xt=urn:btih:A0AD3325A65A3160E73232BD2067956C3BFCC174
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850216   (1054263) от 
+###  Публикация: 1818056   (2767) от 14.09.2025
 
-Fast Video Cutter Joiner 6.9.7.0 Portable by 7997 [Multi/Ru]
+Саидмурод Давлатов | Стать богатым может каждый. 12 шагов к обретению финансовой стабильности (2018) [MP3, Вадим Пугачев]
 
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054263.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский и другие
+Причины прослушать эту аудиокнигу:
+1. Разорвите замкнутый круг. Перестаньте быть заложником расходов — научитесь заставлять деньги работать на вас 24/7.
+2. Создайте финансовую подушку. Освойте систему, которая защитит семью даже при потере основного дохода.
+3. Победите инфляцию. Применяйте инвестиционные принципы, чтобы доходы росли быстрее цен.(   Читать дальше...   )Жанр: БизнесИздательство: БОМБОРАПродолжительность: 04:12:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C540D06C00A96D7D821A51B5A9B20110017B6470
+magnet:?xt=urn:btih:B3E32A9791772A6D8634129CC34FC7096ACDD053
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,25 +221,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850122   (1054264) от 
+###  Публикация: 1818123   (2766) от 14.09.2025
 
-Восемь / 8 (2025) WEBRip [H.264/1080p] [MVO]
+Натали - Яркий ритм осени (2025) [MP3|~245 Kbps (V0)] <Pop>
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054264.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Октавио и Адела рождаются в момент провозглашения Второй Испанской Республики. Их жизни будут пересекаться восемь раз, отражая в непростой любви пары бурную историю всей Испании.Производство: Испания / Latido Films, Eidan Produce, Bilbao Bizkaia Film Commission, Barbazul La Pelicula AIE, Diputación Foral de Bizkaia, Media Gameworks, Morena Films S.L., Radio Televisión Española (RTVE), Movistar+Жанр: драмаРежиссер: Хулио МедемАктеры: Хавьер Рей, Тамар Новас, Лорето Маулеон, Карла Диас, Мария Исаси, Альваро МортеПеревод: Многоголосый (Официальный)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:38
+01 - По любви [00:03:04]
+02 - Ветер с моря дул [00:03:45]
+03 - О, Боже, какой мужчина [00:03:24]
+04 - Будут танцы [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17F7A634E8AA2FD28C885C7AABF4BD6B6A40BA4E
+magnet:?xt=urn:btih:1E9FB600AFED4F3FE05D608E0DABF4595DBEE2B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,25 +250,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850211   (1054265) от 
+###  Публикация: 1818037   (2765) от 14.09.2025
 
-Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DLRip [H.264]
+Андрей Кивинов | Зона личной безопасности (Книга 2). Тревожная кнопка (2025) [MP3, Игорь Демидов]
 
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054265.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
+Сотрудница отдела собственной безопасности МВД Светлана Родионова внедряется для раскрытия резонансного убийства. Но что движет ею – долг или личный интерес, и к чему приведёт эта игра, где охота ведётся на оборотней в погонах?
+Вторая книга серии «Зона личной безопасности».
+Самое закрытое и самое непопулярное подразделение МВД – отдел собственной безопасности. Немудрено, (   Читать дальше...   )Жанр: Детектив, боевикИздательство: Аудиокнига (АСТ)Продолжительность: 08:29:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA5A5393B6103F36A43088DC855AA33C8AD5519E
+magnet:?xt=urn:btih:2DF906BF4366915BD3DCADE99A2F2384FB003CB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,25 +278,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850209   (1054266) от 
+###  Публикация: 1818044   (2764) от 14.09.2025
 
-Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DL [H.264/720p]
+КВН-2025. Высшая лига. Первый полуфинал (2025) WEBRip [H.264/720p]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Юмор (ТВ)
+>>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054266.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
+В первой полуфинальной игре Высшей лиги КВН 2025 года за выход в финал борются команды: «Евразия» (Челябинск); Сборная РУДН (РУДН им. Патриса Лумумбы, Москва); «Негоден» (СПбГЭТУ «ЛЭТИ», Санкт-Петербург).
+Конкурсы: Приветствие, Импровизация со звездой, Музыкальный номер, Биатлон на вылет, Домашнее задание.Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:49:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8830DADF7E622DAEA29E753EE8DC087FAB00212
+magnet:?xt=urn:btih:BB23727D85E7F1F5C75269464506FF5BE1C5FB75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,25 +305,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850208   (1054267) от 
+###  Публикация: 1818146   (2763) от 14.09.2025
 
-Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DL [H.264/1080p]
+Тайны ночного леса / Night in the Forest (2024) HDTVRip [H.264/720p] [VO]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Документалистика и Телепередачи
+>>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054267.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
+Фильм показывают, что происходит ночью в центральноевропейском лесу. И хотя с наступлением темноты он может показаться нам жутким, для его ночных обитателей он становится оживленным миром.Производство: Германия | NatursfilmЖанр: документальный, природаРежиссер: Клеменс Кек, Том ХоракПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:49:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52BA11D089E2B2DDB6C76B8E05BF59D59A546874
+magnet:?xt=urn:btih:4D227A1F238B1EC1A321022FD0F5F20AE446D8F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,28 +331,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850064   (1054268) от 
+###  Публикация: 1818144   (2762) от 14.09.2025
 
-Gregory Deckler, Rick de Groot, Melissa de Korte | The Definitive Guide to Power Query (M). Mastering complex data transformation with Power Query (2024) [PDF, EPUB] [EN]
+Дикий север Германии / Germany's Wild North (2023) HDTVRip [H.264/720p] [VO]
 
->>Компьютерная литература
->>
+>>Документалистика и Телепередачи
+>>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054268.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Learn how to use the Power Query M formula language and its functions effectively for better data modeling and impactful business intelligence reports.
-Key Features
-Get comprehensive coverage of fundamental and advanced Power Query concepts
-Gain hands-on experience with practical examples based on real-world problems(   Читать дальше...   )Жанр: Microsoft Excel Guides, Enterprise Applications, Data ProcessingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Вдали от известных пляжей Ваддензе и Балтийского моря лежат скрытые сокровища самой северной федеральной земли Германии, Шлезвиг-Гольштейн. Углубляясь в сельскохозяйственный центр, мы открываем для себя природные ландшафты, озера, леса и поместья, которые являются домом для невероятного биоразнообразия. От эффектных силуэтов благородных оленей, которые собираются (   Читать дальше...   )Производство: Германия | NDR Naturfilm, DoclightsЖанр: документальный, природаРежиссер: Уве АндерсПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:50:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8E971C9FB35A8FF269FD187DEB95FBF42EF7922
+magnet:?xt=urn:btih:58AACE9937D75D70DF81F4ABE01E5503B046FAA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +357,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850078   (1054269) от 
+###  Публикация: 1818053   (2761) от 14.09.2025
 
-Н. Комолова, А. Клименко | Программирование на VBA в Excel 2019 (2020) [PDF]
+Анита Клир | Вытащи подростка из комнаты (2025) [MP3, Наталья Пананкова]
 
->>Компьютерная литература
->>
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054269.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга научит самостоятельно создавать приложения для автоматизации работы в программе Microsoft Office Excel 2019 с использованием макросов и языка программирования Visual Basic for Applications (VBA). Приведена информация о новинках программы, а также сервисах Power по работе с данными. Даны теоретические сведения о программировании, элементах объектной модели Excel, (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+Книга научит выстраивать доверие и контакт с подростком, преодолевать трудности переходного возраста и решать проблемы общения. Будьте родителем, в котором нуждается ваш подросток. Подростки уединяются в своих комнатах по многим причинам: игры, социальные сети, низкая самооценка или просто стремление к независимости. Проблема в том, что если подросток не хочет с (   Читать дальше...   )Жанр: Психология, Книги для родителейИздательство: АСТПродолжительность: 06:11:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A19FEFF4886410EF021BAAE64FA366A79F232FD
+magnet:?xt=urn:btih:67386115575D7FC4A27BC745CC624F0ACF61682E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,27 +383,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850086   (1054270) от 
+###  Публикация: 1818047   (2760) от 14.09.2025
 
-Dawn Griffiths | Excel Cookbook. Recipes for Mastering Microsoft Excel (2024) [PDF, EPUB] [EN]
+Квартирник у Маргулиса. tAISh (13.06.2025) WEBRip [H.264/1080p]
 
->>Компьютерная литература
->>
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054270.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Filled with tips, tricks, and techniques, this easy-to-use book is the perfect resource. You'll find more than 350 recipes for over a dozen topics covering formulas, PivotTables, charts, Power Query, and more. Each recipe poses a particular problem and outlines a solution that you can put to use right away—without having to comb through tutorial pages.
-
-Whether you're (   Читать дальше...   )Жанр: Microsoft Excel Guides, Business Intelligence Tools, Spreadsheet BooksЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Автор-исполнитель и лидер группы tAISh - Таис Логвиненко. Девушка с раннего детства проявляла интерес к музыке и к 18 годам написала более 40 песен. Кроме того, она окончила высшее театральное училище имени Щепкина. Популярность певица приобрела после участия в телевизионном шоу талантов и знакомства с продюсером Леонидом Бурлаковым, который и создал группу. tAISH (   Читать дальше...   )00:00 ШАГАЛА
+05:42 Себе ТОЙ
+12:41 Глупости
+20:47 Свое Солнце(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Инди-попЯзык: РусскийПродолжительность: 01:07:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:577AABC8F56449D4B999EBB0B224C7AC6E25ED11
+magnet:?xt=urn:btih:147606E91C6555A244D94552985BE60718EB558D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,25 +412,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850087   (1054271) от 
+###  Публикация: 1818070   (2759) от 14.09.2025
 
-В.Ю. Арьков | Командная строка CMD. Учебное пособие (2021) [PDF]
+Иконки - UI8 - Icoonia - Transportation Icon Pack [FIG]
 
->>Компьютерная литература
->>
+>>Графика, Арт, Разное
+>>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054271.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изучая операционные системы, важно и понимать теорию, и уметь практически работать на компьютере. Функции любой операционной системы сводятся к понятию управления. Реализация этих функций — это выбор интерфейса пользователя: командная строка, файловый менеджер или оконная система. В курсе ОС мы рассматриваем все три вида интерфейса — практически, но с пониманием (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+Не тратьте время на создание иконок для вашего следующего дизайн-проекта. Мы создали современный и минималистичный набор из 76 иконок в 3 стилях для вашего проекта дизайна пользовательского интерфейса.Формат: FIG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67A002012015C22EC7D8C80F4D83D738B5F16885
+magnet:?xt=urn:btih:39CDA8D61994CDC945E288F8538E6872CAEE4CE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,25 +438,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850089   (1054272) от 
+###  Публикация: 1818030   (2758) от 14.09.2025
 
-Vikas Sukhija | PowerShell Fast Track. Hacks for Non-Coders. 2nd Edition (2025) [PDF] [EN]
+I See Stars - The Wheel (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative-Metal, Electronic>
 
->>Компьютерная литература
->>
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054272.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Create complex scripts in PowerShell and learn how to connect them to cloud services like Azure and Azure AD. This updated version of the book will help you learn PowerShell by providing small “cheat” snippets that you can combine to write efficient and effective scripts.Жанр: Microsoft Programming, Computer HackingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+01. Spin It [00:00:27]
+02. THE WHEEL [00:02:00]
+03. Eliminator [00:03:29]
+04. D4MAGE DONE [00:03:15](   Читать дальше...   )Жанр: Post-Hardcore, Alternative-Metal, ElectronicПродолжительность: 00:48:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9766ABB2681C26B5E440C98BC315D5DF4CB3176
+magnet:?xt=urn:btih:B2B579B07278B932BA5F46512A2563B41BA1FA2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,25 +467,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850091   (1054273) от 
+###  Публикация: 1818113   (2757) от 14.09.2025
 
-К. Скотт Проктор | Бюджетирование и финансовые расчеты с помощью Microsoft Excel (2013) [PDF]
+Not Enough Space - Weaponize Your Rage (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal, Electronic>
 
->>Компьютерная литература
->>
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054273.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга представляет собой практическое руководство по использованию мощного инструмента (Microsoft Excel) для выполнения любой сложной задачи, например, построения финансовой модели. Кратко и внятно рассказывается об использовании электронных таблиц в финансовом планировании и бизнес-расчётах. Несмотря на быструю смену версий электронных таблиц базовые функции, (   Читать дальше...   )Жанр: Компьютерная литература, Microsoft ExcelИздательство: СмартБукФормат: PDFКачество: Изначально электронное (ebook)
+01. Weaponize Your Rage [00:02:56]
+02. Devil Left Me On Read [00:02:38]
+03. New Age Cannibal [00:02:42]
+04. Waiting 4 U [00:03:01](   Читать дальше...   )Жанр: Metalcore, Alternative Metal, ElectronicПродолжительность: 00:34:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:888492F75AA326B63439B822C431CA4A19B12439
+magnet:?xt=urn:btih:0E81E5C372D7E59FF9EE2835B6328CD216E61429
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,27 +496,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850094   (1054274) от 
+###  Публикация: 1818060   (2756) от 14.09.2025
 
-Jack A. Hyman | Microsoft Power Platform For Dummies (2025) [PDF] [EN]
+The Bleary Eyed Bastards - Good Enough for Who It's For (2025) (2CD) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Компьютерная литература
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054274.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Build business intelligence with insight from a professional
-
-Microsoft Power Platform For Dummies covers the essentials you need to know to get started with Microsoft Power Platform, the suite of business intelligence applications designed to make your enterprise work smarter and more efficiently. You'll get a handle on managing and reporting data with Power BI, (   Читать дальше...   )Жанр: Business Intelligence Tools, Microsoft Office Guides, Microsoft ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+01.  Land of the Free (5:02)
+02.  The Other Side (4:37)
+03.  Two Blocks From Mercy (4:48)
+04.  Taking It All (5:41)(   Читать дальше...   )Жанр: Blues
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05D49B95C58DC7671BB642E9A3840E585763408B
+magnet:?xt=urn:btih:06662D7A6C08E0B85BB7A9DC0061E10FE46E923C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,26 +525,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850093   (1054275) от 
+###  Публикация: 1818059   (2755) от 14.09.2025
 
-Alessandro Grimaldi | Advanced interactive interfaces with Access. Building Interactive Interfaces with VBA (2024) [PDF, EPUB] [EN]
+The 251s - From the Five (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Компьютерная литература
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054275.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Explore and learn advanced techniques for working with graphical, interactive interfaces that can be built in Access.
-This book starts with best practices and tips to write code using VBA, and covers how to implement them in a real-world scenario. You will learn how to create and use VBA classes. An introduction to the binary code and the "bit vector" technique (   Читать дальше...   )Жанр: Microsoft VBA, Microsoft ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+01.  Alright, OK, You Win (Cover) (3:22)
+02.  Look Whatcha Done (Cover) (2:52)
+03.  Sloppy Drunk (4:43)
+04.  Party Girl (Cover) (4:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F975C6C919F08B75D274DE2206FCF0C3F17C0A63
+magnet:?xt=urn:btih:974F66872ABE1225F1C25FEE77FFCD2ECCA668B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,26 +554,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850092   (1054276) от 
+###  Публикация: 1818058   (2754) от 14.09.2025
 
-Owen Heaume | Getting Started with Pester 5. A Beginner's Guide (2024) [PDF, EPUB] [EN]
+SirJoe Polito - Black & White (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Компьютерная литература
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054276.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Embark on a transformative journey into the world of Pester and elevate your PowerShell scripting to new heights of robustness, reliability, and efficiency. This comprehensive beginner's guide provides a hands-on approach to PowerShell testing using Pester, empowering you to enhance your code quality with confidence.
-The book starts with an introduction to Pester, (   Читать дальше...   )Жанр: Microsoft C & C++ Windows Programming, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+01.  Happy New Year (4:47)
+02.  Pacific Coast Highway (3:49)
+03.  4 + 20 (5:01)
+04.  Lay You Down (5:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DE324CDB2C9097FD2A13F92DF841B49AE0DD254
+magnet:?xt=urn:btih:9DE1B73DA6D3EC61BE510301DF32B11A19F31ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,28 +583,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850095   (1054277) от 
+###  Публикация: 1818089   (2753) от 14.09.2025
 
-Steven Sanderson, David Kun | Extending Excel with Python and R. Unlock the potential of analytics languages for advanced data manipulation and visualization (2024) [PDF, EPUB] [EN]
+The Name Droppers - Cool Blue Shoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Компьютерная литература
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054277.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Seamlessly integrate the Python and R programming languages with spreadsheet-based data analysis to maximize productivity
-
-Book Description
-– Extending Excel with Python and R is a game changer resource written by experts Steven Sanderson, the author of the healthyverse suite of R packages, and David Kun, co-founder of Functional Analytics.(   Читать дальше...   )Жанр: Data Modeling & Design, Data Processing, Computer ScienceЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+01.  Killing Floor (3:13)
+02.  Cool Blue Shoes (3:15)
+03.  Be Alright (3:18)
+04.  Keep Pushin (3:18)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F40A3C3FA44C75DBC6BA2E4368E727740C3C46A
+magnet:?xt=urn:btih:0C0FEDC608791DFC1031F15F4251A63A61A0E463
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,25 +612,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850096   (1054278) от 
+###  Публикация: 1818106   (2752) от 14.09.2025
 
-С.Н. Никифоров | Прикладное программирование. Учебное пособие (2021) [PDF]
+Crucible - Hail To The Force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Speed Metal, Heavy Metal>
 
->>Компьютерная литература
->>
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054278.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебное пособие предназначено для помощи студентам при выполнении лабораторных работ в среде Excel и VBA. Комментируются некоторые особенности программирования, приводятся и поясняются варианты программ. Предназначено для студентов всех специальностей.Жанр: Компьютерная литература, ExcelИздательство: ЛаньФормат: PDFКачество: Изначально электронное (ebook)
+01. Deathdealer [00:02:49]
+02. Embrace Of Steele [00:03:27]
+03. Redwing [00:05:11]
+04. Far Beyond The Grave [00:04:39](   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:37:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:734600A2D00DFE6D18101047112A18F4D1D2F1A1
+magnet:?xt=urn:btih:5901A359B1AB3F06AE45C9A804219DD085DFBA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818165   (2751) от 14.09.2025
+
+MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Гонка (14.09.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2751.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 сентября 2025 воскресенье 15:00 МСК этап 16. Арена: трасса Мизано Марко Симончелли. Гран-при Сан-Марино. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E873754920F72AFA6E3DB1CF564D82B4A7962579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818063   (2750) от 14.09.2025
+
+The Charlie Daniels Band - Country Stars N' Stripes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Country Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Star Spangled Banner (1:48)
+02.  In America (3:19)
+03.  This Ain't No Rag, It's A Flag (3:31)
+04.  The Intimidator (3:11)(   Читать дальше...   )Жанр: Blues Rock, Country RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641E4877A900190C3B247229336AC913ED1F73F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818057   (2749) от 14.09.2025
+
+Ripoff Raskolnikov Band - Another Seven (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Last Sunny Day (5:25)
+02.  Ain't No Use (4:20)
+03.  Corridor (3:52)
+04.  Down At The Red Rocks Cafe (5:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11FFB3C43C6C6859C14FC8BF6D2E11ED7F3A906
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,54 @@
-###  Публикация: 986481   (931083) от 14.02.2016
+###  Публикация: 1728562   (108342) от 07.06.2024
 
-Jason Parker Quartet - Homegrown (2014) [FLAC|Lossless|WEB-DL|tracks] <Hard Bop, Bebop>
+DarWin - Five Steps On The Sun (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Police (3:53)
+02. Inside This Zoo (5:23)
+03. Be That Man (5:18)
+04. One Step on the Sun (1:32)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69EC687915CD5476C92255D91ABA6B1E1B72869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728504   (108341) от 07.06.2024
+
+Louis Armstrong - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz, Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931083.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Snickerdoodle Fritz 05:04
-2. One Perfect Rose 04:22
-3. Little Frances 05:25
-4. You Know You Wanna 06:50(   Читать дальше...   )Жанр: Hard Bop, BebopПродолжительность: 00:59:55
+01. Mop Mop [5:18]
+02. Blues [2:52]
+03. Esquire Bounce [1:58]
+04. Basin Street Blues [3:56](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, SwingПродолжительность: 01:10:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEF8D3A6D0684A3EF7FA51281291F1550B1EF8C4
+magnet:?xt=urn:btih:E79B3129F4B3419714352FBBD2F10F610E8C809F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986311   (931084) от 14.02.2016
+###  Публикация: 1728270   (108340) от 07.06.2024
 
-Футбол. Чемпионат Испании 2015-2016. 24 тур. Реал - Атлетик. (13.02.2016) HDTVRip [H.264/720p-LQ]
+Jamie Lockhart - Ship Fools (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931084.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108340.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 февраля 2016, суббота. 18:00 МСК
-24-й тур
-
-Стадион: Сантьяго Бернабеу (Мадрид, Испания) , 77 364 зрителя (91 % при вместимости 85 454)(   Читать дальше...   )Телекомпания: Футбол 2 HDЖанр: СпортПродолжительность: 01:42:12
+01. Ship of fools (5:19)
+02. Devils mistress (5:26)
+03. Getting rougher (4:34)
+04. Mary Brown (5:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70981C137AB75E07E3DAFFF13B95431CCF90BE5F
+magnet:?xt=urn:btih:443572D409FDF532C653939CED8CC4DE40D264B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986322   (931087) от 14.02.2016
+###  Публикация: 1728451   (108339) от 07.06.2024
 
-Футбол. Чемпионат Англии 2015-2016. 26 тур. Борнмут - Сток Сити. (13.02.2016) HDTVRip [H.264/720p-LQ]
+VA - Armin van Buuren - A State Of Trance 1176 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931087.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108339.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 февраля 2016, суббота. 18:00 МСК
-26-й тур
-
-Стадион: Виталити - Дин Корт (Борнмут, Англия) , 10 863 зрителя (93 % при вместимости 11 700)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 01:54:57
+01. Ilan Bluestone - Echoes Of Courage
+02. Krevix & Hadriani - Your Life (Future Favorite)
+03. Matt Fax - Frost (Progressive Pick)
+04. Cubicore - Glow(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64DD19BCA3F5E80CC5374D463FAA117366BCA02C
+magnet:?xt=urn:btih:C4DF62925E596520865B1D13E3D79897B057A8AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986360   (931089) от 14.02.2016
+###  Публикация: 1728407   (108338) от 07.06.2024
 
-Футбол. Чемпионат Италии 2015-2016. 25 тур. Кьево - Сассуоло. (13.02.2016) HDTVRip [H.264/720p-LQ]
+The Iron Bees - РЖАВЫЙ ТРОМБОН (2024) [MP3|320 Kbps] <Ska, Punk>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931089.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 февраля 2016, суббота. 20:00 МСК
-25-й тур
-
-Стадион: Марк-Антонио Бентегоди (Верона, Италия) , вместимость: 39211(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:44:42
+1. Парнишка молодой
+2. вздрынч
+3. Окурок на глазах
+4. Заводская(   Читать дальше...   )Жанр: Ska, PunkПродолжительность: 00:27:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44409B6594144920C1977CEB6BBF090332B6FA58
+magnet:?xt=urn:btih:12EC39C4556DCDC4BC5B0BD6E2ED4EE390CD71B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986457   (931090) от 14.02.2016
+###  Публикация: 1728266   (108337) от 07.06.2024
 
-Футбол. Чемпионат Испании 2015-2016. 24 тур. Депортиво - Бетис. (13.02.2016) HDTVRip [H.264/720p-LQ]
+Ian Hunter - Defiance Part 2: Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Classic Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931090.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-14 февраля 2016, воскресенье. 00:05 МСК
-24-й тур
-
-Стадион: Риасор (Ла-Корунья, Испания) , 17 184 зрителя (50 % при вместимости 34 600)(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:39:17
+01. People (5:01)
+02. Fiction (5:39)
+03. The 3rd Rail (3:19)
+04. This Ain't Rock And Roll (3:47)(   Читать дальше...   )Жанр: Blues, Classic RockПродолжительность: 00:41:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FD5A3B011B99E8A91BE32059AB93F8B4546B9EC
+magnet:?xt=urn:btih:999081AAFEEACA4A35950DAE7F860C877EC3A1DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986308   (931093) от 14.02.2016
+###  Публикация: 1728364   (108336) от 07.06.2024
 
-Футбол. Чемпионат Германии 2015-2016. 21 тур. Боруссия (Дортмунд) - Ганновер 96. (13.02.2016) HDTVRip [H.264/720p-LQ]
+VA - DJ Hits 35 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931093.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 февраля 2016, суббота. 17:30 МСК
-21-й тур
-
-Стадион: Сигнал Идуна Парк (Дортмунд, Германия) , 80 900 зрителей (99 % при вместимости 81 359)(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:44:18
+01. Tokyo Ghetto Pussy - Everybody On The Floor (Pump It) (Pump It - Remix)
+02. One Love Feat. Marky Mark - That's The Way I Like It (Club Mix)
+03. Mr. President - Gonna Get Along (Without Ya Now) (Extended)
+04. Joe Samba Jr. feat. African Vibes - I Like Summer (Radio Remix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EE3D6E38C80266A17F4D2FE7256C8BF5F8392BD
+magnet:?xt=urn:btih:4DAACD6E1016C4747A9335A21C1F649C08AFA4F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986356   (931094) от 14.02.2016
+###  Публикация: 1728539   (108335) от 07.06.2024
 
-Футбол. Чемпионат Англии 2015-2016. 26 тур. Эвертон - Вест Бромвич. (13.02.2016) HDTVRip [H.264/720p-LQ] [HU]
+Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931094.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 февраля 2016, суббота. 18:00 МСК
-26-й тур
-
-Стадион: Гудисон Парк (Ливерпуль, Англия) , 38 103 зрителя (95 % при вместимости 40 157)(   Читать дальше...   )Телекомпания: Digi Sport 1 HDЖанр: СпортЯзык озвучки: ВенгерскийПродолжительность: 01:47:40
+Барабанщик Кармайн Эппис (Carmine Appice) объявил о выходе нового альбома культовой группы 70-х Cactus. Альбом “Temple of Blues - Influences & Friends” - это продолжение диска "Tightrope" 2021 года, в котором приняли участие множество звезд, включая Джо Бонамассу, Ди Снайдера, Пэта Трэверса, Уоррена Хейнса, Вернона Рейда, Стива Стивенса, Теда Ньюджента, (   Читать дальше...   )01. Parchman Farm (feat. Joe Bonamassa & Billy Sheehan) (03:06)
+02. Bro. Bill (feat. Randy Jackson, Randy Pratt, & Bob Daisley) (04:50)
+03. Guiltless Glider (feat. Bumblefoot & Phil Soussan) (06:12)
+04. Evil (feat. Dee Snider & dUg Pinnick) (03:17)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:16:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C29155B302DAB41F232989D35F102E0138C6E0C
+magnet:?xt=urn:btih:960B48E91032820ED5AD240D9EC9396B6A1D3720
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986431   (931095) от 14.02.2016
+###  Публикация: 1728212   (108334) от 07.06.2024
 
-Футбол. Чемпионат Испании 2015-2016. 24 тур. Валенсия - Эспаньол. (13.02.2016) HDTVRip [H.264/720p-LQ]
+Black Cat Bones - Troublemaker (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931095.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 февраля 2016, суббота. 22:30 МСК
-24-й тур
-
-Стадион: Месталья (Валенсия, Испания) , 34 689 зрителей (63 % при вместимости 55 000)(   Читать дальше...   )Телекомпания: Футбол 2 HDЖанр: СпортПродолжительность: 01:44:12
+01. Bad Enough (4:07)
+02. Jekyll And Hyde Woman (4:23)
+03. Troublemaker (3:29)
+04. Junkie (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4CF8352F7A665668A2168F4BFDF8D0AEE07F54B
+magnet:?xt=urn:btih:7AF9693F4A25EC4C08C4564702006AF5C61F9BE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986441   (931096) от 14.02.2016
+###  Публикация: 1728216   (108333) от 07.06.2024
 
-Футбол. Чемпионат Франции 2015-2016. 26 тур. ПСЖ - Лилль (13.02.2016) HDTVRip [H.264/720p-LQ] [HU]
+Blue Deal - Can't Kill Me Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931096.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 февраля 2016, суббота. 19:00 МСК
-26-й тур
-
-Стадион: Парк де Пренс (Париж, Франция) , 45 391 зритель (93 % при вместимости 48 713)(   Читать дальше...   )Телекомпания: Digi Sport 2 HDЖанр: СпортЯзык озвучки: ВенгерскийПродолжительность: 01:42:43
+01. Short Time Runner (2:31)
+02. Hard Times (3:27)
+03. Got 2 Go (4:08)
+04. Favorite Mistake (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD975277A7F11A992B5117D121EF0162D86CE5B3
+magnet:?xt=urn:btih:31CC75A5C3614E8193B4838DBB187DCFE5702CB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 754873   (931105) от 08.02.2014
+###  Публикация: 1728352   (108332) от 07.06.2024
 
-Ромео и Джульетта / Romeo and Juliet (2013) BDRip [1080p]
+VA - DJ Hits 34 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931105.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Верона. Эпоха Раннего Возрождения. Юноша и девушка из враждующих семей влюбляются друг в друга. Рок не дает им быть вместе. Лишь смерть на пике запретной страсти помогает Ромео и Джульетте спасти свою любовь.Производство: Великобритания, Италия, ШвейцарияЖанр: Драма, МелодрамаРежиссер: Карло КарлейАктеры: Дуглас Бут, Хейли Стайнфелд, Дэмиэн Льюис, Коди Смит-МакФи, Эд Вествик, Пол Джаматти, Томас Арана, Наташа МакЭлхоун, Стеллан Скарсгард, Лесли МэнвиллПеревод: Дублированный | ЛицензияСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:58:32
+01. Olli's Club - It's Allright (Euro Radio Edit)
+02. Mata Hari - Spy In The Name Of Love (Spy Remix)
+03. Sultans of Dance - Move On Your Body (Radio Edit)
+04. Freak Brothers - Funky Feeling (Funky Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:59:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFE6471F448030171F63D314826B6C06B9C43268
+magnet:?xt=urn:btih:9E60773A5B7C2F2CE0113069B8171AA2F346CE17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,25 +317,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 754808   (931110) от 08.02.2014
+###  Публикация: 1728511   (108331) от 07.06.2024
 
-Иван Царевич и Серый Волк 2 (2013) Blu-Ray 3D [1080p] [3D/2D]
+Александр Пушкин | Сборник сказок для детей (2012) [MP3, Альберт Филозов и др.]
 
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931110.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Тридевятом царстве, где живут наши герои — тишь, да благодать. Иван женился на Василисе, и «жили они долго и счастливо», да не тут-то было. Иван целыми днями пропадает с Волком на службе — укрепляет рубежи и оборонную мощь, мечтает перевести стрелки часов на семь часов назад, чтобы меньше спать, и больше работать. А Василисе — скучно, как всем девушкам, ей хочется (   Читать дальше...   )Производство: Россия / Кинокомпания CTBЖанр: Мультфильм, приключения, семейный, фэнтезиРежиссер: Владимир ТоропчинАктеры: Никита Ефремов, Татьяна Бунина, Иван Охлобыстин, Михаил Боярский, Ирина Рахманова, Александр БоярскийПеревод: Не требуется (Русский язык)Субтитры: ОтсутствуютПродолжительность: 01:12:41
+Серия/Цикл: Театр одного актёра. Сказки для детей.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+Написанные в народном духе и стихотворной форме, сказки А.С.Пушкина по сей день остаются первыми произведениями детей, с которых начинается (   Читать дальше...   )Жанр: Русская литература для детей, классика, поэма, сказкаИздательство: ООО «АрМир»Продолжительность: 04:11:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CE10C53792C40FEDFDBC2363A077F88380BC00C
+magnet:?xt=urn:btih:E43525EF2ECE65B24CDC023B645552368A78FFCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,25 +345,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 754884   (931111) от 08.02.2014
+###  Публикация: 1728522   (108330) от 07.06.2024
 
-Друзья друзей (2013) Blu-Ray [1080p]
+Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC|Lossless|tracks] <Rock, Blues>
 
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931111.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В канун Нового года пересекаются истории промоутера, впервые оставшегося дома с пятилетним ребенком, трех музыкантов из филармонии, решившихся на ограбление сурового бизнесмена, на домашнюю вечеринку к которому их отправил тот самый промоутер, и бедного студента, пригласившего на первое свидание в дорогой ресторан дочку того самого сурового бизнесмена. В результате, (   Читать дальше...   )Производство: Россия / Enjoy MoviesЖанр: КомедияРежиссер: Артем Аксененко, Араик ОганесянАктеры: Нюша Шурочкина, Гарик Харламов, Юрий Стоянов, Николай Наумов, Александр Ильин мл., Тимур Батрутдинов, Александр Молочников, Андрей Гайдулян, Олег Верещагин, Александр БулатовПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:30:27
+Барабанщик Кармайн Эппис (Carmine Appice) объявил о выходе нового альбома культовой группы 70-х Cactus. Альбом “Temple of Blues - Influences & Friends” - это продолжение диска "Tightrope" 2021 года, в котором приняли участие множество звезд, включая Джо Бонамассу, Ди Снайдера, Пэта Трэверса, Уоррена Хейнса, Вернона Рейда, Стива Стивенса, Теда Ньюджента, (   Читать дальше...   )01. Parchman Farm (feat. Joe Bonamassa & Billy Sheehan) (03:06)
+02. Bro. Bill (feat. Randy Jackson, Randy Pratt, & Bob Daisley) (04:50)
+03. Guiltless Glider (feat. Bumblefoot & Phil Soussan) (06:12)
+04. Evil (feat. Dee Snider & dUg Pinnick) (03:17)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:16:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CB9082C61B0F41FBC9F93CB2F7CE3EA802D7237
+magnet:?xt=urn:btih:1A7F6615CA4DF7060D000B4253CC811A2FBECA90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +374,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 754527   (931117) от 08.02.2014
+###  Публикация: 1728437   (108329) от 07.06.2024
 
-Придурки из Хаззарда / The Dukes of Hazzard. [UNRATED] (2005) HDRip [720p]
+VA - The Deep Collective - Deep Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Organic House, Downtempo>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931117.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие сюжета разворачивается в наши дни и закручено вокруг приключений закадычных двоюродных братьев Бо и Люка Дьюков, которым благодаря своей неотразимой кузине Дэйзи и контрабандисту-самогонщику дяде Джессу удается спасти семейную ферму от полного уничтожения коррумпированным комиссаром округа Хаззард Боссом Хоггом. Вступив в противоборство с местными властями, (   Читать дальше...   )Жанр: Боевик, Комедия, ПриключенияРежиссер: Джей ЧандрашекхарАктеры: Джонни Ноксвиль, Шонн Уильям Скотт, Элис Гречин, Стив Лемм, Майкл Уэстон, Митч Брасвелл, Майкл Руф, Джессика Симпсон, Расти Теннант, Долан Уилсон, Джеймс Родэй, Хизер Сайрус Хемменс, Дэвид Лейтч, А.Дж. Фойт IV, М. К. Гейни, Берт Рейнолдс, Дэвид Кокнер, Уилли Нельсон, Джек Полик, Линда Картер, Джим Коуди Уильямс, Кевин Хеффернан, Тамми Арендер, Артист В. Робинсон, (   Читать дальше...   )Перевод: Двуголосый закадровыйСубтитры: НетПродолжительность: 01:46:56
+01. Claus Pieper - Music Is My Love (8:04)
+02. Darles Flow - Going Home (6:38)
+03. Ivory Coats - Living the Dream (5:44)
+04. Gift of Africa - Ecstasy (6:12)(   Читать дальше...   )Жанр: House, Organic House, DowntempoПродолжительность: 01:29:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:365E170229B5CB754A65A96823F5E1F949741298
+magnet:?xt=urn:btih:C1BB732AC72B60BA2B14CE031BAB26DFAA734F6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,28 +403,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986434   (931118) от 14.02.2016
+###  Публикация: 1728262   (108328) от 07.06.2024
 
-Футбол. Чемпионат Франции 2015-2016. 26 тур. Генгам - Бордо (13.02.2016) HDTVRip [H.264/720p-LQ]
+Hammerhead Blues - After The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931118.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 февраля 2016, суббота. 22:00 МСК
-26-й тур
-
-Стадион: Стад дю Рудуру (Генгам, Франция) , 13 177 зрителей (73 % при вместимости 18 126)(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:44:49
+01. Black Abyss (5:07)
+02. Around the Sun (5:03)
+03. Windmill's Kiss (4:31)
+04. Shades of Blue (3:35)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:58:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6F9E79D816B46525A9943A8325F2C9CE6ABBBA3
+magnet:?xt=urn:btih:0FFA882EB120E71AA87679BC22D91EC68BEEAAEE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,28 +432,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986454   (931120) от 14.02.2016
+###  Публикация: 1728502   (108327) от 07.06.2024
 
-Футбол. Чемпионат Италии 2015-2016. 25 тур. Эмполи - Фрозиноне. (13.02.2016) HDTVRip [H.264/720p-LQ] [HU]
+Billy Taylor - 1945 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931120.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 февраля 2016, суббота. 17:00 МСК
-25-й тур
-
-Стадион: Карло Кастеллани (Эмполи, Италия) , вместимость: 19847(   Читать дальше...   )Телекомпания: Digi Sport 2 HDЖанр: СпортЯзык озвучки: ВенгерскийПродолжительность: 01:42:26
+01. Monk's Mood (Mad Monk) [2:39]
+02. Solace [2:35]
+03. Night and Day [2:43]
+04. Alexander's Ragtime Band [2:46](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:02:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E6F8B40CF87F9705B5B98DABD85301E4A4E6859
+magnet:?xt=urn:btih:D95F59CA3EA78F4ED6012023E6F05C549E9F053E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,28 +461,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986428   (931122) от 14.02.2016
+###  Публикация: 1728448   (108326) от 07.06.2024
 
-Футбол. Чемпионат Испании 2015-2016. 24 тур. Вильярреал - Малага. (13.02.2016) HDTVRip [H.264/720p-LQ]
+Half Heard Voices - Moon Burial (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931122.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 февраля 2016, суббота. 20:15 МСК
-24-й тур
-
-Стадион: Эль-Мадригал (Вильярреал, Испания) , 17 142 зрителя (69 % при вместимости 25 000)(   Читать дальше...   )Телекомпания: Футбол 2 HDЖанр: СпортПродолжительность: 01:43:01
+01. Sharp and Constant (2:06)
+02. Earning Your Evil (3:50)
+03. Familiar Ghosts (5:18)
+04. The Teeth I Remember (3:21)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BCB08CCF961531805F97725E4BB357EFDE5B019
+magnet:?xt=urn:btih:FC41167E99FE02AD389460DAD3CD3262B599311A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,25 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 754776   (931126) от 08.02.2014
+###  Публикация: 1728507   (108325) от 07.06.2024
 
-Векторный клипарт - Красочные неоновые рамки / Colorful Neon Frames [AI,EPS]
+Sonny Stitt - 1946 – 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931126.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красочные неоновые рамкиФормат: AI,EPS и превью в JPG
+01. Be Bop in Pastel (Bouncing with Bud) [2:58]
+02. Fools Fancy (Wail) [2:35]
+03. Bombay [2:55]
+04. Ray's Idea [2:47](   Читать дальше...   )Жанр: BopПродолжительность: 01:03:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:383CEB065FEB0C75FBB611D16A576F92F7304A26
+magnet:?xt=urn:btih:B5DB1E451D335E407DBE883A330B2FDBBDB90168
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,25 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 754537   (931133) от 08.02.2014
+###  Публикация: 1728523   (108324) от 07.06.2024
 
-Растровый клипарт - Анатомия человека,органы,вирусы / Human anatomy,viruses and internal [JPEG]
+Darko Us - Starfire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <progressive metalcore, deathcore>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931133.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Анатомия человека и всякие страшностиФормат: JPEGРазрешение файлов: 2700х2600-3300х3200
+01. Starfire (1:14)
+02. Distant World (feat. Storm Strope (ex-The Last Ten Seconds of Life)) (4:27)
+03. Death Charge (feat. Marc Zelli of Paleface Swiss) (3:33)
+04. 5D (3:57)(   Читать дальше...   )Жанр: progressive metalcore, deathcoreПродолжительность: 01:11:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CC70E8CBFE468CE3F686B10DDD9275B475E9910
+magnet:?xt=urn:btih:45F17E82DAEBDD07EC6FD4CA406145485DC5A471
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,25 +548,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 754901   (931139) от 08.02.2014
+###  Публикация: 1728512   (108323) от 07.06.2024
 
-Библия / The Bible  (2013) WEB-DLRip (Сезон 1, Серии 1-10 из 10) [ТВ3]
+Jack McDuff - Legends of Acid Jazz: Brother Jack (1960, 1961) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
 
->>Зарубежные сериалы
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931139.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Истории о Ноевом ковчеге, исходе из Египта под предводительством Моисея, рождении, смерти и воскресении Иисуса. Сериал состоит из 10 ключевых повествований, начиная от книги «Бытие» и заканчивая книгой «Откровение».Жанр: Драма, историческийРежиссер: Криспин РисАктеры: Кит Дэвид, Диого Моргадо, Дауд Шах, Пол Брайтвелл, Рома Дауни, Грег Хикс, Себастьян Кнапп, Эмбер Роуз Рева, Адриан Шиллер и др.Перевод: Дублированный - Студия «Зон Вижн» по заказу ТВ3Формат: AVIПродолжительность: ~00:45:00 серия
+01. Brother Jack [4:04]
+02. Mr. Wonderful [3:57]
+03. Noon Train [5:56]
+04. Drowsy [3:42](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:18:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:837DC7473B966C13DBEFEFE53E765E5B367C2D26
+magnet:?xt=urn:btih:A953044CA44A2592EC3424C3B91BAAA7D0189145
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,26 +577,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 754751   (931140) от 08.02.2014
+###  Публикация: 1728267   (108322) от 07.06.2024
 
-Ю Несбё | Харри Холе (Книга 8). Леопард (2013) [MP3, Ирина Ерисанова]
+Jack Hadley - The St. Louis Sessions, Vol. II (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931140.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роман знаменитого норвежского писателя Ю Несбе, чьи произведения переведены более чем на сорок языков, среди его наград премия Датской академии детектива, премия "Книга года".
-В Осло обнаружены трупы двух молодых женщин, умерщвленных с помощью неизвестного орудия. Безжалостный убийца подкрадывается к своим жертвам бесшумно, как леопард, отнимая у них жизнь (   Читать дальше...   )Жанр: Детективный романПеревод: с норвежского Татьяна АрроПродолжительность: 24:55:50
+01. The Blues Made Me Strong Again (4:21)
+02. Afraid to Love (6:17)
+03. Always Enough Blues (6:05)
+04. Let's Say It's Over (5:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BED7FDCF9408063B187FD53990D427C7C27B959
+magnet:?xt=urn:btih:C66E8E1D4A95AA856954E9CFE3DD08AC22770792
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,25 +606,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561198   (931144) от 13.03.2013
+###  Публикация: 1728222   (108321) от 07.06.2024
 
-Ходячие Мертвецы / The Walking Dead [Сезон 3 Серии 13 из 16] (2012) WEB-DLRip  NovaFilm (Обновляемая)
+Dave Williams - Open to Persuasion (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>3
->>4
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931144.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вирус превратил жителей Земли в зомби. Небольшая группа выживших изо дня в день борется за существование в новом, враждебном мире. Под предводительством бывшего полицейского Рика они ищут безопасное для жизни место. Но не стоит заблуждаться — зомби отнюдь не самое страшное, что ждёт наших героев. Основная опасность — другие оставшиеся в живых...Жанр: Драма, Ужасы, ФантастикаРежиссер: Эрнест Р. Дикерсон, Гвинет Хордер-ПэйтонАктеры: Эндрю Линкольн, Джон Бернтал, Сара Уэйн Кэллис, Лори Холден, Джефри ДеМанн, Стивен Юн, Чендлер Риггз, Айрон Э. Синглтон, Норман Ридус, Мелисса Сюзанн МакБрайдПеревод: Многоголосый закадровый, профессиональныйПродолжительность: ~00:43:00 серия
+01. Crushed (3:32)
+02. Full (4:18)
+03. It Was Impossible (5:45)
+04. Love on the Road (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:12
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:96F39466186BD4C483FC6C7545F11FC3E3641D53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,25 +635,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 547793   (931147) от 13.03.2013
+###  Публикация: 1728432   (108320) от 07.06.2024
 
-Сумерки.Сага: Квадрология / Twilight. Saga: Quadrology (2008-2012) BDRip [H.264]
+Reverend Hound - Deal In Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 
->>След.
->>Зарубежное кино (коллекции / *логии)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931147.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Белла, став вампиром, постепенно свыкается со своей новой природой. В этом ей помогают Эдвард и остальные члены семьи Калленов. К тому же теперь у Беллы есть дочь Ренесми и вечность впереди. Джейкоб, запечатленный с Ренесми, становится для девочки другом и наставником. Ненадолго для героев наступают спокойные, счастливые дни. Все заканчивается, когда вести о Ренесми (   Читать дальше...   )Производство: СШАЖанр: фэнтези, драма, мелодрама, приключенияРежиссер: Билл КондонАктеры: Кристен Стюарт, Роберт Паттинсон, Тэйлор Лотнер, Питер Фачинелли, Элизабет Ризер, Эшли Грин, Джексон Рэтбоун, Келлан Латс, Никки Рид, Билли БёркПеревод: ДубляжПродолжительность: 01:55:12
+1. The Night
+2. Hounds Of The Sea
+3. Days Of Wrath
+4. Glory(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE275D78257CADA1CCE0176BF05093ADA9BC433E
+magnet:?xt=urn:btih:6AD8B409CFEEA965B83330E02D8734B70F9E9E35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,25 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 627403   (931149) от 13.03.2013
+###  Публикация: 1728210   (108319) от 07.06.2024
 
-Муви 43 / Movie 43 (2013) BDRip [H.264]
+Bane Gluvakov - Awake (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>3
->>4
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931149.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-25 cуперзвезд первой величины — в комедийном проекте, который состоит из двух десятков мини-новелл с нескончаемым потоком шуток, гэгов, острот и пародий, о страстях и страстишках человеческих.Производство: СШАЖанр: КомедияРежиссер: Стивен Брилл, Питер Фаррелли, Боб ОденкиркАктеры: Холли Берри, Джерард Батлер, Анна Фэрис, Хью Джекман, Джонни Ноксвил, Кристофер Минц-Плассе, Шонн Уильям Скотт, Эмма СтоунПеревод: Профессиональный (дублированный), Авторский одноголосный (Гоблин)Субтитры: ОтсутствуютПродолжительность: 01:39:30
+01. No Love Song (4:46)
+02. High on You (3:32)
+03. Keep Me out of Trouble (4:02)
+04. Flatland Romance (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4F99D802001EDC96FD875CB347AC5072911F272
+magnet:?xt=urn:btih:EAB0668BB1BE71AF4455542A093F943D23CCE66B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,25 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 861173   (931154) от 22.01.2015
+###  Публикация: 1728211   (108318) от 07.06.2024
 
-Windows 8.1 Professional WMC with Update 3 [November 2014] [Ru/En]
+Big Harp George - Cooking with Gas (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>ОС Windows
->>Оригинальные версии Windows
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931154.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 8.1 ProfessionalWMC with UpdateЯзык интерфейса: English, Русский
+01. Cooking With Gas (3:53)
+02. Cellphone Hater 2.0 (3:34)
+03. Doom Loop (4:36)
+04. Wine Is My Friend (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6202BD7A4311D37580475800A1E6F4AA38E207A2
+magnet:?xt=urn:btih:8986680BC16D672D7D7ED74A29F93698306E65E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,63 +722,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 629302   (931155) от 13.03.2013
+###  Публикация: 1728218   (108317) от 07.06.2024
 
-[PS3] Mortal Kombat Komplete Edition [RUSSOUND] [Eng] [PAL/NTSC] (2012)
+Blues People - The Skin I'm In (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>След.
->>PS3
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931155.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Русская озвучка для mk9 и mkke
-Любительская.
-Озвучены режим истории и концовки персонажей(20 бойцов)
-
-В раздаче присутствуют только файлы с русским звуком.
-Саму игру качайте, если еще не скачали, из других раздач.
-
-Story mode от BOPOH & Tauriel
-Ending'и от RussianONIZUKAЖанр: FightingЯзык интерфейса: eng
+01. Amnesia (5:53)
+02. The Skin I'm In (4:24)
+03. Hey Joe (Revisited) (5:47)
+04. I Was Always There (5:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20C831DDDC9FE34FABA2D0E2EBDBA706F9D60B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629815   (931160) от 13.03.2013
-
-Gears of War: Judgment [XBOX360] [FreeBoot] [RUSSOUND] (2013)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Gears of War: Judgment стала одной из самых динамичных и сложных по сюжетной линии игр, возвращающих вас в наиболее значимый день Вселенной, где разворачиваются события игры, – в момент, наступивший сразу после Дня Прорыва. Игра как будто впервые испытывает вас на прочность характера в супер динамичном многопользовательском режиме.
-Сюжет новой серии «Judgment» вращается вокруг отряда солдат Kilo Squad, который возглавляют Деймон Байрд (Damon Baird) и Август «Колтрейн» Кол (Augustus «The Cole Train» Cole), сформированного за несколько лет до событий предыдущей серии трилогии Gears of War.
-В этой серии к ним присоединились новички София Хендрикс и Гарон Падак, объединенные одной целью – спасти оккупированный новым ужасным врагом город Халво Бей.
-
-Gears of War: Judgment предоставляет возможность совместной игры с тремя друзьями через Xbox LIVE (всего 4 человека), с которыми вы сможете спасти планету Сера от уничтожения Локустами. (   Читать дальше...   )Тип издания: GODРазработчик: Epic Games и People Can FlyЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:431C8186F42DAB50484708C608B4F527D363A5F2
+magnet:?xt=urn:btih:8488F8451CCDD331C49B31E639B2569692F2DEE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

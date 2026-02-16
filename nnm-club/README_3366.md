@@ -1,25 +1,23 @@
-###  Публикация: 1733559   (107290) от 29.06.2024
+###  Публикация: 1364840   (932951) от 05.03.2020
 
-Slam 420 - Bloated Exploded OG Gluttony (2020) [FLAC|Lossless|image + .cue] <Slam, Brutal Death Metal>
+Microsoft Windows 10.0.18362.657 Version 1903 (February 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>ОС Windows
+>>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107290.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drowning In Bongwater
-02. Anal Probe
-03. Stoned Cold Steve Bongstin
-04. Slamlordz(   Читать дальше...   )Жанр: Slam, Brutal Death MetalПродолжительность: 00:46:13
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.657.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95E87B8BE13BF3A05C842633DB4BE8D419B1B9D1
+magnet:?xt=urn:btih:E9BF5DBBBCD3C4E39B1A10B9CD2509F4CBCC4EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733272   (107291) от 28.06.2024
+###  Публикация: 1364911   (932950) от 05.03.2020
 
-Pryne - Gargantuan (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+Извините, мы вас не застали / Sorry We Missed You (2019) BDRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107291.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Can'-Ka No Rey (00:06:22)
-02 - Ramification (00:03:26)
-03 - Hollow Sea (00:00:48)
-04 - Abordan (00:05:13)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:46:51
+Семья Тёрнеров после кризиса 2008 года едва сводит концы с концами. Эбби работает сиделкой, а Рикки на последние деньги приобретает фургон, чтобы начать работать на себя - теперь он доставляет посылки в службе доставки. Но реальность оказывается суровой: для того, чтобы окупить франшизу, Рикки приходится работать по 14 часов в сутки, а в оставшееся время воспитывать (   Читать дальше...   )Производство: Великобритания, Франция, Бельгия, Sixteen Films, BBC Films, BE TVЖанр: ДрамаРежиссер: Кен ЛоучАктеры: Крис Хитченс, Дэбби Ханивуд, Rhys Stone, Katie Proctor, Ross Brewster, Чарли Ричмонд, Julian Ions, Шила Данкерли, Maxie Peters, Christopher John SlaterПеревод: Профессиональный многоголосый (iTunes)Субтитры: АнглийскиеПродолжительность: 01:41:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:084CACCAB368D6A487A495272691EA0172DE9210
+magnet:?xt=urn:btih:0E1CA22B6B83B1ECEEEB7C4535EF3CD977131AEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733223   (107292) от 28.06.2024
+###  Публикация: 1364832   (932949) от 05.03.2020
 
-Kevin Casteel - Shadows of the Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Windows Server, Version 1909 (10.0.18363.657) - Оригинальные образы от Microsoft MSDN [En/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>ОС Windows
+>>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107292.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mississippi Mud (5:26)
-02. Shadows of the Past (4:26)
-03. Johnny (feat. Alvin Jones) (4:53)
-04. Theo (feat. Terrence 'TJ' Johnson) (5:13)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:05:09
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BE78284F3D54419B690E71340E47611EC0594EE
+magnet:?xt=urn:btih:50F43539997D91116868023B5C9A870C61A4E5B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733136   (107293) от 28.06.2024
+###  Публикация: 1364954   (932948) от 05.03.2020
 
-Anita O'Day - An Evening With Anita O'Day (1956) 1990, Polygram [FLAC|Lossless|image + .cue] <Vocal Jazz>
+Джуманджи: Новый уровень / Jumanji: The Next Level (2019) BDRip [H.264/720p]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107293.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Just One Of Those Things [2:43]
-02. Gypsy In My Soul [2:35]
-03. The Man I Love [4:15]
-04. Frankie And Johnny [3:39](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:00
+Всё начинается после того, как одному из приятелей срочно понадобилась помощь. Но вот только ради того, чтобы выручить друга, все остальные были вынуждены опять вернуться в игру. Однако ребята были довольно сильно поражены, когда им стало известно, что правила Джуманджи изменились и теперь всё идет наперекосяк. Теперь, чтобы попытаться выжить, друзьям предстоит отправиться (   Читать дальше...   )Производство: США | 7 Bucks Productions, Hartbeat Productions, ...Жанр: фэнтези, боевик, комедия, приключенияРежиссер: Джейк КэзданАктеры: Дуэйн Джонсон,  Карен Гиллан, Марин Хинкль, Мэдисон Айсмен, Джек Блэк, Эшли Скотт, Аквафина, Дэнни ДеВито, Ник Джонас, Кевин ХартПеревод: Дублированный | iTunesСубтитры: Русские (Forced, full), английскиеПродолжительность: 02:03:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4CAEEE708847679B75C36A47B3F4E9E0EC658EB
+magnet:?xt=urn:btih:501F430F9D64AD8D32B4A8A14BB83C0F82766C11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732762   (107294) от 28.06.2024
+###  Публикация: 1364436   (932947) от 05.03.2020
 
-Negativ Nein - Negativ Nein (1996) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop>
+Белое вино из России впервые получило 90 баллов в Wine Advocate
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107294.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ein Leben im Rausch [00:04:17]
-02. Was geschieht mit mir? (Leben) [00:02:42]
-03. Negativ-Nein [00:02:15]
-04. Demokratie [00:04:32](   Читать дальше...   )Жанр: Hardcore Hip-HopПродолжительность: 00:56:56
+Один из наиболее авторитетных мировых винных рейтингов, основанный Робертом Паркером Wine Advocate, 28 февраля опубликовал материал с оценками нескольких российских вин. Автор – Марк Сквайрс (Mark Squires), сотрудничающий с Wine Advocate c 2006 года. В команде WA он отвечает за оценки вин Португалии, Греции, Ливана, Дании, Канады, восточных штатов США, включая Вирджинию (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:085A9BE255B996B1880E8BDF6BC88DFC6C07DB73
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,26 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733246   (107295) от 28.06.2024
+###  Публикация: 861205   (932929) от 21.01.2015
 
-Уильям Шекспир | Сонеты (2013) [MP3, Владимир Самойлов]
+Журнал | Maxim [Россия] №2 (февраль 2015) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Журналы
+>>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107295.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
-Бессмертные творения – сонеты Уильяма Шекспира в настоящем издании представлены (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: Нигде не купишьПродолжительность: 03:01:00
+Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Максим радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFB40D1A6943A44396DD17AF8D67EB6F27F638F2
+magnet:?xt=urn:btih:54EC9FB388AD5682F092D34787BC9B7ADF5FF872
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,318 +155,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732818   (107296) от 28.06.2024
+###  Публикация: 861528   (932927) от 21.01.2015
 
-Matador - Сквозь тень времен (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сквозь тень времен [00:01:06]
-02. Храни нас, Бог [00:05:31]
-03. Матадор [00:05:29]
-04. Вампирия [00:06:14](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42E4853EF1DCA4A380E94BC28FB12D0626BC13C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733160   (107297) от 28.06.2024
-
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 04 (2024) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sienna Collective - Escape (Radio Edit) [3:51]
-02. Tall Paul - Precious Heart 2024 (Ext Mix) [7:30]
-03. Another Big Cat - Jetski (Original Mix) [3:37]
-04. IL1N - Into The Darkness (Extended Mix) [5:28](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340A9027AFBF41AA1F8DEF60CB640CD7E7C95D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733414   (107298) от 28.06.2024
-
-Markus Schulz - Global DJ Broadcast Sunrise Set (2024-06-27) [MP3|320 Kbps] <Progressive House, Trance, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Early (Symphonic Rehearsal Mix)
-02. Markus Schulz - Summer of '99
-03. Stu McNally - Innerversions
-04. Estiva - Mesa(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic HouseПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA58148A89576888A2E86B06C4675FA656E8BC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733424   (107299) от 28.06.2024
-
-VA - Trance Fusion Vol. 04 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit The Bass - Morpheus (Original Mix) [3:46]
-02. Somnia - Flames (Extended Mix) [3:57]
-03. BiXX & Christopher Corrigan - Alignment (Extended Mix) [6:30]
-04. Hide & Seek with Waves On Waves - Circles (Extended Mix) [6:30](   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C9DFAC05178DEF878F442D6C6EDBDC33AF7EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733153   (107300) от 28.06.2024
-
-VA - Armin van Buuren - A State Of Trance 1179 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rivo vs. Armin van Buuren ft. Sharon Den Adel - In And Out Of Love (Tune Of The Week)
-02. Kyau & Albert - Cascading Waterfalls
-03. Pete K & Paul Arcane ft. Amy J Pryce - Hold Me
-04. KASIA - Drowning (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66DE28C1960B1693E46FFAFB4CA8C510A9E1423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733217   (107301) от 28.06.2024
-
-Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2024, BMG [MP3|320 Kbps] <Ska Revival, 2 Tone Ska, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue: “Mr Beckett Sir…”
-02. Theatre Of The Absurd
-03. If I Go Mad
-04. Baby Burglar(   Читать дальше...   )Жанр: Ska Revival, 2 Tone Ska, RockПродолжительность: 01:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E30DF5D5F101802532187EA77A428C8F365116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733002   (107302) от 28.06.2024
-
-Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LOST (3:32)
-02. Restored (4:41)
-03. Live Without (4:21)
-04. Lifeline (feat. McRocklin) (4:00)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C03EEE2794D08E9B7311D3B308A88B0D7EDC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733165   (107303) от 28.06.2024
-
-VA - Redux Selection Vol. 7 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryn Whiting - We Are Home (Extended Mix) (07:35)
-02. James Kitcher & Adam Taylor - Starlight (Extended Mix) (05:51)
-03. Matthew Dreamer - Back To Me (Escea Extended Remix) (06:19)
-04. NickXTG - Karma (Extended Mix) (07:32)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C45E3EE587053199A6F386E125370152CAAD628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733407   (107304) от 28.06.2024
-
-MEDUZA & Alec Monopoly - Live @ Our House Pre-Party, Cafe Mambo Ibiza, Spain (2024-06-21) [MP3|320 Kbps] <House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
-02. HELLMATE & Santiago & Carlitos & Chantal Lewis-Brown - Show Me Love
-03. Marshall Jefferson & Solardo - Move Your Body
-04. Jerry Ropero & Denis The Menace ft. Jaqueline - Coraçao(   Читать дальше...   )Жанр: HouseПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6379562532FFB0BCB7D5B5E10089C408A2C33917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733228   (107305) от 28.06.2024
-
-Rodney Greene - Real Close (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Madness (4:17)
-02. Real Close (feat. Jackiem Joyner) (4:11)
-03. No Stoppin (3:24)
-04. Let Your Love Light Shine (3:22)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075321650744DD65745B39FED36374EA6A9802DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733285   (107306) от 28.06.2024
-
-Pryne - Gargantuan (2024) [MP3|320 Kbps] <Progressive Metal>
+Blind Guardian - Beyond The Red Mirror (2015) Deluxe Edition [MP3|320 кб/с]<Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107306.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Can'-Ka No Rey
-02. Ramification
-03. Hollow Sea
-04. Abordan(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:46:51
+01. The Ninth Wave
+02. Twilight Of The Gods
+03. Prophecies
+04. At The Edge Of Time(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:11:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FF150A206F536805327635CAE383F5E1F1E128E
+magnet:?xt=urn:btih:D1A305E00F12578F16594C2179164E78E39A8534
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,28 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733226   (107307) от 28.06.2024
+###  Публикация: 629336   (932924) от 12.03.2013
 
-Nathan Mitchell - Gentle and Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Rozen Maiden: Tales / Девы Розена 2 (2008) [49 глав] [Манга] [Русский][incomplete]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107307.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gentle and Smooth (4:15)
-02. Just Coolin' (4:35)
-03. Smack Dat! (4:26)
-04. Queen (4:04)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:23
+Однажды 19-летний студент Дзюн Сакурада получает по почте странную книгу - своего рода еженедельный альманах. В книге описывается секрет изготовления одной из старинных и мистических кукол Розена. Решив собрать эту куклу, Дзюн принимается за дело, но, к сожалению ему не удаётся найти все необходимые детали для куклы и работа поневоле останавливается. Неожиданно он получает SMS с уже почти забытого им номера и с удивлением вспоминает, что этот номер телефона когда-то принадлежал ему в детстве. Звонивший рассказывает о семи куклах Розена... и о том, как отыскать недостающие детали для куклы в неком таинственном N-поле, которое, по его утверждению, граничит с человеческими снами. В итоге Дзюну удаётся собрать куклу и...Жанр: мистика, драма, сэйнэнПродолжительность: 57 глав
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D3560B4409A7537C1237E8E97057E693F42B57E
+magnet:?xt=urn:btih:5AC139279B35479882C53110102948A862F2FE6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733134   (107308) от 28.06.2024
+###  Публикация: 629425   (932907) от 12.03.2013
 
-Laurindo Almeida & Charlie Byrd - Brazilian Soul (1980) 2002, Victor [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Guitar Jazz>
+Леди и Бродяга / Lady and the Tramp (1955) BDRip [H.264/1080p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107308.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carioca [3:49]
-02. Naquele Tempo [3:42]
-03. Cochichando [2:41]
-04. Luperce [2:53](   Читать дальше...   )Жанр: Brazilian Jazz, Guitar JazzПродолжительность: 00:37:13
+Трогательная и захватывающая история сближения двух абсолютно разных собак — породистой комнатной неженки и бездомного дворняги. Изящная и пушистая как игрушка, коккер-спаниельша Леди была любимицей хозяев, пока в их семье не появился младенец. Одетый намордник стал последней каплей, подтолкнувшей обиженную героиню к бегству.Этот удивительно тёплый фильм удачно соединил (   Читать дальше...   )Жанр: мультфильм, мелодрама, комедия, приключенияРежиссер: Клайд Джероними, Уилфред Джексон, Хэмильтон ЛаскиПерсонажи: Пегги Ли, Барбара Ладди, Ларри Робертс, Билл Томпсон, Билл Бауком, Стэн Фреберг, Верна Фелтон, Алан Рид, Джордж Гивот, Ли МилларПеревод: Дублированный, двухголосый, многоголосый, авторскийЯзык субтитров: Русские, Украинские, АнглийскиеПродолжительность: 01:16:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BF0CE5F0C7C64C5CC7CE8F4F9597CBC0337482D
+magnet:?xt=urn:btih:69F88859C114DCC61FB9339BD34FB10C451A8BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,25 +236,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733334   (107309) от 28.06.2024
+###  Публикация: 754396   (932893) от 07.02.2014
 
-Двойник / Dobbeltgaengeren (1910) WEBRip [H.264/720p]
+В гости к сказке: Братец Лис и братец Кролик. Сборник мультфильмов (1975-1990) DVDRip
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107309.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очередная криминальная история из цикла датских фильмов начала прошлого века про ловкого и проницательного сыщика. На этот раз жулики обокрали богатый дом, выдав одного из сообщиников, с помощью искусного грима, за хозяина дома. Сможет ли сыщик одолеть таких ловкачей?Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, криминал, немое киноРежиссер: Хольгер РасмуссенАктеры: Виктор Фабиан, Ааге Хертель, Отто Лагони, Эйнар ЦангенбергПеревод: немой с интертитрамиСубтитры: немецкие (интертитры), русскиеПродолжительность: 00:14:36
+Сборник кукольных и рисованных отечественных мультипликационных фильмов для детей. В него вошли: Новоселье у Братца Кролика, Ослик, Клякса, Про тигренка и его друзей: По дороге с облаками, Подарок для слона, Клад, Дядя Федор, кот и пес: Матроскин и Шарик, Мама и папа, Митя и Мурка.Жанр: Мультфильм, кукольный, рисованный, детский, экранизацияРежиссер: Майя Бузинова, Иосиф Доукша, Инна Воробьева, Анатолий Резников, Юрий Бутырин, Юрий Клепацкий, Лидия СуриковаПродолжительность: 01:52:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DDB03BEF5A081EC876D0FBFCAF3D06644199F91
+magnet:?xt=urn:btih:A57CBE136ECF2225E73303E4E385420445E1FF3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,28 +262,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733231   (107310) от 28.06.2024
+###  Публикация: 1364826   (932886) от 05.03.2020
 
-Victor Lob - Day Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Kali Linux 2020.1a (ex. BackTrack) [Аудит безопасности, хакинг] [amd64, i386] 2xDVD
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107310.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andes Wind (5:00)
-02. Coco Souffle (5:39)
-03. Dang Thang (3:16)
-04. Funky Fox (5:00)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:31
+Состоялся релиз дистрибутива Kali Linux 2020.1a, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
+
+Как утверждают разработчики: данный релиз - просто быстрое обновление релиза 2020.1, который выпущен в прошлом месяце. Внесены некоторые значительные (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:532B7C157EC4744FD546B27810E563FA637992BB
+magnet:?xt=urn:btih:2D79CA7A9E5EB72A19AA188236A351A3011AC714
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,28 +290,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733224   (107311) от 28.06.2024
+###  Публикация: 1364844   (932885) от 05.03.2020
 
-Michel Morissette - Quatre (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+Джонни Д. / Public Enemies (2009) AC3 5.1 AVO Д. Пучков (Гоблин) [hand made]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Остальное
+>>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107311.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arising (6:30)
-02. Red Ketchup (5:49)
-03. Reconnection (4:23)
-04. Spirale (5:43)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:42:02
+Америка, 1930-е годы. Дерзкие нападения сделали Джона Диллинджера героем всех угнетённых и главной мишенью для лучшего агента Мелвина Первиса и директора Бюро расследований Джона Эдгара Гувера. Никто не мог остановить банду Диллинджера. Ни одна тюрьма не могла его удержать. В то время как приключения лихой банды, к которой примкнули Малыш Нельсон и Элвин Карпис, (   Читать дальше...   )Производство: США / Universal Pictures, Relativity Media, Forward PassЖанр: Драма, Криминал, БиографияРежиссер: Майкл МаннАктеры: Джонни Депп, Кристиан Бэйл, Марион Котийяр, Джованни Рибизи, Билли Крудап, Джон Ортиз, Стивен Грэм, Спенсер Гаррет, Джеймс Руссо, Дэвид Уэнэм, Эд БрюсПеревод: Авторский, Д. Пучков (Гоблин)Язык озвучки: РусскийПродолжительность: 02:19:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:818A15700EDFF7A5C63BBF68843E2C26751B1337
+magnet:?xt=urn:btih:E88930BBE6A75D4F842396DBDAB551BC1AB14306
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,28 +316,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733139   (107312) от 28.06.2024
+###  Публикация: 1364959   (932884) от 05.03.2020
 
-Willis Jackson - Single Action (1978) 1995, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+Weakless (2020) [Ru/Multi] (1.0) Repack Other s
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107312.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Evergreen [4:46]
-02. Bolita [8:13]
-03. Makin' Whoopee [7:01]
-04. You Are the Sunshine of My Life [7:44](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:43:48
+Weakless – красивая 3D-головоломка с невероятными ландшафтами, необычными героями и чарующей подсветкой. Вы играете за двоих веточников – деревянных созданий, один из которых глух, а другой – слеп. Переключайтесь между персонажами, чтобы использовать их...Тип издания: RepackРазработчик: Punk NotionЖанр: Adventure, Puzzle, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59DA7DBA646F79BFD87E410A1010A3AF5F28D092
+magnet:?xt=urn:btih:C7F88E268155B2FC187CAB5523EC273EFC93A4EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,28 +342,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733227   (107313) от 28.06.2024
+###  Публикация: 1363558   (932883) от 05.03.2020
 
-Phlyndc - Passion (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Все радостные места / All the Bright Places (2020) WEB-DL [H.264/1080p-LQ] [МVO]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107313.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Holding Me Back (4:32)
-02. Well After Dark (5:52)
-03. Out of Control (5:30)
-04. Nice Night Out (4:07)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:24:52
+История Виолетты и Теодора, которые встречаются и навсегда меняют жизнь друг друга. Борясь с эмоциональными и физическими шрамами своего прошлого, они обнаруживают, что даже самые незначительные места и моменты могут что-то значить.Производство: США / Echo Lake Entertainment, Mazur/Kaplan Company, NetflixЖанр: Драма, мелодрамаРежиссер: Бретт ХейлиАктеры: Эль Фаннинг, Александра Шипп, Вирджиния Гарднер, Кигэн-Майкл Ки, Джастис Смит, Люк Уилсон, Николь Форестер, Мин Ван, Феликс Майяр, Ламар ДжонсонПеревод: Многоголосый профессиональный, многоголосый любительскийСубтитры: Русские, английские, французские, немецкие, испанские, китайскиеПродолжительность: 01:48:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DB69D444A97B370CAA9EE5273D972973D758895
+magnet:?xt=urn:btih:77BB75BA02ACF8404F32762E9D6A3B7E08BB074A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +368,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733425   (107314) от 28.06.2024
+###  Публикация: 1365074   (932882) от 05.03.2020
 
-PrivaZer Pro 4.0.88 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Марафон желаний (2020) WEB-DLRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932882.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я хочу нижнее белье из одного комплекта. Я хочу в Париж. Я хочу увидеть мир. Я хочу замуж за любимого. Я хочу новые духи. Я хочу отдать кредит за окна! Я хочу найти паспорт до свадьбы»…
+У Марины есть 7 желаний. Но главное — стать счастливой. Однако пересадка в Пулково и неожиданная встреча вносят свои коррективы в ее планы.Производство: Россия / Кинокомпания «САГа»Жанр: Комедия, МелодрамаРежиссер: Даша ЧарушаАктеры: Аглая Тарасова, Кирилл Нагиев, Мария Миногарова, Александр Гудков, Яна Троянова, Павел Деревянко, Юлия Ауг, Екатерина Варнава, Макар Запорожский, Олег КурсачёвПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBC2B94A7CCE639EB1830043458E4EFB82D0C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364907   (932881) от 05.03.2020
+
+Джуманджи: Новый уровень / Jumanji: The Next Level (2019) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы спасти одного из приятелей, остальным приходится вернуться в игру. К их удивлению, правила Джуманджи изменились, и все идет наперекосяк. Чтобы выжить друзьям предстоит отправиться в путешествие по самым неизведанным и таинственным уголкам игры — от засушливой пустыни до заснеженных гор.Производство: США / Hartbeat Productions, Matt Tolmach Productions, Seven Bucks ProductionsЖанр: Фэнтези, боевик, комедия, приключенияРежиссер: Джейк КэзданАктеры: Карен Гиллан, Дуэйн Джонсон, Марин Хинкль, Мэдисон Айсмен, Джек Блэк, Эшли Скотт, Аквафина, Дэнни ДеВито, Ник Джонас, Кевин ХартПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAE3FFD8DBC4A39C54FEFC2AC13CA656FF9F425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364906   (932880) от 05.03.2020
+
+TechSmith Camtasia 2019 0.10 Build 17662 RePack by KpoJIuK [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107314.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Camtasia Studio - мощная утилита для записи изображения с экрана в видеофайлы различных форматов, имеется возможность редактирования видео, есть встроенные Macromedia Flash (SWF) и видео проигрыватели. Camtasia захватывает действия и звуки в любой части Windows-систем и сохраняет в файл стандарта AVI. Сделанное при помощи программы видео можно экспортировать в один (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89627F6FA3E92011B758F3306BCFCC7FD4A33F5C
+magnet:?xt=urn:btih:828546BC3B59A2DDE04763B819C57038DCF4E789
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,28 +447,234 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733220   (107315) от 28.06.2024
+###  Публикация: 1364869   (932879) от 05.03.2020
 
-Anims - Good 'n' Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Джуманджи: Новый уровень / Jumanji: The Next Level (2019) HDRip [H.264/720p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107315.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Cherubims (3:59)
-02. Fear of the Night (4:09)
-03. Where Were You (4:22)
-04. Satellite (4:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:26
+Всё начинается после того, как одному из приятелей срочно понадобилась помощь. Но вот только ради того, чтобы выручить друга, все остальные были вынуждены опять вернуться в игру. Однако ребята были довольно сильно поражены, когда им стало известно, что правила Джуманджи изменились и теперь всё идет наперекосяк. Теперь, чтобы попытаться выжить, друзьям предстоит отправиться (   Читать дальше...   )Производство: США | 7 Bucks Productions, Hartbeat Productions, ...Жанр: фэнтези, боевик, комедия, приключенияРежиссер: Джейк КэзданАктеры: Дуэйн Джонсон,  Карен Гиллан, Марин Хинкль, Мэдисон Айсмен, Джек Блэк, Эшли Скотт, Аквафина, Дэнни ДеВито, Ник Джонас, Кевин ХартПеревод: Дублированный | iTunesСубтитры: Русские (Forced, full)Продолжительность: 02:03:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C76EFCCB317D114153AEEF27FCA77331D785A06B
+magnet:?xt=urn:btih:620E0319726976DAD87656B30F2E69EB51745DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364905   (932878) от 05.03.2020
+
+Проекты - VideoHive - Lava | Social Media Pack v.2 - 24118486 [LIST, AEP]
+
+>>След.
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932878.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Lava | Social Media Pack v.2» - стильный элегантный пакет элементов и эффектов для оформления Вашего материала.
+Он ориентирован на коммуникативный дизайн в одном стиле: яркие цветовые сочетания, простые формы, чистая типографика и композиции, подходящие для любого разрешения и ориентации кадра, чтобы обеспечить лучший пользовательский опыт на любом современном устройстве. (   Читать дальше...   )Формат: LIST, AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136E443EC108405EECEC5E9BAECED639651EA376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364491   (932877) от 05.03.2020
+
+Трансформеры  / Transformers (2007-2017) BDRip [H.264/1080p] [Пенталогия] [PR]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932877.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение многих столетий две расы роботов-инопланетян — Автоботы и Десептиконы — вели войну, ставкой в которой была судьба Вселенной. И вот война докатилась до Земли. В то время, когда силы зла ищут ключ к верховной власти, наш последний шанс на спасение находится в руках юного землянина. Единственное, что стоит между несущими зло Десептиконами и высшей властью (   Читать дальше...   )Производство: США, Китай, Канада / Paramount Pictures, HasbroЖанр: Фантастика, боевик, приключенияРежиссер: Майкл БэйАктеры: Шайа ЛаБаф, Меган Фокс, Джош Дюамель, Тайриз Гибсон, Рэйчел Тейлор, Энтони Андерсон, Джон Войт, Джон Туртурро, Майкл О’Нил, Кевин ДаннПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:23:27 / 02:30:25 / 02:34:23 / 02:45:07 / 02:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF33ED7775FAD4A330A33BF82D9016EE37A59FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365098   (932876) от 05.03.2020
+
+Дело Ричарда Джуэлла / Richard Jewell (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932876.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Ричарда Джуэлла, который работал охранником на Олимпийских играх 1996 года в Атланте и, заметив рюкзак с бомбой, сумел вовремя эвакуировать людей. Однако всеобщая благодарность длилась недолго: через несколько дней Джуэлл сам превратился в главного подозреваемого и жертву уничижительной травли со стороны СМИ.Производство: США / 75 Year Plan Productions, Appian Way, Misher FilmsЖанр: Драма, биографияРежиссер: Клинт ИствудАктеры: Пол Уолтер Хаузер, Сэм Рокуэлл, Кэти Бейтс, Джон Хэмм, Оливия Уайлд, Нина Арианда, Иэн Гомес, Уэйн Дювалл, Дилан Кассман, Майк ПневскиПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), английские (Full, SDH)Продолжительность: 02:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC395F2604AB0E362AB5D29A5FC40F1190132A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357219   (932875) от 05.03.2020
+
+Война семей (2019) WEB-DLRip [H.264] (сезон 1, серии 1-20 из 20)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миша и Дима – друзья с детства. Общий бизнес, соседние дома без забора, дружба семьями – идиллия, которою, как казалось, невозможно разрушить. Грядущая свадьба детей должна была укрепить многолетний союз. Однако во время семейного торжества неожиданно вскрываются тайны, которые в один миг превращают лучших друзей в заклятых врагов.Производство: Россия / СУПЕР продакшн, Киностудия "Yellow, Black and White"Жанр: комедия, семейныйРежиссер: Илья Фарфель, Евгений КорчагинАктеры: Александр Робак, Егор Бероев, Ольга Медынич, Светлана Колпакова, Джемал Тетруашвили, Александра Флоринская, Арина Постникова, Арам Вардеванян, Пелагея Невзорова, Юрий Скулябин и др.Продолжительность: ~ 00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F7FB6A23BC550AEE073E25817678665341A735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364847   (932874) от 05.03.2020
+
+Джуманджи: Новый уровень / Jumanji: The Next Level (2019) BDRip [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё начинается после того, как одному из приятелей срочно понадобилась помощь. Но вот только ради того, чтобы выручить друга, все остальные были вынуждены опять вернуться в игру. Однако ребята были довольно сильно поражены, когда им стало известно, что правила Джуманджи изменились и теперь всё идет наперекосяк. Теперь, чтобы попытаться выжить, друзьям предстоит отправиться (   Читать дальше...   )Производство: США | 7 Bucks Productions, Hartbeat Productions, ...Жанр: фэнтези, боевик, комедия, приключенияРежиссер: Джейк КэзданАктеры: Дуэйн Джонсон,  Карен Гиллан, Марин Хинкль, Мэдисон Айсмен, Джек Блэк, Эшли Скотт, Аквафина, Дэнни ДеВито, Ник Джонас, Кевин ХартПеревод: Дублированный | iTunesСубтитры: Русские (Forced, full), английскиеПродолжительность: 02:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8B60F6E14C1C71AE2939964F0E58B316762EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364902   (932873) от 05.03.2020
+
+Маленькие женщины / Little Women (2019) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о взрослении четырех непохожих друг на друга сестер. Действие разворачивается во времена Гражданской войны в США, но проблемы, с которыми сталкиваются девушки, актуальны как никогда: первая любовь, горькое разочарование, томительная разлука и непростые поиски себя и своего места в жизни.Производство: США / Columbia Pictures, New Regency Pictures, Pascal PicturesЖанр: Драма, мелодрамаРежиссер: Грета ГервигАктеры: Сирша Ронан, Эмма Уотсон, Флоренс Пью, Элайза Сканлен, Лора Дерн, Тимоти Шаламе, Трэйси Леттс, Боб Оденкёрк, Джеймс Нортон, Луи ГаррельПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68199FEA3C2C107C3608561760A439E4CC147CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364535   (932872) от 05.03.2020
+
+Россияне выпустили СХД на процессорах «Эльбрус» и отечественном Linux
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания «Аэродиск» разработала новые системы хранения данных (СХД) «Восток» на процессорах «Эльбрус 8С». Большая часть их электроники разработана и произведена в России, а программное обеспечение заменено на отечественное на 100%.СХД для импортозамещенияРоссийская компания «Аэродиск» выпустила линейку СХД «Восток» на базе отечественных процессоров «Эльбрус 8С». (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364919   (932871) от 05.03.2020
+
+Девушка в лабиринте / L'uomo del labirinto (2019) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саманта просыпается со сломанной ногой в комнате без окон. Она дезориентирована и ничего не помнит. Криминальный психолог доктор Грин объясняет испуганной девушке, что её похитили 15 лет назад. Каким-то чудом Саманте удалось бежать, и теперь психологу нужно проникнуть в её разум, чтобы найти похитителя. Помимо Грина, случаем Саманты занимается частный детектив Бруно (   Читать дальше...   )Производство: Италия / Gavila, Colorado Film ProductionЖанр: Триллер, детектив, экранизацияРежиссер: Донато КарризиАктеры: Дастин Хоффман, Тони Сервилло, Валентина Белле, Виничио Маркиони, Кацярына Шульга, Орландо Синк, Филиппо Дини, Серджо Гроссини, Карла Кассола, Луис НьеккоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A394C148179CB067997CDD425D78EE03F12D4081
 ```
 
 https://mybot314.ru/tekegram_catalog/

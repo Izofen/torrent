@@ -1,23 +1,22 @@
-###  Публикация: 1206881   (781624) от 15.02.2018
+###  Публикация: 1186480   (283467) от 26.11.2017
 
-3D модели - Daz 3D - Alexandra 8 Pro Bundle - 49591 [DUF]
+3D текстуры - Motion Squared - Texture Pack Infinite [LIB4D]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781624.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Alexandra 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Это сборник библиотек, в который вошли свыше 450 качественных материалов (текстур) для программы Cinema 4D в формате библиотек  lib4d.Формат: LIB4D
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B726B586F5A7861B226E56006B52FBBE621297ED
+magnet:?xt=urn:btih:7567CF7FB49210D4BAAB042E326172FA80812E4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206744   (781631) от 15.02.2018
+###  Публикация: 1081571   (281686) от 10.12.2016
 
-3D модели - Creative Market - Male mannequin Nike pack 1 - 2123419 [V-Ray|*.max, FBX, OBJ]
+3D сцены - Evermotion - Archexteriors Vol. 29 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781631.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель манекенов в одежде. С разными позами. Семь видов одежды для каждой из поз: толстовка, жакет, шорты, футболка, длинный рукав, колготки, кроссовки. Несколько цветовых вариантов. Вся одежда была создана в MARVELOUS DESIGNER. Легко менять цвет и шаблон. Файл был создан в 3d max 2014,  содержит файлы с расширениями *.max, *.fbx, *.obj. Материалы Vray и растровые (   Читать дальше...   )Формат: V-Ray|*.max, FBX, OBJ
+Очередной сборник сцен экстерьера от компании Evermotion!
+
+В данный сборник вошёл всего лишь один проект, но зато какой: полностью смоделированные экстерьер и интерьер загородного дома. Проект представлен в двух вариантах: с proxy-объектами и специализированном - использованием плагинаФормат: V-Ray|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A9511D10C3355E3AD3DA9B980B38C878D020C6B
+magnet:?xt=urn:btih:DB69C81DC34D54448FA2A6F02F8852E18BB58BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206606   (781983) от 14.02.2018
+###  Публикация: 1336717   (278464) от 07.11.2019
 
-3D модели - Daz 3D - UltraHD IRAY HDRI With DOF - Outdoor Pack 2 - 50323 [DUF]
+KitBash3D - Brutalist [MAX, MA, OBJ, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781983.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Iray HDRI для DAZ 3D из категории Resources.Формат: DUF
+Создайте архитектурно противоречивые здания и городские пейзажи, которые переплетаются с модернистским движением, определяемым жесткими сочетаниями детализированного бетона и стекла, обнаженной конструкции и отсутствием заботы об эстетическом комфорте или легкости. С помощью этого огромного набора вы можете создавать фантастические антиутопии или детализировать современные (   Читать дальше...   )Формат: MAX, MA, OBJ, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3C3FEAD404AEC15032F23B2846FE3E6B27ECBF0
+magnet:?xt=urn:btih:D43AF12FB897FFD600AFBD9661146A3A81F21634
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,26 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205825   (783132) от 11.02.2018
+###  Публикация: 1336721   (278346) от 07.11.2019
 
-3D модели - Daz 3D - Victoria 8 Pro Bundle - 43677 [DUF]
+KitBash3D - Props: Cyber Streets [MAX, OBJ, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783132.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Victoria 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Заселите улицы своих миров киберпанков тоннами киосков, витрин магазинов, закусочных, автономных машин, беспорядочно захламленных улицах, радиаторов, дорожных стендов, бутылок, сковородок, кастрюль, банок и многого другого! Большие части этого комплекта также имеют подробные интерьеры, которые будут хорошо работать в любом из ваших фантастических или антиутопических (   Читать дальше...   )Формат: MAX, OBJ, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D53A694A20DEEBD175CBABCEA68368843E150168
+magnet:?xt=urn:btih:CE0473573A2BECFD15D6CEBA6139AFE2862BBADB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,26 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205882   (783157) от 11.02.2018
+###  Публикация: 1338325   (270330) от 14.11.2019
 
-3D модели - Daz 3D - Sunny 7 Pro Bundle - 29323 [DUF]
+KitBash3D - Parisian [MA, OBJ, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783157.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Sunny 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Создайте элегантные кварталы культовых городов, таких как Париж, Рим или Лондон, с неоклассическим стилем этого комплекта. Используйте большие здания для важных общественных или правительственных помещений, средние здания для жилых, исторических районов, а также небольшие здания и богатые декоративные детали, чтобы оживить самые любимые города мира!.Формат: MA, OBJ, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEDE4FDADD959A611D8AD24D8CEF669CD7487AE1
+magnet:?xt=urn:btih:E5975DD2D444241AA4259737200F8DEB9B042D2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,26 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205888   (783160) от 11.02.2018
+###  Публикация: 1338326   (270327) от 14.11.2019
 
-3D модели - Daz 3D - Darius 7 Pro Bundle - 34031 [DUF]
+Kitbash3D - Roman Empire [MAX, MA, OBJ, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783160.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Darius 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Воссоздайте древний Рим с великолепным Колизеем, Пантеоном и другими известными памятниками. Жилые дома в этом римском стиле, мосты, площади и фонтаны также помогут вам построить любой современный греко-римский город, созданный одной из самых могущественных империй всех времен!Формат: MAX, MA, OBJ, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75B9C1D982EC56071D8C3B367B450121868B5094
+magnet:?xt=urn:btih:34D6EB639D4F7E15B3929E6F9E293CFD0DF2E52F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,26 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205793   (783169) от 11.02.2018
+###  Публикация: 1338319   (270308) от 14.11.2019
 
-3D модели - Daz 3D - Gianni 7 Pro Bundle - 23796 [DUF]
+KitBash3D - Fairy Tale [MAX, MA, OBJ, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783169.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Gianni 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Создайте мифические деревни и волшебные королевства, на которые вдохновляют наши самые любимые сказки, темных фантазий и душераздирающих приключений. Воплотите в жизнь своих гномов, ведьм, рыцарей и горожан с помощью чудесных усадеб, призрачных таверн, заколдованных жилищ, а также различных деталей и аксессуаров, таких как тележки, колодцы и уличные стенды, которые (   Читать дальше...   )Формат: MAX, MA, OBJ, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89F4445E391B907C5C0533441354BEF39805FF77
+magnet:?xt=urn:btih:FA2646B21A310E62CB1A12EC5760D3986A5860C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,26 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205784   (783189) от 11.02.2018
+###  Публикация: 1339095   (266790) от 18.11.2019
 
-3D модели - Daz 3D - Leo 7 Pro Bundle - 23378 [DUF]
+3D модели - Viz-People - 3D Home Gadgets v2 [Corona|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783189.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Leo 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Основанная в 2011 году студия Viz-People представляет вам сборник смешанного содержания, но объединённые одной тематикой - Гаджеты Для Дома (часть 2). В этот сборник вошли 80 высокодетализированных моделей компьютерной техники, настольного оборудования, текстиля, элементов декора и многое другое.Формат: Corona|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36EFEB6EB6988BEE88892149A053B8BF0B7D03D3
+magnet:?xt=urn:btih:0B6DBF033DF89745A3FF1BF9308AFC3FBCFB0DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,26 +208,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205773   (783191) от 11.02.2018
+###  Публикация: 1240911   (266484) от 06.12.2018
 
-3D модели - Daz 3D - Kimo 7 Pro Bundle - 30848 [DUF]
+3D модели - Hum3D - Lamborghini Urus 2019 [3DS, C4D, FBX, LWO]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783191.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Kimo 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+3д модель автомобиля марки Lamborghini.Формат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DA619ECF1F3A1303ED47343D5DA0983C72097F4
+magnet:?xt=urn:btih:E51E0797F1368828AF610E74A411C86EFE0F5A0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,26 +234,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205790   (783192) от 11.02.2018
+###  Публикация: 1339191   (265953) от 19.11.2019
 
-3D модели - Daz 3D - The Guy 7 Pro Bundle - 23925 [DUF]
+3D модели - Evermotion - Archmodels vol.183 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783192.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект The Guy 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Archmodels vol. 183 содержит 54 профессиональных, высокодетализированных 3d моделей для архитектурных визуализаций. В эту коллекцию вошли высококачественные 3d модели садовых растений со всеми текстурами и метериалами. Все объекты готовы к использованию.
+Все модели и сцены были отрендерены в V-ray с 3ds max.
+Сцены не входят в состав коллекции.Формат: V-Ray|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:602248631F095B3D8AD2494EE6A709969B692391
+magnet:?xt=urn:btih:2D3BDFA9CD7F5208AA79091C3FBC7C6B68DAECBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -266,26 +262,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205778   (783195) от 11.02.2018
+###  Публикация: 1339689   (265254) от 20.11.2019
 
-3D модели - Daz 3D - Lee 7 Pro Bundle - 24367 [DUF]
+Kitbash3D - Props: Rooftops [MAX, MA, OBJ, FBX, C4D]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783195.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Lee 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Набор антенн, рекламных щитов, водонапорных башен и спутниковых тарелок вам понадобится для строительства любого здания, крыши города, загородной застройки. Внутри вы найдете кондиционеры, пожарные лестницы, мансардные окна, дымоходы, вытяжные вентиляционные трубы и многое другое!Формат: MAX, MA, OBJ, FBX, C4D
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F69D5BFBF2233D31F3DFE95C32D52FBC0395D51
+magnet:?xt=urn:btih:CD8E806128B89BF98938340296C6F565E733A6AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,25 +288,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205592   (783431) от 10.02.2018
+###  Публикация: 1339897   (264578) от 21.11.2019
 
-3D модели - 3ddd - Сборка игрушечного транспорта [V-Ray|*.max, FBX, OBJ]
+Hum3D - Honda Valkyrie GL1800C 2015 [Scanline|V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, MB]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783431.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник игрушечного транспорта входит Lego и радиоуправляемые модельФормат: V-Ray|*.max, FBX, OBJ
+3d модель мотоцикла марки HondaФормат: Scanline|V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, MB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07322826FAEBF52081BDD2CD9094D6BE9BF61137
+magnet:?xt=urn:btih:7E95304ADDFD691E137B950813653971946D2C37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,26 +314,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205509   (783439) от 10.02.2018
+###  Публикация: 1339815   (264547) от 21.11.2019
 
-3D модели - Daz 3D - Ancient Egypt Bundle – Character, Outfit, Expansion and Poses - 39285 [DUF]
+Kitbash3D - Props: Greebles [MAX, OBJ, FBX, C4D]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783439.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Ancient Egypt для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Набор из кабелей, труб, конденсаторов и виггетов. Внутри вы найдете все: вентиляционные отверстия, трубки, литники, резервуары и цилиндры, которые сделают ваш научно-фантастический мир максимально реалистичным!Формат: MAX, OBJ, FBX, C4D
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FEBB773A714417DA57F2865F355CADD3AB8E0DB
+magnet:?xt=urn:btih:BEF7E9F764D1CB21BDB868A4712C57167B29A55F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,26 +340,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205501   (783445) от 10.02.2018
+###  Публикация: 1339827   (264541) от 21.11.2019
 
-3D модели - Daz 3D - Centaur 7 Male Pro Bundle - 37321 [DUF]
+Kitbash3D - Props: Street Side [MAX, MA, OBJ, C4D]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783445.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Centaur 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Населите любую городскую улицу или уголок заборами, скамейками, дорожными конусами и автобусными остановками. Используйте наши лестницы, мусорные баки, вход в метро, ​​фонарные столбы, дорожные перегородки и многое другое, чтобы оживить ваш город!Формат: MAX, MA, OBJ, C4D
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0853C3E4548162F7FA1B73D11CB17AFD311ACBE2
+magnet:?xt=urn:btih:A2BBC10FA1B490E40190FB74B4DD07085C3CAC64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,26 +366,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205520   (783455) от 10.02.2018
+###  Публикация: 1339817   (264539) от 21.11.2019
 
-3D модели - Daz 3D - Ivan 7 Pro Bundle - 30853 [DUF]
+Kitbash3D - Edo Japan [OBJ, FBX, C4D]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783455.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Ivan 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Создайте исторические деревни сёгунской Японии, населенные традициями самураев между 1600-ми и 1800-ми годами, или любой древний, мистический мир, воплощающий культовые восточные философии. Вы можете использовать святыни, храмы этого комплекта, чтобы создавать новые и фантастические миры, которые способствуют всевозможным магическим проектам.Формат: OBJ, FBX, C4D
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C946FED09B8AACB2E45409A3558FFEE5FE16138F
+magnet:?xt=urn:btih:58F14ADA06397261CC382BB47F356A0B618DF921
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,26 +392,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205445   (783461) от 10.02.2018
+###  Публикация: 1339822   (264538) от 21.11.2019
 
-3D модели - Daz 3D - Dante 7 Pro Bundle - 37227 [DUF]
+Kitbash3D - Every City [MAX, MA, OBJ, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783461.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Dante 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Каждому мегаполису нужны небоскребы, городские башни и многоэтажные дома. Создаете ли вы Нью-Йорк, Чикаго, Лондон, Токио или новый, этот пакет поможет вам построить финансовые кварталы, жилые башни, правительственные учреждения и любые горизонты в современную эпоху!Формат: MAX, MA, OBJ, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C288834A4FAA951750B928C9711381060BA8FEF9
+magnet:?xt=urn:btih:F6369A13B859C337DAB4347CB52B786FF53AE475
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,26 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205516   (783465) от 10.02.2018
+###  Публикация: 1340072   (264208) от 22.11.2019
 
-3D модели - Renderosity - Phx James for Michael 8 - 124866 [DUF]
+Unity Asset Store - Battle Car Package - 97891 [UNITYPACKAGE]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783465.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-James для Michael 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Battle Car Package - это высококачественные модели, которые добавляют больше деталей и реализма вашим проектам. Все цвета могут быть легко изменены. Unity 3D совместимые модели FBX.Формат: UNITYPACKAGE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1F9C5625CDF5F7D6259A92F085F873FB081C301
+magnet:?xt=urn:btih:6C23AFEA37F21229AEDF05BE041D847D11E48140
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,26 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205505   (783470) от 10.02.2018
+###  Публикация: 1340185   (264202) от 22.11.2019
 
-3D модели - Daz 3D - Lucian 7 Pro Bundle - 34203 [DUF]
+Daz 3D - Structures [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783470.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Lucian 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Набор 3d моделей для DAZ 3D - из 17шт, категории Structures.Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B363A34D339A97D0793502F33785E12F3A2CA96C
+magnet:?xt=urn:btih:32244A32F88E154CBEEE258BCDA704FAE9DB33B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,26 +470,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205497   (783471) от 10.02.2018
+###  Публикация: 1340331   (263837) от 23.11.2019
 
-3D модели - Daz 3D - Damien Pro Bundle - 37285 [DUF]
+KitBash3D - Mini Kit: Aristocracy [MAX, OBJ, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783471.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Damien для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Этот мини-набор Aristocracy содержит избранные предметы из наших Parisian, Victorian и  Steampunk-полных комплектов и предназначен для того, чтобы помочь вам создать миры гламура, королевской власти, элитарности и декаданса. Ни один мир богатого, исторического значения или будущей империи непревзойденного богатства не обходится без этих великих стилей архитектуры (   Читать дальше...   )Формат: MAX, OBJ, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:420406EBC2F832E6FBBE1870C70CAB12C9507883
+magnet:?xt=urn:btih:980D4DB0763E81D2180E1148DA657D1D60035AE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,26 +496,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205511   (783474) от 10.02.2018
+###  Публикация: 1340405   (263835) от 23.11.2019
 
-3D модели - Daz 3D - FWSA Liam HD + Vampire and Hunter Kit Bundle - 33439 [DUF]
+Unreal Engine - Modular Subway Tunnels [UASSET]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783474.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Liam + Vampire and Hunter для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Набор модульных элементов, из которых вы можете создавать тоннели метро и заполнять подземные помещения! Этот набор содержит различные элементы туннелей, комнат, коридоров, а также их наполнение.Формат: UASSET
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C00FF4DAB265E35BFFB016623716C6375CA8CC6
+magnet:?xt=urn:btih:A878ABAF5FFDDB8EA25D91D025B4B5E98587858C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,26 +522,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205493   (783478) от 10.02.2018
+###  Публикация: 1340333   (263831) от 23.11.2019
 
-3D модели - Daz 3D - Elijah 7 Pro Bundle - 36169 [DUF]
+KitBash3D - Wild West [MAX, MA, OBJ, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783478.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Elijah 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Создайте поселение и непослушные границы дикого американского Запада или смертельной австралийской глубинки. Оснастите миры своих ковбоев, шерифов и шахтеров разнообразными салунами, фермами и церквями, а также лесозаготовительными, шахтерскими и железнодорожными сооружениями.Формат: MAX, MA, OBJ, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76DEA7A2A0853172899EAC34A3E6D16EE977C5F9
+magnet:?xt=urn:btih:B43C1FA1DA5C4B35C8CFB6CE8D8DFCF26E907F04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,26 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205347   (783709) от 09.02.2018
+###  Публикация: 1340336   (263823) от 23.11.2019
 
-3D модели - Daz 3D - Karyssa 8 Pro Bundle - 49305 + Genesis 8 Starter Essentials - 42071 [DUF]
+KitBash3D - Middle East [MA, OBJ, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783709.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Karyssa 8 Pro и Genesis 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Создайте культовые мечети, древние гробницы и экстравагантные дворцы, которые характеризуют Ближний Восток. Используйте любые геометрические или чересстрочные орнаменты на одном из наших куполов, памятников или башен, чтобы проиллюстрировать подлинный портрет Багдада, Стамбула или Дамаска.Формат: MA, OBJ, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD9BD539FE5EE26E8A3166F83C8BFABE75DF32AD
+magnet:?xt=urn:btih:F26DB4C5540C071315F9356487E01BB242549415
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,26 +574,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205409   (783765) от 09.02.2018
+###  Публикация: 1340329   (263782) от 23.11.2019
 
-3D модели - Daz 3D - Kenji 7 Pro Bundle - 31673 [DUF]
+KitBash3d - Aftermath [FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783765.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональный пакет Kenji 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Создайте разрушенную обстановку постконфликтного периода, ужасающие миры надвигающихся апокалипсисов или неудачные сцены войн, проигранных против машин. Здания этого набора разорваны на части, их инфраструктура обнажена, а каждый интерьер и каждая деталь переплетены с трагическими историями, разрушенными структурами и гиперреалистичными текстурами.Формат: FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D36957F3FE4E86049437A35B78DFBA43E3E26BA
+magnet:?xt=urn:btih:DD15FD156F152DE7AA680E137839EACC39602C5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,26 +600,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204988   (783988) от 08.02.2018
+###  Публикация: 1341170   (262849) от 26.11.2019
 
-3D модели - Daz 3D - Fairy Outfit for Karyssa 8 and Genesis 8 Female(s) - 50191 [DUF]
+KitBash3D - Mini Kit: Boroughs [MAX, OBJ, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783988.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262849.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наряд феи для Karyssa 8 и Genesis 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Этот мини-набор Boroughs содержит избранные предметы из наших полных комплектов Every City, Victorian и Industrial. Эти избранные городские кварталы и фабричные здания помогут вам разнообразить жилые районы и кварталы любого современного или индустриального города.Формат: MAX, OBJ, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93DAE5929F287ABB9FBCA2D6938732A00EFEF6D7
+magnet:?xt=urn:btih:C4EBCD4521BF32C070F4C985DD6FB031FC01E7E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,26 +626,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276758   (787511) от 17.01.2019
+###  Публикация: 1341163   (262822) от 26.11.2019
 
-3D модели - Daz 3D - Sydney 8 Pro Bundle - 57005 [DUF]
+KitBash3d - Props: Highways [DXF, C4D]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787511.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Sydney 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Все путепроводы, дорожные указатели, рекламные щиты и дорожные знаки вам необходимы для создания перегруженных дорог, оживленных улиц или фундамента для любой дорожной сети. Используйте развязку, различные пандусы, петли, полу-направляющие и многое другое!.Формат: DXF, C4D
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:176A871C22EFEACB9BCE1EA988D44747CF5D1112
+magnet:?xt=urn:btih:1B58E7222F63FDE59D2DAE9B9D06F0F3A063E6BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,25 +652,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511928   (787761) от 23.11.2021
+###  Публикация: 1341157   (262538) от 27.11.2019
 
-3D модели - Cults3D - GENSHIN IMPACT - YAE MIKO [STL]
+3DDD - Pro Models 1 November 2019 [Corona|V-Ray|*.max, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787761.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Корпус - цельный, основание - отдельное. Я напечатал ее в масштабе 1/20, так что она была примерно 9 см в высоту, включая основание.Формат: STL
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 106 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC029E6C5BE53D3932D0E0E147759D38917DE3A9
+magnet:?xt=urn:btih:6A781A3CF05184BC0B72C5C50630DBF985EDECBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

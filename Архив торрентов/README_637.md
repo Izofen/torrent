@@ -1,49 +1,22 @@
-###  Публикация: 450888   (93286) от 12.02.2012
+###  Публикация: 975179   (972950) от 14.01.2016
 
-Пи Джей Трейси | Смертельная поездка [2012] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Грейс Макбрайд, ее подруга Энни Белински и Шарон Мюллер, помощница шерифа, отправились по делу в Грин-Бэй. Погода была отличная, женщины смеялись и шутили. Даже внезапная поломка автомобиля не испортила им настроения. Но когда они пришли в город за помощью, им стало не до смеха. Они обнаружили, что улицы пусты, а на них самих объявлена охота. И трем отважным амазонкам ничего не оставалось, как принять вызов и держать оборону…Жанр: Триллер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8C76C5B79E1DB5718DB36226C906A6F46851CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451068   (93287) от 12.02.2012
-
-Тревожный вылет (1983) TVRip
+Слендер / Always Watching: A Marble Hornets Story (2015) BDRip [H.264/1080p]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По мотивам повести Е. Воеводина "Крыши наших домов".
-В территориальных водах СССР обнаружен катер-нарушитель. Военное командование отдает приказ: захватить экипаж вражеского судна и обезвредить шпионов. После гибели штурмана, экипаж пограничного вертолета, вылетев на боевое задание, обезвреживает вражескую агентуру и в ходе операции по защите государственной границы спасает попавших в беду рыбаков...Жанр: Боевик, ВоенныйРежиссер: Владимир ЧеботаревАктеры: Евгений Киндинов, Александр Галибин, Ирина Дымченко, Владимир Ферапонтов, Ниезахмат Мусоев, Владимир Самойлов, Владимир Гусев, Александр Белявский, Юрий Саранцев, Борис Бачурин, Вера Кузнецова, Улдис ЛиелдиджПродолжительность: 01:24:05
+Съемочная группа, готовящая сюжет про исчезнувшую семью, обнаруживает коробку кассет со свидетельствами появления Слендера — страшного существа, которое можно увидеть только через объектив видеокамеры. Посмотрев пленки, они навлекают на себя ужасное проклятье: их начинает преследовать сам Слендер, от которого не спрятаться и не скрыться.Производство: США / Bellevue Productions, MosaicЖанр: УжасыРежиссер: Джеймс МоранАктеры: Крис Маркетт, Александра Брекенридж, Джейк Макдорман, Даг Джонс, Майкл Бунин, Александра Холден, Морган Е. Бастин, Блэр Бомар, Синтия Марелл, Рик ОттоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:31:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9AEB544167FA17B9E701BF3B621B300FDA85D61
+magnet:?xt=urn:btih:FF7C4B2DE48DA06713353FB37DA6412357CFDB69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,12 +24,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451001   (93288) от 12.02.2012
+###  Публикация: 1357506   (972949) от 04.02.2020
 
-DVJ Bazuka - Sexy Party (Uncensored) (2011) WEBRip 720p (H264)
+BlueStacks App Player 4.170.0.1042 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыкального Видео
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972949.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlueStacks App Player — бесплатное программное решение, представляющее собой эмулятор операционной системы Android. Уникальная технология "Layercake" позволяет насладиться в полном объеме не только системными приложениями, но и великолепной графикой популярных игр, предназначенных для работы в вышеупомянутой операционной системе, которая используется в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6345D6206486F4DE7FE5769A4567CE6383F52B33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357716   (972945) от 04.02.2020
+
+CleanMyPC 1.10.4.2039 RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972945.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyPC очищает компьютер от ненужных файлов, системного мусора, остатков ранее удалённых приложений и освобождает место на диске, а также обеспечивает более быструю работу Windows. Также продукт позволяет безопасно и без возможности восстановления удалять файлы с диска, управлять расширениями и плагинами браузеров, гаджетами рабочего стола, чистить реестр, очищать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FE0FEAC9435A415743F5AD539C6F6708D13FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357678   (972942) от 04.02.2020
+
+Icecream PDF Converter Pro 2.86 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа, позволяющая конвертировать как в PDF, так и из PDF. При преобразовании файлов в PDF конвертер может склеивать исходные файлы в один PDF документ, а также предлагает множество настроек выходного файла. Можно преобразовать PDF в JPG, BMP, EPS и др. форматы без ограничения по количеству страниц, а также файлы под паролем. Программа имеет встроенную PDF-читалку.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8446ECA637A646FBEC8FDA9EB52CDCFD512361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357618   (972941) от 04.02.2020
+
+LDPlayer 4.0.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972941.jpg" />
+</div>
+
+
+###  Подробнее
+
+LDPlayer - Android-эмулятор для запуска мобильных игр на ПК. Имеется поддержка запуска нескольких копий, есть возможность управления с клавиатуры, присутствует запись видео, скриншоты и запись скриптов, а также полноценная поддержка Google Play Market и всех приложений внутри него.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481544C8FA08D22671B0ECF6A7578954BE99295D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357663   (972939) от 04.02.2020
+
+O&O ShutUp10 1.7.1406 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972939.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O ShutUp10 позволяет получить полный контроль над теми функциями Windows 10, которые Вы хотите использовать и убедиться, что ваши данные не будут отправлены третьим лицам. При помощи простого и интуитивного интерфейса пользователь может самостоятельно решить, какие нежелательные функции должны быть отключены для улучшения условий конфиденциальности данных.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4183B7FD637A15AFCD372E93CE3CDABD70EDC8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438963   (972929) от 21.01.2012
+
+VA - TMP: Clear Sky 059 (12.11.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -65,11 +168,20 @@ DVJ Bazuka - Sexy Party (Uncensored) (2011) WEBRip 720p (H264)
 
 ###  Подробнее
 
-Жанр: ElectroПродолжительность: 00:02:55
+001. Aggressor & Lucas Hache - 1000 Miles Deeper (Original Mix)
+002. Answer42 - Dew Point (Martin Roth's Morning Dew Remix)
+003. Project Purity - Eternus (Original Mix)
+004. Juventa - Gone With The Wind (Sequentia Remix)
+005. Ashley Wallbridge - JYNX (Original Mix)
+006. Markus Schulz pres. Dakota - Sleepwalkers (Don't Stop) (Extended Vocal Mix)
+007. Tritonal feat. Jenry R - Something New (Club Mix)
+008. FKN feat. Jahala - Still Time (Kaimo K Remix)
+009. Kaan Demirel - Sunrise (Original Mix)
+010. Sylvia Tosun & Bellatrax - World Keeps Turning (Alex M.O.R.P.H. & Chriss Ortega Club Mix)12.11.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:15:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A467307C022B467C3290356286BEB00E3DB61C2
+magnet:?xt=urn:btih:E03124C00C97D393F120E6BCB1773ADEFF7184E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,12 +189,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 450894   (93289) от 12.02.2012
+###  Публикация: 438721   (972928) от 21.01.2012
 
-Ю. М. Галенович | Сталин и Мао. Два вождя [2009] [PDF]
+VA - TMP: Clear Sky 055 (12.10.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -91,11 +203,20 @@ https://mybot314.ru/tekegram_catalog/
 
 ###  Подробнее
 
-В драматической истории XX столетия И.Сталин и Мао Цзэдун занимают особое место. Лидеры двух великих держав, ввергшие свои народы в пучину глубочайших потрясений, эхо которых не угасло по сей день... Их взаимоотношения были крайне сложными. В большой политической игре нашлось место и взаимным подозрениям, и интригам, и вероломству. В своей книге виднейший российский китаевед, автор многочисленных публикаций по новейшей истории Китая Юрий Михайлович Галенович подробно раскрывает подоплеку событий 1940-1950-х гг., показывая сложность и противоречивость того времени, всю неоднозначность мотивов и поступков вождей, вершивших судьбы сотен миллионов своих сограждан.2009Формат: PDF
+001. Fadios & Raneem - Chromium (Max Graham Remix)
+002. Cressida - Kibo (Mike Shiver Catching Sun Mix)
+003. Aly & Fila feat. Denise Rivera - My Mind Is With You (Dj Feel Remix)
+004. Estiva - Next Level (Original Mix)
+005. Khoa & Martin Pres Khoma feat. Alisha Nauth - Over Soon (Train) (Bryant Baker Remix)
+006. Nadia Ali feat. Starkillers & Alex Kenji - Pressure (Alesso Remix)
+007. Igor Dyachkov - Still One (Original Mix)
+008. Johnny Yono - Suspended Dimension (Original Mix)
+009. LTN - The Art Of Freedom (Original Mix)
+010. George Acosta feat. Fisher - True Love (Original Mix)12.10.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:11:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B479EE6995BD2666D8046E47D5CA207BD808DF51
+magnet:?xt=urn:btih:31D2BCD41AA2014F0CFF072BE7F2EB7D521C2530
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,12 +224,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451354   (93290) от 12.02.2012
+###  Публикация: 438681   (972927) от 21.01.2012
 
-DVJ Bazuka - Ass Up (Uncensored) (2011) DVDRip
+VA - TMP: Clear Sky 046 (19.06.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
 
 >>Архив торрентов
->>Архив Музыкального Видео
+>>Архив Музыки
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -117,11 +238,20 @@ DVJ Bazuka - Ass Up (Uncensored) (2011) DVDRip
 
 ###  Подробнее
 
-Жанр: House, ElectroПродолжительность: 00:02:54
+001. Rapha - Andromeda (Original Mix)
+002. Sophie Sugar & Tom Colontonio - Arlanda (Masoud Remix)
+003. Tritonal feat. Meredith Call - Broken Down (Ronski Speed Remix)
+004. Vokanoya - Cardinal (Original Mix)
+005. Matt Darey feat. Ridgewalkers - Chasing The Sun (D-Mad Remix)
+006. Swartz & Schulner - Fata Morgana (Original Mix)
+007. First Effect feat. Olivia - Humanity Highway (Original Mix)
+008. Vincent De Jager - In Boundless Light (Original Vocal Mix)
+009. Solarstone feat. Bill McGruddy - Is There Anyone Out There (Nude Mix)
+010. Peter Sawland - Rush Hour (Original Mix)19.06.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:12:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D24F1DC97EFFF005081F9C0064353AF0B6F26B1
+magnet:?xt=urn:btih:155AB9C008F0FB019ECEFF65B8BD0530610C1E3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,12 +259,12 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451356   (93293) от 12.02.2012
+###  Публикация: 438956   (972926) от 21.01.2012
 
-DVJ Bazuka - Sexy Disco (Uncensored) (2011) DVDRip
+VA - TMP: Clear Sky 058 (08.11.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
 
 >>Архив торрентов
->>Архив Музыкального Видео
+>>Архив Музыки
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -143,11 +273,20 @@ DVJ Bazuka - Sexy Disco (Uncensored) (2011) DVDRip
 
 ###  Подробнее
 
-Жанр: House, ElectroПродолжительность: 00:03:20
+001. Southern Fraiz feat. Irena Love - Afterclouds (Simon OShine Vocal Mix)
+002. Vasili B - Destination Blue (Inge Lemon Touch Mix)
+003. Richard Durand feat. Kash - Explode (George Acosta Remix)
+004. Sebastian Brandt - Fabricator
+005. Nektarios Mees Kirsty Hawkshaw & Jan Johnston - Invisible Walls (Accuface Back 2 The Roots Remix)
+006. Blake Jarrell - Maldives (Original Mix)
+007. Russo - Rufus
+008. Trey Ennce - Vanila (Original Mix)
+009. Ultimate - Wonderland (Colonial One Remix)
+010. Alex Kunnari feat. Emma Lock - You & Me (Khomha & Julius Beat Remix)08.11.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:10:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCF6B083AE61C11BD5CEA5B464865F7A3E578D75
+magnet:?xt=urn:btih:CA0A842D531982E393CC30DEDB7471F91B538D98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,9 +294,184 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451505   (93296) от 12.02.2012
+###  Публикация: 438701   (972925) от 21.01.2012
 
-[Wallpapers] Girls Wallpapers Mix (13.02.12)
+VA - TMP: Clear Sky 052 (22.09.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Brett Wood - Direct Drive (Original Mix)
+002. Tritonal feat. Jeza - I Can Breathe (Original Extended Mix)
+003. Mark Otten - Libertine
+004. Armin van Buuren & Ferry Corsten - Minack (Mark Sixma Remix)
+005. Timmy & Tommy feat. Leila - Perfect Motion (Original Mix)
+006. Cramp - RU116 (PROFF Remix)
+007. Store N Forward - Salt (Original Mix)
+008. SHOGUN - Skyfire (Alex M.O.R.P.H. Remix)
+009. Garry Heaney - The Viper (Original Mix)
+010. Kyau & Albert - Velvet Morning (Super8 & Tab Remix)22.09.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98188246D8EA6C8A8B55FF5B0AD19DAF1CC13AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438724   (972924) от 21.01.2012
+
+VA - TMP: Clear Sky 056 (20.10.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Ultimate - Departure (Original Mix)
+002. Russo - I.P.
+003. Vitodito & Soulforge - Magnetics (Original Mix)
+004. Xam - Mnemonic (Original Mix)
+005. Tom Colontonio - Never Give Up (Original Mix)
+006. Suncatcher & Mihai M Pres Starshifters - Phobia (Sundriver Remix)
+007. Protoculture feat. Shannon Hurley - Sun Gone Down (Alex M.O.R.P.H. & Chriss Ortega Remix)
+008. W&W feat. Ana Criado - Three O'Clock (Camera Remix)
+009. Marco V - Unprepared (Recharged Original Mix)
+010. Peet B - Untouched Beauty (Original Mix)20.10.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E032E6372D7C945A67CD46B15B18F442763D7515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438689   (972923) от 21.01.2012
+
+VA - TMP: Clear Sky 049 (13.09.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Syna vs. Ayleon - Change
+002. Ronald De Foe - Gunslinger (Original Mix)
+003. Tritonal feat. Jeza - I Can Breathe (Tritonal Club Mix)
+004. Soulforge - It Was Destiny (Original Mix)
+005. Philippe El Sisi feat. Josie - Over You (Original Mix)
+006. Nadia Ali feat. Starkillers & Alex Kenji - Pressure (Calvin West Extended Remix)
+007. Timur Shafiev feat. Dasha - Reunion (Original Mix)
+008. Sunny Lax - Singaya
+009. Rory Gallagher & Mike Lane - Skyline Cafe
+010. M.I.K.E. feat. Ben Nicky - Spring Break (Original Mix)13.09.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC817D55F7778ABD9ACA66755A2DFD44EB5CE66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438719   (972922) от 21.01.2012
+
+VA - TMP: Clear Sky 054 (06.10.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. DNS Project feat. Madelin Zero - Another Day (Original Mix)
+002. Alex O'Rion - Craters Of The Moon (Alex O'Rion Bigger Room Mix)
+003. Majai - Motion Flash (Elevation Big Room Remix)
+004. Broning - Never Give Up (Original Mix)
+005. Menno De Jong feat. Ellie Lawson - Place In The Sun (Ronski Speed Remix)
+006. Iio feat. Nadia Ali - Rapture (Armin Van Buuren Remix Remastered)
+007. Xam - Steroids (Reworked Version)
+008. MaRLo feat. Jano - The Island
+009. Anhken - Tomorrow Again (Eximinds Remix)
+010. 4 Strings - Twilight Mode (Original Mix)06.10.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B332B0E717A46BA2FE7A3D0977BD1C06C107064D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438960   (972921) от 21.01.2012
+
+VA - TMP: Clear Sky 057 (26.10.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Kyau & Albert - 7Skies (Ellez Marinni Tech Mix)
+002. Fast Distance - Abalone (Original Mix)
+003. Garetta - Blinded By The Sunset (Costa Remix)
+004. Derek Ryan - Catharsis (Danny Chen Remix)
+005. John Dopping - Cognition (Original Mix)
+006. DJ Shog - Comeback (Alternative Mix)
+007. Eco feat. Jeza - Over Paper Skies (Summer Mix)
+008. Dark Matters feat. Ana Criado - The Quest Of A Dream (Dabruck & Klein Remix)
+009. W&W - Three O'Clock (Original Mix)
+010. Setrise feat. Yana Kay - Weapon (DJ Feel Remix)26.10.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D16E4263D6D97605E4F905D87BB710CA329A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439627   (972920) от 21.01.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (21.01.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
@@ -173,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFDC1A09DC864EBFC7C0F8AF0C577912C082D26E
+magnet:?xt=urn:btih:87DBEA6EDBF46552C8B13FF52BCB965184CE91B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,168 +495,9 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451193   (93297) от 13.02.2012
+###  Публикация: 440073   (972919) от 21.01.2012
 
-VA - Танцевальная империя 2 50/50 (2012) [MP3|160-320 kbps]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Rihanna - Man Down
-02 Elvira T - Ищи Меня
-03 Edward Maya pres. Violet Light - Love Story
-04 Эд Шульжевский - Синий Вечер
-05 Adrian Sina feat. Sandra N. - Angel (Radio Edit)
-06 Ёлка - Около Тебя
-07 Sunstroke Project & Offbeat - Epic Sax
-08 Ани Лорак - Ищу Тебя
-09 Shahzoda feat. Akcent - All Alone
-10 Дилайс - Теплый Дождь(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EDC48667628D35BA0D1A3C3088C1DDC7886990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451776   (93298) от 13.02.2012
-
-Домовик и кружевница (1995) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — подросток, унаследовавший от деда и бабки любовь к земле, дому и ко всему живому, что его окружает. После его внезапного исчезновения начинают происходить загадочные события, проникнуть в тайну которых под силу лишь 12-летней девочке.Жанр: Комедия, СемейныйРежиссер: Дмитрий ВоробьевАктеры: Александр Морозов, Анна Естишина, Майя Булгакова, Виктор Павлов, Валентина Талызина, Мария Виноградова, Ольга Волкова, Леонид Чистов...Продолжительность: 01:20:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB60936C4672131C26B67CCE6DB0A1C04C76FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450254   (93300) от 13.02.2012
-
-Hollow - Between The Lines (2012) [MP3|320 kbps]<Heavy Metal/Groove>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Between The Lines (06:22)
-02. The Worst Is Still To Come (05:07)
-03. New Creator (03:07)
-04. Maximum Destruction (03:44)
-05. Until We Meet Again (03:28)
-06. Wake Up Call (04:38)
-07. Burning Hearts Of Metal (05:25)
-08. Close Your Eyes (03:35)
-09. Eternal Betrayer (F.T.L.) (03:36)
-10. Twisted Life (03:29)(   Читать дальше...   )Жанр: Heavy Metal/GrooveПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D3BB6065F030B9CE7544B57644DF2DEAD209A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451269   (93301) от 13.02.2012
-
-Развод по-русски. Выпуск №55. Фанатики и звезды  (12.02.2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-У нас в России — все по-особенному. У нас даже обманывают иначе. Впаривают, втюхивают, надувают, обвешивают-обсчитывают и кидают на каждом шагу. Это — Россия, и это — развод. Развод по-русски. А его жертвы, которых в сухих сводках называют обманутыми потребителями, клиентами, потерпевшими, — это все мы, обычные люди и телезрители.
-«Развод по-русски» — это то, с чем мы сталкиваемся каждый день в магазине, в больнице, в приемной чиновника… Что мы едим, где отдыхаем, как лечимся, кому доверяем наших детей — изобретены сотни хитроумных способов нажиться на нашей доверчивости. Но терпение русского человека небезгранично, а доверие требует проверки.
-В новом еженедельном проекте НТВ репортеры программы работают под прикрытием, чтобы изнутри раскрыть технологию обмана. Наше дело — правое, потому что у каждого из нас есть права. Эксперты — защитники потребителей, адвокаты, врачи и профессионалы из других областях помогут не словом, а делом, и расскажут, как правильно составить претензию, возместить ущерб и потребовать (   Читать дальше...   )Жанр: ТелепередачаТелекомпания: Продолжительность: ~ 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D872D12F355E62C0195C2610228A3523CAC18D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451786   (93302) от 13.02.2012
-
-Maudlin Of The Well - 2 альбома (1999-2001) [FLAC|Lossless]<Avant-Garde Psychedelic Progressive Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Stones Of October's Sobbing (7:25)
-02. Gleam In Ranks (4:16)
-03. Bizarre Flowers / A Violent Mist (9:35)
-04. (Interlude 3) (4:17)
-05. The Curve That To An Angle Turn'd (8:22)
-06. Sleep Is A Curse (5:37)
-07. Riseth He, The Numberless 1 (4:18)
-08. Riseth He, The Numberless 2 (5:16)
-09. (Interlude 4) (5:13)
-10. Monstrously Low Tide (6:48)(   Читать дальше...   )2001/Remastered 2005Жанр: Avant-Garde Psychedelic Progressive MetalПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451738   (93303) от 13.02.2012
-
-Улетное видео по-русски. Новый сезон  (2012.02.11) SATRip
+Улетное видео по-русски. Новый сезон  (2012.01.21) SATRip
 
 >>Архив торрентов
 >>Архив Юмора
@@ -354,11 +509,11 @@ https://mybot314.ru/tekegram_catalog/
 
 ###  Подробнее
 
-Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 01:02:35
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:43:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1BA295D116BF681DCC34D010A2FE4D11111C1D3
+magnet:?xt=urn:btih:64203960ED3AFA62BF4F5664C3AB8F1C1564BC4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,34 +521,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451414   (93304) от 13.02.2012
+###  Публикация: 438732   (972918) от 21.01.2012
 
-Ascoil Sun - Emergence (2012) [MP3|192-320 kbps]<Psychedelic / Psybient, Dub, Downtempo>
+VA - TMP: Clear Sky 051 (21.09.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93304.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Sun Therapy 8:50
-02. Foxy Tuning 6:12
-03. Mermaids Hypothesis 9:05
-04. Ocean That You Hold In Your Hands 9:03
-05. Entanglementary 6:12
-06. Chant Of The Machines 8:44
-07. Delay The Time 6:59
-08. Magnitude In Front 7:00
-09. Feel The Overflow 8:23
-10. Settlers By The Sun 4:202012Жанр: Psychedelic / Psybient, Dub, DowntempoПродолжительность: 01:14:53
+001. DJ Feel & Matisse & Sadko - A Day To Remember (Maarten De Jong Rework)
+002. Ralphie B - Bullfrog (Original Mix)
+003. Fadios & Raneem - Chromium
+004. Tin5ha - Clear Blue Sky (OCOT Remix)
+005. Undertech & Solar Paradise - Light Day (Time2Rest Remix)
+006. Blake Jarrell - Maldives (Genix Remix)
+007. Andain - Promises (Gabriel & Dresden Remix)
+008. Sied Van Riel feat. Nicola McKenna - Stealing Time (Simmons & Blanc Remix)
+009. Aly & Fila feat. Sue McLaren - Still (Jan Martin Remix)
+010. Jaco - Uncertainty (Stonevalley Remix)21.09.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, Trance
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFC0A5A6BDDB756074F5114C62366A801A6201EA
+magnet:?xt=urn:btih:FCD6072A09E740F40D754AE7A5D52AF801F64905
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,9 +556,44 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 452057   (93305) от 13.02.2012
+###  Публикация: 438967   (972917) от 21.01.2012
 
-[Wallpapers] Animals Full HD Wallpapers Pack (13.02.12)
+VA - TMP: Clear Sky 060 (2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Betsie Larkin with Super8 & Tab - All We Have is Now (Original Mix)
+002. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me
+003. John O'Callaghan - Centurion
+004. Marcus Schossow & Thomas Sagstad - Dome
+005. Grube & Hovsepian - Invisible (Tucandeo Remix)
+006. John '00' Fleming - Mmx1215 (Original Mix)
+007. MISTRAL - Ritmo Del Mundo
+008. First State - Skies On Fire (Original Mix)
+009. Andy Moor vs. M.I.K.E. - Spirits Pulse (Adrian Ivan Remix)
+010. Ronski Speed & Kay Stone - Valle Verde17.11.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB55FF9C0E377D7D64634ECB970EC1943B1C39BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743967   (972908) от 10.01.2014
+
+Wallpapers - Обои для рабочего стола Девушки [JPEG]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
@@ -415,15 +605,11 @@ https://mybot314.ru/tekegram_catalog/
 
 ###  Подробнее
 
-[Wallpapers] Animals Full HD Wallpapers Pack (13.02.12) 
-Название:  Animals Full HD Wallpapers Pack (13.02.12) 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Обои для рабочего стола ДевушкиРазрешение файлов: 1280x1024-1920х1440Формат: JPEG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7300DA10070401B608D2E6AA620F92916511339D
+magnet:?xt=urn:btih:3D6D7F0FF8AF096CEA18045232E78271ED84ED56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,25 +617,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451319   (93306) от 13.02.2012
+###  Публикация: 522343   (972906) от 10.01.2014
 
-БезУМно красивые (эфир 11.02.2012) SATRip
+NG: Суперсооружения: Мегазаводы. Guinness/ MegaStructures. Megafactories: Guinness (2011) HDTVRip [H.264/720p]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Три команды мужчин соревнуются в умении проследить ход женской мысли. За каждой командой закреплена пара очаровательных девушек, которые отвечают на вопросы, а парни предполагают их возможный ответ. Парни пытаются смоделировать в своем сознании ход мысли героинь, что не всегда представляется возможным. Процесс обсуждения девушками заданного вопроса – шедевр сюрреализма и одно из самых смешных зрелищ сезона. «Безумно красивые» — одно из самых смешных шоу нового телевизионного сезона и уникальная возможность узнать, как думают женщины. А поможет в этом нелегком и одновременно веселом деле ведущая проектаЖанр: Игра, ТВ-шоуПродолжительность: 00:51:14
+«Ги́ннесс» (англ. Guinness) — пивной бренд, принадлежащий компании Diageo (со штаб-квартирой в Лондоне), изначально относившийся к ирландской компании Arthur Guinness Son & Co, основанной в 1759 году пивоваром Артуром Гиннессом (Arthur Guinness). Пиво «Гиннесс» — самое известное и потребляемое ирландское пиво, ставшее легендой Ирландии и символом дня святого Патрика. Отличительной особенностью пива долгое время являлся жжёный аромат, который получался из-за использования жареного ячменя. Пиво производится из ячменя (в Нигерии его заменяют на сорго), воды, хмеля и дрожжей. На протяжении многих лет отстоявшееся пиво смешивали со свежесваренным, что придавало резкий молочный привкус и характерную пену. Позже компания Гиннесса отказалась от смешивания отстоявшегося и свежесваренного пива, и теперь для создания пены при разливе пиво обогащают азотом; кроме того, в качестве основы производства пива компании по лицензии сейчас зачастую служит концентрированный экстракт «FES», который можно разводить на основе (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AED44119BEEE92877B8465A4375444E17A71145D
+magnet:?xt=urn:btih:22F53D66099307E14AD1D5DC60FA0E2331BF46F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,169 +643,9 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451875   (93307) от 13.02.2012
+###  Публикация: 743597   (972902) от 10.01.2014
 
-[Wallpapers] Best HD Wallpapers Pack (14.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661281F19D2E3F509E9076776B5ECDB8E39453D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451745   (93308) от 13.02.2012
-
-Гражданин Гордон. Выпуск 1 (эфир 29.01.2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Насколько серьезными были нарушения на прошедших парламентских выборах? Как должны вести себя оппозиция и партия власти, чтобы достичь компромисса? Легитимна ли нынешняя Дума? Кто и зачем требует ее распустить? Можно ли провести выборы Президента в мае так, чтобы никто не сомневался в их результатах? И что для этого нужно сделать?Жанр: Телепередача.Телекомпания: Первый канал.Продолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A417948831AF45DD377629E515FF5620E5DCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451285   (93309) от 13.02.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girl Wallpapers Pack 4
-Название: Sexy Girl Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1600x1200 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAF767E07FBC9BFEA7C0D786B685311CD55221D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451980   (93310) от 13.02.2012
-
-Журнал | Причёски №95 [июль-август 2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-"ПРИЧЁСКИ" - это ярко и доступно о самых модных прическах, подробно, но не скучно о самых нужных и полезных продуктах для волос, интересно и понятно о самом "горячем" в мире красоты и здоровья. Разговоры со звездами и уникальная возможность появиться на страницах журнала в качестве модели.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844033578C410D64DA410584BA578F02ECAF39F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450812   (93311) от 13.02.2012
-
-[Wallpapers] Обои для Рабочего стола. Мотоциклы 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Мотоциклы для Рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AA85244664692FB3B58E415CE5C1CBB65255DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451864   (93313) от 13.02.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (14.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC7B3063B710F28E8D140FDCDD5DF028007C54B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449623   (93314) от 13.02.2012
-
-DJ Polovka - House Outbreak Mix (09.02.2012) [MP3|256 kbps]<House, Club House>
+VA - Ministry of Sound: EDM Euphoria (2013) 3CD [FLAC|Lossless|WEB-DL]<House, Club, Progressive, Euro>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -631,13 +657,15 @@ DJ Polovka - House Outbreak Mix (09.02.2012) [MP3|256 kbps]<House, Club House>
 
 ###  Подробнее
 
-01.Chicco Secci & Dave Sol - The Mask (Original Mix)
-03.David Guetta feat. Sia - Titanium ( Remix )
-05.Matisse & Sadko - Svenska (Original Mix)09.02.2012Жанр: House, Club HouseПродолжительность: 00:29:00
+CD1 Продолжительность: 01:19:43
+01. Avicii Vs Nicky Romero - I Could Be The One (03:58)
+ 02. Swedish House Mafia - Don't You Worry Child (03:39)
+ 03. Sebastian Ingrosso & Tommy Trash - Reload (Feat. John Martin) (Vocal Version) (04:56)
+ 04. Alesso Vs Onerepublic - If I Lose Myself (03:56)(   Читать дальше...   )Жанр: House, Club, Progressive, EuroПродолжительность: 03-52-00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8F53076D083FD1A1E59C4923CEC1A8A8D3E0130
+magnet:?xt=urn:btih:03EC71D0940B72867BDE3EB8FAB1ABF4E25397FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,25 +673,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451988   (93315) от 13.02.2012
+###  Публикация: 975350   (972896) от 14.01.2016
 
-Журнал | Причёски №97 [октябрь 2011] [PDF]
+Приключения Джо Грязнули 2 / Joe Dirt 2: Beautiful Loser (2015) Blu-ray [H.264/1080p] [Extended cut]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"ПРИЧЁСКИ" - это ярко и доступно о самых модных прическах, подробно, но не скучно о самых нужных и полезных продуктах для волос, интересно и понятно о самом "горячем" в мире красоты и здоровья. Разговоры со звездами и уникальная возможность появиться на страницах журнала в качестве модели.2011Формат: PDF
+Когда счастливый семьянин Джо Грязнуля находит себя перенесенным в недавнее прошлое, он начинает эпическое путешествие, чтобы вернуться к своим близким в настоящее время.Производство: США / Happy Madison Productions, Lifeboat ProductionsЖанр: комедияРежиссер: Фред ВульфАктеры: Дэвид Спейд, Бриттани Дэниэл, Патрик Варбертон, Марк МакГрат, Деннис Миллер, Кристофер Уокен, Тоби Бронсон, Рон Флагг, Ронда Дентс, Трэйси ВейсертПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Язык субтитров: Английский, Китайский, Французский, Украинский, Корейский, Португальский, Испанский, РусскийПродолжительность: 01:49:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65B326712EFBF8BFC107E63745AC6689D7D92D7B
+magnet:?xt=urn:btih:691676F56C17C9489DCA2A34BB6A686EF0128780
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,25 +699,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 451976   (93316) от 13.02.2012
+###  Публикация: 975338   (972893) от 14.01.2016
 
-Журнал | Причёски №94 [июнь 2011] [PDF]
+Kaspersky Anti-Virus 2016 16.0.1.445 MR1 (Technical Release) [Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"ПРИЧЁСКИ" - это ярко и доступно о самых модных прическах, подробно, но не скучно о самых нужных и полезных продуктах для волос, интересно и понятно о самом "горячем" в мире красоты и здоровья. Разговоры со звездами и уникальная возможность появиться на страницах журнала в качестве модели.2011Формат: PDF
+Антивирус Касперского (Kaspersky Anti-Virus) обеспечивает базовую защиту в режиме реального времени от всех типов вредоносных программ.
+
+Как основа обороны вашего ПК, антивирус защищает вас от вирусов, шпионских программ, троянов, интернет-червей и многих других угроз. Это решение легко в использовании, а технологии безопасности, отмеченные многочисленными наградами (   Читать дальше...   )Язык интерфейса: русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C42F149EB99D795E2A6DABC938DE3B149687D815
+magnet:?xt=urn:btih:6FDC75A4F44919A63BF9AD2ED573C76529FAC65B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,34 +727,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 450784   (93317) от 13.02.2012
+###  Публикация: 975189   (972889) от 14.01.2016
 
-VA - Colors of Sounds (2012) [MP3|320 kbps]<Psychedelic / Progressive>
+Rescatux 0.40b2 (Инструмент сисадмина, пользователя) [i386, i486, x86-64] 1xCD
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93317.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sismo - Dooble Trooble 07:43
- 02. Psypheric - Vortex torsion (Psypheric rmx) 08:39
- 03. Spectral Cosmos - Solar Future 07:05
- 04. K.O.T.A - Ingenioren 08:02
- 05. Yum Kaax - Paranormal vision 07:44
- 06. Mind paradise vs. Two faces - 12 08:18
- 07. Luminexia - Jungle Book 07:36
- 08. Universcience - Trance Mission 07:10
- 09. Neon - Complex Transmission Path 06:09
- 10. Cosmic Replicant - Ultraviolet (UV) 07:062012Жанр: Psychedelic / ProgressiveПродолжительность: 01:15:28
+Rescatux новый rescue GNU/Linux CD/USB основанный на Debian, с дружественным меню для управления задачами восстановления и решения ряда других проблем в операционных системах.
+
+Включает в себя следующие инструменты: Super Grub2 Disk; восстановление GRUB / GRUB2; проверяет и исправляет файловые системы; очищает пароли Windows; позволяет изменить пароли Gnu/Linux; (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D84956709E6980D8305AA93F3594491B25557D48
+magnet:?xt=urn:btih:899AE919D8D1E4D51BED4793189229612EA824E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975367   (972883) от 14.01.2016
+
+Стажёр / The Intern (2015) Blu-ray [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилой вдовец Бен Уитакер решил освоить новую профессию в области индустрии моды, устроившись стажером в фешн-компанию. Возглавляет компанию предпринимательница Джулс Остин, которая вопреки всем правилам ведения бизнеса решает нанять в свою компанию не опытных работников, а стажеров. Сначала Джулс не верит в то, что престарелый работник на что-то способен, но постепенно (   Читать дальше...   )Производство: США / Waverly FilmsЖанр: мелодрама, комедияРежиссер: Нэнси МайерсАктеры: Роберт Де Ниро, Энн Хэтэуэй, Рене Руссо, Андерс Холм, ДжоДжо Кушнер, Эндрю Рэннеллс, Адам Дивайн, Зак Перлман, Джейсон Орли, Кристина Шерер, Нат Вулф, Линда Лавин, Селия Уэстон, Стив Винович, С.Дж. Уилсон, Мэри Кэй Плэйс, Эрин Маккей, Кристина Брукато, Уоллис Карри-Вуд, Молли БернардПеревод: Профессиональный (полное дублирование) (iTunes)Язык субтитров: Английский, Французский, Испанский, РусскийПродолжительность: 02:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3ECAA6B49738FC92BD8F933B04754D1B2A11520
 ```
 
 https://mybot314.ru/tekegram_catalog/

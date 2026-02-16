@@ -1,22 +1,25 @@
-###  Публикация: 1646409   (195776) от 14.07.2023
+###  Публикация: 1106663   (871667) от 20.02.2017
 
-Clip Studio Paint EX 2.0.6 [Multi]
+VA - Iboga Records - Set:26 (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195776.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в мире программное обеспечение для создания комиксов и манги. Оно предоставляет мощные передовые инструменты для рисования и раскраски, что делает его незаменимым для профессиональных художников комиксов и манга.Язык интерфейса: Английский, Немецкий и др.
+01.  Ace Ventura - Rebirth (Gaudium Remix)  8:24
+02.  Neodyne - Believe  7:42
+03.  Ticon - Mirage  7:37
+04.  Elek3ctii - Sea Of Tranquility  8:38(   Читать дальше...   )Жанр: Psy-Trance, PsychedelicПродолжительность: 02:46:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:326E1A4E760EA552BE4DF5F5B0F16FACB464ED70
+magnet:?xt=urn:btih:6EDBDE9D4CB612BBE764D2D5275AF63CA7023BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646059   (195783) от 12.07.2023
+###  Публикация: 644233   (871651) от 15.04.2013
 
-Total Commander 11.00 RC1 [Multi/Ru]
+Формула 1. Сезон 2013. Этап 3. Гран-при Китая (2013) HDTVRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195783.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+За полтора года до дебюта Формулы 1 на китайской земле, в апреле 2003-го, группа инженеров и архитекторов впервые посетила место строительства будущей трассы. Тогда никто не верил, что подобную махину можно построить всего за восемнадцать месяцев, но китайцы удивили абсолютным соответствием намеченному графику, решив несколько серьезных проблем в оперативном порядке.
+Рисунок трассы придумал Герман Тильке, вписавший в конфигурацию китайский иероглиф "Шан" (буквально – "Гоняться в Шанхае") и постаравшийся отойти от привычной схемы, чтобы пресса не писала больше о том, что «автодромы Тильке похожи, как близнецы» – это скоростное кольцо с заложенными в проект возможностями для обгона. Поговаривают, общая стоимость комплекса превысила 325 миллионов долларов.
+
+Широкая трасса, позволяющая атаковать, отличная возможность для обгона на торможении в конце длинной прямой, большие зоны безопасности и великолепная инфраструктура – можно полностью сосредоточиться на гонках...Жанр: СпортПродолжительность: 02:30:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F20D11E817F7DDCE68E4CDA0738F55590CFAD8C3
+magnet:?xt=urn:btih:A84C1341F0DB6E89225EA563097F0CA273230D65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,26 +56,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646168   (195791) от 13.07.2023
+###  Публикация: 643255   (871650) от 15.04.2013
 
-DxO PureRAW 3.4.0 build 16 RePack by KpoJIuK [Multi]
+Pasquale Dagorn And The Sounds Of Love Orchestra - Erotic Dreams (1980) [MP3|192 кб/с]<Easy Listening, Theme, Ballad, Sexy>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195791.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.
-С программным обеспечением DxO PureRAW легко и просто улучшить файлы RAW, улучшайте свои фото в формате RAW, чтобы открыть еще больше возможностей с помощью (   Читать дальше...   )Язык интерфейса: Английский и другие
+01. Je T'aime Moi Non Plus
+02. Emmanuelle
+03. Bilitis
+04. Jeux Interdits
+05. La Prima Volta
+06. Feelings
+07. Historie d'O
+08. Les femmes
+09. Love To Love You Baby
+10. Black Emmanuelle(   Читать дальше...   )Жанр: Easy Listening, Theme, Ballad, SexyПродолжительность: 00:42:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A81D29BE8974DEBA77770DA11A171F88057FA29A
+magnet:?xt=urn:btih:F81B161DD18CA0073E0300F716AD02B1C3088A85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +91,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646250   (195795) от 13.07.2023
+###  Публикация: 641667   (871649) от 15.04.2013
 
-Opera One 100.0.4815.54 + Portable [Multi/Ru]
+VA - Unwind - a Journey Into Global Grooves (2005) [MP3|160~320 кб/с]<Dub, Downtempo, Ambient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195795.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01 - Solarians - Spring Thing
+02 - Tribalistic Society - Aarhus On a Sunday Afternoon
+03 - T.K.Y. - Long Before This Day
+04 - U&K - Sahkovalo
+05 - Lish - Blue
+06 - Sunfire - Electronic
+07 - Visual Paradox - Ga Yo (2005 Edit)
+08 - T.K.Y vs. Max Maxwell - Twilight
+09 - Wilson Stout - Helpless (Dini Dub Mix)
+10 - Sesto Sento - Slow Move(   Читать дальше...   )Жанр: Dub, Downtempo, AmbientПродолжительность: 01:06:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1F6CDA18573DAE4ABB74C057AE6958CD7FCC6EF
+magnet:?xt=urn:btih:04C66AEA0AA3688A97D74368C74AD695736A161C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +126,43 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646186   (195797) от 13.07.2023
+###  Публикация: 644305   (871646) от 15.04.2013
 
-eM Client Pro 9.2.2038.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
+Ooze - Where The Fields Never End : Revisited (2012) [FLAC|Lossless]<Dub, Ambient, Downtempo>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195797.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-eM Client - отличный почтовый клиент с возможностями использования календаря, задачника и чат-месседжера. Программа содержит все основные опции для качественного и удобного использования своего почтового ящика - прием, чтение, ответ, перенаправление писем и др. Профессиональная версия позволяет организовать работу с поддержкой неограниченного количества почтовых (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+CD1: Where The Fields Never End:
+
+01. Quintessence 08:58
+ 02. What's Up 09:31
+ 03. Restricted Flow 09:48
+ 04. Get It Done 06:22
+ 05. Meeting With Strange Species 13:03
+ 06. Trying Outwards 10:31
+ 07. Delicate Passage 09:10
+ 08. Searching Inwards 09:33Жанр: Dub, Ambient, DowntempoПродолжительность: 01:19:56
+
+
+X Lossless Decoder version 20121013 (142.0)
+
+XLD extraction logfile from 2012-10-25 22:08:18 +0400
+
+Ooze / Where The Fields Never End : Revisited
+
+Used drive : (null) (null) (revision (null))(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:700DDBE6E238EEA78872A0467F83B700BB0BE715
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,25 +170,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646290   (195799) от 13.07.2023
+###  Публикация: 644272   (871645) от 15.04.2013
 
-KMPlayer 4.2.2.79 Plus (x86) Portable by 7997 [Multi/Ru]
+r.roo - mgnovenie (2012) [MP3|320 kbps]<IDM, Ambient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195799.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
+1. vdokh 02:29
+2. medlenno 08:20
+3. kasanie 02:45
+4. otkrovenie 08:30
+5. otstuplenie 05:57
+6. on the other side of the glass 03:45
+7. au fall 05:31
+8. from you 05:33
+9. hello my reflection 05:00
+10. don't talk about it 03:33(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 01:08:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:026BCCFD16440DA7A6338AA6BEC29A24C3571662
+magnet:?xt=urn:btih:598BB7A1D678E5FB31E3973F2B55FA9F76AC1B94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,25 +205,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646306   (195805) от 13.07.2023
+###  Публикация: 644343   (871643) от 15.04.2013
 
-App Builder 2023.35 (x64) [En]
+Ermitage - Russian Memories (1998) [MP3|320 кб/с]<New Age, Enigmatic, World music, Folk rock>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195805.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-App Builder позволяет создавать приложения для смартфонов и гибридные приложения на HTML5 даже без знания языков программирования. И все это благодаря визуальной среде, которая позволяет простым перемещением и добавлением элементов создавать настоящие шедевры. Несмотря на то, что главная идея App Builder – позволить создавать приложения даже тем пользователям, которые (   Читать дальше...   )Язык интерфейса: Английский
+01. Matushka Volga 04:00
+02. Russian Memories (Song for Lara) 04:17
+03. Poljushka 04:21
+04. Russians 04:27
+05. Why? 03:25
+06. Paranya 03:44
+07. Petropolis 03:32
+08. Czar's Bridge 04:07
+09. River Lena 04:26
+10. Jo Adin 04:00(   Читать дальше...   )Жанр: New Age, Enigmatic, World music, Folk rockПродолжительность: 00:47:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25F0BB10774C94BFF3E18249A046B7479064CA2B
+magnet:?xt=urn:btih:D1706BCFE000AF03E2B515D12FBE0427427BC20A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,26 +240,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646301   (195809) от 13.07.2023
+###  Публикация: 644208   (871641) от 15.04.2013
 
-Spotify 1.2.15.826 (Repack & Portable) by elchupacabra [Multi/Ru]
+Lauge & Baba Gnohm - Daybreak Revival (2013) (WEB) [FLAC|Lossless]<Psychill, Psybient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195809.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Spotify - это бесплатный потоковый плеер музыки, который вобрал в себя массу онлайн возможностей.
-Spotify имеет громадный каталог музыки, поддерживаемый большинством музыкальных компаний, таких как EMI, Warner Music, Sony или Universal, и вы можете искать в каталоге при помощи встроенного хорошего поискового движка. Хотя, вы можете использовать Spotify и другим образом, (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+01. Memories (06:38)
+ 02. Southern Hemisphere (06:18)
+ 03. Daybreak (07:22)
+ 04. Fields of Light (11:08)
+ 05. Baba Gnohm - Tales of the Giant Stones (10:03)
+
+-----------------------
+
+DON'T MODIFY THIS FILE
+(   Читать дальше...   )Жанр: Psychill, PsybientПродолжительность: 00:41:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28C0C487DD260CF1B23EBC28798AE52EB17CD743
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,25 +275,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645803   (195810) от 11.07.2023
+###  Публикация: 643908   (871634) от 15.04.2013
 
-Adobe Acrobat Reader 23.003.20244.0 [Multi/Ru]
+Формула 1. Этап 3. Гран-при Китая. Гонка (14.04.2013) HDTV [1080i]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195810.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Acrobat Reader — приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество — теперь работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
+Этап Formula 1 (F1) состоит из 3-х свободных практик, квалификации (3 сегмента) и гонки.
+Места пилотов на стартовой решётке (старт с места) определяются по итогам квалификации.
+Зачётные очки начисляются первым 10 пилотам по системе "25–18–15–12–10–8–6–4–2–1".
+Сезон 2013 года — 64-й сезон Формулы-1. Cтанет последним сезоном, в котором используются 2,4-литровые двигатели V8, которые в последующем будут заменены на более экологически чистые и экономичные турбированные V6 двигатели объёмом 1,6 литраЖанр: АвтоспортПродолжительность: 02:30:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B7647552B9D95A630973A462F27518A24121DDA
+magnet:?xt=urn:btih:8F6F2C95CB351B05830BFA0E0A851D27E42FE1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,25 +304,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645681   (195816) от 11.07.2023
+###  Публикация: 301643   (871633) от 27.02.2011
 
-Stardock Start 1.46 RePack by xetrin [Multi/Ru]
+Skyhigh 'n' Ting - Audio Playdough (2011) [MP3|~190 kbps] <Psytrance, Suomi>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195816.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Stardock Start11 – новая версия приложения для настройки меню «Пуск», на этот раз с функциями, специально предназначенными для Windows 11. Как вы, наверное, уже знаете, Windows 11 поставляется с новым дизайном меню «Пуск», вдохновленным Windows 10X, с основными изменениями, включая новое расположение на экране и отсутствие живых плиток.Язык интерфейса: Русский, Английский и другие
+Skyhigh 'n' Ting - Audio Playdough (2011)
+Год: 2011
+Жанр: Psytrance, Suomi
+Лейбл: Catawampus Records
+Продолжительность: 01:14:09
+Кодек: MP3
+Битрейт: ~190 kbps
+Тип битрейта: VBRТрек лист:
+01. Otherworld Oddity [08:14](   Читать дальше...)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F886614E078524639169AA7EB262E79FCDDEE63
+magnet:?xt=urn:btih:6BB76D9E21AC90642EE9BB274E8562DA0D6F0F32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,25 +338,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646281   (195825) от 13.07.2023
+###  Публикация: 301640   (871631) от 27.02.2011
 
-Mozilla Thunderbird 115.0 [Ru]
+Pharmacore - Farmer Business (2011) [MP3|320 kbps]<Dark Psytrance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195825.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
+Pharmacore - Farmer Business (2011)
+Год: 2011
+Жанр: Dark Psytrance
+Лейбл: Biomechanix Records
+Продолжительность: 00:33:44
+Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТрек лист:
+01. Sigma [08:27](   Читать дальше...)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00B23B169E16DF7E597A27AC83FBCE9871C8BCED
+magnet:?xt=urn:btih:E7D88D25994BC3C2AFCA277C4D06C9CAD002B1B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,25 +372,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645873   (195827) от 11.07.2023
+###  Публикация: 997741   (871629) от 18.03.2016
 
-Auslogics BoostSpeed 13.0.0.4 RePack (& Portable) by KpoJIuK [Ru/En]
+LINE 4.5.0.873 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195827.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871629.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
+LINE - это приложение, позволяющее делать бесплатные звонки и отправлять бесплатные SMS со смайликами где бы Вы ни находились 24 часа в сутки.
+Данное приложение занимает 1-е место среди бесплатных приложений в 52 странах, включая Японию, Тайланд, Тайвань, Испанию, Китай, Индонезию, Сингапур, Гонконг, Малайзию, Швейцарию, Саудовскую Аравию, Мексику, Россию, Макао, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D31F400C3B73A3176D86E80627A93D03C7B69EC
+magnet:?xt=urn:btih:4B92990E83A27BD8BE3F1355083FA8E259D0175F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,25 +399,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645760   (195834) от 12.07.2023
+###  Публикация: 300963   (871628) от 27.02.2011
 
-CrystalDiskInfo 9.1.1 + Portable (Shizuku Edition & Kurei Kei Edition) [Multi/Ru]
+VA - Future Dance Hits (March 2011)  [MP3|~307 kbps]<Dance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195834.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871628.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+1. A-STUDIO - Fashion Girl (alex astero & evan sax club mix).
+2. Afrojack & Bobby Burns - Bridge (Original Mix).
+3. Afrojack Bobby Burns Bridge (Original Mix).
+4. Amloop - Caminhando E Cantando (Club Mix).
+5. Andeeno Damassy vs. Lindy - Just be good to me 2011 (Club Mix).
+6. Arnej - We Need Them (Original Mix).mp3
+7. Arnej feat. Sally Saifi - Free Of You (Arnej Club Mix).
+8. Chicane feat. Lemar - What Am I Doing Here (Walsh & McAuley Rework).
+9. Claydee Lupa & Dimension-X - Call Me.
+10. Clokx - Catch Your Fall (Extended Mix).(   Читать дальше...   )Жанр: DanceПродолжительность: 03:13:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2083E84C65ECF9F6D0C27436727526E7FC127B08
+magnet:?xt=urn:btih:86FCEA8187E0C33BE32B1A9100F41AB433418A1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,25 +434,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645653   (195835) от 10.07.2023
+###  Публикация: 301445   (871627) от 27.02.2011
 
-Rufus 4.2 (Build 2070) Beta Portable [Multi/Ru]
+VA - Winter Music ConferenceTrance Tunes 2011WMC Miami (26.02.2011) [MP3|320 kbps]<Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195835.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский, другие
+1. Shaun Ansari - Dream Culture (Original Mix) (8:32)
+2. Mehdi Dressy - Stealth (Original Mix) (6:33)
+3. Silver J. & Catania - Key Of Heart (Crazy Minds Club Mix) (7:22)
+4. Peter Sawland - Identity (Original Mix) (7:03)
+5. DJ Harish & SID Feat InDJnous - Dusk (Original Mix) (6:23)
+6. Ben'yala - Sun Beam (Burak Harsitlioglu Remix) (7:26)
+7. Silver J. & Catania - Key Of Heart (Original Mix) (6:23)
+8. Angel Trance - Homeless Heart (Original Mix) (6:27)
+9. Mospire - The Piano (Engin Ozturk Remix) (7:46)
+10. Mattbeat - Waiting For You (Original Mix) (7:24)Жанр: TranceПродолжительность: 01:11:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0DCF48349181223C37E093563CEB351C43932A9
+magnet:?xt=urn:btih:DCAE192F8417B4956CD532B37F089BF2864BD8DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,25 +469,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645961   (195836) от 12.07.2023
+###  Публикация: 301724   (871626) от 27.02.2011
 
-Advanced SystemCare Pro 16.5.0.237 Portable by zeka.k [Ru]
+VA - Cosmik Chill 2006(Red) And 2007(Orange) (2006-2007) [MP3|320 kbps]<Ambient ,Dub,PsyChill>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195836.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Advanced SystemCare PRO - это мощный пакет для оптимизации операционной системы, включает в себя множество модулей для оптимизации, настройки и повышения производительности компьютеров. Благодаря возможностям данной программы вы сможете настроить Windows до уровня оптимальной производительности, увеличить скорость интернета (до 300 процентов) и защитить компьютер (   Читать дальше...   )Язык интерфейса: Русский
+Жанр: AmbientПродолжительность: 01:16:55
+01. Xerxes Feat. Aleah - Inhale (7:33)
+02. Scann-Tec - Hope (7:32)
+03. Flooting Grooves - Immersion (8:05)
+04. Kliment - Fairdreamers (10:33)
+05. Moravec - Kiwimango (8:00)
+06. Aes Dana - Liquid Hertz (7:19)
+07. Chilled C' Quence & Tajmahal - Power Of Plants (10:39)
+08. Lunaspice - Schamanic (Long Version) (17:15)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29AEE46A3F65135DE77177263B7877307408E243
+magnet:?xt=urn:btih:4ACFF4C08E8A57E1EF63AD279E1A87CE040C9ADC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,25 +503,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645578   (195837) от 10.07.2023
+###  Публикация: 301369   (871625) от 27.02.2011
 
-BananaDefenderBlocker 1.0.0.0 [Ru]
+Фактор риска. Страхование или жизнь (2010) SATRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195837.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-BananaDefenderBlocker - программный продукт от BananaBrain, который способен остановить работу Microsoft Defender без вреда для системы. Работает на технологии BananaRelax.Язык интерфейса: Русский
+Документальный цикл "Фактор риска" - программа о предметах, объектах и продуктах, которые мы потребляем, которыми мы пользуемся, и которым мы доверяем, даже не подозревая о том колоссальном вреде, который они наносят нашему физическому и духовному состоянию. В новых сериях создатели программы пытаются развенчать многие мифы о полезности или, по меньшей мере, безвредности явлений или продуктов. В каждой серии не только высказывается мнение экспертов, но и рассказываются реальные истории обычных людей.Жанр: ТелепередачаПродолжительность: 00:46:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0D272E573A9E5A56AABB7D815EF0AE9684DF94C
+magnet:?xt=urn:btih:827706B84F2C8884352E6BECFFA0B21D2AD97B65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,25 +529,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645627   (195843) от 10.07.2023
+###  Публикация: 300690   (871622) от 27.02.2011
 
-FastStone Capture 10.2 Final RePack (& portable) by elchupacabra [Multi/Ru]
+Cyro Baptista - Banquet Of The Spirits - Caym - The Book Of Angels Vol. 17 (2011) [FLAC|Lossless]<Jazz, Contemporary Jazz>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195843.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-FastStone Capture представляет собой довольно мощное, но в то же время простое средство для захвата снимков с рабочего стола Windows. Позволяет захватывать как отдельные элементы, окна, части рабочего пространства, так и полный экран (поддерживается прокрутка страниц). Оснащена небольшой панелью для манипуляций с изображениями. Кроме того, имеются в наличии такие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Chamiel (4:27)
+02. Matafiel (5:22)
+03. Briel (4:19)
+04. Zaphaniah (3:53)
+05. Tzar Tak (3:45)
+06. Flaef (2:05)
+07. Hutriel (4:27)
+08. Yeqon (4:55)
+09. Yahel (2:26)
+10. Tahariel (4:47)(   Читать дальше...)Жанр: Jazz, Contemporary JazzПродолжительность: 00:48:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:965CF48EDE0450336ED40022E0717A36A1BAFCA1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,25 +564,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646078   (195844) от 12.07.2023
+###  Публикация: 298918   (871621) от 27.02.2011
 
-ColorControl 9.6.2.0 Portable [En]
+VA - DJ Nikita Soul & DJ Dmitry Kozlov pres.COLOURS (2011) [MP3|320 kbps]<House / Club House>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195844.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-ColorControl - небольшая программа которая после запуска предлагает новые функции и возможности для пользователей, имеющих видеокарты от компании NVIDIA или АМД. С помощью нее можно изменить не только основные параметры дисплея, но и некоторые скрытые значения, которые обычно недоступны через стандартную панель управления, что значительно расширяет возможности наши (   Читать дальше...   )Язык интерфейса: Английский
+N/AЖанр: House / Club HouseПродолжительность: 02:27:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:033D8A8CE70B5EC6673B98669AC49CC0C3DE9C92
+magnet:?xt=urn:btih:A22E3117DB818348FF16CCCAF5ED7765A68986B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,25 +590,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646029   (195846) от 12.07.2023
+###  Публикация: 301409   (871619) от 27.02.2011
 
-DxO PhotoLab Elite 6.8.0 build 242 RePack by KpoJIuK [Multi]
+Ringo Starr - Choose Love (2005) [MP3|320 kbps]<Rock>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195846.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Обрабатывайте RAW и JPEG изображения с наилучшим качеством и без усилий. DxO PhotoLab предоставляет полный набор интеллектуальных вспомогательных исправлений, которые вы можете вручную подстроить в любое время. Управляйте всеми аспектами ваших фотографий: эффективно удаляйте шум, избавляйтесь от ограничений света, восстанавливайте детали цвета, применяйте сложные (   Читать дальше...   )Язык интерфейса: Английский и другие
+01. Fading In And Out [03:56]
+02. Give Me Back The Beat [03:54]
+03. Oh My Lord [05:32]
+04. Hard To Be True [03:27]
+05. Some People [03:18]
+06. Wrong All The Time [03:39]
+07. Don't Hang Up [03:27]
+08. Choose Love [03:07]
+09. Me And You [02:15]
+10. Satisfied [03:19](   Читать дальше...)Жанр: RockПродолжительность: 00:44:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:007B77937D5BD1072FBB770867CFE787DA08FF85
+magnet:?xt=urn:btih:8EFCB7C6F87A2006C32B31C84A908B9930C935F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +625,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646040   (195854) от 12.07.2023
+###  Публикация: 301558   (871616) от 27.02.2011
 
-Auslogics BoostSpeed 13.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+Power Quest - Blood Alliance (2011) [MP3|320 kbps]<Power Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195854.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Battle Stations (1:47)
+02. Rising Anew (4:36)
+03. Glorious (4:58)
+04. Sacrifice (6:14)
+05. Survive (6:03)
+06. Better Days (5:24)
+07. Crunching The Numbers (7:26)
+08. Only In My Dreams (6:10)
+09. Blood Alliance (9:05)
+10. City Of Lies (6:39)(   Читать дальше...)Жанр: Power MetalПродолжительность: 01:03:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F52D01971084E097588E37DCA9CB40FD329CE1C8
+magnet:?xt=urn:btih:5FB176F9E2F9C948CCA40B79C2D29C323DC537AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +660,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645872   (195858) от 12.07.2023
+###  Публикация: 301266   (871614) от 27.02.2011
 
-Topaz Photo AI 1.4.0 RePack (& Portable) by elchupacabra [En]
+VA - Dance Hits Vol 160 (2011) [MP3|320 kbps]<Dance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195858.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+Жанр: DanceПродолжительность: 01:22:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12BF48E91594EB08707577701138AC8EAB731E2B
+magnet:?xt=urn:btih:AD2C83E38058BD4913731021976F9A815B704F15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,25 +686,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646044   (195868) от 12.07.2023
+###  Публикация: 301414   (871612) от 27.02.2011
 
-Auslogics Disk Defrag Pro 11.0.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
+VA - Car Audio Vol.12 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195868.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
+01. Aboutblank & KLC - Magic (Original Mix) (6:00)
+02. Adam K & Soha - Circadian Rhythm (Original Mix) (6:44)
+03. Agnes-Release Me (A.Adams Remix) (4:30)
+04. Andy Harding - Pentaon (Dirty Alcorz Remix 2011 BiS-Katja) (5:13)
+05. Armin Van Buuren & Sharon Den Adel - In And Out Of Love (DjMax Maikon Club Mix) (5:47)
+06. Armin Van Buuren Feat. Laura V - Drowning (Avicii Remix) (7:52)
+07. Azora - Tell You A Secret (Dave King Extended Remix) (5:53)
+08. Captain Hooks - Happy Times(Club Mix) (3:38)
+09. Caro Emerald Vs. Lil Jon - What A Night Like This (Twinzz Project Rmx) (4:26)
+10. Cerf Mitiska & Jaren - Another World (Original Vocal Mix) (8:00)(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 04:42:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BE1377EC338B1EAD1C9760E65C5F29A65531457
+magnet:?xt=urn:btih:050DC92FF0AED54D4DAC8A0AF13207C6C6297326
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,26 +721,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645645   (195874) от 10.07.2023
+###  Публикация: 997919   (871610) от 18.03.2016
 
-CareUEyes 2.2.6.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
+AMD Radeon Software Crimson Edition 16.3.1 Hotfix [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195874.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если вы проводите перед экраном компьютера по 8-12 часов в день, порой засиживаясь за клавиатурой допоздна, имеет смысл подумать о сохранении зрения. Поможет в этом деле программа CareUEyes.
-CareUEyes служит для изменения цветовой температуры и яркости изображения на экране компьютера, а кроме того способна напомнить пользователю о необходимости сделать перерыв и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+AMD Radeon Software Crimson Edition — это новое революционное программное обеспечение AMD, предоставляющее модернизированную функциональность, высочайшую графическую производительность, выдающиеся возможности и инновации, задающие новый уровень впечатлений пользователя.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8101773AED3191A0B8E31F1DAD6A3BFB00D4138D
+magnet:?xt=urn:btih:FFF532BF17682F71789A1B2766E38A1A2ED1EB73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,25 +747,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645863   (195881) от 11.07.2023
+###  Публикация: 301656   (871609) от 27.02.2011
 
-CrystalDiskInfo 9.1.1 + Portable [Multi/Ru]
+VA - Big Air (2011) [MP3|320 kbps] <Psytrance, Progressive>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195881.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+VA - Big Air (2011)
+Год: 2011
+Жанр: Psytrance, Progressive
+Лейбл: Digital Nature Records
+Продолжительность: 01:12:04
+Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТрек лист:
+01. Day Dream - Bass Rider [08:05](   Читать дальше...)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABE508CF554F94B3F6BD231FC99E96EC179AB280
+magnet:?xt=urn:btih:4C30AF650CE0EB9A35C506FAE2F430DACC460F70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +781,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645784   (195885) от 11.07.2023
+###  Публикация: 301694   (871607) от 27.02.2011
 
-TeraCopy 3.10.0 [Multi/Ru]
+Sychodelicious - Sex Intentions (2009) [MP3|320 kbps]<Full Power, Night Psytrance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195885.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-TeraCopy – утилита улучшает процесс копирования файлов, по заверению разработчика делает она это (копирование) на порядок быстрее за счет использования дополнительного буфера. При этом процесс копирования может быть поставлен на паузу и затем возобновлен. Так же присутствует функция контроля копирования, в случае невозможности чтения файла можно повторить попытку, (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+Sychodelicious - Sex Intentions (2009)
+Год: 2009
+Жанр: Full Power, Night Psytrance
+Лейбл: NeuroMind Records
+Продолжительность: 01:25:44
+Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТрек лист:
+01. Subconcience (Remix) [08:01](   Читать дальше...)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D394EABF916E82A7819EBE0891D0B183151DD785
+magnet:?xt=urn:btih:AD51939B2904CBB5B635D2E4C2C70A5A7DA2DC12
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,25 +815,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645426   (195905) от 09.07.2023
+###  Публикация: 997755   (871604) от 18.03.2016
 
-Трансформеры / Transformers (2007) BDRip [H.265/2160p] [4K, HDR, 10-bit] [PR]
+Mozilla Firefox 45.0.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195905.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В течение многих столетий две расы роботов-инопланетян — Автоботы и Десептиконы — вели войну, ставкой в которой была судьба Вселенной. И вот война докатилась до Земли. В то время, когда силы зла ищут ключ к верховной власти, наш последний шанс на спасение находится в руках юного землянина. Единственное, что стоит между несущими зло Десептиконами и высшей властью (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: фантастика, боевикРежиссер: Майкл БэйАктеры: Шайа ЛаБаф, Меган Фокс, Джош Дюамель, Тайриз Гибсон, Джон Туртурро, Рэйчел Тейлор, Энтони Андерсон, Джон Войт, Кевин Данн, Джули Уайт и др.Перевод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: ОтсуствуютПродолжительность: 02:23:27
+Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:514CFBB083C80E619B2C29E6A78C55EA1DC8E02F
+magnet:?xt=urn:btih:5BE483F84C700739970D3114F12F2B12F851C021
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1374983   (868617) от 12.04.2020
+###  Публикация: 1428141   (180743) от 01.12.2020
 
-Manowar - 100% Manowar (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+Andy Scott - Do It All Over Again (2CD Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868617.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_180743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carry On
-02. Hail and Kill
-03. Battle Hymn
-04. Fighting the World(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 04:04:17
+01. X-Ray Specs
+02. Marshall Stack
+03. Gotta See Jane
+04. Red Tape(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:39:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6717DA211254BFE99F66662D96771C83371DA74
+magnet:?xt=urn:btih:89BD9880758EF09EACA94C7BF59DDDB7F37C789E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375081   (868903) от 12.04.2020
+###  Публикация: 1428638   (179001) от 03.12.2020
 
-Robert Plant - 100% Robert Plant (2020) [MP3|320 Kbps] <Rock>
+VA - The Rock Album (2020) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868903.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_179001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Big Log (2006 Remaster)
-02. Heaven Knows (2006 Remaster)
-03. Burning Down One Side (2006 Remaster)
-04. Little by Little (2006 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 02:57:28
+001. Lynyrd Skynyrd - Free Bird (9:18)
+002. Guns N' Roses - November Rain (8:57)
+003. Joe Walsh - Life's Been Good (8:56)
+004. Led Zeppelin - Kashmir - Remaster (8:37)(   Читать дальше...   )Жанр: RockПродолжительность: 10:31:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:906B32B664C89E33CEE4030046928EA3E17706DF
+magnet:?xt=urn:btih:57512E7C26E2E9FE1F993A7E541826F379999BCA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375138   (868983) от 12.04.2020
+###  Публикация: 1666456   (178863) от 05.10.2023
 
-VA - Acoustic Rock vol.3 (2020) [MP3|320 Kbps] <Rock>
+VA - Girls Fleetwood Mac Compilation (2023) [MP3|320 Kbps] <Rock, Soft Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868983.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. America - A Horse with No Name (04:12)
-02. Bread - Everything I Own (03:07)
-03. Faces - Ooh La La (03:34)
-04. Alanis Morissette - Ironic - Acoustic Version (03:55)(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:02
+01. Stevie Nicks - Blue Denim
+02. Stevie Nicks - Edge of Seventeen
+03. Christine McVie - One in a Million
+04. Stevie Nicks - Talk to Me(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 00:44:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1199BDF5A56B472712B1349C871022942FB5CFBB
+magnet:?xt=urn:btih:C9FBDCBBCDCE8132C15CECFB390F88C0DC2F4A0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 996597   (872043) от 18.03.2016
+###  Публикация: 1666454   (178801) от 05.10.2023
 
-Agialis - Компиляция (2016) [MP3|320 кб/с] <Metal>
+VA - Fleetwood Mac & friends Compilation (2023) [MP3|320 Kbps] <Rock, Soft Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872043.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.10 шагов[04:05]
-02.Ghostbusters(cover)[03:20]
-03.Ангелы[03:41]
-04.Вьюга[05:02](   Читать дальше...   )Жанр: МеталлПродолжительность: 00:56:08
+01. Fleetwood Mac - Need Your Love So Bad
+02. Peter Green - Slabo Day
+03. Rick Vito - I Loved Another Woman
+04. Rick Vito - I've Got a Secret(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 01:03:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAFE2989E5CE0AD452B86E76ABFEC4638CB6E44D
+magnet:?xt=urn:btih:1ADFC7A9C324408109039CED8932627058232502
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374577   (872279) от 10.04.2020
+###  Публикация: 1594265   (178644) от 30.11.2022
 
-Joe Cocker - 100% Joe Cocker (2020) [MP3|320 Kbps] <Rock, Pop>
+The Savage Rose - Compilation (2022) [MP3|320 Kbps] <Pop Rock>
 
->>След.
+>>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872279.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Feels Like Forever
-02. Now That the Magic Has Gone
-03. Unchain My Heart
-04. Night Calls(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:30:55
+01. Beautiful Day
+02. Children of Mine
+03. City of Angels
+04. Early Morning Blues(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:42:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D663D90B844C1F16C559819BD6382388EBB7DA1
+magnet:?xt=urn:btih:81B2D625D59F616F5193A804056CE8C993DFF38A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374545   (872437) от 10.04.2020
+###  Публикация: 1593676   (178596) от 30.11.2022
 
-Billy Idol - 100% Billy Idol (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock>
+VA - Music For You vol. 26 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872437.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweet Sixteen (Live in Odense)
-02. Shock To The System
-03. Flesh For Fantasy (Below The Belt Mix / 2001 Digital Remaster)
-04. Sweet Sixteen (Live On VH1 Storytellers, New York City, New York/2001)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 06:50:19
+01. Nektar - Remember The Future Part 1 (16:40)
+ 02. Camel - Ice (10:11)
+ 03. FM - Phasers On Stun (03:49)
+ 04. Caravan - Nine Feet Underground (Medley) (22:45)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 05:00:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5115A17D0842F8077608BB7B2A783343024536C0
+magnet:?xt=urn:btih:1AA5CC09F7EC75C8AB5AB80E5DE93CC66C0CE876
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374679   (872578) от 10.04.2020
+###  Публикация: 1301074   (177608) от 01.12.2022
 
-VA - Acoustic Rock vol.4 (2020) [MP3|320 Kbps] <Rock>
+David Lynch - The best (2001-2014) Compilation Album [MP3|320 Kbps] <Experimental, Rock, Score>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872578.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stone Sour - Wicked Game - Acoustic; Live (04:27)
-02. Stone Sour - Through Glass (04:42)
-03. Seether - Broken (04:17)
-04. Staind - Epiphany (04:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:39:45
+01. And Light Shines (instrumental)
+02. And Light Shines (bonus)
+03. Bad the John Boy (bonus)
+04. Blue Frank(   Читать дальше...   )Жанр: Experimental, Rock, ScoreПродолжительность: 03:15:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82ADC00BEE2BE93793DC13BC56D09E5DFABBD9AB
+magnet:?xt=urn:btih:36E9748D3BB7BF5574C62B888D3E1FCECE661855
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496442   (872600) от 17.09.2021
+###  Публикация: 1594795   (176771) от 03.12.2022
 
-VA - The Blues For Yesterday (Vol.03) (2021) [MP3|320 Kbps] <Blues, Rock Blues, Folk>
+Janiva Magness - Compilation (2022) [MP3|320 Kbps] <Rock, Pop Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872600.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_176771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Richard Bona - Kurumalete
-002. Nicole Hart - Higher Ground
-003. Susan Tedeschi - Looking For Answers
-004. Mannish Boys - Ti Blues(   Читать дальше...   )Жанр: Blues, Rock Blues, FolkПродолжительность: 08:27:56
+01. Let Me Breathe
+02. Strong as Steel
+03. The Devil is an Angel
+04. Hammer(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:27:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04598ECED1AAB6FE65A847F9455434A378ECFA45
+magnet:?xt=urn:btih:BC9C25FFF130769EB7EA4E9092A72DCCBFE3B468
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106377   (872736) от 19.02.2017
+###  Публикация: 1594588   (176686) от 03.12.2022
 
-J. R. Blackmore - Destructive Mania (2017) [MP3|320 Kbps] <Rock>
+VA - Female pop rock part  11 Compilation (2022) [MP3|320 Kbps] <Pop Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872736.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Destructive Mania
-02. Your Last Chance
-03. Beethoven
-04. Drivin' Song (It's Rock)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:53
+01. Iyeoka - Simply Falling (Instrumental Mix)
+02. Kaz Hawkins - At Last
+03. Meena Cryle - Try Me
+04. Iyeoka - Broken Hearts Anthem (Walk Away)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:51:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1269F0191DA039D8D349CAA3CBFC2F949FFE1773
+magnet:?xt=urn:btih:BA495EC5235C354CDB248517B74998C54C6230E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496410   (872864) от 17.09.2021
+###  Публикация: 1429307   (176523) от 06.12.2020
 
-VA - Hard Punk Review (2021) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
+VA - Classic Rock Melody (2020) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872864.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_176523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Scott Sellers - Back To Reality
-002. Authority Zero - Fire Off Another
-003. Riskee & The Ridicule - Millwall Brick
-004. Tim Vantol - You Will Never(   Читать дальше...   )Жанр: Punk, Rock Punk, AlternativeПродолжительность: 05:14:39
+Рок — одно из самых «живучих» и любимых музыкальных направлений на протяжении нескольких десятков лет. «Монстры» рок-сцены и перспективные новички из поколения в поколение находят своих преданных поклонников, а многие из них и вовсе стали настоящим олицетворением эпохи!001. Stereophonics - This Life Ain't Easy
+002. Pinch Points - Stainless Steel
+003. Dylan Leblanc - I See It In Your Eyes
+004. Ken Hensley - From Time To Time(   Читать дальше...   )Жанр: RockПродолжительность: 06:59:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:413E5E3CB6C0E4CC08E1FE4C1E69FE012788A4E9
+magnet:?xt=urn:btih:D9F5FEFA4049BE427D5F577458800DCA64FEBF34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496435   (872865) от 17.09.2021
+###  Публикация: 1595062   (176033) от 04.12.2022
 
-VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
+Ana Popovic - Compilation (2022) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872865.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Blutengel - Hymn
-002. Fame On Fire - It's Okay
-003. Redhook - Kamikaze
-004. Slaves - Like I Do(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:40:52
+01. How the Mighty Have Fallen
+02. Nothing Personal
+03. Catfish Blues
+04. Downtown(   Читать дальше...   )Жанр: RockПродолжительность: 02:44:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC3A2341EBC2F690EB4CCEC3A80CB6520105B770
+magnet:?xt=urn:btih:4F95B0771BD518428B21A4D1FBA1763037A3646A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 765274   (872982) от 13.03.2014
+###  Публикация: 1595164   (175487) от 05.12.2022
 
-VA - Alterportal HITS 14 Vol. 66 - February (2014) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
+VA - Rock part  12 Compilation (2022) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872982.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 3 Years Hollow - For Life (Feat. Clint Lowery)
-02. Rave The Reqviem - Exhale
-03. Fuel - Cold Summer
-04. An Early Fall - Soma(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:00:44
+01. Klaus Brandl - Red Wine Before Sunset
+02. Chris Stapleton - Devil Always Made Me Think Twice
+03. Klaus Brandl - Black Dog Smile
+04. Chris Stapleton - Cold(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B4079217F8F6798C1080F4E1C3D710CCA806A2A
+magnet:?xt=urn:btih:B911AD68918D0639737A12FD9A352DFAADD0FBBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374390   (872985) от 10.04.2020
+###  Публикация: 1429834   (175035) от 08.12.2020
 
-VA - Advanced Rock (2020) [MP3|320 Kbps] <Rock, Punk, Alternative>
+VA - 900 Days (2020) [MP3|320 Kbps] <Alternative, Indie, Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872985.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dayseeker - Already Numb
-002. Dylan Leblanc - I See It In Your Eyes
-003. Temples - It's All Coming Out
-004. Scott Lavene - Modern World(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 06:37:12
+Тематический сборник рок музыки "900 Days" выдержан в едином стиле неприятия и непримирения. Бунтарский дух – это когда душа горит огнём, когда испытываешь жажду быть свободным от условностей, когда есть смелое и бескомпромиссное желание быть тем, кто ты есть.001. Status Quo - The Anniversary Waltz
+002. No Love For The Middle Child - Frozen
+003. The Galileo 7 - Dandy In Aspic
+004. Tyler Bryant - Couldn’t See The Fire(   Читать дальше...   )Жанр: Alternative, Indie, RockПродолжительность: 07:48:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD4778B0B4752F386767CD33CCB73C6ADDBE2D24
+magnet:?xt=urn:btih:C8DC0A55BDAECBF7614206CDCB75DF1B3B7B095D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374272   (874120) от 09.04.2020
+###  Публикация: 1670026   (172255) от 19.10.2023
 
-VA - Русский Рок ревью 2020 [MP3|320 Kbps] <Rock>
+VA - Workout, Beast Mode, Aggressive (2023) [MP3|320 Kbps] <Rock, Hard Rock, Other>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874120.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Estradarada - Чемпион (3:16)
-2.Port Avenue - Прятки (3:50)
-3.Rooftops - Джоинт (3:06)
-4.Total & CHERKUNOVA - Бойцы (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:14
+001. Tundra - Pull Up (2:02)
+002. LaLion - RUN BOY (2:08)
+003. Tundra - Major (2:09)
+004. Egypt Central - Over And Under (2:12)(   Читать дальше...   )Жанр: Rock, Hard Rock, OtherПродолжительность: 05:59:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33DF4EDEBCBA5494A7B0060FA412E7E7B2769A05
+magnet:?xt=urn:btih:66A6B431827747D37A69A368E4BAAB5DC4B005C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374341   (874307) от 09.04.2020
+###  Публикация: 1670587   (171672) от 22.10.2023
 
-VA - Acoustic Rock vol.1 (2020) [MP3|320 Kbps] <Rock>
+VA - Rock For All Times (2023) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874307.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris Cornell - You Never Knew My Mind (Johnny Cash: Forever Words) (04:56)
-02. Nirvana - About A Girl (03:37)
-03. Oasis - Wonderwall (04:18)
-04. The Verve - The Drugs Don't Work (05:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:07
+01. Rage Against The Machine - Killing In The Name [05:14]
+02. Bachman - You Ain't Seen Nothing Yet [03:58]
+03. Linkin Park - Somewhere I Belong [03:34]
+04. Electric Light Orchestra - Do Ya [03:45](   Читать дальше...   )Жанр: RockПродолжительность: 03:45:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:291E6E5540B3997130829D391DEF216BB747F269
+magnet:?xt=urn:btih:1D669115F906F9DD95C1663FF1FEB4ECBFBACC51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374168   (874722) от 09.04.2020
+###  Публикация: 1596507   (169565) от 10.12.2022
 
-VA - Perception: Indie Pop-Rock Compilation (2020) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+Guns N’ Roses - Collection (2022) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874722.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. The Reds, Pinks - Living On Sunday
-002. Amy Klein - Daisy
-003. Parsnip - Lift Off
-004. Night Flowers - Carry On(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 09:12:42
+С творчеством Guns N Roses я познакомился в 96 году. Услышал альбом 93 года The Spaghetti Incident и с первых нот он сразу залетел в душу. До этого слышал только песню Don’t Cry. Энергетика у музыкантов бешеная. К сожалению, Spaghetti Incident стал последним крутым детищем группы. Записаны и сведены альбомы в среднем качестве. Послушал ремастеры и звучание не понравилось. (   Читать дальше...   )01. Welcome To The Jungle
+02. It's So Easy
+03. Nightrain
+04. Out Ta Get Me(   Читать дальше...   )Жанр: RockПродолжительность: 04:35:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDF686C978ECADC576736BB637837E27F95399D3
+magnet:?xt=urn:btih:BCE225A931AEE27BB59C8CBD72A37D81F51C684F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 996454   (875601) от 16.03.2016
+###  Публикация: 1595807   (169096) от 11.12.2022
 
-VA - Nashville Indie Spotlight (2015) [MP3|192 кб/с] <Indie>
+Doc Holliday - Compilation (2022) [MP3|320 Kbps] <Rock, Southern Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875601.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.	Ruelle - Monsters
-2.	Whissell - Get Free
-3.	Eza - We Keep the Lights Out
-4.	Wave & Rome - Across the Map(   Читать дальше...   )Жанр: IndieПродолжительность: 01:32:28.162
+01. Black Cat
+02. City Night
+03. Last Ride
+04. Farmer's Tan(   Читать дальше...   )Жанр: Rock, Southern RockПродолжительность: 01:23:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58976F44DD6ED2DF76A0DA13311847822DC2237A
+magnet:?xt=urn:btih:A76FCE2265F7C8775C19034698A24DE3ED870DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 996997   (877084) от 15.03.2016
+###  Публикация: 1672353   (168966) от 28.10.2023
 
-VA - Now That's What I Call Power Ballads: Hits (2016) [MP3|320 кб/с] <Melodic Rock, Hard Rock>
+VA - The Message Of The Dark Angel (2023) [MP3|320 Kbps] <Death, Black, Heavy Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877084.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bon Jovi - I'll Be There For You
-02. Skid Row - I Remember You
-03. Warrant - Heaven
-04. Slaughter - Fly To The Angels(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 01:19:48
+001. Whirlwind - Red September [04:51]
+002. Attest - No Sacred Blood [03:06]
+003. Ticinum - Bargniff [06:54]
+004. Dead Sun Rising - Slough [02:55](   Читать дальше...   )Жанр: Death, Black, Heavy MetalПродолжительность: 11:11:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B86733E03F7FCFBD79FAF0912061A24ADDB9AD4
+magnet:?xt=urn:btih:41F251A0EA60E2FC158886B3BE2448AFDBB4ECC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373711   (878443) от 07.04.2020
+###  Публикация: 1344896   (168209) от 13.12.2019
 
-VA - Heavy Metal Collections Vol.14 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
+VA - Mastiff: Hard Rock Music (2019) [MP3|320 Kbps] <Hard Rock, Metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878443.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1:
-01. Burning Witches - Lords Of War (2018) (3:38)
-02. Phantom - Baptised (2017) (4:15)
-03. Queensryche - 46 North (2019) (3:33)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:41:04
+001. No Home - Separation
+002. It Prevails - Lair Hill
+003. Leeway - I'm Your Pusher
+004. Smeltz - Nemesis(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:38:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6DFE65D8C0CB901E45FABB4504A47DDD534EB00
+magnet:?xt=urn:btih:80D47BE1E903CA59B8628A9C1BF2C8C97A0742C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373706   (878465) от 07.04.2020
+###  Публикация: 1515845   (167899) от 09.12.2021
 
-VA - Heavy Metal Collections Vol.16 (3CD +1CD LIVE) (2020) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
+VA - Raise Your Flag: Rock Worlds Fest (Vol.02) (2021) [MP3|320 Kbps] <Progressive Rock, Punk, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878465.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1:
-01. Nozomu Wakai's Destinia - Rain (2018) (4:53)
-02. Dream Child - Under The Wire (2018) (5:43)
-03. Last Days Of Eden - Dead Man's Tale (2018) (4:24)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:41:04
+Следует настроиться на позитивный лад во время прослушивания данного сборника. Правда, позитив этот будет немного заполитизированный, социально направленный и меланхоличный, что подстать состоянию природы за окном.001. White Moth Black Butterfly - Under The Stars
+002. Afi - Tied To A Tree
+003. 187 Strassenbande - Vielen Dank
+004. Professor Electric - Emerging Forth Into The Light(   Читать дальше...   )Жанр: Progressive Rock, Punk, AlternativeПродолжительность: 10:21:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1CE027E93EFC42968BEF87F85C1B8CF1B7E7F98
+magnet:?xt=urn:btih:FCC383F6AD4A019A3CE3BE0052CCF7E4E7DFE635
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373697   (878489) от 07.04.2020
+###  Публикация: 1515999   (167888) от 09.12.2021
 
-VA - Heavy Metal Collections Vol.15 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
+VA - Rebel Rock Box: Punk & Progressive Mix (CD.02) (2021) [MP3|320 Kbps] <Rock Punk, Progressive Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878489.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1:
-01. Beyond The Black - Songs Of Love And Death (2015) (4:18)
-02. Iron Savior - Roaring Thunder (2019) (4:23)
-03. Turilli - Lione Rhapsody - Zero Gravity (2019) (5:53)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:16:33
+В наше время панк-рок воспринимается зачастую как стиль, который уже давно пережил свои лучшие годы и музыкальная сцена этого жанра музыки изрядно поредела. Но в последнее время интерес к панк-року начал возрождаться и возможно, причина тому - ответ насилием на насилие, которое происходит в мире и сама обстановка, сложившаяся в мировой политике.001. Graduating Life - Fine
+002. Haexan - Skeletons
+003. Andrйs Calamaro - Jugar Con Fuego Con Raphael
+004. Faro - Down(   Читать дальше...   )Жанр: Rock Punk, Progressive RockПродолжительность: 08:39:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8ED95AC05873E9268658D6567A799B9D7209D67
+magnet:?xt=urn:btih:127A1053EF3B0AC9C6E3B0A64A25DC16AD47B130
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373700   (878511) от 07.04.2020
+###  Публикация: 1515839   (167825) от 09.12.2021
 
-VA - Heavy Metal Collections Vol.13 (3CD) (2019) [MP3|320 Kbps] <Power, Symphonic, Heavy Metal>
+VA - Buste And Flow: Feery Compilation (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878511.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1:
-01. Beast In Black - Die By The Blade (2019)(3:15)
-02. Free From Sin - Faces Of Christ (2018)(5:19)
-03. Serenity - United (2017)(5:34)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:16:54
+Агрессивная музыка с философским подтекстом на треках сборника "Buste And Flow". Где каются грешники? Вопрос на который пытаются ответить исполнители песен лонгплея. И есть ли прощение в аду. Но ответа на эти вопросы мы так и не услышим.001. Hail The Sun - Misfire
+002. Dreamwell - Sayaka
+003. Flesh Worship - Anathema I. Solipsistic Stupor
+004. Hostages - No Justice(   Читать дальше...   )Жанр: Metal, Hard Rock, HardcoreПродолжительность: 09:14:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:425A83F74B6611B0D0DFB16BFAD3F92CE05D5AE7
+magnet:?xt=urn:btih:0D9F62B133582FF40EF41320A07E53AACEA78454
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495640   (878816) от 13.09.2021
+###  Публикация: 1515819   (167814) от 09.12.2021
 
-VA - Get a Rock! (2021) [MP3|320 Kbps] <Rock>
+VA - Alternative Rebel Rock (CD.03) (2021) [MP3|320 Kbps] <Rock, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878816.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Мураками - Говори (4:12)
-02. Гарик Сукачев - О, Море В Гаграх (4:17)
-03. Земфира - Мелодрама (4:03)
-04. ФЛИП - Не Умрём (3:02)(   Читать дальше...   )Жанр: RockПродолжительность: 04:58:39
+Чаще всего в рок музыкальных произведениях есть момент, когда все инструменты затихают, оставляя лишь электрогитару, которая играет эпическое соло. Эти отрывки в композициях высоко ценятся не только среди любителей и слушателей рока, но и среди самих музыкантов, так как во время соло, гитарист «не прикрыт» и не заглушен другими инструментами. Он не имеет права на (   Читать дальше...   )001. Ya Tseen - At Tugáni
+002. Møaa - Lam
+003. Maxпmo Park - All Of Me
+004. David Bowie - Running Gun Blues(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:46:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78F5C0129143C381AB1D106F134375980E17F1F3
+magnet:?xt=urn:btih:8EDB33641CF5F29B32A016582F76BD66DC5E7DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,25 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 299435   (878910) от 22.02.2011
+###  Публикация: 1672791   (167706) от 29.10.2023
 
-Виктор Цой - Группа Кино Лучшее (1981 - 1990) [MP3|224 kbps]<Rock>
+VA - Acoustic Rock (2023) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878910.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: RockПродолжительность: 01:42:28
+01. Green Day - Good Riddance (Time of Your Life) (2:33)
+02. Coldplay - Sparks (3:47)
+03. Disturbed - The Sound of Silence (4:08)
+04. Stone Temple Pilots - Plush (Acoustic Version) (4:49)(   Читать дальше...   )Жанр: RockПродолжительность: 04:08:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:182AAF0E1CE2E615A0FA322668AF3870EFC12FD7
+magnet:?xt=urn:btih:BB4C8897F9B75E4E95E1CAF61A9A344E7462F4E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 994917   (879278) от 14.03.2016
+###  Публикация: 1516086   (166572) от 10.12.2021
 
-VA - Alterportal HITS 16 Vol. 90 - February (2016) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+VA - Blues Rock Collection (2021) [MP3|320 Kbps] <Rock, Blues Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879278.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Deftones - Prayers/Triangles
-2.Blind Channel - Darker Than Black
-3.Kill the Kong - Ignite
-4.King City – Neurotic(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:57:12
+Part I:
+01. Pepe Ahlqvist And The Sunset Boulevard - Don't Leave Me Again (04:25)
+ 02. Dr.Feelgood - Second Opinion (03:23)
+ 03. Bobby Blue Bland - Sad Street (06:40)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:48:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:603E9E84051D8EB13D1993C6D276A8F76D9F311D
+magnet:?xt=urn:btih:C318A0B5F5B9D02B96D133B590D7CC8124C26D69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373285   (880106) от 06.04.2020
+###  Публикация: 1346109   (164482) от 18.12.2019
 
-David Gilmour - 100% David Gilmour (2020) [MP3|320 Kbps] <Rock>
+VA - Not Dead Yet: Modern Rock Compilation (2019) [MP3|320 Kbps] <Rock, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880106.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 5 A.M. (Live At Pompeii 2016)
-02. Rattle That Lock (Live At Pompeii 2016)
-03. Faces of Stone (Live At Pompeii 2016)
-04. What Do You Want From Me (Live At Pompeii 2016)(   Читать дальше...   )Жанр: RockПродолжительность: 08:16:41
+001. Ouzo Bazooka - Sleep Walk
+002. Hippo Campus - Bubbles
+003. Hodera - If You Want Me To
+004. Per Frost - Furious Machines(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:50:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64F716514F56C9394867173B25945F51A841E067
+magnet:?xt=urn:btih:FD5D8E811768C0FEA117FB2A786204AB20FCF810
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1848181   (1052538) от 16.01.2026
+###  Публикация: 1819992   (948) от 25.09.2025
 
-VA - Guardians Of The Galaxy. Awesome Mix Vol. 1 & Vol. 2 (2017) Deluxe Vinyl Edition, Songs From The Motion Picture Original Score By Tyler Bates [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundt ...
+Sycamore Sisters - Out Of The Cage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052538.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-Awesome Mix Vol. 1
-01. Blue Swede - Hooked On A Feeling
-02. Raspberries - Go All The Way(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:30:52
+01.  Judgement day (2:53)
+02.  Nobody knows you when you're down and out (3:59)
+03.  Caged bird (I know why the caged bird sings) (2:58)
+04.  Running (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:671C7A96701D9AFFBDA1B76DD8C36C2BF1A1A4B3
+magnet:?xt=urn:btih:AC5AEF615920B036414BB919A79B851E95266495
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848182   (1052539) от 16.01.2026
+###  Публикация: 1819954   (947) от 25.09.2025
 
-Frank Sinatra - Swing Easy! (1959) Reissue. Records 1954 [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Swing>
+Crematory - Believe (2000) Reissue 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052539.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Just One Of Those Things
-A2 I'm Gonna Sit Right Down And Write Myself A Letter
-A3 Sunday
-A4 Wrap Your Troubles In Dreams(   Читать дальше...   )Жанр: Jazz, Pop, SwingПродолжительность: 00:20:09
+01. Redemption of Faith(2:05)
+02. Endless(4:23)
+03. The Fallen(3:43)
+04. Take(4:54)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:54:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBBB73BA74D4BA55089CBD86B0BA6D53CD03A3F9
+magnet:?xt=urn:btih:7DDCD23DB6CF6EE8BF9B16193F57F0777B5084FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848416   (1052661) от 17.01.2026
+###  Публикация: 1819986   (946) от 25.09.2025
 
-Diana Ross - 20 Golden Greats (1979) FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soul, Disco>
+Karina Kozhevnikova & Krugly Band - Polyphonic Circle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052661.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Theme From Mahogany (Do You Know Where You're Going To?)
-A2 Touch Me In The Morning
-A3 Stop, Look, Listen (To Your Heart)
-A4 No One Gets The Prize(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 01:07:49
+01.  So What (10:07)
+02.  Round About Midnight (10:55)
+03.  Strolling (7:32)
+04.  Oh, Doctor Jesus (7:16)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:24:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:721615A9274E06B1F61E1083D7F2C054BB7526E5
+magnet:?xt=urn:btih:19D4F9E2E9A24FE582D4BD2A2C6F8F9E8556BE69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848200   (1052813) от 16.01.2026
+###  Публикация: 1819979   (945) от 25.09.2025
 
-VA - Red-Hot Victor : 20 American Country Chart Hits (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country>
+Dave Weld & The Imperial Flames - Bluesin' Through the Years (Remastered) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052813.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Willie Nelson - If You Can Touch Her At All
-A2 Dottsy - Here In Love
-A3 Tom T. Hall - May The Force Be With You Always
-A4 Jerry Reed & Seidina - You Know What(   Читать дальше...   )Жанр: CountryПродолжительность: 00:59:39
+01.  Don't Ever Change Your Ways (Remastered) (4:17)
+02.  Don't Tell Mama (Remastered) (5:02)
+03.  Red Hot Tabasco (Remastered) (3:03)
+04.  Lookin for a Man (Remastered) (5:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6349FB45704E0290FB1A3A68B2143FFE5623752
+magnet:?xt=urn:btih:420228FFF329F3753CFE31CD9FA878E703912F49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848620   (1052906) от 18.01.2026
+###  Публикация: 1819984   (944) от 25.09.2025
 
-Gene Pitney - The Many Sides Of Gene Pitney (1962) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Rock & Roll>
+Filippo Bianchini - Mood Indigo (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052906.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Town Without Pity
-A2 I Wanna Love My Life Away
-A3 I Laughed So Hard I Cried
-A4 Dream For Sale(   Читать дальше...   )Жанр: Pop Rock, Rock & RollПродолжительность: 00:30:34
+01.  Jerry Potato (5:42)
+02.  To DS (Dedication To Dayna Stephens) (4:11)
+03.  Trasloco (4:16)
+04.  Every 3 Hours (4:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A8C53AD18B67ED9DF88C10D936186AA13DB730C
+magnet:?xt=urn:btih:149B3AF7E4AD28600407048F5FDBB2728AFF6550
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848629   (1052907) от 18.01.2026
+###  Публикация: 1646462   (864) от 26.09.2025
 
-Mario Lanza - Mario Lanza Sings Caruso  Favorites (1960) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Light Music>
+Rage - Studio Albums (31 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Speed/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052907.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Vieni Sul Mar
-A2 Senza Nisciuno
-A3 Musica Probita
-A4 Vaghissima Sembianza(   Читать дальше...   )Жанр: Classical, Light MusicПродолжительность: 00:35:45
+Rage — немецкая хэви-метал группа, основанная в 1984 году Петером «Пиви» Вагнером. Они представляли собой часть немецкой хэви-/спид-/пауэр-метал сцены, зародившейся в начале-середине 1980-х годов, и входят в «большую четвёрку» этой сцены наряду с Grave Digger, Helloween и Running Wild.1985 - Prayers Of Steel (as Avanger)
+1986 - Reign Of Fear
+1987 - Execution Guaranteed
+1988 - Perfect Man(   Читать дальше...   )Жанр: Heavy/Speed/Power MetalПродолжительность: 34:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0086FC9B535DD7B2ADD5FCB8C19F5145030CD0F1
+magnet:?xt=urn:btih:FFCB17C237F91FE3648F97A1BD11C93E048F2391
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848729   (1052908) от 18.01.2026
+###  Публикация: 1633139   (858) от 26.09.2025
 
-The Musicmakers - Party Sing-Along - 20 All Time Greats (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash/Power/Speed Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052908.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 For Me And My Gal
-A2 Shine On Harvest Moon
-A3 By The Light Of The Silvery Moon
-A4 The Yellow Rose Of Texas(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:52
+Paradox — немецкая метал-группа, образованная в Вюрцбурге в 1986 году.1987 - Product of Imagination
+1989 - Heresy
+2000 - Collision Course
+2008 - ElectrifyЖанр: Progressive Thrash/Power/Speed MetalПродолжительность: 08:45:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF191AEEF168D6CD3F25ACFEACEC26034A7DAB10
+magnet:?xt=urn:btih:F0591D9EA2439308421092C674656A86E607E37B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849002   (1053149) от 20.01.2026
+###  Публикация: 1820092   (814) от 26.09.2025
 
-Pink Floyd - Animals (2016) Reissue, Remastered, Records 1977 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Prog Rock>
+Ana Popovic - Dance To The Rhythm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053149.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Pigs On The Wing (Part One)
-A2 Dogs
-B1 Pigs (Three Different Ones)
-B2 Sheep(   Читать дальше...   )Жанр: Psychedelic Rock, Prog RockПродолжительность: 00:41:59
+01. Dance to the Rhythm (4:11)
+02. Worked Up (3:07)
+03. 50 Ways to Leave Your Lover (4:34)
+04. California Chase (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:304FB3254AA568F969537BC00D26F18CEA4B254B
+magnet:?xt=urn:btih:775CB28BBD894985C289134FB8CD072E29418DE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,27 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848974   (1053180) от 20.01.2026
+###  Публикация: 1820085   (763) от 26.09.2025
 
-Deadlock - Studio Albums (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
+Vildhjarta - Studio Albums (5 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Deathcore, Djent>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053180.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Deadlock - немецкая метал-группа из Шварценфельда, Бавария, основана в 1997 году.2000 - I'll Wake You, When Spring Awakes (EP)
-2002 - The Arrival
-2005 - Earth.RevoltЖанр: Melodic Death/Groove MetalПродолжительность: 08:42:50
+Vildhjarta — шведская метал-группа из Худиксвалля, образованная в 2005 году. Группа играет в стиле джент, вдохновлённом Meshuggah, используя сильно пониженные гитары, минорные гармонические аккорды, резкие стаккато-риффы и наслоения реверберирующих гитар и атмосферных эффектов.2009 - Omnislash (EP)
+2011 - Masstaden
+2013 - Thousands of Evils (EP)
+2021 - Masstaden Under Vatten(   Читать дальше...   )Жанр: Progressive Metal, Deathcore, DjentПродолжительность: 03:58:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C12AACE037EC6CE33DBA11740FE921C0BD82FF30
+magnet:?xt=urn:btih:E4E62E02E033361C36A90415F4E3A8220E249CE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849143   (1053218) от 21.01.2026
+###  Публикация: 1638474   (615) от 27.09.2025
 
-Marianas Rest - Studio Albums (5 releases) (2016-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+Revocation (ex-Cryptic Warning) - Studio Albums (11 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Death/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053218.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_615.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Marianas Rest - метал-группа из города Котка, Финляндия, основана в 2013 году.2016 - Horror Vacui
-2019 - Ruins
-2021 - Fata Morgana
-2023 - AuerЖанр: Melodic Doom/Death MetalПродолжительность: 04:51:25
+Revocation — американская метал-группа из Бостона, штат Массачусетс. Была основана в 2000 году как Cryptic Warning. В 2006 сменила название на Revocation.2008 - Empire Of The Obscene
+2009 - Existence Is Futile
+2011 - Chaos Of Forms
+2012 - Teratogenesis (EP)Жанр: Technical Death/Thrash MetalПродолжительность: 08:50:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8FF6E73649C84AF8530CBDD1BF6A328FEA3694C
+magnet:?xt=urn:btih:9854B1F30D43785A508A1667C6FB63E7D0FEB943
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849288   (1053389) от 22.01.2026
+###  Публикация: 1686726   (591) от 27.09.2025
 
-Orpheus Omega - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Mors Principium Est - Studio Albums (9 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053389.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Orpheus Omega - австралийская метал-группа из Мельбурна, штат Виктория. Основана в 2007 году.2009 - So It Begins... (EP)
-2011 - Bleed The Way
-2013 - ResIllusion
-2015 - Partum Vita MortemЖанр: Melodic Death MetalПродолжительность: 04:59:21
+Mors Principium Est - мелодик-дэт-метал группа с участниками из Финляндии и Великобритании. Основана в 1999 году.2003 - Inhumanity
+2005 - The Unborn
+2007 - Liberation = Termination
+2012 - ...And Death Said LiveЖанр: Melodic Death MetalПродолжительность: 07:30:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7816492845F92D3F8C883996EACF737A75AAFD0D
+magnet:?xt=urn:btih:9B3812337D053039A139A526E65B6B87090809A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849484   (1053468) от 23.01.2026
+###  Публикация: 1820693   (288) от 28.09.2025
 
-Serenity In Murder - Studio Albums (5 releases) (2011-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Death Metal>
+Kate Bush - Best Of The Other Sides (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art rock, Progressive rock, Alternative rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053468.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Serenity In Murder - японская метал-группа, образованная в 2009 году.2011 - The First Frisson Of The World
-2015 - The Highest Of Dystopia
-2017 - The Eclipse
-2021 - RebornЖанр: Symphonic/Melodic Black/Death MetalПродолжительность: 03:19:05
+01. Experiment IV (Remastered 2025)
+02. You Want Alchemy (Remastered 2025)
+03. Rocket Man
+04. Walk Straight Down The Middle (Remastered 2025)(   Читать дальше...   )Жанр: Art rock, Progressive rock, Alternative rockПродолжительность: 00:45:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F42CA6C09E62BAC12AAE2907D3C5C4D6FE69B9B1
+magnet:?xt=urn:btih:568845F965880FE0164A5DBEFFDAF90126336B75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849804   (1053571) от 24.01.2026
+###  Публикация: 1820685   (282) от 28.09.2025
 
-Franck Pourcel And His Orchestra - This Is Pourcel. 14 Tracks From His Fabulous  Full-Price Albums (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Theme, Easy Listening>
+Mariah Carey - Here For It All (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053571.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Dancing In The Sun (Un Rayo Del Sol)
-A2 A Man Without Love
-A3 Love At First Sight (Je T'aime Moi Non Plus)
-A4 Abacachi(   Читать дальше...   )Жанр: Soundtrack, Theme, Easy ListeningПродолжительность: 00:42:38
+01. Mi
+02. Play This Song (feat. Anderson .Paak)
+03. Type Dangerous
+04. Sugar Sweet (feat. Shenseea & Kehlani)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79E2EB7C07B3A7AE5F3CDB5ABC19AE915918628C
+magnet:?xt=urn:btih:D9AA6512C2B6A862989155E5FAD8D9EB3F8E3606
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849692   (1053643) от 24.01.2026
+###  Публикация: 1820656   (273) от 28.09.2025
 
-Jean-Michel Jarre - The Concerts In China (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Modern Classical, Ambient>
+Creed - The Best Of Creed (Remastered 2025) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053643.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Overture
-A2 Arpegiator
-A3 Equinoxe IV
-B1 Fishing Junks At Sunset(   Читать дальше...   )Жанр: Electronic, Modern Classical, AmbientПродолжительность: 01:19:48
+01.  Higher (Radio Edit / Remastered 2025) (4:45)
+02.  One Last Breath (Remastered 2025) (4:00)
+03.  My Own Prison (Radio Edit / Remastered 2025) (4:15)
+04.  Overcome (Remastered 2025) (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BB63BC1A83628DBC73999CE6922756D257B0660
+magnet:?xt=urn:btih:4EA102FFAC85AC50E0B13405322A4654F58FA5D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850141   (1053960) от 
+###  Публикация: 1820675   (236) от 28.09.2025
 
-VA - Party Mood. The Tremeloes, Anita Harris, Tony Bennett, Louis Armstrong and other (1967) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+Willow Suns - All out of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053960.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 New Christy Minstrels - Green, Green
-A2 Anita Harris - Don't Sit Under The Apple Tree
-A3 Tony Bennett - Let's Face The Music And Dance
-A4 Percy Faith - The Girl From Ipanema(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:34:36
+01.  Dear Light (4:20)
+02.  I Don't Know (3:34)
+03.  Roll with Me (4:00)
+04.  Running Around After You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58F98397BC520059E590539FD14AC2F7FEA0A4A7
+magnet:?xt=urn:btih:4A966C987EC18B62C46D7375B5350851173E6B2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849912   (1054120) от 
+###  Публикация: 1820660   (235) от 28.09.2025
 
-Manuel - This Is Manuel. 14 Tracks From His Fabulous Full-Price Albums (1971) Compilation, , Sampler [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening, Instrumental>
+Devil of a Woman - Last Call for Freedom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054120.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Honeymoon Song
-A2 Intermezzo
-A3 A Man And A Woman
-A4 The Shadow Of Your Smile(   Читать дальше...   )Жанр: Pop, Easy Listening, InstrumentalПродолжительность: 00:43:20
+01.  Last Call for Freedom (4:06)
+02.  Change of Poison (4:18)
+03.  Midnight Dancer (4:10)
+04.  Hot Trap (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B26BC68B8BA429C86224CDAF6A2859C09433044
+magnet:?xt=urn:btih:C5DF404390CC259826470038DDEB86A884A4F617
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850341   (1054140) от 
+###  Публикация: 1820627   (234) от 28.09.2025
 
-The Boomtown Rats - Dave (1984) [FLAC|Lossless|image + .cue] <Rock, New Wave, Synth-pop>
+Angelwreck - Pieces Of My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054140.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_234.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Dave (LP Version)
-A2 Hard Times
-Lazun Gemmun - The Boomtown Rats Live
-B1 Banana Republic(   Читать дальше...   )Жанр: Rock, New Wave, Synth-popПродолжительность: 00:23:30
+01.  Misfit (4:52)
+02.  Super Sleuth (2:28)
+03.  Summertime Magic (3:25)
+04.  Puzzle Pieces (3:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1A298C245597DDF30D165D36C4C78016994747D
+magnet:?xt=urn:btih:0AF2F6C334DF722D9FA01B6EAFA9BCDC5276F5F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850304   (1054141) от 
+###  Публикация: 1820639   (231) от 28.09.2025
 
-VA - Magical Melodies: Nicolai, Rossini, Gounod, Brahms, Tchaikovsky, Wagner - Overture, Waltz and other (1968) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Classical>
+Biffy Clyro - Futique (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054141.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Vienna State Opera Orchestra - The Merry Wives Of Windsor : Overture Nicolai
-A2 The Beecham Promenade Orchestra - The Thieving Magpie : Overture Rossini
-A3 The Vienna State Opera Orchestra - Faust Waltzes Gounod
-B1 The Vienna State Opera Orchestra - Three Hungarian Dances (Nos. 6, 7 And 1) Brahms(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:51
+01.  A Little Love (3:38)
+02.  Hunting Season (2:55)
+03.  Shot One (3:30)
+04.  True Believer (4:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12B91270303C405F91D635574F13175399F914C7
+magnet:?xt=urn:btih:6CD2FEE326B91CE9B33853287C87A4B405F0BD01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850498   (1054412) от 
+###  Публикация: 1820662   (228) от 28.09.2025
 
-Cliff Richard - She's So Beautiful. Extended Mix From The Musical "Time" (1985) Single, 45RPM [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Pop Rock>
+Dust and Echoes - Whispers on the Wire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054412.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A She's So Beautiful (Extended Mix)
-B She's So Beautiful
-
-(c) 1985 Dave Clark Productions, under exclusive licence to E.M.I. Record Ltd.(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:12:01
+01.  Another Saturday Night (4:56)
+02.  Glass on the Pavement (5:50)
+03.  Golden Hour Embrace (5:36)
+04.  Gypsy’s Lullaby (4:54)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA037D554CEFF014C5E7EF99CAD68EBC8E1FD30F
+magnet:?xt=urn:btih:25CD4755CDD0917C777F1A93FF539D91E72885C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850509   (1054413) от 
+###  Публикация: 1820670   (227) от 28.09.2025
 
-Avatar (Sweden) - Studio Albums (10 releases) (2006-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal/Metalcore>
+Nathan Mitchell - The Legacy Project (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054413.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Avatar — шведская метал-группа, образованная в Гётеборге в 2001 году.2006 - Thoughts Of No Tomorrow
-2007 - Schlacht
-2009 - Avatar
-2012 - Black WaltzЖанр: Melodic Death Metal/MetalcoreПродолжительность: 08:48:29
+01.  The Overture of Legacy (1:58)
+02.  After Hours (4:00)
+03.  Feel The Heat (4:15)
+04.  Breathe (4:50)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:03:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC7FF94010E2853698E089E12690D9F97DEF78E4
+magnet:?xt=urn:btih:5E9288C5D60019DFC29EEF31DB1D0DFC091EB947
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,27 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850729   (1054436) от 
+###  Публикация: 1820629   (217) от 28.09.2025
 
-Ahola - Studio Albums (2 releases) (2012-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
+Armando Alonso - Problemas con el gas (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054436.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ahola - рок-группа созданная в 2011 году финским композитором и вокалистом
-Jarkko Kalevi Ahola.2012 - Stoneface
-2014 - Tug Of WarЖанр: Heavy Metal/Hard RockПродолжительность: 01:53:24
+01.  Madre Pedro, Padre Pedro (5:42)
+02.  Sale desafío (5:01)
+03.  Cuarentena (3:57)
+04.  El flaco (3:43)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:38:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4839E79D411FD3D0277C1136D3A0D83783809464
+magnet:?xt=urn:btih:2A636C6D18946AFFBA8F178F05CA874BA69A6DD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850692   (1054470) от 
+###  Публикация: 1820649   (216) от 28.09.2025
 
-Avatarium - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
+Bill Laurance - Lumen (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054470.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Avatarium — шведская рок-группа из Стокгольма, основанная в 2013 году.2013 - Avatarium
-2015 - The Girl With The Raven Mask
-2017 - Hurricanes And Halos
-2019 - The Fire I Long ForЖанр: Doom Metal, Progressive RockПродолжительность: 4:54:00
+01.  Fils D'or (6:56)
+02.  Lumen (3:02)
+03.  Mantra (4:08)
+04.  What You Always Wanted (3:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1CA7CB64211C5FE3D234649BB84FAEA65674A16
+magnet:?xt=urn:btih:143A45F75E74E343844FF34FD61F855A0B9DBD64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851520   (1055134) от 
+###  Публикация: 1820635   (215) от 28.09.2025
 
-Cliff Richard - 100th Single (1989) Single, 45RPM, Limited Edition [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+Betschart Transport AG - Griffin Overdrive (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055134.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A The Best Of Me
-B1 Move It
-B2 Lindsay Jane
-B3 High Class Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:06
+01.  Asphalt Beats (4:31)
+02.  Griffin Overdrive (2:34)
+03.  Steel & Stereo (4:39)
+04.  Road After Road (3:57)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5586CFE591AE092C5124B271D1D8043899C3B871
+magnet:?xt=urn:btih:CF15770015BB29A6A8CD090C8BF8A1E531E2DA82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851514   (1055135) от 
+###  Публикация: 1820666   (214) от 28.09.2025
 
-Queens of the Stone Age (QotSA) - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
+Headstones - Burn All The Ships (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055135.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Queens of the Stone Age - рок-группа, образованная в 1997 году в Палм-Дезерте, Калифорния, США.1998 - Queens of the Stone Age
-2000 - Rated R
-2002 - Songs for the Deaf
-2005  - Lullabies to ParalyzeЖанр: Hard Rock, Stoner RockПродолжительность: 08:25:05
+01.  PUT THAT CAR IN DRIVE (3:52)
+02.  DECADES (2:45)
+03.  DAYLIGHT LIGHTNING (3:34)
+04.  AN EFFORT TO FORGET (FEAT. EMILY HAINES) (3:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F9808055C37CCF3A1964065AC27EBEA7B489D71
+magnet:?xt=urn:btih:4D3C6EFAA2FB17B1DE702A6A7A7B2D23D44A7F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851280   (1055201) от 
+###  Публикация: 1820652   (213) от 28.09.2025
 
-Cliff Richard - Love Songs (1981) Compilation, Remastered, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock, Ballad>
+Clockers - Il Broccolino (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055201.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Miss You Nights
-A2 Constantly
-A3 Up In The World
-A4 Carrie(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, BalladПродолжительность: 01:00:19
+01.  Brooklino (4:08)
+02.  In Italian Shoes (4:46)
+03.  Bang Bang (4:35)
+04.  I Roll on the Road (4:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A77A8D9A5B131DF7F5CA97E7FD12F303D9F055BE
+magnet:?xt=urn:btih:FD4E2E9F74CA1B482C2919201951CEF97EF32F47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -721,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851666   (1055280) от 
+###  Публикация: 1820668   (212) от 28.09.2025
 
-Cliff Richard - Always Guaranteed (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+Jacob and The Melody Drivers - Jacob and The Melody Drivers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055280.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 One Night
-A2 Once Upon A Time
-A3 Some People
-A4 Forever(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:20
+01.  Late Bloomer (3:44)
+02.  Imposter (3:30)
+03.  Lucky Guy (4:28)
+04.  Kiss Her Every Night (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A58C67463F6F1E01AB056714C2D4AF97188FC4A
+magnet:?xt=urn:btih:931DB4AC7136F7E1155FB8C94C099140888E58C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

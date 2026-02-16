@@ -1,25 +1,22 @@
-###  Публикация: 1504176   (814133) от 22.10.2021
+###  Публикация: 1825356   (173485) от 19.10.2025
 
-Dream Theater - A View From the Top of the World (2021) [AAC|~352 Kbps] <Progressive Metal>
+Не парковаться / Juchageumji / No Parking (2025) WEBRip [H.264/1080p] [MVO] [AD]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Горячие новинки
+>>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814133.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Alien (9:32)
-02. Answering the Call (7:35)
-03. Invisible Monster (6:31)
-04. Sleeping Giant (10:05)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:18
+Из-за постоянного стресса на работе Ён-хи не выдерживает и вступает в перепалку со случайным гражданином на парковке, что приводит к непредсказуемым последствиям.Производство: Корея Южная / Five Day, PlaygramЖанр: триллерРежиссер: Сон Хён-уАктеры: Рю Хён-гён, Ким Рве-ха, Чха Сон-у, Чон Сан-хунПеревод: Многоголосый (Head Pack Films)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:30:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D687E8F0C497A7F17007B6983192709D9FF67F77
+magnet:?xt=urn:btih:227259A4AEB39F614CE17304967FA017BC963CE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,250 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504288   (814134) от 22.10.2021
+###  Публикация: 1668656   (173484) от 13.10.2023
 
-Джен Калонита | Сказочная исправительная школа. Испытание славой. Книга 2 (2019) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга в серии «Сказочная исправительная школа».
-Джен Калонита – автор бестселлеров New York Times. И она знает о сказках, старых и новых, всё!
-После того как Альва, главная злодейка Чароландии, была изгнана, жизнь воришки Джилли изменилась до неузнаваемости. Из мелкой преступницы она вдруг превратилась в главного героя королевства! Ведь именно она и её друзья (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А.Б. ВасильеваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2901A91414DABEF2633AF5926646548338D5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504308   (814135) от 22.10.2021
-
-VNC Connect Enterprise for Mac 6.8.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814135.jpg" />
-</div>
-
-
-###  Подробнее
-
-VNC Connect - это последняя версия нашего кроссплатформенного программного обеспечения удаленного доступа для личного и коммерческого использования. Он использует технологию VNC для подключения вас к удаленному компьютеру в любой точке мира, просмотра его экрана в режиме реального времени и получения контроля. Наши основатели являются первыми изобретателями VNC, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2021Разработчик: © RealVNC® LimitedПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFD5A528FFEDEFF74AB2B21C1E2BB504B422DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504085   (814136) от 22.10.2021
-
-Hate - Rugia (2021) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rugia
-02. The Wolf Queen
-03. Exiles Of Pantheon
-04. Saturnus(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA12328BA030DB94CB92C95B23FD6F4739F6F25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504067   (814137) от 22.10.2021
-
-Koan - Argonautica (White Orb Edition) (2021) [AAC|~345 Kbps] <Ambient, Chillout, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orpheus and Eurydice (8:44)
-02. Lost Lyre (8:06)
-03. Gella Sea (Phrixus and Helle Mix) (9:47)
-04. Daphne (Apollo Mix) (8:54)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BC5EEB2BD4ED6663BCF153E935AA5552016645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504337   (814138) от 22.10.2021
-
-ON1 Effects 2022 v16.0.1.11291 [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окончательная коллекция фотоэффектов, фильтров, LUT и пресетов. ON1 Effects включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Есть бесконечные творческие возможности с эффектами ON1. Наши самые популярные включают HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DB5FFCA89086ED7FE736D552179895E1AF5048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504070   (814139) от 22.10.2021
-
-VA - In Love with Lounge, Vol. 2 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Velvet Dreamer, Tim Gelo - Time Together (Original Mix) (5:06)
-02. Chillson, Marc Hartman - Fantasia (Original Mix) (4:21)
-03. Dreamhunter - Getaway Pilot (Original Mix) (4:04)
-04. Lemongrass, Jane Maximova - Deep River (Mirage of Deep Remix) (8:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4107F1FD6C045FA6113624C8E83AC196FCF626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504306   (814140) от 22.10.2021
-
-Kammerflimmer Kollektief - Wildling (2010) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Doom Jazz, Nu Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move Right In (3:20)
-02. Silver Chords (3:09)
-03. Aum A Go-Go (2:34)
-04. In Transition (Version) (13:31)(   Читать дальше...   )Производство: Staubgold – staubgold 97Жанр: Dark Jazz, Doom Jazz, Nu Jazz, ExperimentalПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8225E2888C3A17263DFB2F3CC75A5AF0A2533E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 777103   (814144) от 14.04.2014
-
-Газета | Авторевю [Россия] №7 (539) (апрель 2014) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета рассказывает о новинках автомобильного рынка, а также в нем можно найти самые свежие авто новости, самые новые автомобили, и многое другое. "Авторевю" по праву считается одним из ведущих российских автомобильных изданий. "Авторевю" ведет ряд уникальных проектов: сравнительные тесты автомобилей на базе полигона НИЦИАМТ и собственные краш-тесты (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A199032B72EE34F49732A2391D443B58D0B58E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 775601   (814148) от 14.04.2014
-
-Eric Clapton and The Yardbirds - At Their Best (2000) 2CD [FLAC|Lossless]<Rock, Blues, Blues-Rock>
+The Vintage Caravan - The Monuments Tour (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814148.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:01. Good Morning Little Schoolgirl  (2:46)
-02. New York City Blues  (4:19)
-03. My Girl Sloopy  (5:37)
-04. 23 Hours Too Long  (5:11)(   Читать дальше...   )Жанр: Rock, Blues, Blues-RockПродолжительность: 01:34:29
+01. Whispers (Live) (4:05)
+02. Crystallized (Live) (5:09)
+03. Reflections (Live) (4:15)
+04. Innerverse (Live) (6:41)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36C1DF5582463D31859A92266BED6E118219FF08
+magnet:?xt=urn:btih:D5CF186A2DABB7E3BAC4932AB834455C953AE91D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504126   (814161) от 22.10.2021
+###  Публикация: 1827001   (173483) от 19.10.2025
 
-Stratavarious - Stratavarious (2021) [AAC|~350 Kbps] <Funk / Soul, Disco>
+Игра с призраком / Gangryeong; gwisinnoli / The Ghost Game (2025) WEB-DL [H.264/1080p] [MVO]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814161.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yes It Is (4:10)
-02. Let Me Be Your Lady Tonight (9:34)
-03. I Got Your Love (8:11)
-04. Nightfall (8:29)(   Читать дальше...   )Жанр: Funk / Soul, DiscoПродолжительность: 01:17:03
+Компания старшеклассников проникает в окутанное легендами заброшенное здание. Они планируют сымитировать и заснять ритуал вызова призрака, который отвечает на любой вопрос, выложить на видеохостинг, набрать просмотры и получить денежный приз, но одна из девушек предлагает провести обряд по-настоящему.Производство: Корея Южная / EO Contents Group, Studio DHLЖанр: ужасыРежиссер: Сон Дон-ванАктеры: Ким Е-рим, Ли Чхан-хён, Со Дон-хён, О Со-хён, Ким Ын-би, Пак Со-ён, Ли Да-ын, Юн Бёль-ха, Ю Сын-а, Чон Сан-хунПеревод: Многоголосый (Колобок)Язык озвучки: Русский, корейскийСубтитры: отсутствуютПродолжительность: 01:34:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40018A3963C3EA1CD5DD0DD0282D466AD75072DA
+magnet:?xt=urn:btih:ECBCA4BE4B691D27AE902D8BEB4028067226E4B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,54 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504169   (814162) от 22.10.2021
+###  Публикация: 1668577   (173482) от 13.10.2023
 
-VA - Urban Orange Music 7: Downtempo Experience (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Surfing on a Karma Wave (Original Mix) (3:41)
-02. Digby Jones - 73 Break (5:37)
-03. Marga Sol - Palm Tree Chill (Original Mix) (5:23)
-04. Marie Therese - Take This Treasure (Original Mix) (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCBFBAF5A090F0CE3A70AEFD1522B4CEE6C6B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504348   (814163) от 22.10.2021
-
-ON1 NoNoise AI 2022 v16.0.1.11291 [Multi/Ru]
+Dash 7.1.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814163.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это лучшее программное обеспечение шумоподавления для фотографии. Быстро удаляйте шумы и получайте самые четкие детали на фотографиях с ON1 NoNoise AI. Приложение разумно удаляет все шумы изображения, разумно восстанавливая и улучшая детали. Оно интегрируется в ваш рабочий процесс, поддерживая распространенные фоторедакторы и форматы файлов, в том числе сохраняя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © 2023 Bogdan PopescuПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2972E06E3E2E6A435DF804B8AC573972026B8D9
+magnet:?xt=urn:btih:61D6BD8078776A9D3F1F2DA21B3E0C94B501F560
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,25 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504275   (814164) от 22.10.2021
+###  Публикация: 1827064   (173481) от 20.10.2025
 
-Клэр Харкап | Хэтти Браун и цветной дождь. Книга 3 (2021) [FB2, EPUB, MOBI]
+PDF-XChange PRO 10.7.3.401 [Multi/Ru]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814164.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-За последнее время Хэтти Браун узнала много нового. Например, что её мама такая странная, потому что выпила зелье забвения, что её отец жив, заточён в темнице и является законным правителем другого мира. Мира без дождей, покрытого вездесущей красной пылью. А ещё у Хэтти есть брат – мальчик, которым может гордиться всякая сестра. Поэтому девочка уверена, что именно (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: М.А. СклярФормат: FB2, EPUB, MOBI
+PDF-XChange Pro — универсальное решение для работы с PDF. Это пакет из трёх лучших приложений от Tracker Software: PDF-XChange Editor Plus, PDF-Tools и PDF-XChange Standard. При помощи PDF-XChange Editor Plus вы сможете создавать, просматривать, а также редактировать изображения и файлы PDF. PDF-Tools — мировой лидер в создании и манипуляции PDF-файлами. Благодаря (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC8F275D0C0CDFB8A442B16FBFF9EF8A58D1F1CB
+magnet:?xt=urn:btih:B55705A6E839B7DBD802E2C3DF19A0C0635160EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,28 +131,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504166   (814166) от 22.10.2021
+###  Публикация: 1668721   (173480) от 13.10.2023
 
-VA - Urban Orange Music 5: Downtempo Experience (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+Nergard - Memorial for a Wish (2018 Version) (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Power Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814166.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Patiotic, Lohbe - Mysterious Zone (2:35)
-02. G.Pantelidis - Dancing Dolphins (Chill Dive Mix) (5:49)
-03. Frank Neo - Omniverse (4:12)
-04. Simon Le Grec - Sunsetlovers (Original Mix) (5:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:58:13
+01 - Angels (00:09:20)
+02 - The Haunted (00:03:55)
+03 - Hell on Earth (00:04:58)
+04 - Stay (00:04:29)(   Читать дальше...   )Жанр: Hard Rock, Power MetalПродолжительность: 00:45:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B012B31F682BB76B82B281F5837941AFB9E0D8C
+magnet:?xt=urn:btih:A3405962ADACA048541658A4A4C4676B13F74227
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,28 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504164   (814168) от 22.10.2021
+###  Публикация: 1827067   (173479) от 20.10.2025
 
-VA - Urban Orange Music 3: Downtempo Experience (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+Шрифты - GitHub - WCYS & Co. - Hauora-Sans [OTF, TTF, WOFF2]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814168.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roberto Bronco - Manta Ray (Original Mix) (5:47)
-02. Jeff Bennett's Lounge Experience - Reaching (4:52)
-03. Eddie Silverton - Bemahara (4:55)
-04. Simply Chill, Arthur Clemens - My Love to You (Chillout Mix) (5:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:27
+Hauora - это полусжатое, чистое, минималистичное, неогротескное семейство шрифтов без засечек. Оно выпускается в виде вариабельного шрифта + 7 производных шрифтов, оснащено функциями OpenType и поддерживает большинство латинских и кириллических языков. Hauora является производным от Manrope, разработанного Майклом Шарандой и модифицированного WCYS для проекта Tiaki (   Читать дальше...   )Формат: OTF, TTF, WOFF2Поддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD02DF48C9BCB60A765EB9919E4DC8AA39C3E2DE
+magnet:?xt=urn:btih:864E24341AA905776B5E09368906B848FB12AF60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,25 +186,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504282   (814169) от 22.10.2021
+###  Публикация: 1668742   (173478) от 13.10.2023
 
-Синди Лин | Секрет Двенадцати. Двенадцать. Книга 1 (2021) [FB2, EPUB, MOBI]
+Любовь кузнеца / The Blacksmith's Love (1911) WEBRip
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814169.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Усаги родилась в год Кролика с необыкновенным даром прыгать выше облаков. Ей было семь, а её младшей сестре Уме – всего три, когда отец дал ей волшебный гребень и сказал, что в нём заключено волшебство Нефритовой горы. Но с тех пор многое изменилось, какое уж тут волшебство, когда жестокий Король-дракон захватил их родной город, а талантливые дети вынуждены скрываться (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: Т.Ю. СтамоваФормат: FB2, EPUB, MOBI
+Гражданская война в Америке. После ожесточенного боя деревенский кузнец видит своего односельчанина убитым. Он сообщает об этом в деревню и вдове убитого. Война закончилась, страсти утихли. Вдова конечно погоревала поначалу, но надо жить дальше. И она вновь выходит замуж. И за кого? Да за того же кузнеца. Живут хорошо, ребеночка родили, вроде впереди безмятежная (   Читать дальше...   )Производство: США, Selig Polyscope CompanyЖанр: короткометражный, драма, немое киноРежиссер: Френсис БоггсАктеры: Том Санчи, Херберт Роулинсон, Фрэнк Ричардсон, Фрэнк Кларк, Фред Хантли, Юджин Бессерер, Анна Додж, Бетти ХартПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:15:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36B2635EB0E695E224E58B8075AFA461F297BA58
+magnet:?xt=urn:btih:54CD2E1DD28A97734C740ADB77915A5EEECF654B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,28 +212,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504165   (814171) от 22.10.2021
+###  Публикация: 1827063   (173477) от 20.10.2025
 
-VA - Urban Orange Music 4: Downtempo Experience (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+1С Учебный центр №1, Сергей Куканов | Автоматизация малого и среднего производственного предприятия в «1С:Управление нашей фирмой» [редакция 3.0] (2023) PCRec [RU]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814171.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris le Blanc, Nightzone - Left Without a Kiss (5:27)
-02. Beamy - Reflections (4:07)
-03. Leo de la Rosa, Maneela - Sugar in Your Kiss (5:12)
-04. Simply Chill - Jennifer Heartbeat (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:35:07
+Цель курса: сформировать представление о производственном учете в программе «1С:Управление нашей фирмой».
+
+Курс рассчитан на слушателей, владеющих предметной областью в сфере производства, а также знакомых с основными навыками работы в «1С:Предприятие».Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:16:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9B348E54C62066D555176315A484753C138C507
+magnet:?xt=urn:btih:2A0AE102A70407B703BD09794B19FFA2155806D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,28 +240,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504168   (814174) от 22.10.2021
+###  Публикация: 1668716   (173476) от 13.10.2023
 
-VA - Urban Orange Music 6: Downtempo Experience (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+Журнал | Дачный сезон №10 (октябрь 2023) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814174.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Room - This Old Rollercoaster (Original Mix) (5:10)
-02. Patiotic - First Leaves (2:39)
-03. Beamy - Moonglow (3:32)
-04. Martin Hiska - Higher (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:47
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаИздательство: ООО Бауэр МедиаФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:198FE6E62B889F8DD4F6AD99A29884B2D6C179AB
+magnet:?xt=urn:btih:5BD863441D6A46DDD44416C0086C8ECF0F49C1D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,25 +266,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504344   (814178) от 22.10.2021
+###  Публикация: 1827073   (173475) от 20.10.2025
 
-ON1 HDR 2022 v16.0.1.11291 [Multi/Ru]
+Шрифты - Behance - Намик Мардахаев - Heroika - 236834169 [OTF]
 
->>Архив торрентов
->>Архив 4Apple
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814178.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ON1 HDR создает безупречные, естественные фотографии HDR, которые в мгновение ока сочетают детали светлых и темных участков из набора экспозиций. Вы можете управлять движением, таким как облака и вода, с помощью предварительного просмотра в реальном времени. Затем улучшайте свои HDR-фотографии с помощью мощных инструментов и пресетов, которые демонстрируют ваше творчество. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+Геройка это комиксный шрифтец для текста в пузырях. Динамичный, под наклоном; как бы подгоняет читателя. Присутствуют специальные символы для манги и особые лигатуры.
+Шрифт целиком бесплатен. Распространяется по лицензии OFL.
+Материал раздаётся с официальной документацией.Формат: OTFПоддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A4E6054726858A4A153D93AA80CD837B8A234B7
+magnet:?xt=urn:btih:FD471C8347E1EBF58BC336AF456597F20EBCEA72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,26 +294,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504323   (814183) от 22.10.2021
+###  Публикация: 1668437   (173474) от 13.10.2023
 
-Vainoras and the altar of the drill - Floating on air through grief and green grass (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Dark Ambient, Noir Jazz>
+The Dead Amigos - Denim Egos (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1 in 5 [00:04:01]
+02. You Tonight [00:03:26]
+03. Hold Out [00:04:28]
+04. Tell Her You Need Her [00:04:51](   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD048EA9A68C7D886E03D7CF037BD87A03CE590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827074   (173473) от 20.10.2025
+
+Дмитрий Емельянов | Тверской Баскак [6 книг] (2023-2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нашествие монголо-татарских орд Батыя осенью-зимой 1237-38 года – самая мутная и противоречивая страница русской истории. Официальная версия не выдерживает никакой критики, вопросов не счесть! Неудивительно, что школьный учитель согласился на предложение лично побывать в самой гуще событий и увидеть все своими глазами. Думал шутка, ан нет! Раз, и он уже в тринадцатом (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF986A82A2D8B684AFAF8CE8E51045572C99A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668735   (173472) от 13.10.2023
+
+Fortress Under Siege - Envy (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring Out Your Dead 04:48
+02. Ride The Thunder 04:07
+03. Distant Voices 05:34
+04. Look At You 05:35(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FBE4CF44746B2C71EB2EC6DC9914E47290540A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668631   (173471) от 13.10.2023
+
+Buddy DeFranco (De Franco) And The All-Stars - Wholly Cats (1957) 2016, Universal [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814183.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Floating on air through grief and... (3:49)
-02. Green grass (2:51)Жанр: Dark Jazz, Dark Ambient, Noir JazzПродолжительность: 00:06:40
+01. All the Things You Are [3:50]
+02. Smoke Gets in Your Eyes [3:27]
+03. I Surrender Dear [3:31]
+04. More Than You Know [5:25](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:31:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:081422A1D5BCCC3FD21CE5454BCAFD9E33B083E5
+magnet:?xt=urn:btih:1ACCCD7FDAA411669CA23E15183ABCF84FF78B53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,15 +407,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504259   (814184) от 22.10.2021
+###  Публикация: 1668697   (173470) от 13.10.2023
 
-Downie 4 v4.3.7 [Multi/Ru]
+Downie 4 v.4.6.31 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814184.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173470.jpg" />
 </div>
 
 
@@ -599,11 +423,11 @@ Downie 4 v4.3.7 [Multi/Ru]
 
 Downie – это простейший видео-загрузчик.
 Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 22.10.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 13.10.2023Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D61397E0C1043439690216DA18A6176253B6BF41
+magnet:?xt=urn:btih:407F47C3E56B83D70CC06446D7A16E822C9478E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,28 +435,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504313   (814185) от 22.10.2021
+###  Публикация: 1827077   (173469) от 20.10.2025
 
-The Orchestra Of Mirrored Reflections - Nonlinear Order (2016) [FLAC|Lossless|Web-DL|tracks] <Ambient Jazz, Dark Jazz, Future Jazz>
+Л.В. Чернышева | Говорим по-американски (2025) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814185.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Calm On Seashore (5:05)
-02. ...This Too Shall Pass (3:01)
-03. Walking Inside Apocalypse part I (5:15)
-04. Doomsday Pipe (6:47)(   Читать дальше...   )Жанр: Ambient Jazz, Dark Jazz, Post Jazz, Doom Jazz, Future JazzПродолжительность: 00:48:19
+В океане американской разговорной речи существуют острова часто употребляемых слов и выражений. Вы не найдете их в традиционных учебниках английского языка. Однако, именно они помогут вам «продержаться на плаву» и не «пойти ко дну», когда вы останетесь один на один с американцами, не говорящими по-русски. Чтобы поддержать разговор, узнать необходимую информацию, (   Читать дальше...   )Жанр: языки, учебаИздательство: СамиздатФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EAA47D0B6873950E9797067D1CA3197B85CECA9
+magnet:?xt=urn:btih:55EAFFA93DFBCF975ED6AE7102F1FFD0745FA16F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,28 +461,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504027   (814187) от 22.10.2021
+###  Публикация: 1668692   (173468) от 13.10.2023
 
-Kirill Karabits, Ernst‐Senff‐Chor, Staatskapelle Weimar - Prokofiev: Cantata for the 20th Anniversary of October Revolution, Op. 74 (2017) [AAC|~304 Kbps] <Classical>
+Лиза Лосева | Мертвый невод Егора Лисицы (2023) [MP3, Геннадий Форощук]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814187.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I. Prelude. ''A spectre is haunting Europe, the spectre of Communism''. Moderato - Allegro (2:27)
-02. II The Philosophers. Andante Assai (2:19)
-03. III Interlaude. Allegro - Andante - Adagio (1:19)
-04. IV 'A Tight Little Band'. Allegretto (2:20)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:53
+Новый роман Лизы Лосевой из серии «Ретро-детектив» рассказывает о новом расследовании Егора Лисицы – судмедэксперта Доноблугро. На этот раз он отправляется в отдаленный хутор Ряженое, чтобы выяснить обстоятельства смерти местной активистки Любы Рудиной. Та уехала в город за покупками для ячейки ревкома и пропала. Позже ее тело нашли в заводи у хутора в кроваво-красной (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 07:00:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE634C4B8DEFE5F9CF60B4F8C37063023F4EF956
+magnet:?xt=urn:btih:79AADC413BE80245D98B3EB3C95805EAB7BA3332
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,25 +487,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504321   (814189) от 22.10.2021
+###  Публикация: 1668693   (173467) от 13.10.2023
 
-Espresso 5.8 [En]
+Елена Дорош | Слеза Евы (2023) [MP3, Людмила Пахмутова]
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814189.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Espresso - программа для веб-разработчиков и веб-дизайнеров, которая может составить серьезную конкуренцию известной программе Coda от компании Panic. Espresso соединяет в себе текстовый редактор с подсветкой синтаксиса большого количества языков разметки и программирования (html, xml, php, jаvascript и т.п.), поиск и замену (есть поддержка регулярных выражений), (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: MacRabbitПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+Разбирая старый архив, профессор Бартенев и его помощница Глафира Вознесенская наткнулись на странное письмо. Как оказалось, оно связано с судьбами известных персон, живших два столетия назад. А еще в конверте обнаружилась женская серьга. Поиски ее хозяйки привели к удивительным открытиям и… привлекли внимание преступников. Ведь раритеты стоят дорого. Очень дорого… (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 07:10:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DEB814F588E9EADA00C6F7020BB4C86D17FC2CF
+magnet:?xt=urn:btih:63DB444E9B27C013F68FD17F53AE40E35DFA5478
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,28 +513,188 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504118   (814191) от 22.10.2021
+###  Публикация: 1668632   (173466) от 13.10.2023
 
-VA - Saint-Tropez Orange: Urban Chillout Music (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+Blue October - Spinning The Truth Around (Part II) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814191.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Room - Holy Moly – That's a Groove (3:08)
-02. Patiotic - Welcome to the Infinite Sense (2:21)
-03. Simon Le Grec - Here Was an Angel (Original Mix) (5:55)
-04. Marga Sol - Sandwalk (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:59:32
+01. Sideways [00:04:41]
+02. All I See Is You [00:04:33]
+03. Sobriety [00:05:32]
+04. Magic Isn't Real [00:03:37](   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 01:02:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74FFD09D2AA816427D67F3B9161558AB6FC2424B
+magnet:?xt=urn:btih:51E9697C1D58D2C0B161989888121A4D2CBF77B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668434   (173465) от 13.10.2023
+
+Creeper - Sanguivore (2023) [MP3|320 Kbps] <Britpop, Glam Rock, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further Than Forever [00:09:12]
+02 - Cry To Heaven [00:04:27]
+03. Sacred Blasphemy [00:02:53]
+04. The Ballad Of Spook & Mercy [00:04:39](   Читать дальше...   )Жанр: Britpop, Glam Rock, Pop-PunkПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8AA3F1B3BADCAB9C54260F11066C5BEFF2F7CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826994   (173464) от 20.10.2025
+
+Астронавт / The Astronaut (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина-астронавт Сэм Уокер возвращается на Землю после первого космического полёта, однако вход капсулы в атмосферу идёт не по плану. На короткое время связь с кораблём пропадает, капсула получает повреждения, а тело Сэм оказывается покрыто синяками и ссадинами, и в результате спускаемый аппарат приводняется посреди океана. Сэм спасают и помещают на карантин в роскошном (   Читать дальше...   )Производство: США / Bee-Hive Productions, Fifth Season, Fuller MediaЖанр: ужасы, фантастика, триллерРежиссер: Джессика ВарлейАктеры: Кейт Мара, Лоренс Фишбёрн, Гэбриел Луна, Ивана Миличевич, Мейси Грэй, Scarlett Holmes, Реза Диако, Daniel Quirke, Daiana Madeira, Ezrael MacTireПеревод: Многоголосый (MUZOBOZ)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAF1579CD7A2B09D58166DCC0E92A963E57582F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668655   (173463) от 13.10.2023
+
+Мэй | Боги в свете неона (Книга 2). Руки, полные бури (2023) [MP3, Вадим Прохоров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древние боги познали страх смерти, но это было лишь началом. Кронос вырвался из заточения, и теперь сам мир рассыпается от его присутствия. В стремлении отомстить сыновьям он будит древних чудовищ разных пантеонов. Пока Персефона пытается вырваться из цикла перерождений, а Анубис – совладать с собственной силой, богам предстоит взглянуть в лицо тому ужасу, перед (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЭксмоПродолжительность: 10:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7182BEEBDB5B4EDB253B5CE7D832B1ADC1AE0C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827075   (173462) от 20.10.2025
+
+Мумия / The Mummy (2017) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посреди безжалостной пустыни в величественном саркофаге погребена дочь египетского фараона, но настанет день, и она явится в наш мир вернуть себе то, что принадлежит ей по праву. Отныне миром правят боги и монстры.Производство: США, Китай, Япония / Perfect World Pictures, Sean Daniel CompanyЖанр: ужасы, фэнтези, боевик, триллер, приключенияРежиссер: Алекс КуртцманАктеры: Том Круз, Рассел Кроу, Аннабелль Уоллис, София Бутелла, Джейк Джонсон, Кортни Б. Вэнс, Марван Кензари, Саймон Атертон, Джеймс Арама, Мэттью УилкасПеревод: Дублированный, многоголосыйЯзык озвучки: Русский, узбекский, английскийСубтитры: Русские, английские (Forced, Full, SDH)Продолжительность: 01:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F549AB3F25971BDA341E2811668CE93DF79FB4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668689   (173461) от 13.10.2023
+
+Ребекка Дзанетти | Агент ФБР Лорел Сноу (Книга 1). Одиннадцать подснежников (2023) [MP3, Ирина Патракова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173461.jpg" />
+</div>
+
+
+###  Подробнее
+
+ОТ АВТОРА БЕСТСЕЛЛЕРОВ NEW YORK TIMES, AMAZON, USA TODAY, PUBLISHERS WEEKLY.
+Лорел Сноу – профайлер с уникальным интеллектом и редким даже для профайлера объемом знаний. Она специалист не только по аномальной психике, но и по нейробиологии, теории игр, биоинформатике и обработке данных.Жанр: детектив, триллерИздательство: INSPIRIAПродолжительность: 12:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAF67C69179010E8C974C48E86BDD18BC3EB2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827091   (173460) от 20.10.2025
+
+Маугли. Городские джунгли (2025) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Волков – сирота, молодой "дикарь", выросший в глухой деревне, Маугли в цивилизованном мире. Неожиданно о его существовании узнаёт родная тётка Надежда, преподавательница университета, специалист по древним текстам. Надя стремится помочь Андрею стать "высокоразвитым человеком" и забирает его с собой в Москву. И вот тут они оба оказываются (   Читать дальше...   )Производство: Россия | Марс МедиаЖанр: Мелодрама, детективРежиссер: Наталья УглицкихАктеры: Михаил Бубер, Дарья Вдовик, Марина Денисова, Андрей Карако, Катерина Мадалинская, Владислав Резник, Сергей Дорогов, Савелий Наумов, Антон Феоктистов и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301CF7D001C417ED20330586B3EFD4F92C3B80AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

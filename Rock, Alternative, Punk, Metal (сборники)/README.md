@@ -1,26 +1,26 @@
 https://t.me/izofen
-###  Публикация: 1760875   (108) от 29.09.2025
+###  Публикация: 1852965   (1056283) от 10.02.2026
 
-3 Doors Down - Compilation (2000-2016) [MP3|320 Kbps] <Hard rock, Alternative, Post grunge>
+Агата Кристи & Братья Самойловы - Compilation (1988-2025) [MP3|320 Kbps] <Alternative, Gothic rock, Art rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Away From The Sun {Away From The Sun} 2002
-02. Back To Me {Time Of My Life} 2011
-03. Be Like That {The Better Life} 2000
-04. Be Somebody {Seventeen Days} 2005(   Читать дальше...   )Жанр: Hard rock, Alternative, Post grungeПродолжительность: 02:29:35
+01. Эвтаназия ❂ Резня в Асбесте 2015
+02. 1_1 ❂ Живые, Но Мёртвые 2013
+03. Барон и За Рекой ❂ Маленький Фриц 1990
+04. Бриллиантовые Дороги (& Могилевский А) ❂ Иллюминатор. Песни на стихи Ильи Кормильцева 2017(   Читать дальше...   )Жанр: Alternative, Gothic rock, Art rockПродолжительность: 09:57:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C75AE6C264886297A5A5B4F8E2689F80949FA68A
+magnet:?xt=urn:btih:839FC7DD2EF737138A94DA2A45EBD393A730BBC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,28 +28,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766009   (128) от 29.09.2025
+###  Публикация: 1851948   (1055857) от 06.02.2026
 
-AC🗲DC - Compilation (1975-2020) [MP3|320 Kbps] <Hard rock, Blues rock, Rock & Roll, Heavy metal>
+Muse - Compilation (1999-2025) [MP3|320 Kbps] <Alternative, Space rock, Electronic rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. T.N.T. {Live} 1992
-02. Two's Up {Blow Up Your Video} 1988
-03. Play Ball {Rock Or Bust} 2014
-04. Anything Goes {Black Ice} 2008(   Читать дальше...   )Жанр: Hard rock, Blues rock, Rock & Roll, Heavy metalПродолжительность: 05:28:00
+01. Ashamed ❂ Sunburn EP 2000
+02. Break It To Me (& Sam De Jong) ❂ Simulation Theory 2018
+03. Butterflies & Hurricanes. mix (Additional Guitars) ❂ Butterflies & Hurricanes EP 2004
+04. Can't Take My Eyes Off You (& Frankie Valli) ❂ Dead Star-In Your World EP 2002(   Читать дальше...   )Жанр: Alternative, Space rock, Electronic rockПродолжительность: 07:47:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56CABD328E99C9D70AAACBFAFD00CC887641CA8A
+magnet:?xt=urn:btih:37828C6E3511B7561F2D7EA1F085B9F5B3F10D4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,28 +57,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819848   (986) от 25.09.2025
+###  Публикация: 1852274   (1055853) от 07.02.2026
 
-Van Halen - Compilation (1978-2012) [MP3|320 Kbps] <Hard rock, Arena rock, Glam metal>
+VA - Road Trip Rock Rhythms (2024) [MP3|320 Kbps] <Rock, Punk, Alternative, Progressive>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_986.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eruption. instrumental {Van Halen}1978
-02. Humans Being {Balance}1995
-03. Hear About It Later {Fair Warning}1981
-04. Jump {1984}1984(   Читать дальше...   )Жанр: Hard rock, Arena rock, Glam metalПродолжительность: 05:07:43
+001. Crying Heart - Remedy  - (04:17)
+ 002. Glass Sky - Collateral  - (03:53)
+ 003. The Curtain - Night Wilds  - (01:09)
+ 004. Interrobang - Switchfoot  - (03:48)(   Читать дальше...   )Жанр: Rock, Punk, Alternative, ProgressiveПродолжительность: 12:16:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CBD1353FD73F5E86A3D57FD016F1EEA0BE7DC92
+magnet:?xt=urn:btih:F220B701219B022E8BBA4A93E032D64A9BE3035A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -86,28 +86,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819576   (1139) от 24.09.2025
+###  Публикация: 1850791   (1054605) от 30.01.2026
 
-Arcade Fire - Premium Playlist (2005-2025) [MP3|320 Kbps] <Indie Rock, Art Rock, Baroque Pop>
+VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1139.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afterlife.mp3
-02. Age of Anxiety I.mp3
-03. Age of Anxiety II (Rabbit Hole).mp3
-04. Awful Sound (Oh Eurydice).mp3(   Читать дальше...   )Жанр: Indie Rock, Art Rock, Baroque PopПродолжительность: 03:12:31
+[3:44]. 001-7Б - По дорогам ветра
+[3:29]. 002-Сурганова и Оркестр - Коктейль
+[4:01]. 003-Вис Виталис - Рыбы в холодной воде
+[3:11]. 004-Инкогнито - Крутим диски(   Читать дальше...   )Жанр: rockПродолжительность: 11:10:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D0472AD95415FF87A81A1ED8D6DDC5240FF3B5B
+magnet:?xt=urn:btih:089EC6BD2CE8097B5DAAFCD29B09374067741A2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -115,28 +115,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819646   (1190) от 24.09.2025
+###  Публикация: 1848913   (1053202) от 19.01.2026
 
-Пикник - Premium Playlist (2004-2024) [MP3|320 Kbps] <Psychedelic Rock, Post-Punk, Gothic Rock, Folk Rock>
+VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1190.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aianostre (Королевство кривых, 2004).mp3
-02. А зовут его. Оторви и Брось (Один на один, 2024).mp3
-03. А может быть и не было меня (Чужой, 2004).mp3
-04. Азбука Морзе (Чужестранец, 2014) (2).mp3(   Читать дальше...   )Жанр: Psychedelic Rock, Post-Punk, Gothic Rock, Folk RockПродолжительность: 06:43:53
+[4:32] . 001-Би-2 - Я двигаюсь дальше
+[4:21] . 002-7б - Тост
+[3:00] . 003-Ночные снайперы - Дом стеной
+[3:13] . 004-Серьга - Батарейки сели(   Читать дальше...   )Жанр: rockПродолжительность: 9:13:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED775E2EC36B60ABB3DC2B1FD0A29359E13B0107
+magnet:?xt=urn:btih:B2BF763C56CEA043F952F4ED880BA486857483E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -144,28 +144,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819564   (1270) от 23.09.2025
+###  Публикация: 1848219   (1052783) от 16.01.2026
 
-Sammy Hagar - Voice Of Rock - Compilation (1973-2025) [MP3|320 Kbps] <Hard rock, Glam metal>
+VA - No name compilation part 43 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1270.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mas Tequila (& The Waboritas) {Red Voodoo}1999
-02. Something Going Wrong (& Chickenfoot) {Chickenfoot III}2011
-03. Halfway To Memphis (& The Waboritas) {Not 4 Sale}2002
-04. Heroes (& David Bowie & The Circle) {Lockdown 2020}2021(   Читать дальше...   )Жанр: Hard rock, Glam metalПродолжительность: 08:35:08
+01 - Møxes - Carry Me Through the Night
+02 - Wicked Wenches - Love Won’t Be Rushed
+03 - Møxes - Shadows of Goodbye (1 Versions)
+04 - Wicked Wenches - Burn to Feel(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 00:58:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:756CCAFD9317E53AE7AF3A372FD0E0612EE8A111
+magnet:?xt=urn:btih:59C374FAFA8FB917394C54944160C9146BDA6089
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -173,28 +173,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800679   (2666) от 15.09.2025
+###  Публикация: 1847645   (1052261) от 13.01.2026
 
-Ten Years After - Live compilation (2025) [MP3|320 Kbps] <Hard Rock>
+VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2666.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Help Me [16:07]
-02. I May Be Wrong, But I Won't Be Wrong Always [10:32]
-03. I'm Going Home [11:58]
-04. King Of The Blues [04:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:53:18
+01 - Møxes - Because You Stayed
+02 - Wicked Wenches - Wild Over You
+03 - Møxes - No Pillow But Your Name
+04 - Wicked Wenches - Still Alone Tonight(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 01:02:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E25736848BD68424745CAC8B6689DE4D184B3E11
+magnet:?xt=urn:btih:8A6E9834E148C796F881A095DD71CF1184F7ACB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -202,28 +202,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805256   (3617) от 09.09.2025
+###  Публикация: 1845711   (1050927) от 06.01.2026
 
-Glenn Hughes - Voice Of Rock - Compilation (1970-2025) [MP3|320 Kbps] <Hard rock, Blues rock, Progressive rock>
+VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3617.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Whiter Shade Of Pale (& Procol Harum & Marc Bonilla) (American Matador | 1993)
-02. Alive & Kicking (Influences & Connections. Volume One Mr. Big | 2003)
-03. Back In The USSR (& Molly Hatchet) (Abbey Road-A Tribute To The Beatles | 2009)
-04. Bad Reputation (& The Bobaloos) (The Bobaloos | 1983)(   Читать дальше...   )Жанр: Hard rock, Blues rock, Progressive rockПродолжительность: 24:03:33
+01. Ария - Гордиев узел (5:15)
+02. Radio Tapok - Фрау чёрная смерть (3:37)
+03. Casual, Глобалис - Не жалей ни о чём (3:57)
+04. ГУДТАЙМС & Найк Борзов - Инопланетный гость (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 05:27:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7873335E4BF5590C05F39825702420E63119CBC
+magnet:?xt=urn:btih:78ABCA902B1740F0736926121E1FD004281EB72B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -231,28 +231,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781660   (4606) от 03.09.2025
+###  Публикация: 1844923   (1050368) от 29.12.2025
 
-Helloween - Compilation (1985-2025) [MP3|320 Kbps] <Power metal, Speed metal>
+Erik Gronwall - Voice Of Rock - Compilation (2009-2025) [MP3|320 Kbps] <Hard rock, Glam rock, Pop rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4606.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Follow The Sign (Keeper Of The Seven Keys-Part I | 1987)
-02. Light The Universe (& Candice Night) (Keeper Of The Seven Keys-The Legacy | 2005)
-03. A Little Is A Little Too Much (Giants & Monsters | 2025)
-04. Live Now ! (Straight Out Of Hell | 2013)(   Читать дальше...   )Жанр: Power metal, Speed metalПродолжительность: 09:05:48
+01. Into The Great Unknown (& H.e.a.t) ❂ Into The Great Unknown 2017
+02. Higher (Winner Of Idol) ❂ The Idol Years 2009
+03. Livin' On A Prayer (& Bon Jovi) ❂ Eriksplanations Vol. 2 2025
+04. Fearless (& New Horizon) ❂ Gate Of The Gods 2022(   Читать дальше...   )Жанр: Hard rock, Glam rock, Pop rockПродолжительность: 05:36:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFDD5F9B6A27563FC9FDCDC83234BABC14A48972
+magnet:?xt=urn:btih:557528C8813E3A6238C025E4518E6D0F639AAD91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,28 +260,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815956   (4665) от 02.09.2025
+###  Публикация: 1843780   (1049778) от 23.12.2025
 
-Graham Bonnet - Voice Of Rock - Compilation (1969-2025) [MP3|320 Kbps] <Hard rock, Heavy metal, AOR, Blues rock>
+The Black Keys - Compilation (2002-2025) [MP3|320 Kbps] <Garage rock, Blues rock, Indie rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4665.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. C'est La Vie (& EZoo) (Feeding The Beast | 2017)
-02. Jet To Jet (& Alcatrazz) (No Parole From Rock 'n' Roll | 1983)
-03. Goodnight & Goodbye (& Impellitteri) (Stand In Line | 1988)
-04. Let The Wild Run Free (& Forcefield) (IV. Let The Wild Run Free | 1990)(   Читать дальше...   )Жанр: Hard rock, Heavy metal, AOR, Blues rockПродолжительность: 09:47:30
+01. A Man Will Do Wrong (& The Arcs) ❂ Electrophonic Chronic 2023
+02. Ain't Nothing Like You (Hoochie Coo) (& Jim Jones & Mos Def) ❂ Blakroc 2009
+03. Behind The Eyes (& The Arcs) ❂ Electrophonic Chronic 2023
+04. Can't Find My Mind (& The Cramps) ❂ OST He Put The Bomp ! In The Bomp 2007(   Читать дальше...   )Жанр: Garage rock, Blues rock, Indie rockПродолжительность: 08:02:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C216243E6E9C738ECA269F2B2D431B81D7F1A78D
+magnet:?xt=urn:btih:C260EEFC530264BABFB276673CF0E5D9FD25E1D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -289,28 +289,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438017   (5103) от 31.08.2025
+###  Публикация: 1840449   (1047231) от 05.12.2025
 
-VA - Workout Motivation (2019-2025) Alternative Edition, Mixed by Sergey Sychev [MP3|320 Kbps] <Rock, Alternative, Other> - Обновляемая раздача
+VA - Solo Projects From Ария (1985-2025) [MP3|320 Kbps] <Rock>
 
->>След.
+>>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5103.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Deuce - Do You Think About Me
-2. We As Human - Double Life - EP Version
-3. Manafest - Kamikaze
-4. Rain City Drive - Ride or Die(   Читать дальше...   )Жанр: Rock, Alternative, Other, CoverПродолжительность: 19:01:17 hrs
+01. Маврин - Крылья. instrumental
+02. Дубинин & Маврин - Ужас и Страх. live
+03. Беркут - Берёзы
+04. Маврин - Иллюзия(   Читать дальше...   )Жанр: RockПродолжительность: 07:43:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC3329148FA7971377155BD80F88748653C472C4
+magnet:?xt=urn:btih:BFCC5983B274B177B574F182265FFA7F8276734B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,28 +318,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813666   (6785) от 20.08.2025
+###  Публикация: 1839740   (1046814) от 30.11.2025
 
-David Lee Roth - Voice Of Rock - Compilation (1985-2023) [MP3|320 Kbps] <Hard rock, Glam metal, Blues rock>
+Мария Варгас - Favorites Collection Part 2 (2025) [MP3|192 Kbps] <Blues, Blues Rock, AI>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6785.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 40 Below (A Little Ain't Enough | 1991)
-02. Black Sand (DLR Band | 1998)
-03. Just Like Paradise (Skyscraper | 1988)
-04. You're Breathin' It (& Urban NYC) (Your Filthy Little Mouth | 1994)(   Читать дальше...   )Жанр: Hard rock, Glam metal, Blues rockПродолжительность: 03:18:59
+01 - Ты Боль Моя
+ 02 - Плачь, Плачь, Мэри
+ 03 - Я Тебе Не Верю Ритмичный Блюз
+ 04 - Тебя Придумала Сама(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:26:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CE4264FE12103A06A693C2035853CF81C67DCFB
+magnet:?xt=urn:btih:874DED9B1122CD3A1635C16FEBF583F82BE3A542
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,28 +347,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813458   (6925) от 19.08.2025
+###  Публикация: 1839418   (1046666) от 30.11.2025
 
-Сергей Мазаев & Моральный Кодекс - Compilation (1991-2025) [MP3|320 Kbps] <Pop rock, Jazz rock, Blues rock>
+Валерий Кипелов - Voice Of Rock - Compilation (1985-2024) [MP3|320 Kbps] <Heavy metal, Hard rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6925.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. До Свидания, Мама ! (Сотрясение Мозга | 1991)
-02. Где Ты (Где Ты | 2008)
-03. В Ожидании Чуда (Славянские Танцы | 2007)
-04. Реки и Горы (Хорошие Новости | 2001)(   Читать дальше...   )Жанр: Pop rock, Jazz rock, Blues rockПродолжительность: 06:59:03
+01. Жить Вопреки ❂ Жить Вопреки 2011
+02. Вавилон ❂ Вавилон EP 2004
+03. Тореро ❂ Путь Наверх Live 2003
+04. Огненная Дуга ❂ Часы Судного Дня EP 2021(   Читать дальше...   )Жанр: Heavy metal, Hard rockПродолжительность: 10:05:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA6413FCCED78F05AB0DB90B848D000C79526CC3
+magnet:?xt=urn:btih:451024278C6593B5FFA516A5D9DB67650EA874D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,28 +376,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813183   (6939) от 19.08.2025
+###  Публикация: 1601290   (1046323) от 02.01.2023
 
-VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [OPUS|160 kbps] <pop, rock, rap>
+Gov't Mule - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6939.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Aretha Franklin - Respect.opus — 00:02:27
-002. Public Enemy - Fight The Power.opus — 00:04:42
-003. Sam Cooke - A Change Is Gonna Come.opus — 00:03:11
-004. Bob Dylan - Like A Rolling Stone.opus — 00:06:09(   Читать дальше...   )Жанр: pop, rock, rapПродолжительность: 34:03:13
+01. Hole in My Soul
+02. I'll Be the One
+03. My Oh My
+04. Pressure Under Fire(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:30:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3552843121BF622EE46CF84DB13432D0DF87C3E1
+magnet:?xt=urn:btih:144118943C4C4F825BD296639DADE54C234DE032
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,28 +405,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813161   (7103) от 18.08.2025
+###  Публикация: 1601973   (1045995) от 06.01.2023
 
-Найк Борзов - Compilation (1994-2025) [MP3|320 Kbps] <Indie rock, Post-punk, Psychedelic rock>
+VA - Blues & Rock part  15 Compilation (2023) [MP3|320 Kbps] <Blues & Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7103.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Лоwадка d.v. (Супермend | 2000)
-02. Kingsize (Заноза | 2002)
-03. Nusinam (Заноза | 2002)
-04. Адренохром (Потерянный Среди Звёзд (Акт I) | 2022)(   Читать дальше...   )Жанр: Indie rock, Post-punk, Psychedelic rockПродолжительность: 03:30:59
+01. Bb Chung King & the Buddaheads - Still the Rain
+02. Bb Chung King & the Buddaheads - Hear it From You
+03. Bleu Jackson - Some Never Learn
+04. The Buddaheads - Big Time Baby(   Читать дальше...   )Жанр: Blues & RockПродолжительность: 02:16:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F238C8DBC403BEDB629BEE71072FC1DFEA4D097
+magnet:?xt=urn:btih:C77403EBBEEC2B079A90E3A6A9B3AD8BDD9B7D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,28 +434,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812361   (7710) от 15.08.2025
+###  Публикация: 1605364   (1044953) от 17.01.2023
 
-Whitesnake - Compilation (1978-2019) [MP3|320 Kbps] <Hard rock, Blues rock>
+VA - Music For You vol. 27 (2023) [MP3|320 Kbps] <Metal, Rock, Other>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7710.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Fool In Love (Good To Be Bad | 2008)
-02. Steal Your Heart Away (Forevermore | 2011)
-03. Here I Go Again (1987 WS | 1987)
-04. Judgment Day (Slip Of The Tongue | 1989)(   Читать дальше...   )Жанр: Hard rock, Blues rockПродолжительность: 07:44:43
+01. Gnarbot - Thrapticious (10:02)
+ 02. Soft Machine - Hazard Profile Part 5 (05:29)
+ 03. The Groundhogs - Garden (05:24)
+ 04. All Them Witches - Real Hippies Are Cowboys (08:08)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:58:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C1C45429881689B921D9E578CE4F40018919635
+magnet:?xt=urn:btih:76327E2918956351ECFDED71DF6D00E3C499EA31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,28 +463,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558885   (7825) от 15.08.2025
+###  Публикация: 1606484   (1044373) от 22.01.2023
 
-Виктор Цой и Кино - Коллекция (2022) [MP3|320 Kbps] <Rock>
+VA - Classic Rock (2023) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7825.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник лучших композиций легендарного поэта и композитора Виктора Цоя и группы Кино. Его песни актуальны, как никогда. Все треки взяты с ремастированных фирменных CD изданий. Не люблю ремастеры звука, так как в них искуственно завышают частоты и задирают громкость, затачивая под новодельные побрякушки, пукалки и домашние кинотеатры. На настоящей, благородной аудиосистеме (   Читать дальше...   )01. Песня без слов
-02. Красно-жёлтые дни
-03. Группа крови
-04. Пачка сигарет(   Читать дальше...   )Жанр: RockПродолжительность: 02:34:26
+01. Tom Petty And The Heartbreakers - American Girl (3:34)
+02. The Doors - Roadhouse Blues (4:03)
+03. Whitesnake - Here I Go Again 87 (4:35)
+04. Foreigner - Cold as Ice (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCE9E82D443369BE59CCE02880A931F2FF28E7F1
+magnet:?xt=urn:btih:14E3F83387861325EFE670F9D215465164A36413
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,28 +492,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812323   (7855) от 14.08.2025
+###  Публикация: 1607133   (1044129) от 25.01.2023
 
-VA - Prophetic Writings (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Hardcore>
+VA - Music For You vol. 28 (2023) [MP3|320 Kbps] <Rock, Metal, Other>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7855.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Detest - As I Expected (04:46)
- 002. Relics Of Humanity - In The Name Of Ubiquitous Gloom (04:12)
- 003. On Atlas' Shoulders - Gears Of Life (04:03)
- 004. Neaera - Into The Hollow (04:58)(   Читать дальше...   )Жанр: Metal, Hard-Rock, HardcoreПродолжительность: 11:53:41
+01. Rush - Xanadu (11:06)
+ 02. Ashra - Midnight On Mars (06:56)
+ 03. Renaissance - Opening Out (04:16)
+ 04. Galahad - Empires Never Last (09:06)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:42:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:702CE36E371112EB23FC510660B25CF2109900C4
+magnet:?xt=urn:btih:A34FEDC02318465F65C9CE4A145694E641E373FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,28 +521,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820949   (8516) от 30.09.2025
+###  Публикация: 1607975   (1043553) от 31.01.2023
 
-Paul Rodgers - Voice Of Rock - Compilation (1969-2024) [MP3|320 Kbps] <Hard rock, Blues rock, Blues soul>
+Laura Cox - Compilation (2023) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8516.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Radioactive (& The Firm) {The Firm} 1985
-02. Gone, Gone, Gone (& Bad Company) {Desolation Angels} 1979
-03. Born Under A Bad Sign (& Albert King & Slash) {Orgy Of The Damned} 2024
-04. For A Little Ride (& The Law) {The Law} 1991(   Читать дальше...   )Жанр: Hard rock, Blues rock, Blues soulПродолжительность: 07:58:03
+01. Fire Fire
+02. So Long
+03. The Australian Way
+04. One Big Mess(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAB6C7DFE6E07A57E336CD3E0B03E42BA49D2C59
+magnet:?xt=urn:btih:6B1736954F147A5112310443E849B26B147EFCD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,28 +550,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810995   (9046) от 07.08.2025
+###  Публикация: 1607787   (1043521) от 31.01.2023
 
-VA - Top 100 Legend Rock Hits vol.3 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
+VA - Now That's What I Call A Love Song (4CD) (2023) [MP3|320 Kbps] <Rock, Pop>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9046.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Imagine Dragons - Believer (03:24)
-002 Queen - Bohemian Rhapsody (Remastered 2011) (05:54)
-003 The Killers - Mr. Brightside (03:43)
-004 Red Hot Chili Peppers - Under the Bridge (04:24)(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 06:51:18
+CD 1
+
+01. George Michael – I Can’t Make You Love Me 5:21
+02. Ed Sheeran – Thinking Out Loud 4:42(   Читать дальше...   )Жанр: RockПродолжительность: 05:12:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E03F0020A1DFC08B72FA99B359EF9FCF110144E
+magnet:?xt=urn:btih:F414D40D62672BCCF68C7BA2ADD03D9A5403D294
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,28 +579,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810210   (9461) от 03.08.2025
+###  Публикация: 1609102   (1043327) от 02.02.2023
 
-VA - Greatest Rock Ballads (2025) [MP3|320 Kbps] <Rock>
+Airbourne - Hellfire (2023) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9461.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Lynyrd Skynyrd - Free Bird (9:18)
-002. Guns N' Roses - November Rain (8:57)
-003. The Beatles Greatest Hits Performed By The Frank Berman Band - Yesterday (8:09)
-004. Jeff Buckley - Hallelujah (6:53)(   Читать дальше...   )Жанр: RockПродолжительность: 09:57:06
+01. Thin The Blood [03:29]
+02. Runnin' Wild [03:38]
+03. Stand and Deliver [05:06]
+04. It’s Never Too Loud For Me [03:24](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:22:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFBACEE77304D441D6248C1C14CF13730AF2F183
+magnet:?xt=urn:btih:78B7B577A1BDF789B1C78560EECD08653FC5EB63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,28 +608,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809125   (9986) от 29.07.2025
+###  Публикация: 1609727   (1043164) от 04.02.2023
 
-David Coverdale - Voice Of Rock - Compilation (1974-2015) [MP3|320 Kbps] <Hard rock, Blues rock, Blue eyed soul>
+VA - The Stress: Rock Psychedelic Compilation (2023) [MP3|320 Kbps] <Psychedelic-Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9986.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Into The Light (Into The Light | 2000)
-02. Absolution Blues (Coverdale • Page | 1993)
-03. Behind The Smile (& Roger Glover) (The Butterfly Ball & The Grasshopper's Feast | 1974)
-04. Blindman (White Snake | 1977)(   Читать дальше...   )Жанр: Hard rock, Blues rock, Blue eyed soulПродолжительность: 04:00:40
+001. Gambardella - Ascensiones
+002. Kesem - No Future
+003. Liquify - Subzero Descent
+004. The Tyromancers - Behold ! The Tyromancers(   Читать дальше...   )Жанр: Psychedelic-RockПродолжительность: 09:30:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8559F1B39F3056A5FAEF4330AC2EAAB93F7F3C13
+magnet:?xt=urn:btih:5647BF312DFB978D8FEFE482C118900545E3E140
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,28 +637,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787665   (10536) от 24.07.2025
+###  Публикация: 1609738   (1043143) от 04.02.2023
 
-Ozzy Osbourne - Compilation (1980-2025) [MP3|320 Kbps] <Heavy metal>
+VA - The Rock Meeting (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10536.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crazy Train (Blizzard Of Ozz 1980)
-02. Perry Mason (Ozzmosis 1995)
-03. Zombie Stomp (No More Tears 1991)
-04. Secret Loser (The Ultimate Sin 1986)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 10:34:50
+001. The Waterboys - Bed On The Floor
+002. U2 - Even Better
+003. Electric Light Orchestra - Moment In Paradise
+004. Morgen - Everything's Gone(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 11:50:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8096581BB60C75562CA3288EC679FC41771BB2E8
+magnet:?xt=urn:btih:01849C3A8ADA77203C1FEB9278F1025FAE2DA93E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,28 +666,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808102   (10701) от 22.07.2025
+###  Публикация: 1609758   (1043141) от 04.02.2023
 
-VA - Top 100 Mega Hits Rock 2025 (2025) [MP3|320 Kbps] <Rock>
+VA - From Nightmares: Metal Hard Compilation (2023) [MP3|320 Kbps] <Metal, Hard Rock, Core>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10701.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Rise Against - Savior(04:02)
-002 Sum 41 - Fat Lip(02:58)
-003 Jimmy Eat World - The Middle(02:46)
-004 blink-182 - First Date(02:52)(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:58
+001. Kvasir - Authenticity
+002. Sleeping Romance - Smoke And Mirrors
+003. Goatwhore - Born Of Satan's Flesh
+004. Infection Code - Daily Slavery System(   Читать дальше...   )Жанр: Metal, Hard Rock, CoreПродолжительность: 11:35:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E45AF66C7609386E3AC7D3BF02F1683B439109C3
+magnet:?xt=urn:btih:BCCF82B99F7D5F2B6FA6CD6310ADEBA0718F6140
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,28 +695,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807948   (10822) от 21.07.2025
+###  Публикация: 1609741   (1043140) от 04.02.2023
 
-VA - Top 100 Legend Rock Hits vol.2 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
+VA - The Rock Meeting Vol.02 (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10822.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Red Hot Chili Peppers - Can't Stop(04:29)
-002 Black Sabbath - Paranoid(02:48)
-003 RYDERS - Whole Lotta Love (Live)(03:51)
-004 The Goo Goo Dolls - Iris(04:50)(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 06:47:06
+001. The Black Keys - Lonely Boy
+002. Frank Turner - The Work
+003. The Relentless - Lost In Control
+004. Jeff Lynne's Elo - Losing You(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 11:49:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CC07D12F26A0625852502C3BA58A9508EFF9508
+magnet:?xt=urn:btih:06A5A58AABE5123E7B231AA533E2498BD7DBA2C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -724,28 +724,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806782   (11412) от 15.07.2025
+###  Публикация: 1610383   (1042436) от 07.02.2023
 
-Blackmore's Night - Compilation (1997-2025) [MP3|320 Kbps] <Folk rock, Medieval rock>
+VA - Impressive Sound 2022.2: Volume II (2022) [MP3|320 Kbps] <Technical death metal, progressive black metal, deathcore>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11412.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Temple Of The King (& Rainbow) (Dancer & The Moon | 2013)
-02. Wish You Were Here (& Rednex) (Shadow Of The Moon | 1997)
-03. Home Again (Fires At Midnight | 2001)
-04. Moonlight Shadow (& Mike Oldfield) (All Our Yesterdays | 2015)(   Читать дальше...   )Жанр: Folk rock, Medieval rockПродолжительность: 06:12:16
+01. Xenobiotic - The Wretched Strive
+02. Sigh - Shoujahitsumetsu
+03. Psycroptic - Enslavement
+04. Sun Eater - Vermin (feat. Charles Pierron & Daniel Bramley)(   Читать дальше...   )Жанр: Technical death metal, progressive death metal, progressive black metal, deathcoreПродолжительность: 01:29:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA11AA0131A89F43B3B879796BE5B6DCA07D2D6C
+magnet:?xt=urn:btih:43EB1E81BD5CCB2E6BBE48C19282BC2A89665176
 ```
 
 https://mybot314.ru/tekegram_catalog/

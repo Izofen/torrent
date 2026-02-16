@@ -1,25 +1,25 @@
-###  Публикация: 1852741   (1056114) от 
+###  Публикация: 1776093   (102) от 29.09.2025
 
-Obscurity - Studio Albums (10 releases) (2000-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Viking/Death Metal>
+Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Technical Death Metal, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056114.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Obscurity - немецкая метал-группа из г. Фельберт, Северный Рейн-Вестфалия, основана в 1997 году.2000 - Bergisch Land
-2003 - Thurisaz
-2007 - Schlachten & Legenden
-2009 - VararЖанр: Melodic Black/Pagan/Death MetalПродолжительность: 07:31:38
+Between the Buried and Me - прогрессив-метал группа из города Роли, штат Северная Каролина, США; сформирована в 2000 году.2002 - Between The Buried And Me
+2003 - The Silent Circus
+2005 - Alaska
+2006 - The Anatomy OfЖанр: Progressive Metal, Technical Death Metal, MetalcoreПродолжительность: 16:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0670E14020DC5CCE03A2FBC85427CB54E93D95EF
+magnet:?xt=urn:btih:1C5BD67C506E752F6A6A40F3E67D98F44042DFEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852892   (1056179) от 
+###  Публикация: 1820850   (18) от 29.09.2025
 
-Andy Williams - Andy Williams (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - Studio Albums (10 releases) (1989-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, H ...
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056179.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Unchained Melody
-A2 Do You Mind
-A3 It's All In The Game
-A4 Are You Sincere?(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:30:43
+Дарио Молло — итальянский гитарист и музыкальный продюсер, наиболее известный, тремя альбомами "The Cage", которые он записал с бывшим вокалистом Black Sabbath Тони Мартином, а также работой в группе "Voodoo Hill" с бывшим вокалистом и басистом Deep Purple Гленном Хьюзом.Crossbones
+EZoo
+The Cage
+Twilight RoadЖанр: Hard Rock, Heavy MetalПродолжительность: 09:02:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AD26A8E0BA563BAC5EB5E535C4A0068B0C83FE0
+magnet:?xt=urn:btih:0B054F92E238272EFE6871E59CE5FC71172B1EE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852899   (1056180) от 
+###  Публикация: 1820836   (12) от 29.09.2025
 
-VOLA - Studio Albums (6 releases) (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent>
+Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056180.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Vola — рок-группа из Дании, основанная в Копенгагене в 2006 году.2008 - Homesick Machinery (EP)
-2011 - Monsters (EP)
-2015 - Inmazes
-2018 - Applause of a Distant CrowdЖанр: Progressive Metal, DjentПродолжительность: 04:28:26
+Arabs In Aspic - норвежская группа, играющая прогрессивный рок, была основана в Тронхейме в 1997 году. Музыкальные корни коллектива уходят в золотую эру рока. Их звучание — это смесь громких, тяжёлых гитар и барабанов, двенадцатиструнной акустики, фанкового баса и перкуссии, пронзительных органов Hammond, мягких Fender Rhodes, меллотронов и синтезаторов 1970-х.2003 - Progeria (EP)
+2004 - Far out in Aradabia
+2011 - Strange Frame Of Mind
+2013 - Pictures in a DreamЖанр: Progressive RockПродолжительность: 05:56:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8ECF4B3A272247EEAC7B64F8307F2E64C80C47B1
+magnet:?xt=urn:btih:DBB0F5AC165EDEF8B7EB33C4C4FEFBCE893FF3D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853263   (1056365) от 
+###  Публикация: 1820868   (4) от 29.09.2025
 
-The Ocean Collective - Studio Albums (12 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Sludge/Post-Metal>
+Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056365.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Ocean - немецкая метал-группа, основанная в Берлине в 2000 году гитаристом Робином Штапсом.2003 - Fogdiver
-2004/2009 - Fluxion
-2006 - Aeolian
-2007 - PrecambrianЖанр: Progressive/Sludge/Post-MetalПродолжительность: 10:49:07
+Siege Of Power - метал-группа с участниками из США и Нидерландов, основана в 2017 году.2018 - Warning Blast
+2023 - This Is TomorrowЖанр: Death/Thrash MetalПродолжительность: 01:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E1491A1BDFA5D5117AD5D8395CDB3AE1B06899B
+magnet:?xt=urn:btih:142BFC7C3E74D99E5CE00DC454C30DCB25ABD378
 ```
 
 https://mybot314.ru/tekegram_catalog/

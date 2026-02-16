@@ -1,22 +1,22 @@
-###  Публикация: 1807209   (11227) от 17.07.2025
+###  Публикация: 1456435   (1025041) от 22.03.2021
 
-3D print - Hybris Studios - Bismarck: Azur Lane 2025 [STL]
+3D Smart materials - Artstation - Zack Maxwell - Stylized Fabric - Smart Materials [SPSM, SBSAR]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11227.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025041.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Июльская модель Bismarck: Azur Lane от известной и проверенной студии Hybris Studios для Вашего творчества в 3D печати.Формат: STL
+Умные материалы от автора Zack Maxwell.Формат: SPSM, SBSAR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AEC3595BC7ADC8387FC71EAA9316237462D821B
+magnet:?xt=urn:btih:B7603698453F0336FC28EB2FBB32D78102BEB908
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804631   (12846) от 01.07.2025
+###  Публикация: 1456429   (1025031) от 22.03.2021
 
-3D сцены - Fab - Northern Island Landscape Pack 4x4 km ( Landscape ,Scottish , Island Landscape ) [UASSET, UMAP]
+3D Smart materials - Artstation - Zack Maxwell - Stylized Body - Smart Materials [SPSM]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12846.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Northern Island Pack состоит из островного ландшафта площадью 16 км2 с полностью процедурным ландшафтом и расположением листвы. Текстуры ландшафта, растения и скалы фотосканированы нами. Ландшафтные прибрежные скалы моделируются и терпеливо вылепливаются. Они имеют различные размеры и формы для легкого размещения с помощью инструмента спавнера листвы ландшафта Unreal (   Читать дальше...   )Формат: UASSET, UMAP
+Умные материалы от автора Zack Maxwell.Формат: SPSM
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACC2722977A170E69A615AC66F0770AB04AAC3D6
+magnet:?xt=urn:btih:C38B57BE06619E7FA6A8AD29FA84E0389B7BDEE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801780   (14771) от 13.06.2025
+###  Публикация: 1456456   (1025030) от 22.03.2021
 
-3D сцены - Fab - Taiga Biome Environment ( Boreal Forest , Winter Forest , Tundra Biome ) [UASSET, UMAP]
+3D Smart materials - Artstation - Zack Maxwell - Stylized Wood - Smart Materials [SPSM]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14771.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025030.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Превратите свои виртуальные миры в безмятежную зимнюю страну чудес с Taiga Biome Environment , необыкновенным набором листвы и ресурсов от Entroverse Labs. Эта тщательно созданная коллекция передает суровое очарование северных лесов, дополненное морозным ландшафтом, природными элементами и уютными структурами. Независимо от того, создаете ли вы захватывающий зимний (   Читать дальше...   )Формат: UASSET, UMAP
+Умные материалы от автора Zack Maxwell.Формат: SPSM
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63D431E1C79ADFCFB011ACC302899096D7BDE71F
+magnet:?xt=urn:btih:5E387923B2384411DDC390DA344DD0602C4729E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801213   (15078) от 10.06.2025
+###  Публикация: 1456749   (1024834) от 23.03.2021
 
-3D сцены - Fab - Medieval Gothic Cathedrals -  Modular dark fantasy churchs [UASSET, UMAP]
+3D Smart materials - Artstation - Poligone - Poligone Smart Material Collection for AAA Character Creation [SPSM]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15078.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024834.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Средневековые готические соборы - Модульные церкви в стиле темного фэнтези. С этим модульным пакетом вы можете создавать любые соборы и церкви, которые захотите.Формат: UASSET, UMAP
+От автора Poligone: Этот пакет представляет собой коллекцию умных материалов, которые я создал за 5 лет моей карьеры профессионального 3D-художника. Эти материалы использовались во всех моих AAA и мобильных проектах для многих известных клиентов (ILM, Microsoft, Lucas, Disney, NCSoft, Nexon, Telltale, Kabam, Gamevil, Digital Legends и многих других).Формат: SPSM
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:049F6615227B6AA1CE10CCF8E52D487CA85B63A8
+magnet:?xt=urn:btih:80E22840FC658DD1C9425A28543DD028B5B63407
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800587   (15686) от 04.06.2025
+###  Публикация: 1456953   (1024697) от 24.03.2021
 
-3D модели - 3DModels - Bugatti Tourbillon 2025 3D model [BLEND, FBX, C4D, 3DS, OBJ]
+3D Smart materials - Artstation - Munkhjin Otgonbayar - IIF STEEL COLLECTION \\ +80 Smart Materials SP [SPSM]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15686.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3D-модель создана максимально приближенно к реальному автомобилю Bugatti и на основе размеров из открытых источников. Все основные части модели являются отдельными объектами. Вы можете легко изменить все материалы. Изображения визуализируются с помощью плагина V-Ray, освещение и окружение в комплект не входят.Формат: BLEND, FBX, C4D, 3DS, OBJ
+Умные материалы от автора Munkhjin Otgonbayar.Формат: SPSM
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87D29D87364DF83C18A2E3BE306040B52503916E
+magnet:?xt=urn:btih:8113AE92A29BD8813C929EC69796530CBDEBEEFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800503   (15778) от 03.06.2025
+###  Публикация: 1457214   (1024348) от 26.03.2021
 
-3D материалы - Unity Asset Store - Stylized Forest Textures - RPG Environment [UPROJECT]
+3D Smart materials - Artstation - Stan Brown - Rusting Painted Steel - Customizable Material [SBSAR, PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15778.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-25 стилизованных лесных текстур и материалов.Формат: UPROJECT
+От автора Stan Brown: Настраиваемый SBSAR для создания вариаций Rusted Painted Metal.Сначала пузырьки краски, затем трещины и расколы, обнажающие металл и ржавчину, по мере увеличения ползунка the age. Вы можете сделать множество вариаций и стилей, поиграть с ползунками!Формат: SBSAR, PNGРазрешение файлов: 2048х2048
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C82C06DDD38C70644F6987CAAB19887B738CEC0A
+magnet:?xt=urn:btih:8F982F3FC0A0351EE92B98CDDD44770294ABA091
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +154,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811500   (16089) от 10.08.2025
+###  Публикация: 1457462   (1024283) от 26.03.2021
 
-3D сцены - Fab - Theater Hall Environment (Theater Concert Cinema Hall Exhibition Meeting 3d) [UASSET, UMAP]
+3D модели - 3DDD - 3DSky PRO models - March 2021 [Corona|V-Ray|*.max, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16089.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Театральный зал содержит 93 уникальных модели, включая все представленные ресурсы и высококачественные ресурсы. Он отличается хорошим уровнем детализации и оптимизирован для игровых проектов.Формат: UASSET, UMAP
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 234 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BA054A30898A9C3937B07D0D6E16E1EDDF23BE5
+magnet:?xt=urn:btih:CBC062F37D260C13B87540519CAF97B16A618977
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +181,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811495   (16090) от 10.08.2025
+###  Публикация: 1457928   (1024155) от 27.03.2021
 
-3D сцены - Fab - Post Apocalyptic World [UASSET, UMAP]
+3D Smart materials - Artstation - Stefan Engdahl - Gun Smart Materials Pack Vol.3 [SPSM]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16090.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрушения в Unreal Engine.Формат: UASSET, UMAP
+Умные материалы от автора Stefan Engdahl.Формат: SPSM
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:412D9AB2AD15D17466996E1442217E489958E928
+magnet:?xt=urn:btih:2840D7A08F1CED56096BDA1693E7DA41F15C8B39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +207,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811490   (16094) от 10.08.2025
+###  Публикация: 1458258   (1023982) от 28.03.2021
 
-3D сцены - Fab - Destruction Complete [UASSET, UMAP]
+3D Smart materials - Artstation - Tod Ryan - Smart Materials Intro 12 Pack [SPSM]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16094.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрушения в Unreal Engine.Формат: UASSET, UMAP
+Умные материалы от автора Tod Ryan.Формат: SPSM
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25A277524A38C81D5EF0B6C476A185E8CED3F03B
+magnet:?xt=urn:btih:913F8D7D167799F69728B564BFC253CF170521F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +233,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799928   (16243) от 30.05.2025
+###  Публикация: 1458273   (1023936) от 28.03.2021
 
-3D материалы - MOTION SQUARED - Arnold Metal Materials Pack for Cinema 4D [LIB4D]
+3D Smart materials - Artstation - Tod Ryan - 13 Substance Painter Engine Metal Automotive Smart Materials [SPSM]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16243.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этот пакет входят различные виды металла, такие как золото, медь, хром, оцинкованная сталь, шлифованный металл, латунь и узоры с ромбовидными пластинами . В этом пакете также есть раздел с высокодетализированными пользовательскими поверхностями и узорами, которые сделают любой материал более интересным. Все материалы имеют разрешение 4K, что означает потрясающее (   Читать дальше...   )Формат: LIB4D
+Умные материалы от автора Tod Ryan: 13 интеллектуальных материалов Substance Painter, специально разработанных для автомобильного дизайна, текстурирования двигателей и любых металлических предметов.Формат: SPSM
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A68C28C889912BC18BE30D9F67D3A0F6B8BE989B
+magnet:?xt=urn:btih:E305E6E1D33A4DF277AC4B070094DCB76D261DA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,27 +259,131 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797235   (17198) от 24.05.2025
+###  Публикация: 1458280   (1023924) от 28.03.2021
 
-3D модели - BIG MEDIUM SMALL -  LOST CITY COLLECTION
+3D Smart materials - Artstation - Tod Ryan - 18 Robot Metal Substance Painter Smart Material Pack [SPSM]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17198.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Собирайте чемоданы и отправляйтесь в экспедицию к древним руинам Затерянного города.
+Умные материалы от автора Tod Ryan: 18 smart materials, специально разработанные для роботов и других механических объектов. Включает в себя дополнительные кабели и грязные smart materials.Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2CC0F3ADC27D48E9A9A9734611999CA474F676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458559   (1023750) от 29.03.2021
+
+3D Smart materials - Gumroad - Marco Tomaselli - Porcelain and Gems Pack 10+ Smart Materials [SPP, SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Marco Tomaselli.Формат: SPP, SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C77FE2806C1E34883D09D0B6D5115CD7C2CE1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458550   (1023743) от 29.03.2021
+
+3D Smart materials - Gumroad - Marco Tomaselli - Vintage Sci-Fi Pack 80+ Smart Materials [SPP, SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Marco Tomaselli.Формат: SPP, SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F7C572B5A2DF7E2932E39B72A00299B5138BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458565   (1023731) от 29.03.2021
+
+3D Smart materials - Gumroad - Marco Tomaselli - Marble Pack 35+ Smart Materials [SPP, SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Marco Tomaselli.Формат: SPP, SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D6C2F3F44C9CE9D77AAAB4E95AA1A4DA9C86E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463716   (1019897) от 21.04.2021
+
+3D материалы - FreePBR materials archive 04-2020 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архив разнообразных бесплатных PBR-материалов, предлагаемых на сайте FreePBR.com. Материалы предназначены для использования в 3D-редакторах и игровых движках. Каждый материал в отдельности находится в свободном доступе на сайте, но за удобное скачивание всех материалов одним архивом придется заплатить.
 
-Мы любим тратить время и вручную создавать эти объекты для вас. Этот пакет не исключение. Каждый камень был вручную вылеплен с энтузиазмом нашей командой. Каждая текстура была окрашена, чтобы эти объекты выглядели максимально правдоподобно. Вдохновлено древней архитектурой майя.Разрешение файлов: BLEND, OBJ, FBX
+Каждый материал содержит карты альбедо, шероховатости, нормалей, (   Читать дальше...   )Формат: PNGРазрешение файлов: 2048x2048
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73D1AE5813B039B9906D2FAA93E21FD6732481E0
+magnet:?xt=urn:btih:BC124601D34ADEBC7BE20B3C09C9E6BF2C58540A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,25 +391,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790940   (21768) от 11.04.2025
+###  Публикация: 1464327   (1019860) от 21.04.2021
 
-3D print - Hybris Studios - Alsace: Azur Lane 2025 [STL]
+3D модели - ArtStation - Mega Pack Sci-Fi Hard Surface KITBASH 400 DETAILS [MAX, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21768.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мартовская модель Alsace: Azur Lane от известной и проверенной студии Hybris Studios для Вашего творчества в 3D печати.Формат: STL
+Комплект состоит из 400 уникальных объектов
+Хорошо сочетается с другими наборами из этой серии.Формат: MAX, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCFB2F251CAA83FE47829366D687804D0E7D0A77
+magnet:?xt=urn:btih:9689AEEE4963DC8FABF97692DB8E7A165F220FA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,25 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785960   (24263) от 18.03.2025
+###  Публикация: 1464101   (1019858) от 21.04.2021
 
-3D сцены - Fab - Post-Apocalyptic Urban City [UASSET, UMAP]
+3D модели - CGTrader - JOY - Realistic Female Character VR / AR / low-poly [BLEND, FBX]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24263.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Городской дизайн на основе постапокалиптической тематики. В эту коллекцию входят как внутренние, так и внешние декорации. Демонстрационная карта может показать возможность заполнения любых похожих проектов в том же художественном стиле. Вы можете использовать демонстрационную карту напрямую или просто использовать реквизит для заполнения ваших собственных уникальных (   Читать дальше...   )Формат: UASSET, UMAP
+Встречайте JOY, реалистичного персонажа, созданного в Blender 2.8xx (EEVEE render). В этом наборе вы найдете полные персонажи и все исходные файлы. Он соответствует всем отраслевым стандартам и может помочь понять конвейер создания персонажей для видеоигр или анимации.Формат: BLEND, FBX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:216CD35346F1C916DF1A7A81824731D61965E422
+magnet:?xt=urn:btih:73D846FA2BBF8DD363A45E1F24C8FDB64DF18982
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,25 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786025   (24269) от 18.03.2025
+###  Публикация: 1465876   (1018883) от 27.04.2021
 
-3D материалы - KitBash3D - Apartment Interiors [BLEND]
+3D модели - Rocket Pig Games - StoutHearted Heroes - 56712068 [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24269.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шагните в мир новых возможностей с этим универсальным комплектом прекрасно выполненных интерьеров квартир. От воздушной элегантности элитного пентхауса до городского очарования кирпичного лофта или уютного очарования однокомнатной студии — каждое пространство приглашает к творчеству и приключениям. В комплекте с разнообразным реквизитом, таким как бытовая техника, (   Читать дальше...   )Формат: BLEND
+RPG предлагает stl для печати на домашнем 3D-принтере. Мы работаем в этой области более 20 лет и предлагаем файлы высочайшего качества, которые с легкостью можно распечатать на любом fdm- или sla-принтере! Благодаря отличному качеству, ваши отпечатки будут иметь максимальную детализацию при изменении размера, независимо от того, печатаете ли вы на принтере за 200 (   Читать дальше...   )Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F89DD3A7DAE436422C8CD4C495ABEBA7EF1E7684
+magnet:?xt=urn:btih:C6DF3B1729CB07BC31410DA68806A4D3FFC97D90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,27 +470,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785778   (24363) от 17.03.2025
+###  Публикация: 1470387   (1015672) от 16.05.2021
 
-3D сцены - Fab - Modular Town (Modular Town, Modular Village, Rural Town, Rural Village, Farm) [UASSET, UMAP]
+3D модели - 3DDD - 3DSky PRO models - April 2021 [Corona|V-Ray|*.max, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24363.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Nanite Foliage — наслаждайтесь обширной библиотекой отсканированной листвы, которую можно использовать во всех ваших проектах!
-Библиотека визуальных эффектов. В комплект входит обширная библиотека визуальных эффектов, включая птиц, световые лучи и многое другое!
-Полностью модульный — наслаждайтесь полностью модульным набором для создания собственных средневековых (   Читать дальше...   )Формат: UASSET, UMAP
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 350 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFCEE167C139106A3C527D491A3FD318AF9D5DE9
+magnet:?xt=urn:btih:0615A3135CD518C72EB7672143FC31B886371975
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,25 +497,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785398   (24561) от 15.03.2025
+###  Публикация: 1472032   (1014572) от 23.05.2021
 
-3D сцены - Fab - Valley of Guldur [UASSSET, UMAP]
+3D материалы - 500 Substances (Substance Painter & Substance Designer) [SBS, FBX, SBSAR]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24561.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все объекты имеют вручную настроенные LOD и сетки столкновений. Большинство сеток поставляются с наборами текстур 4k. Включите параллакс, листья и материал частиц, а также простой ветер. Снято на UE5.Формат: UASSSET, UMAP
+Огромная коллекция материалов - камень, ткань, кирпич, дерево, керамика и многое другое!.Формат: SBS, FBX, SBSAR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDD84CA64E7BDC50882EFDEB9A19D9C1751B5FAF
+magnet:?xt=urn:btih:C011F404163CF6453F5B358FAFC76ADF048B9AD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,25 +523,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785400   (24580) от 15.03.2025
+###  Публикация: 1474761   (1012788) от 03.06.2021
 
-3D сцены - Fab - The Big Mansion [UPROJECT, UASSSET, UMAP]
+3D модели - 3DDD - 3DSky Free models [Corona|V-Ray|*.max, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24580.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот пакет включает в себя большую среду особняка. Эта среда состоит из разных наборов модульных стен для двух больших коридоров и двух совершенно разных наборов для комнат. Вы можете легко создавать новые комнаты с разными стилями и размерами, используя модульные наборы. Большое внимание было уделено деталям при построении объектов. Используя технологию Nanite, (   Читать дальше...   )Формат: UPROJECT, UASSSET, UMAP
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 971 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AFDFC2DD5ACBED356B24E254452CD45C695280B
+magnet:?xt=urn:btih:6945476F7893027E3B2DEB037255F0968B0E819A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,27 +550,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784810   (24804) от 13.03.2025
+###  Публикация: 1475288   (1012342) от 06.06.2021
 
-3D сцены - Fab - Mountains & Meadows I Outdoor Environment [UASSET]
+3D print - Gambody - Gladiator Maximus 3D Printing Figurine | Assembly [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24804.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mountains & Meadows | Outdoor Environment — это пакет ландшафта и растительности, состоящий из 16 экземпляров растительного материала и 9 сеток, а также 135 возможных комбинаций.
-
-Он нацелен на реалистично выглядящие проекты и визуализации. Однако из-за очень низкого количества полигонов его можно использовать и для проектов, которым может потребоваться более (   Читать дальше...   )Формат: UASSET
+Римский генерал, ставший гладиатором Максимус, продемонстрировал впечатляющие боевые навыки, храбрость, решительность и честь в эпической исторической драме 2000 года Ридли Скотта. 3D-фигурка Gladiator Maximus может похвастаться невероятным уровнем детализации доспехов и руинами Колизея в качестве платформы. Модель для 3D-печати.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF85E3D2DB6D5DF8962890198FDDAF16C727F07D
+magnet:?xt=urn:btih:90DE26FFDCE8B5D2A707D8F8E277D2B2C83DED09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,28 +576,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784323   (25109) от 10.03.2025
+###  Публикация: 1475944   (1011985) от 09.06.2021
 
-3D материалы - Marmoset LLC - Toolbag Library Update 6 [TBMAT, MPIC, TBSKY, SMARTMASK]
+3D модели - Hum3D - BelAZ 75180 Dump Truck 2014 [FBX, MAX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25109.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шестая версия библиотеки инструментов Marmoset Toolbag уже доступна и содержит более 150 уникальных высококачественных ресурсов в категориях «Кисти», «Материалы» и «Текстуры».
-
-Если и есть инструмент, который поможет вам ускорить процесс текстурирования, так это наши новые кисти.
-В частности, мы добавили новую папку Fabric-Details, содержащую сведения о тканевых (   Читать дальше...   )Формат: TBMAT, MPIC, TBSKY, SMARTMASK
+3d модель автомобиля марки BelAZФормат: FBX, MAX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92BAB4E1CD94F538077E68C7E93876F3056B9166
+magnet:?xt=urn:btih:C41F3267997FE525F279603D88DC3E5E12804542
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,28 +602,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784300   (25163) от 10.03.2025
+###  Публикация: 1475946   (1011977) от 09.06.2021
 
-3D print - Girls, Girls and Only Girls 3D-Print Models Collection 14 By TRECA 2025 [STL, LYS, CHITUBOX]
+3D модели - Hum3D - BelAZ 75710 Dump Truck 2013 [FBX, MAX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25163.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Девушки, девушки и только девушки.
-Очередной большой пакет высококачественных миниатюр моделей для 3D печати девушек из личной коллекции.
-Данный пакет включают в себя разнообразный спектр материалов, предназначенных для работы на 3D-принтерах.
-Многие модели имеют под печать NSFW версию, просьба это учитывать.Формат: STL, LYS, CHITUBOX
+3d модель автомобиля марки BelAZФормат: FBX, MAX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD09C9493127EAB44C223B11FDB7678CF2A4AFBA
+magnet:?xt=urn:btih:F1A4C7D20E0A64508A1E744D3C3B7F88F7923B05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,25 +628,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783787   (25450) от 07.03.2025
+###  Публикация: 1475939   (1011942) от 09.06.2021
 
-3D материалы - Blender Market - 5000+ Pbr Asset Browser [BLEND]
+3D модели - BMW 6 Series Gran Turismo M-Sport with HQ interior 2017 [3DS, C4D, FBX, LWO, MAX, OBJ, WRL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25450.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это самая большая библиотека материалов Blender, когда-либо представленная на рынке Blender, включающая более  5000 PBR-материалов. Этот браузер ресурсов позволяет применять сложные материалы с помощью  простого перетаскивания  (установка аддона не требуется). Вам больше не нужно тратить часы на игру с узлами, чтобы получить высококачественные 3D-материалы. Все просто.Формат: BLEND
+3d модель автомобиля марки BMWФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, WRL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D98517CCB080EC321CA26BECDA4EC4D3228FAD7
+magnet:?xt=urn:btih:7A716A732C9C99BB34BB0A452393BE40391EDDA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,129 +654,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783294   (25686) от 05.03.2025
+###  Публикация: 1475954   (1011933) от 09.06.2021
 
-3D модели - BigMediumSmall - CYBERPUNK [BLEND, FBX, C4D, UPROJECT]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватите чистую энергию антиутопического будущего с нашей коллекцией Cyberpunk. Каждый актив рассказывает историю распада, технологий и выживания под неоновым небом. От возвышающихся фасадов небоскребов до мерцающих знаков и грязных городских деталей, эти высокодетализированные активы оживляют ваши мрачные киберпанковские видения. Идеально подходит для создания (   Читать дальше...   )Формат: BLEND, FBX, C4D, UPROJECT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F001D053B32B89733F12F59198BABB267877DE35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782970   (25866) от 03.03.2025
-
-3D материалы - Unity Asset Bundle 1 February 2025 [UNITYPACKAGE]
+3D модели - 3ddd - Audi Q8 2019 [Corona|V-Ray|*.max, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25866.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Unity Asset Bundle 1 февраля 2025 года предлагает обширную коллекцию ресурсов, специально разработанных для разработчиков, стремящихся создавать захватывающие и динамичные 3D-среды.Формат: UNITYPACKAGE
+3d модель Audi Q8 2019 с анимацией.Формат: Corona|V-Ray|*.max, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56790C34E417BC90533E5009EAFDBE545833E94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781860   (26506) от 25.02.2025
-
-3D модели - KitBash3D - Neighborhood Shops [FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте очарование «Магазинов улиц», квинтэссенции фонов для историй на каждом углу. Загляните на местный угловой рынок или откройте для себя истории о безделушках и сокровищах в старом ломбарде. Услышьте лязг и жужжание из местного гаража, насладитесь манящим ароматом свежеиспеченного хлеба в пекарне или станьте свидетелем векового мастерства у доверенного мясника (   Читать дальше...   )Формат: FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3AD7E200D240524A6C8F02F04B48BB574DE530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781646   (26580) от 24.02.2025
-
-3D модели - KitBash3D - World War 2 [BLEND, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте яркие военные сценарии с этим надежным набором Второй мировой войны. От разрушенных жилых зданий и снайперских вышек до лагерей, нагруженных оружием, и укреплений из мешков с песком — каждая деталь была продумана. Добавьте глубины своим творениям с помощью контрольно-пропускных пунктов, укрытий и знакового оружия. Привнесите хаос и разрушение мира в состоянии (   Читать дальше...   )Формат: BLEND, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF763FB0F6E8ED46AED0DD6718363FA810E1622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781432   (26699) от 23.02.2025
-
-3D модели - KitBash3D - Victorian [BLEND, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте районы североамериканского содружества 18-го века или богато украшенные европейские башни современного Лондона, Вашингтона, округ Колумбия, или Мельбурна. Используйте эти знаковые памятники для создания исторических достопримечательностей, общественные здания для изображения величественных офисов или городские кварталы для формирования городских площадей. (   Читать дальше...   )Формат: BLEND, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED655FC4696E1FFAC9BFA3BC700291903EC682DA
+magnet:?xt=urn:btih:DEFE838551FD80F9530E419D21E389992A2ABAF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

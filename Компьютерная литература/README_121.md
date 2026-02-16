@@ -1,24 +1,22 @@
-###  Публикация: 1850071   (1053997) от 
+###  Публикация: 1759421   (37940) от 08.11.2024
 
-В.Д. Кильдишов | MS Excel и VBA для моделирования различных задач. Практическое руководство (2023) [PDF]
+Kameron Hussain, Frahaan Hussain | Mastering JavaScript for Game Development (2024) [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053997.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга является практическим руководством по моделированию задач с использованием приложения MS Excel и VBA.
-Пособие предназначено для школьников, студентов и преподавателей, которые хотят быть знакомы с MS Excel и VBA «на Вы» и научиться моделированию, разработке моделей, алгоритмов и программ, а также приложений с формами.
-Прочитав эту книгу, Вы научитесь использовать (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: СОЛОН-ПрессФормат: PDFКачество: OCR
+JavaScript играет ключевую роль в современной разработке игр, предлагая универсальную и доступную платформу для создания интерактивных и увлекательных игровых впечатлений. Как клиентский язык сценариев, он позволяет разработчикам игр создавать игры, которые можно запускать непосредственно в веб-браузерах, что делает их широкодоступными для пользователей на различных (   Читать дальше...   )Жанр: компьютерная литератураЯзык: АнглийскийИздательство: Sonar PublishedФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C74CCFF62227E1A2370645EA04AA32DCF405F634
+magnet:?xt=urn:btih:F26A3417AF43FAB85EBBFEDFAA9954512E5275DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850072   (1053998) от 
+###  Публикация: 1759595   (37813) от 09.11.2024
 
-И. Спира | Microsoft Excel и Word 2013. Учиться никогда не поздно (2014) [PDF]
+Morten Barklund | React in Depth (2024) [PDF][EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053998.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга посвящена новым версиям Microsoft Word и Excel 2013. Она предназначена для тех, кто хочет научиться работать в этих популярных многофункциональных программах. В ней нет сложных определений и заумных терминов. Большое количество иллюстраций делает процесс обучения максимально наглядным, а практические примеры значительно ускоряют освоение материала. Прочитав (   Читать дальше...   )Жанр: Компьютерная литература, Excel, WordИздательство: ПитерФормат: PDFКачество: OCR
+Поможет вам овладеть стандартными навыками работы с React для создания эффективных и масштабируемых приложений. Если вы знаете основы, эта книга проведет вас через продвинутые паттерны компонентов, методы оптимизации и инструментарий разработчика. Каждый новый навык представлен и объяснен на практических примерах — от погодного приложения до клона Wordle. Научитесь (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Manning Publications CoФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBBB3CFD9A4F230DD56EFBD4FC39F86154C7E85B
+magnet:?xt=urn:btih:EDFD7686A79B207DDC154BF0009D10A0ADA5DD4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,28 +50,131 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850074   (1054000) от 
+###  Публикация: 1759925   (37623) от 11.11.2024
 
-Chris Minnick | Microsoft Copilot For Dummies (2025) [PDF]
+С.Г. Водолеев | СУПЕРэнциклопедия. Компьютерные игры [8 книг] (1997-1998) [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054000.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37623.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Straightforward guidance on the AI tool that's built into Windows, Microsoft 365, and more
+Серия редких игровых энциклопедий, созданная в 90-х Сергеем Водолеевым и его компанией «Фантом». Многим современным олдгеймерам эти книги не попадались в продаже из-за низкой распространенности. Тем интереснее будет ознакомиться с ними сейчас! Подробнейшие руководства и прохождения игр на десятки и сотни страниц, написанные живым языком.Жанр: Компьютерные игрыИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F567382A65F16D7C242C07B38AEF1DA5505597DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759924   (37622) от 11.11.2024
+
+Книжная серия | Энциклопедия компьютерных игр для IBM PC [15 книг] (1995 - 1997) [PDF, DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно большой раздел вступительных статей даст общую информацию о классификации игр, направлениях их развития и программных средствах и аппаратуре, необходимых для их успешного функционирования. Основной раздел описания игр содержит описания многих игр, в основном очень подробные. Практически, прочитав такую инструкцию, можно смело садиться за игру, не опасаясь (   Читать дальше...   )Жанр: Компьютерные игрыИздательство: Фолио-ПрессФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC8D9C13514828FA319F4B38585D09986DB4072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760652   (37268) от 15.11.2024
+
+Томас Нилд | Математика для data science (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освойте математический аппарат, который необходим, чтобы преуспеть в сфере data science, машинного обучения и статистики. Автор книги Томас Нилд поможет вам разобраться в таких дисциплинах, как математический анализ, теория вероятностей, линейная алгебра и статистика, и научиться применять их в контексте таких методов, как линейная регрессия, логистическая регрессия (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. ГавриловИздательство: O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED530F1BC5054152D9C8ED1D792AA04F99475C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761409   (36709) от 20.11.2024
+
+Матеуш Факур | Causal Inference на Python. Причинно-следственные связи в IT-разработке (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько покупателей привлечет дополнительный доллар, вложенный в онлайн-рекламу? Какие клиенты будут покупать только по скидочному купону? Как разработать оптимальную стратегию ценообразования? Причинно-следственный анализ (casual inference) — лучший способ разобраться, как влиять на бизнес-метрики, которыми вы хотите управлять. И для этого понадобится всего пара (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Sprint BookФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1A66AFCE1F6C1C24AB3C0C2218BDC4CFFF9E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762061   (36389) от 23.11.2024
+
+Марк Винтерингем | Тестирование веб-API (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-интерфейсы – лицо приложения, и они должны быть совершенными. Внедрение программы автоматизированного тестирования – лучший способ убедиться, что ваши API готовы к работе.
 
-Microsoft is enhancing all its most widely used productivity software―including Windows and apps like Word and Excel―with the power of AI. And now you can learn to make the most of this revolutionary new tool with Microsoft Copilot For Dummies!
-(   Читать дальше...   )Жанр: Microsoft Office Guides, Software Suite Books, Natural Language ProcessingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+«Тестирование веб-АР1» – это уникальное практическое руководство, включающее в себя описание всех этапов: от начального проектирования набора тестов до методов документирования, реализации (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. ГавриловИздательство: Manning PublicationsФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9453630C4CFA3744036AC64A60DE3E4D0E3C36FB
+magnet:?xt=urn:btih:567AB537B2020596E15A3738C4C0196CF7D44484
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,28 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850075   (1054001) от 
+###  Публикация: 1761440   (36335) от 24.11.2024
 
-А. Колоколов, М. Зеленский, К. Королева и др. | Азбука визуализации Power BI (2024) [PDF]
+Дженнифер Дэвис | Современное системное администрирование (2024) [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054001.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга будет полезна и тем, кто уже работает с Power BI, а также для всех, кто хочет
-повысить свою визуальную грамотность. Power BI остается самым легким в освоении и
-бесплатным BI-инструментом, и продолжает работать на территории РФ. А если хотите
-еще глубже освоить дизайн дашбордов, их интерактивные сценарии и(   Читать дальше...   )Жанр: Компьютерная литература, Бизнес-аналитикаИздательство: Институт Бизнес-АналитикиФормат: PDFКачество: Изначально электронное (ebook)
+Книга посвящена современным практикам и технологиям системного администрирования. Приведены основные сведения о системах, архитектурах, вычислительных средах, хранилищах, сетях. Рассмотрены методы и наборы инструментов сисадмина, вопросы контроля версий, тестирования, документирования и пред-ставления информации. Описана сборка системы, разработка сценариев, управление (   Читать дальше...   )Жанр: IT-технологииПеревод: Владимир МелькинЯзык: РусскийИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7073129E39D444E3EAEEAFCAD7AA5191FC5756CF
+magnet:?xt=urn:btih:1B936033428C3D5E4006BAE8616793BA1FBAFDEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,25 +208,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850076   (1054002) от 
+###  Публикация: 1667242   (35598) от 01.12.2024
 
-Хун Чжоу | Машинное обучение сквозь призму Excel. Примеры и упражнения (2025) [PDF]
+Ильдар Мухутдинов | Секреты Windows 11. Всё о системе на простом и понятном языке. Комплект PRO (2023) [AD] [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054002.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изучение датамайнинга на примерах и упражнениях в этой книге позволит вам заглянуть за кулисы сложных методов и научиться эффективно работать с данными. По мнению автора, постигать датамайнинг и модели анализа данных лучше всего на практике, выполняя действия одно за другим. В отличие от большинства специализированных инструментов, которые работают по принципу «черного (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+Данная книга – это пошаговое руководство для тех, кто хочет грамотно, эффективно и успешно освоить операционную системуЖанр: Компьютерная литератураИздательство: procomputery.ruФормат: PDFКачество: Изначально электронное (ebook)Реклама: Наложение на текст
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33BEF6E4441DB26AFC94ED5BD6FD4FC6D379F79C
+magnet:?xt=urn:btih:D78A3964843AE3C0091765D8B9A7A63E9422F89A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,27 +234,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850080   (1054003) от 
+###  Публикация: 1763785   (35349) от 03.12.2024
 
-Dick Kusleika | Microsoft 365 Excel VBA Programming For Dummies. 7th Edition (2025) [PDF] [EN]
+Крис Хьюз, Тони Тернер | Прозрачное программное обеспечение: Безопасность цепочек поставок ПО (2025) [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054003.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Your step-by-step guide to doing more with Microsoft Excel
-
-Fully updated for the latest version of Office 365, Excel VBA Programming For Dummies will take your Excel knowledge to the next level. With a little background in Visual Basic for Applications (VBA) programming, you can go well beyond basic spreadsheets and functions. Learn the coding basics and syntax (   Читать дальше...   )Жанр: Microsoft VBA, Microsoft Excel Guides, Spreadsheet BooksЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
+Изучите влияние на кибербезопасность взаимосвязанных цепочек поставки ПО! Могут ли цепочки поставок ПО быть безопасными? Команда преданных своему делу профессионалов предлагает по-новому взглянуть на безопасность вашей организации. Вы познакомитесь с множеством тем: от истории движения за прозрачность ПО до подходов к спецификации и подтверждению достоверности в (   Читать дальше...   )Жанр: компьютерная литератураПеревод: Д. БрайтИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A51AD5B2DAF550C7A976E8B8D2E5B255C598C49
+magnet:?xt=urn:btih:2843A5A49BE6AB842D88535DFFEF0573588996B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,25 +260,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850081   (1054004) от 
+###  Публикация: 1764493   (34951) от 07.12.2024
 
-George Mount | Modern Data Analytics in Excel. Using Power Query, Power Pivot, and More for Enhanced Data Analytics (2024) [PDF, EPUB] [EN]
+Джон Лолигер, Прем Кумар Понуторай | Git: контроль версий. 3-е изд. (2025) [PDF]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054004.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-If you haven't modernized your data cleaning and reporting processes in Microsoft Excel, you're missing out on big productivity gains. And if you're looking to conduct rigorous data analysis, more can be done in Excel than you think. This practical book serves as an introduction to the modern Excel suite of features along with other powerful tools for analytics. (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Mining, Spreadsheet BooksЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Ускорьте свою работу, задействовав Git для отслеживания, ветвления, слияния и управления ревизиями кода. Организованное в виде серии пошаговых уроков, это практическое руководство плавно проводит вас от знакомства с основами Git к использованию продвинутых техник, попутно предоставив дружеские, но при этом серьезные советы по работе со множеством функций этой открытой (   Читать дальше...   )Жанр: ПрограммированиеИздательство: O'ReillyФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:007DC5BD07B780EF5E52BEE3E00237FA27C042FF
+magnet:?xt=urn:btih:D5411A7CD5B78CC72547AAEAE30341A54942DD36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,25 +286,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850082   (1054005) от 
+###  Публикация: 1764810   (34719) от 09.12.2024
 
-Dan Gookin | Microsoft 365 Word For Dummies. 2nd Edition (2025) [PDF] [EN]
+Подборка книг | Книги издательства 3dtotal Publishing, изданные на русском языке [28 книг] (2020-2023) [PDF]
 
 >>Компьютерная литература
->>
+>>2D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054005.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Word, Microsoft's powerful and popular word processor, is capable of extraordinary things. From template building to fancy formatting and even AI-powered editing and proofing, your copy of Word stands ready to help you supercharge your productivity and save you time and energy. You just need to learn how it's done. And, thanks to this easy-to-understand book, learning (   Читать дальше...   )Жанр: Word Processing Books, Microsoft Word Guides, Software Suite BooksЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+3dtotal Publishing – небольшое, но авторитетное независимое издательство, которое специализируется на создании книг для профессионалов и любителей в области искусства и дизайна.
+Тематики книг разнообразны: от традиционных художественных техник, таких как рисование, до цифрового искусства, включая Photoshop и Procreate. Глубокая проработка и высокое качество материалов (   Читать дальше...   )Жанр: 2D графика, рисованиеЯзык: русскийИздательство: 3dtotal PublishingФормат: PDFКачество: Смешанное
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DB04A9B20D1F65B2A2FFD461BC3DD81E7A71ED2
+magnet:?xt=urn:btih:240D06A5EC416B955596170E95C7EEAAE55B78AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,27 +313,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850084   (1054006) от 
+###  Публикация: 1765728   (34229) от 14.12.2024
 
-Chris Dent | Mastering PowerShell Scripting. Automate repetitive tasks and simplify complex administrative tasks using PowerShell. 5th Edition (2024) [PDF, EPUB] [EN]
+Стефан Баумгартнер | Рецепты TypeScript (2025) [PDF]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054006.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Master PowerShell to automate real-world administrative tasks, streamline workflows, and enhance security across Windows environments
-Book Description
-Mastering PowerShell Scripting, Fifth Edition, is your comprehensive guide to harnessing PowerShell’s full potential. This edition introduces new chapters on debugging, troubleshooting, and creating GUIs while covering (   Читать дальше...   )Жанр: Windows Server Guides, Windows Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+TypeScript — один из важнейших инструментов для JavaScript-разработчиков. Тем не менее, даже опытные специалисты получают множество сообщений об ошибках от компилятора TypeScript, неприятно удивляясь этому. Откройте «Рецепты TypeScript». В этом практическом руководстве его автор Стефан Баумгартнер описывает способы решения наиболее распространенных задач на TypeScript. (   Читать дальше...   )Жанр: ПрограммированиеПеревод: В. ДмитрущенковИздательство: O'ReillyФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6CE36992E4CC39F52E6A6C36099FEC7F636F92C
+magnet:?xt=urn:btih:1B8E25B000DFF8B8960B5AC0F2788266A99EBF37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,27 +339,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850023   (1054043) от 
+###  Публикация: 1765956   (34109) от 15.12.2024
 
-Richard Horne | 3D Printing For Dummies. 3rd Edition (2023) [PDF] [EN]
+Ю.В. Исаченко, В.А Степанов | Архитектура вычислений. Обработка больших объемов данных (2024) [PDF]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054043.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Print out whatever you can dream up
-
-3D Printing For Dummies is an easy reference for anyone new to the process of taking a digital file and turning it into an object in the real world. (Pretty amazing stuff, right?) It’s also a handy guide for more experienced users looking to learn the latest and greatest in additive manufacturing. Updated for the latest generation (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
+В методических рекомендациях изложены основные понятия распределенных вычислений, больших объемов данных.
+В первом разделе рассматриваются основные понятия параллельных вычислений и распараллеливания.
+Во втором – понятия жизненного цикла данных, больших данных и обработки больших данных.
+Издание предназначается для студентов первой ступени высшего образования по (   Читать дальше...   )Жанр: Методические рекомендацииИздательство: Витебский государственный университетФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:841B2769FB27BFFDFF642B964D717A2BC1A6025D
+magnet:?xt=urn:btih:BC92885F64D780D350328D5CFE7032E3BF75CD6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,25 +368,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850269   (1054142) от 
+###  Публикация: 1766507   (33570) от 20.12.2024
 
-Andrew Tanenbaum, Herbert Bos | Modern Operating Systems. 5th Edition (2023) [PDF] [EN]
+Daria Orlova, Esra Kadah, Jaime Blasco | Flutter Design Patterns and Best Practices: Build scalable, maintainable, and production-ready apps using effective architectural principles (2024) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054142.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Modern Operating Systems incorporates the latest developments and technologies in operating systems (OS) technologies. Author Andy Tanenbaum's clear and entertaining writing style outlines the concepts every OS designer needs to master. In-depth topic coverage includes processes, threads, memory management, file systems, I/O, deadlocks, interface design, multimedia, (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
+Вначале вы узнаете, как создавать отзывчивые пользовательские интерфейсы, которые работают на всех устройствах. Далее вы погрузитесь в управление состояниями, поймете, как выбрать подходящее решение, и получите практический опыт работы с InheritedWidget, ChangeNotifier и BLoC. Затем вы перейдете к таким практикам высокого уровня, как многоуровневая архитектура, внедрение (   Читать дальше...   )Жанр: Программирование, Flutter, компьютерная литератураЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4CE95A007BAA059E295740DCC0FD5CE2A4100A9
+magnet:?xt=urn:btih:7958D49BF8B550DB6FA6F8539ADA6E1D68E6791F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -298,26 +394,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850272   (1054147) от 
+###  Публикация: 1766990   (33539) от 21.12.2024
 
-Christopher Negus | Linux Bible. 11th Edition (2026) [PDF, EPUB] [EN]
+Р. Бухарев | Хакинг на Python. (2025) [PDF]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054147.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The industry gold standard in Linux guides, fully updated
-In the newly updated eleventh edition of the Linux Bible, veteran Linux author and trainer Christopher Negus walks you through the latest and most popular Linux distributions, including Red Hat Enterprise 9, Ubuntu 24 LTS, and Fedora 41. Whether you're a brand new or power user, you'll learn hands-on ways (   Читать дальше...   )Жанр: Linux & UNIX Administration, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: SybexФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Данное практическое руководство по хакингу на Python позволит вам погрузиться в захватывающий мир кибербезопасности и изучить основные аспекты использования Python в этой области.
+Книга состоит из 6 основных разделов:
+1. Основы языка Python: его применение для различных задач хакинга, настройка среды для разработки, включая установку необходимых библиотек и инструментов. (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Издательство Наука и ТехникаФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6924716470702716E78D42C690A985F8FE519CDC
+magnet:?xt=urn:btih:DEAD283EFD9BA7395EED1C760A4A8C555DD49A0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,25 +422,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850275   (1054148) от 
+###  Публикация: 1767600   (33385) от 22.12.2024
 
-Torsten T. Will | C++. The Comprehensive Guide to Mastering Modern C++ from Basics to Advanced Concepts with Hands-on Examples, and Best Practices for Writing Efficient, Secure, and Scalable Code ( ...
+Stuart Butler, Tom Oliver | Game Development Patterns with Unreal Engine 5 (2023) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054148.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-If you need to know C++, look no further! This comprehensive guide has everything you need to master the modern C++23 language, from syntax fundamentals to advanced development concepts. Follow practical code examples as you learn object-oriented programming, work with standard library containers, program concurrent applications, and more. Don’t just learn how to (   Читать дальше...   )Жанр: Object-Oriented Software Design, C++ Programming Language, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Вы начнете с изучения основополагающих принципов кодирования и получите твердое представление о концепциях, проблемах и преимуществах использования паттернов в коде. По мере продвижения вы определите паттерны, которые вплетены в ядро Unreal Engine 5, такие как Double Buffer, Flyweight и Spatial Partitioning, а также некоторые из существующих наборов инструментов, (   Читать дальше...   )Жанр: Программирование, game dev., Unreal Engine 5, C++/BlueprintЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58AC16053360638447ECF0B5ACB3CC28225F7748
+magnet:?xt=urn:btih:249FF069CE629A392456C022C1F9C1A8F2161DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,25 +448,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850280   (1054149) от 
+###  Публикация: 1766571   (33375) от 22.12.2024
 
-Michael Kofler | Linux. The Comprehensive Guide to Mastering Linux—From Installation to Security, Virtualization, and System Administration Across All Major Distributions (Rheinwerk Computing) (202 ...
+В. Молочков | Создание сайта, его SEO-продвижение и монетизация (2022) [PDF]
 
 >>Компьютерная литература
->>
+>>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054149.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Beginner or expert, professional or hobbyist, this is the Linux guide you need! Install Linux and walk through the basics: working in the terminal, handling files and directories, using Bash, and more. Then get into the nitty-gritty details of configuring your system and server, from compiling kernel modules to using tools like Apache, Postfix, and Samba. With information (   Читать дальше...   )Жанр: Computer Operating Systems, Linux Networking & System Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Подробно рассмотрено создание сайта с использованием CMS WordPress: выбор хостинга, подключение домена, установка шаблонов и плагинов. Рассказано о наполнении сайта контентом, о поисковой (SEO) оптимизации, подключении аналитических сервисов Яндекса и Google. Даны советы по бесплатному и коммерческому продвижению сайта в социальных сетях «ВКонтакте», «Одноклассники», (   Читать дальше...   )Жанр: Web-технологии, создание сайтовИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB4E0AEFA8ACA68CA93F2F3BA56455D5C8921111
+magnet:?xt=urn:btih:B3FBABAE6F13665F8D7D5192CE710D7B736DB378
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,25 +474,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850282   (1054150) от 
+###  Публикация: 1767568   (33374) от 22.12.2024
 
-Bernd Oggl, Michael Kofler | Docker. Practical Guide for Developers and DevOps Teams - Unlock the Power of Containerization. Skills for Building, Securing, and Orchestrating with Docker (Rheinwerk  ...
+Gema Socorro Rodríguez | Thriving in Android Development Using Kotlin (2024)  [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054150.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Learn the ins and outs of containerization in Docker with this practical guide! Begin by installing and setting up the platform. Then master the basics: get to know important terminology, understand how to run containers, and set up port redirecting and communication. You’ll learn to create custom images, work with commands, and use key containerization tools. Gain (   Читать дальше...   )Жанр: Software Design Tools, Computer Operating Systems, Computer Network AdministrationЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Вы получите практические навыки разработки под Android, создав приложение, аналогичное WhatsApp. Далее вы научитесь реактивно обрабатывать асинхронные сообщения, визуализировать их с помощью Jetpack Compose и перейдете к созданию и загрузке резервной копии этих сообщений. По мере продвижения вы разработаете Packtagram, приложение, вдохновленное Instagram, сфокусированное (   Читать дальше...   )Жанр: Компьютерная литература, программирование, Kotlin, разработка под AndroidЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6D2C6800B2409A122EE69FCFE4896244A316F47
+magnet:?xt=urn:btih:321EFA040C326C85396D58530AF1688CFE782C96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,25 +500,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850283   (1054151) от 
+###  Публикация: 1767604   (33369) от 22.12.2024
 
-Joachim Steinwendner, Roland Schwaiger | Programming Neural Networks with Python. Your Practical Guide to Building Smart AI Systems with Machine Learning and Deep Learning (Rheinwerk Computing) (20 ...
+Carl Fredrik Samson | Asynchronous Programming in Rust (2024) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054151.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Neural networks are at the heart of AI—so ensure you’re on the cutting edge with this guide! For true beginners, get a crash course in Python and the mathematical concepts you’ll need to understand and create neural networks. Or jump right into programming your first neural network, from implementing the scikit-learn library to using the perceptron learning algorithm. (   Читать дальше...   )Жанр: Introductory & Beginning Programming, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Вы начнете с создания прочного фундамента асинхронного программирования и изучения различных стратегий моделирования потока программ. Затем книга проведет вас через реализацию языка, объясняя на практических примерах такие понятия, как epoll, stackfull coroutines, green threads и callbacks. Последний раздел посвящен языку Rust, в нем рассматриваются фьючерсы, генераторы (   Читать дальше...   )Жанр: Программирование, системное программирование, RustЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA4EA16B88AA76E6F09E150CE7B140784DA4747A
+magnet:?xt=urn:btih:2AA2ADFA667E8AA3C1325DB789B1D3B617798DEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,27 +526,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850284   (1054152) от 
+###  Публикация: 1767587   (33365) от 22.12.2024
 
-Alex Soto Bueno, Andrew Block | Red Hat Certified Engineer (RHCE) Ansible Automation Study Guide: In-Depth Guidance and Practice (2025) [PDF, EPUB] [EN]
+Neil Smyth | C# 13 Programming Essentials (2024) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054152.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-With the Ansible automation tool, developers and system administrators in the enterprise can automate the provisioning, configuration, and management of distributed and on-premises systems. This study guide prepares you for the Red Hat Certified Engineer (RHCE) certification exam, 90% of which covers Ansible.
-
-Red Hat's Alex Soto Bueno and Andrew Block walk you through (   Читать дальше...   )Жанр: Linux Certification Guides, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Эта книга представляет собой всеобъемлющее руководство по освоению языка программирования C# 13 и .NET 9 SDK, обеспечивающее всестороннее изучение как для начинающих, так и для опытных разработчиков. Это руководство, состоящее из 31 подробной главы, 30 онлайн-тестов на знания и доступа к загружаемому коду проекта, структурировано таким образом, чтобы помочь вам пройти (   Читать дальше...   )Жанр: Программирование, С# 13, .NET 9Язык: АнглийскийИздательство: C# 13 Programming EssentialsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FECFC46FE3654C346AA8780B005F81D54856362
+magnet:?xt=urn:btih:0C8578EEE99ABFD8487D92487AC55A2C80F710E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,25 +552,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850285   (1054153) от 
+###  Публикация: 1767578   (33363) от 22.12.2024
 
-Michael Kofler, Bernd Oggl, Sebastian Springer | AI-Assisted Coding. A Practical Guide to Boosting Software Development with ChatGPT, GitHub Copilot, Ollama, Aider, and Beyond (Rheinwerk Computing) ...
+Dennis Vroegop | Systems Programming with C# and .NET (2024) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054153.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Generative AI is transforming software development. Stay on the cutting edge with this guide to AI pair programming! Learn how to make the most of modern tools like ChatGPT and GitHub Copilot to improve your coding. Automate refactoring, debugging, and other tedious tasks, and use techniques such as prompt engineering and retrieval-augmented generation to get the (   Читать дальше...   )Жанр: Software Design Tools, Generative AI, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Издание охватывает фундаментальные концепции, такие как низкоуровневые API, управление памятью и оптимизация производительности. Каждая глава содержит практические упражнения, направленные на освоение потоков, файлового ввода/вывода и сетевых протоколов. Особое внимание уделено отладке, профилированию и решению задач, связанных с многопоточностью и асинхронным кодом. (   Читать дальше...   )Жанр: Компьютерная литература, программирование, платформа .NET, C#Язык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE80C91A7DB585100D1187D9C8FE3DC3278650D3
+magnet:?xt=urn:btih:B91F62D88FEC7E27A44FCFFE8822BFBA5ECAFE07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,27 +578,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850287   (1054154) от 
+###  Публикация: 1767585   (33361) от 22.12.2024
 
-Jeremy McDowell | Acing the CCNA Exam. Volume 1. Fundamentals and Protocols. Volume 2. Advanced Networking and Security (2024) [PDF, EPUB] [EN]
+Alex Rios | System Programming Essentials with Go (2024) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054154.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pass the Cisco Certified Network Associate (CCNA) exam on your very first try!
-
-Acing the CCNA Exam comes directly from Jeremy McDowell, a much-loved Cisco tutor who’s amazing courses have helped hundreds of thousands of students pass their exams. This comprehensive guide is split over two volumes—Acing the CCNA Exam, Volume 1 Fundamentals and Protocols and Acing (   Читать дальше...   )Жанр: LANs, Cisco Certification Guides, Computer Networking, Security CertificationsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+С помощью практических проектов вы освоите такие основные понятия, как файловый ввод-вывод, управление процессами и межпроцессное взаимодействие, чтобы автоматизировать задачи и эффективно взаимодействовать с системой. Вы погрузитесь в сетевое программирование на Go и приобретете навыки создания надежных распределенных приложений. Эта книга выходит за рамки основ, (   Читать дальше...   )Жанр: Программирование, системное программирование, сетевое программирование, GoЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6279A8E2DF769837123567565D05B09044AFEC1
+magnet:?xt=urn:btih:E94F3B0A7CD7BDEFC4A557A38E6D6DE82BCFF63A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,26 +604,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850215   (1054239) от 
+###  Публикация: 1766659   (33360) от 22.12.2024
 
-Reuven Lerner | Python Workout. 200 ten-minute Exercises. 2nd Edition (2026) [PDF] [EN]
+Adam Freeman | Mastering Node.js Web Development (2024) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054239.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Practice makes perfect Python!
-The only way to master a skill is practice, practice, practice. That’s exactly what you’ll do in Python Workout, Second Edition! In this instantly-valuable book you’ll work through 50 carefully selected exercises that flex your programming muscles. This revised new edition covers the latest version of Python and adds updated content (   Читать дальше...   )Жанр: Computer Programming Languages, Python ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+В первой части книги вы познакомитесь с основными возможностями Node.js и TypeScript. Во второй части вы повысите уровень своих навыков, создавая упрощенные реализации ключевых функций серверной части, чтобы понять, как они работают и как представляются клиентам. Вооружившись пониманием, полученным при реализации каждой функции, вы сможете заменить пользовательский (   Читать дальше...   )Жанр: Программирование, TypeScript, Node.js, html, css, web-разработка.Язык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2B8F77D4CE7C2D22BFD3360B4E60CCA2F4EA671
+magnet:?xt=urn:btih:D732B1EC76FC07A6167AEAA548B8AB72ECFAC7EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,27 +630,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850217   (1054240) от 
+###  Публикация: 1767608   (33356) от 22.12.2024
 
-Danilo Chiarlone | Server-Side WebAssembly. Building portable and secure multi-language apps (2026) [PDF, EPUB] [EN]
+Nick Parlow | PowerShell 7 Workshop (2024) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054240.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Learn how to harness the power of Wasm on the application back-end. By following the numerous practical examples and crystal-clear explanations, you’ll soon be seeing the benefits of reduced cold start times, improved security and performance, and the freedom of polyglot programming.
-
-This book lays out everything you need to take WebAssembly beyond its traditional (   Читать дальше...   )Жанр: Mobile App Development & Programming, Microsoft Programming, Cloud ComputingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+В первой главе вы узнаете, где найти и как установить последнюю версию PowerShell, а также познакомитесь с отличительными особенностями, которые выделяют PowerShell среди других языков. Затем вы изучите основные концепции программирования, такие как переменные и поток управления, и перейдете к их применению. По мере продвижения вы будете работать с файлами и API, (   Читать дальше...   )Жанр: Программирование, PowerShell, PowerShell 7Язык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1937B4A3D8ABB780688468AAC6E01E33EED6AD65
+magnet:?xt=urn:btih:63821D6109044805E1FD8F5ADF58B181B0746D31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,134 +656,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850213   (1054241) от 
+###  Публикация: 1767606   (33355) от 22.12.2024
 
-Numa Dhamani, Maggie Engler | Introduction to Generative AI. Reliable, responsible, and real-world applications. 2nd Edition (2026) [PDF] [EN]
+Marc Gregoire | Professional C++ (6th Edition) (2024) [PDF] [EN]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054241.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Get up to speed quickly with generative AI!
-AI tools like ChatGPT and Gemini, automated coding tools like Cursor and Copilot, and countless LLM-powered agents have become a part of daily life. They’ve also spawned a storm of misinformation, hype, and doomsaying that makes it tough to understand exactly what Generative AI actually is and what it can really do. Introduction (   Читать дальше...   )Жанр: Natural Language Processing, Computer Science, Writing, Research & PublishingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+Расширьте свой набор инструментов C++ быстро и эффективно с помощью этого передового ресурса. В обновленном шестом издании книги ветеран программирования и разработчик Марк Грегуар представляет еще один том, который поднимает планку для руководств по продвинутому программированию. Охватывая основные новые изменения, содержащиеся в новом стандарте C++ под кодовым (   Читать дальше...   )Жанр: Программирование, С++, C++23Язык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15475CD95D3C3AC79C71FBDB1EBF7B505127246F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850223   (1054243) от 
-
-Christian Ullenboom | Spring Boot 3 and Spring Framework 6. Build Scalable, Modern Java Applications with Spring and Spring Boot—From Fundamentals to Advanced Techniques (Rheinwerk Computing) (2024 ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Say goodbye to dependencies, bogged-down code, and inflexibility! With the Spring framework and Spring Boot, you'll painlessly create Java applications that are production ready. Start with the basics: containers for Spring-managed beans, Spring framework modules, and proxies. Then learn to connect to relational databases, implement Jakarta Persistence, use Spring (   Читать дальше...   )Жанр: Java Programming, Computer Operating Systems, Computer Programming LanguagesЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66457FA653BFF9BDF5A10346279731542384004D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850229   (1054244) от 
-
-Паоло Феррагина | Разработка алгоритмов. Инженерный подход (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство книг об алгоритмах фокусируются на нотации «О большое» и основных принципах проектирования, однако эта книга предлагает уникальный подход, выводя разработку и анализ на уровень предсказуемой практической эффективности. В ней обсуждаются базовые и классические алгоритмические задачи, возникающие при создании приложений больших данных, для которых демонстрируются (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12388D7F382D881214B98465CC6094E8B8D110F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850230   (1054245) от 
-
-Giovanni Volpe, Benjamin Midtvedt, Jesus Pineda и др. | Deep Learning Crash Course (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Build AI Models from Scratch (No PhD Required)
-
-Deep Learning Crash Course is a fast-paced, thorough introduction that will have you building today’s most powerful AI models from scratch. No experience with deep learning required!
-(   Читать дальше...   )Жанр: Computer Programming Structured Design, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D159122804CABF173A6BF968469B9052531CFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850227   (1054246) от 
-
-Chien-Lung Kao | CPython. A Complete Guide to CPython's Architecture and Performance. First Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Dive CPython explores the internal mechanics of CPython, the widely used Python interpreter written in C. Starting with a practical guide on downloading and compiling the CPython source, this book is perfect for developers eager to understand Python’s behaviour at a fundamental level.
-The book takes readers from basic concepts to complex details with a systematic (   Читать дальше...   )Жанр: Python Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DEFE1FF2945D8BD2E987D95003C443B109A2E3
+magnet:?xt=urn:btih:F4BA8B6398A9B1F74216CB4BFCDBF502419E8127
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,28 +1,25 @@
-###  Публикация: 1135274   (680806) от 19.05.2017
+###  Публикация: 1267117   (267809) от 05.12.2018
 
-Erasure - World Be Gone (2017) [MP3|320 Kbps] <Synthpop, New-Wave>
+HOME - Odyssey (2014) [MP3|320 Kbps] <Synthpop, Synthwave>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680806.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17-й студийный альбом британского электронного дуэта ERASURE!
-«World Be Gone» следует за диском «The Violet Flame» (2014) и продолжает дальнейшее празднование 30-летия группы.
-Лонгплей включает 10 новых треков, написанных, исполненных и спродюсированных самими Erasure и сремикшированных Мэтти Грин (Matty Green).
-(   Читать дальше...   )01.  Love You To The Sky  4:26
-02.  Be Careful What You Wish For!  3:21
-03.  World Be Gone  3:40
-04.  A Bitter Parting  3:13(   Читать дальше...   )Жанр: Synthpop, New-WaveПродолжительность: 00:39:16
+01. Intro (3:09)
+02. Native (4:02)
+03. Decay (4:11)
+04. Oort Cloud (3:26)(   Читать дальше...   )Жанр: Synthpop, Synthwave, AmbientПродолжительность: 00:47:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D3E8EFD1E23DD2FCE8AC925C71CF4584ED135FB
+magnet:?xt=urn:btih:5BDEC47F6C1300FB0F8CDB574F0E6205ABE9643F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -30,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028612   (682119) от 26.06.2016
+###  Публикация: 1191525   (264115) от 14.12.2017
 
-Kebu - Perplexagon (2016) [MP3|320 кб/с] <Electronic, Ambient, Spacesynth>
+Carpenter Brut - CARPENTERBRUTLIVE (2017) [MP3|320 Kbps] <Synthwave, Dark Synth, Electronic 80's>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682119.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Perplexagon Part 1 (2:03)
-02.Perplexagon Part 2 (5:21)
-03.Perplexagon Part 3 (5:27)
-04.Perplexagon Part 4 (5:26)(   Читать дальше...   )Жанр: Electronic, Ambient, SpacesynthПродолжительность: 00:45:38
+01. Escape From Midwich Valley [04:24]
+02. Division Ruine [03:29]
+03. Roller Mobster [02:46]
+04. Meet Matt Stryker [04:30](   Читать дальше...   )Жанр: Synthwave, Dark Synth, Electronic 80'sПродолжительность: 01:07:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B23BA1908A7511BBC0649721960F2F9B55D68A2
+magnet:?xt=urn:btih:84A3D9FCB10A3258339FDE4EE026CCC3B1F1BA13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -59,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068014   (690995) от 14.05.2017
+###  Публикация: 1193083   (262241) от 20.12.2017
 
-Ari Mason - 2 альбома + EP (2014, 2016) [MP3|200 -320 Kbps] <Synthpop, Darkwave>
+VA - The Rise of the Synths (Official Companion Album) LP (2017) [MP3|320 Kbps] <Synthwave, Dark Synth>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690995.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dim The Lights (03:51)
-02. Beasts Tonight (03:29)
-03. Heaven's Gate (02:24)
-04. Empires (03:50)(   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:36:31
+01. Chrome Canyon - Deckard Returns [03:33]
+02. Gunship - The Vale of Shadows [06:03]
+03. Power Glove - Fatal Affair [03:27]
+04. Geno Lenardo - Makita [02:37](   Читать дальше...   )Жанр: Synthwave, Dark Synth, Retrowave, OutrunПродолжительность: 01:22:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C48BB4C66CC529025A4780ECD22F84093CB5A400
+magnet:?xt=urn:btih:72A4127BFD24C36D64D1AA4C529F33CD09AD403B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133815   (692954) от 13.05.2017
+###  Публикация: 1838396   (260612) от 23.11.2025
 
-Andromeda Dreams - 2 Albums (2015, 2016) [MP3|320 Kbps] <Electronic, Disco, 80's, Synthwave, Retrowave>
+The Salt Collective - 3 Albums (2023-2025) [MP3|320 Kbps] <Power-Pop, New-Wave, Rock>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692954.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Andromeda Dreams -  один из проектов Киевского музыканта Олега Марченко в стиле synthwave 80х.01. Intro (2:14)
-02. Space Highway (3:35)
-03. Lost Nebula (4:21)
-04. Two Million Light Years (3:27)(   Читать дальше...   )Жанр: Electronic, Disco, 80's, Synthwave, RetrowaveПродолжительность: 01:09:27
+Список альбомов:
+2023 - Life
+2025 - Last Day That We're Young EP
+2025 - A Brief History of BlindnessЖанр: Power-Pop, New-Wave, RockПродолжительность: 3 CD, 01:58:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA307AA8FE9937D2B03FB6AC62627C26153D649F
+magnet:?xt=urn:btih:91F07D5A9A1345B655C5E8445C4C0649F4899BA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -117,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534146   (697524) от 28.02.2022
+###  Публикация: 1623998   (255506) от 05.04.2023
 
-Lo-Fi Electronic - The Best Of (2020) [MP3|320 Kbps] <Synthpop, Ambient>
+Max Cruise - Night Cruise (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697524.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lunar Module ('78 Mix) (4:43)
-02. Void Vision (6:05)
-03. Into Oblivion (6:09)
-04. Rocket Man (6:17)(   Читать дальше...   )Жанр: Synthpop, AmbientПродолжительность: 01:44:40
+01. Fury (05:16)
+02. Run (05:22)
+03. Inertia (05:05)
+04. Lasers and Mirrors (04:02)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:51:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:011F37A2132A195349D02F7013338AA85F45031A
+magnet:?xt=urn:btih:7E3C66369982D0AB6331BE4EEF18D7CBDC51A94C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -146,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534286   (697525) от 28.02.2022
+###  Публикация: 1626791   (255099) от 17.04.2023
 
-Aivo - Infinite Path (2022) [MP3|320 Kbps] <Synthwave, Sovietwave, Spacesynth>
+Curiosity Killed the Cat - Misfit (1987) US 12" Single [MP3|320 Kbps] <Synth-Pop, Sophisti-Pop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697525.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome to the Perfect City (4:19)
-02. Apollo-Soyuz (4:03)
-03. Neon Way (3:32)
-04. Out of Control (3:46)(   Читать дальше...   )Жанр: Synthwave, Sovietwave, SpacesynthПродолжительность: 00:42:44
+01. Misfit (Extended Version) (07:03)
+02. Misfit (7" Edit) (04:05)
+03. Misfit (Club Mix) (05:23)
+04. Misfit (Dub Mix) (04:05)Жанр: Synth-pop, Sophisti-popПродолжительность: 00:20:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:008853D0B09D074D16778B1783D3ADAC29186FCA
+magnet:?xt=urn:btih:5422DD300B2AC86DF1EC635C5B4B7D6D64F5F2B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -175,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132352   (702825) от 08.05.2017
+###  Публикация: 1562575   (250324) от 10.07.2022
 
-Stars Crusaders - Welcome To Hydra (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
+Зодиак (Zodiac) - Disco Alliance & Music In Universe (1980-1982) (1999) [MP3|320 Kbps] <Spacesynth, Instrumental Electeonic Prog>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702825.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prologue II (01:49)
-02. The Great Exodus (03:50)
-03. Once Again (05:22)
-04. Mystic Forest (04:41)(   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:51:17
+Disco Alliance :
+01. Zodiac
+02. Pacific
+03. Provincial Disco(   Читать дальше...   )Жанр: Spacesynth, Instrumental Electeonic ProgПродолжительность: 00:58:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91E0CBA1647E6FECDDB188D10745565A9A7DFA09
+magnet:?xt=urn:btih:A126526E95E35A27A54824531F0177D96CE084D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -204,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220375   (704320) от 19.04.2018
+###  Публикация: 1619232   (249628) от 16.03.2023
 
-VA - Night City Tribute - The Songs of Secret Service (2018) [MP3|320 Kbps] <Synthpop, Italo-Disco, Electropop>
+VA - Space Odyssey - Trip One: New Year's Voyage (2016) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704320.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249628.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Matt Pop & Martin Blix - Let Us Dance Just A Little Bit More (Album Mix) (4:30)
-02. Italoconnection - Night City (12" Radio Edit) (3:42)
-03. Johan Baeckstrom - Cry Softly (Time Is Mourning) (4:20)
-04. Rational Youth - Flash In The Night (3:44)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, ElectropopПродолжительность: 01:47:12
+01 -  Andrey Zhitnev, Pavel Kuznetsov - Introduction
+02 - Amateon - Solar Wind
+03 - Galspace Project - Start On
+04 - Synth Elements - Starfall(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:18:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9845C96D8A0C90DB86FC80FAA063A958ABED6E96
+magnet:?xt=urn:btih:49CFAD268512283DED7D17BA306C3F5EA567B48E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287309   (705069) от 06.03.2019
+###  Публикация: 1620107   (249507) от 18.03.2023
 
-Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
+M83 - Fantasy (2023) [MP3|320 Kbps] <electronic-pop, synth-pop, Indie>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705069.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Just Blue
-02. Magic Fly
-03. Symphony
-04. Souvenir from Rio(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 05:01:15
+01. Water Deep (3:11)
+02. Oceans Niagara (4:32)
+03. Amnesia (4:03)
+04. Us And The Rest (5:32)(   Читать дальше...   )Жанр: electronic-pop, synth-pop, IndieПродолжительность: 01:06:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C77DB4BEDFEB10C6A82BFD07BCA794BFA1B4E15A
+magnet:?xt=urn:btih:A0BBC087BBBB5E67F4773ADCC683934FDFEDF008
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286844   (705363) от 06.03.2019
+###  Публикация: 1620536   (249381) от 20.03.2023
 
-Silvia - Silvia (1982) Reissue CD, Genetic Music, 2003 [MP3|320 Kbps] <Synth-pop, Minimal, New Wave>
+VA - Space Odyssey - Trip Three: New Year’s Voyage 2018 (2017) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705363.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zuerst Ich (3:14)
-02. Ich Bin Nicht Die (3:52)
-03. Mata Hari (4:20)
-04. Morderinnen Kusst Man Nicht (3:38)(   Читать дальше...   )Жанр: Synth-pop, Minimal, New WaveПродолжительность: 00:37:18
+01 - Introduction - Pavel Kuznetsov
+02 - AlimkhanOV A. - Space Odyssey
+03 - Oblivion - Running On The Milky Way
+04 - Laserlight - Flight Of The Dream(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 02:45:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ECC1670216F65B23F7ABABF9D88A42FB7238BBA
+magnet:?xt=urn:btih:4F1FD22D79276FB03C0A72197848A2032D56A100
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131732   (706476) от 06.05.2017
+###  Публикация: 1623618   (245709) от 03.04.2023
 
-Moskva-Kassiopeya - 3 Albums (2015-2017) [MP3|320 Kbps] <Synthpop, Electro, Retrowave, Space Disco, Synthwave>
+Metropolis - Metropolis (2018) [MP3|320 Kbps] <Synthwave, Retrowave>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706476.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Moskva-Kassiopeya - российский электронный проект музыканта Жарикова Александра (также известного под псевдонимом "B A I K A L"), созданный в 2011 году. Стиль проекта характеризуется как сплав электронного саунда 80-х и современных веяний Electro, объединенных единой научно-фантастической концепцией ретро-футуризма, сочетая в себе элементы классической (   Читать дальше...   )Список альбомов:
-2015 - Road To The Stars (Author's compilation)
-2016 - Jupiter And Beyond The Infinite
-2017 - Encounters(   Читать дальше...   )Жанр: Synthpop, Electro, Retrowave, Space Disco, SynthwaveПродолжительность: 02:31:46
+01. Arrival (01:19)
+02. Midnight Plaza (03:28)
+03. Downtown Lights (04:36)
+04. South Beach Run (03:55)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:27:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D214BF964E08A39168759838B51A4E8218E9B40F
+magnet:?xt=urn:btih:4AA5945AA8E152C08D7DAECAC3B575593D5B88C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131223   (708775) от 05.05.2017
+###  Публикация: 1625143   (244559) от 09.04.2023
 
-Retouch - Light Years (2017) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic Rock>
+TV Players - Big City Visions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708775.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Earthquake
-02. Dystopia
-03. When Sirens Sing
-04. Razorblade(   Читать дальше...   )Жанр: Synthwave, Retrowave, Electronic RockПродолжительность: 00:36:28
+01. 2022 (Intro) (00:28)
+02. Big City Visions (05:55)
+03. Outrun Flashback (03:52)
+04. Forgotten Summer (04:13)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:37:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB0928DD6896F1EB03EA3E8CA9F5E7B435FB76EA
+magnet:?xt=urn:btih:7A5716BC3270F298B0859E1FCA488A1734303763
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401184   (711014) от 09.08.2020
+###  Публикация: 1626011   (243714) от 15.04.2023
 
-Delpano Shock - Wired (2020) [MP3|320 Kbps] <Synthpop, New Wave>
+VA - Space Odyssey - Trip Five: New Year's Voyage 2019 (2018) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711014.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wired [00:04:43]
-02. Runaway [00:03:34]
-03. Powerlines [00:03:29]
-04. Neon Void [00:03:34](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:35:09
+01. Laserlight - Intro
+02. Alimkhanov A. - Cold Winter
+03. Spacehawk - From The Shadows
+04. Neospace - Hibernation(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 02:35:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13A78D15D3B1D388A87F05CE5588ECCCCECE8A01
+magnet:?xt=urn:btih:BF2DC185484E90D7B08AB26CC2DFA9ADA7CFE872
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -378,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401189   (711184) от 09.08.2020
+###  Публикация: 1542673   (242201) от 10.04.2022
 
-Elegant Machinery - Degraded Faces (1991) [MP3|320 Kbps] <Synthpop, New Wave>
+Johan Tronestam - Androids (2022) [MP3|320 Kbps] <Berlin-School, Space Music>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711184.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Safety in Mind [00:03:59]
-02. Strange Behaviour [00:04:02]
-03. A Decade of Thoughts [00:04:09]
-04. State of the Nation [00:04:13](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:31
+01. Cutting Edge (7:24)
+02. Self-Learning (9:00)
+03. Awakenings (11:37)
+04. Artificial Intelligence (7:18)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:19:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03CA17C1008816F47DC76424101E540160C8A751
+magnet:?xt=urn:btih:8DDAC328CCE388FEE3133B1AD97F21CE81357A36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401188   (711191) от 09.08.2020
+###  Публикация: 1542410   (242180) от 10.04.2022
 
-Dead Eyes Open - In Times Like These (1991) [MP3|320 Kbps] <Synthpop, New Wave>
+New Arcades - Until Now: The Decade Retrospective (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711191.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No More Future Days [00:03:41]
-02. I Want to Live Tomorrow [00:03:50]
-03. Easy Come, Easy Go [00:05:42]
-04. Normal [00:04:37](   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:44:49
+01. Reappear (3:37)
+02. Reflections (3:48)
+03. Wherever You Are (3:57)
+04. Retribution (3:07)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:42:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E61BF962FCAD1806DBB2FF155D859DF7A5B4C5D9
+magnet:?xt=urn:btih:702DEB07E5275DD2CA074830FF346243FCEDF06C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024890   (713420) от 10.06.2016
+###  Публикация: 1627744   (239628) от 20.04.2023
 
-FM-84 - Atlas (2016) [MP3|320 кб/с] <Electronic, Synthwave, Synth-pop>
+William Control - Sex Cult (2023) [MP3|320 Kbps] <Synthpop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713420.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239628.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Everything (4:20)
-02. Running In The Night (feat. Ollie Wride) (4:30)
-03. Tears (5:35)
-04. Chasing Yesterday (3:56)(   Читать дальше...   )Жанр: Electronic, Synthwave, Synth-popПродолжительность: 00:46:59
+01. Hell (3:25)
+02. Sex Cult (2:29)
+03. Baptized (3:47)
+04. Brand (3:21)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:39:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:062B0EE9F039EC704EADBB2784B91EBB96659F4A
+magnet:?xt=urn:btih:4E0331FC4846DE9BF040CB3AEDD05ABD57C7A91B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 991083   (716360) от 28.02.2019
+###  Публикация: 1576838   (239057) от 17.09.2022
 
-CHVRCHES - 4 Альбома, 3 EP, 3 Сингла (2013-2018) [MP3|320 kbps]<Synthpop, Indietronica>
+Технология - Рано Или Поздно (1993) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop, Pop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716360.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2013 - EP (Japanese Edition)
-2013 - The Bones Of What You Believe (EU Limited Edition)
-2015 - Tether (Eric Prydz vs. CHVRCHES, Single)
-2015 - Every Open Eye (EU Limited Deluxe Edition)(   Читать дальше...   )Жанр: Synthpop, IndietronicaПродолжительность: 05:56:24
+01. Первый Полет	5:51
+02. Сегодня Ночью	4:59
+03. Рано Или Поздно	5:55
+04. Черный День	5:05(   Читать дальше...   )Жанр: Electronic, Synth-pop, PopПродолжительность: 00:45:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60FC1C408E0914952676EB0F684B51305A64F53D
+magnet:?xt=urn:btih:87E5B8B2E0DF77A1B1E056CAA240AB5058CA185A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400212   (718874) от 05.08.2020
+###  Публикация: 1623392   (238600) от 01.04.2023
 
-VA - Retro Drive: The Soundtrack (2020) [MP3|320 Kbps] <Synthpop, New Wave>
+System Glow - Cities (2022) EP [MP3|320 Kbps] <Synthwave, Retrowave>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718874.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fantom '87 - Select Start [02:03]
-02. Michael Oakley - Rabbit in the Headlights (Instrumental) [04:13]
-03. Highway Superstar - Formation Laps [01:48]
-04. Sunglasses Kid - Braking Distance [03:15](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:39:14
+01. Cities (03:56)
+02. Urban Escape (03:19)
+03. Product Placement (02:36)
+04. Midnight Tram (03:54)Жанр: Synthwave, RetrowaveПродолжительность: 00:13:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA0C0F0FF86595E80D526BAC2A252B72BBB1E5B7
+magnet:?xt=urn:btih:86E13A0426F7984626E5040DE8C2DAB7C1336BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400210   (719023) от 05.08.2020
+###  Публикация: 1648568   (231317) от 23.07.2023
 
-VA - Turbo Drive, Vol. 1 (2020) [MP3|320 Kbps] <Synthpop, New Wave>
+Landscape - Xcursions 2 Other Versions (2023) [MP3|320 Kbps] <New Wave, Synthpop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719023.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Betamaxx - Integrated Circuitry [04:02]
-02. Le Matos - Overdog [06:29]
-03. Absolute Valentine - She Is A Dancer [04:21]
-04. Das Mortal - The Curse [03:26](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:36:17
+01 - Einstein a Go-Go (Einstein on the Floor 2023 Remix) [00:02:34]
+02 - One Rule for the Rich (UK Cassette Album Mix) [00:04:17]
+03 - Japan (12-Inch Version) [00:05:07]
+04 - It's Not My Real Name (UK 7-Inch Version) [00:03:10](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 01:12:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADE32D2EE9A2A31427DC64D8A67A6C5DE4436881
+magnet:?xt=urn:btih:6FEFD701654EB44DB7FF34CC3B0775ABC571302F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400423   (719031) от 05.08.2020
+###  Публикация: 1648566   (231095) от 23.07.2023
 
-Артек Электроника - Не смотри назад (2020) [MP3|320 Kbps] <New Wave>
+Landscape - Before and After (2023) [MP3|320 Kbps] <New Wave, Synthpop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719031.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. М.У.Р. Перестрелка [00:02:58]
-02. Это было навсегда (feat. Гербарий) [00:04:16]
-03. Фестиваль радиоэлектроники [00:03:42]
-04. Земля Грэхема [00:04:08](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:34:53
+01 - U2XME1X2MUCH [00:06:57]
+02 - Don't Gimme No Rebop [00:03:37]
+03 - Sixteen [00:05:31]
+04 - Workers' Playtime [00:03:31](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 01:10:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0921FB3A953DFCB827ACCD719E1EB01C46F5F21E
+magnet:?xt=urn:btih:1970076C51EDB58ACDAA187A591EAB50F82C14A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400426   (719143) от 05.08.2020
+###  Публикация: 1648561   (231067) от 23.07.2023
 
-Модель Поведения - Признаки прошлого (2020) [MP3|320 Kbps] <New Wave>
+Landscape - Landscape a Go-Go (The Story of Landscape 1977-83) (2023) 5CD, Remaster [MP3|320 Kbps] <New Wave, Synthpop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719143.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Чёрный завет [00:03:16]
-02. Советский ньювейв [00:03:23]
-03. Форд Эскорт [00:03:15]
-04. Насквозь [00:02:43](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:44:16
+Excursions 2 Other Versions
+01. Einstein a Go-Go (Einstein on the Floor 2023 Remix) [00:02:34]
+02. One Rule for the Rich (UK Cassette Album Mix) [00:04:17]
+03. Japan (12-Inch Version) [00:05:07](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 05:45:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E57FDE40DCDB1A2E23074DAE6DB1A5B0A0C50C41
+magnet:?xt=urn:btih:DE32FBB761D9362EEAB4A64DEBF3CF66872FFE62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400427   (719145) от 05.08.2020
+###  Публикация: 1649782   (228540) от 29.07.2023
 
-The Violent Youth - Там, где нас нет (2020) [MP3|320 Kbps] <New Wave>
+Brian Hamilton - Metro Man (1984) LP [MP3|320 Kbps] <Rock, New Wave, Lo-Fi, Electro>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719145.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Хорошо одному [00:03:27]
-02. Танцуй [00:02:55]
-03. Свободно [00:03:36]
-04. Там, где нас нет [00:03:19](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:37:36
+01. Going Metro (Metro Man) (5:35)
+02. I Can't Stand It (2:55)
+03. Pleasurepain (3:47)
+04. Space Dancing (4:31)(   Читать дальше...   )Жанр: Rock, New Wave, Lo-Fi, ElectroПродолжительность: 00:28:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36F8F7971BF5F6644943D66472AA699C0C6A2E4E
+magnet:?xt=urn:btih:ED239190475CB134DC124439FBA534BD937657B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400422   (719247) от 05.08.2020
+###  Публикация: 1342077   (227221) от 30.11.2019
 
-рассел - side A (2020) [MP3|320 Kbps] <New Wave>
+Harry Thumann - Andromeda (1982) LP [MP3|320 Kbps] <Electronic, Rock, Synth-pop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719247.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Культ [00:04:09]
-02. Приз [00:02:48]
-03. В плащах [00:02:58]
-04. В уста [00:04:00](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:16:06
+01. Andromeda (7:50)
+02. I'm Happy To Be In The Sun (5:32)
+03. Out Of Tune , Welcome Back, Jolette (7:28)
+04. Bitch (3:38)(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:36:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC708AF0F07E14175569F875A7902583C838F71E
+magnet:?xt=urn:btih:842578BB8B8146B5766DA4A3924198321AB9C4B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023953   (720308) от 07.06.2016
+###  Публикация: 1513166   (227212) от 27.11.2021
 
-Hypnotix - Star Gates (2006) 2CD, mCITY Edition 2016 [MP3|320 кб/с] <Electronic, Synthpop>
+VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [MP3|320 Kbps] <Synthpop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720308.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. N.O.M.M.O  (1:00)
-02. Window To The Past  (4:45)
-03. Contact  (0:57)
-04. Star Gates  (4:20)(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 01:44:29
+01. Giorgio Moroder - Chase (3:51)
+02. U2 - New Year's Day (3:57)
+03. Vangelis - Pulstar (3:51)
+04. Alan Parsons - Mammagamma (4:30)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:09:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27864D805D34D9E395B13FD29C1792ED47F6D2A9
+magnet:?xt=urn:btih:07B966DE0A8FE6C976B444A7162B680857A9012E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023605   (724542) от 05.06.2016
+###  Публикация: 1584239   (225356) от 18.10.2022
 
-Zoon Politicon - Black In White (2016) 2CD [MP3|320 кб/с] <Electronic, Synth-pop>
+Desireless - Voyage, Voyage - Greatest Hits (2003) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724542.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После первых двух альбомов 1997 и 1998гг, группа берет перерыв - но они не разлучались и теперь вернулись, выпустив 03.06.2016 этот альбом!CD 1 - Black In White:
-01. Run Forever ( 6:06)
-02. Mercy ( 4:22)
-03. Moments (Album Version) ( 4:21)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:47:38
+01. L'Amour, l'Amour
+02. Bossa fragile
+03. Le Retour
+04. Voyage, voyage(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:03:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D86ED78716B9F58DD33EB16ECC8F80B8E5B1F29
+magnet:?xt=urn:btih:B295C1A246C6C965625BEC822A17AF8C9FAEDF64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -726,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285026   (724610) от 24.02.2019
+###  Публикация: 1269279   (221553) от 14.12.2018
 
-Andrey Zhitnev - The Best Of Playing Space and Ray Orion (2017) [MP3|320 Kbps] <Spacesynth>
+Experimental Products - Prototype (1982) LP [MP3|320 Kbps] <Electronic, Minimal, Synth-pop>
 
 >>Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724610.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Star Track (4:29)
-02. Meteoric Shower (2:51)
-03. The Heart Of The Jedi (5:10)
-04. Storm Of Love (5:01)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:38:59
+01. Modern Living (5:41)
+02. Sweet Rejection (5:04)
+03. New Project (3:43)
+04. Feeling Left Out (5:56)(   Читать дальше...   )Жанр: Electronic, Minimal, Synth-popПродолжительность: 00:41:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A691F33DCC1C4CE8B0606BEF256D36DCD2FC5E54
+magnet:?xt=urn:btih:5E2890F54AA41D8C8CE0EC609652BD1F135E0516
 ```
 
 https://mybot314.ru/tekegram_catalog/

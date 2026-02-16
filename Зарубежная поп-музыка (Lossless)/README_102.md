@@ -1,25 +1,23 @@
-###  Публикация: 1840248   (1047148) от 04.12.2025
+###  Публикация: 1801813   (14744) от 13.06.2025
 
-VA - 70s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+VA - Magical Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047148.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kate Bush - Wuthering Heights (3:25)
-02. Blue Swede - Hooked on a Feeling (2:52)
-03. Christopher Cross - Sailing (4:16)
-04. Rod Stewart - Da Ya Think I’m Sexy (5:31)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:07
+01. Ed Sheeran - Azizam (2:42)
+02. Don Toliver - Lose My Mind (From F1® The Movie)Жанр: PopПродолжительность: 01:41:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC049D878A4157CD9A5B62BFEC1F736BD6C4E9A1
+magnet:?xt=urn:btih:F519FA24B15071BA227008504369E88E98AD8D48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840515   (1047414) от 05.12.2025
+###  Публикация: 1801781   (14728) от 13.06.2025
 
-Kylie Minogue - Kylie Christmas [Fully Wrapped] (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+The Veronicas - Hook Me Up (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Rock>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047414.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - It's the Most Wonderful Time of the Year
-02 - XMAS (Amazon Music Original)
-03 - Santa Baby
-04 - Hot in December(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:04
+01. Untouched		04:14
+02. Hook Me Up		02:56
+03. This Is How It Feels		04:12
+04. This Love		02:59(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:44:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB1CFC8407224AA471D31435A6369121682C6E92
+magnet:?xt=urn:btih:B515FFF5A0FCB12BCC1FBD54E64E4152B1E79747
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840693   (1047473) от 07.12.2025
+###  Публикация: 1801835   (14714) от 13.06.2025
 
-VA - Hooked On a Feeling - 70s Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047473.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Björn Skifs, Blue Swede - Hooked On a Feeling - (02:53)
- 02 Rod Stewart - Tonight's the Night (Gonna Be Alright) - (03:57)
- 03 Fleetwood Mac - Dreams (2018 Remaster) - (04:17)
- 04 Carly Simon - You're So Vain - (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 03:29:08
+01. Revelation [00:04:13]
+02. Love Me Alive [00:03:25]
+03. Foolish Pleasure [00:02:41]
+04. The Hero [00:03:47](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:28:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1F8F9E95B7C21A8AF064A74954534E98C0F8782
+magnet:?xt=urn:btih:D897B35CE14A6C84A3BECE75FA115FB025B8441D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841603   (1048113) от 12.12.2025
+###  Публикация: 1802200   (14502) от 15.06.2025
 
-Infinite Coles - SweetFace Killah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Dance>
+VA - Some Great 90s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048113.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. SweetFaceKillah [00:02:16]
-02. DMs [00:03:19]
-03. Boots (Ballroom C*NT mix) [00:03:42]
-04. Shoot [00:03:29](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:35:13
+001. THE GOO GOO DOLLS - Iris (04:49)
+002. Madonna - Vogue (Edit) (04:49)
+003. Third Eye Blind - Semi-charmed Life (2006 Remaster) (04:28)
+004. Simply Red - Stars (04:08)(   Читать дальше...   )Жанр: PopПродолжительность: 06:56:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58E678354DC7B1308455BEB6BBA2AD67FA91F0D9
+magnet:?xt=urn:btih:5DB00A67CA451A8808BB3670007D3C4A46892883
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843900   (1049694) от 22.12.2025
+###  Публикация: 1803104   (13931) от 21.06.2025
 
-Jessie Murph - Sex Hysteria (Deluxe) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Thomas Anders - …Sings Modern Talking - Ready for Romance (Thomas' Version) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049694.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13931.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01. Gucci Mane (02:47)
- 02. 1965 (02:48)
- 03. Couldn't Be Worse (02:23)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:05
+01. Brother Louie (Thomas' Version)
+02. Just We Two (Mona Lisa) (Thomas' Version)
+03. Lady Lai (Thomas' Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD4E451AFC7000926F9089728D53A99697516528
+magnet:?xt=urn:btih:FEB5871F1F1D4E7FA82C3A89529D008F16CA1BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844539   (1050079) от 27.12.2025
+###  Публикация: 1804010   (13252) от 27.06.2025
 
-Greater Vision - Perfect Candidate (2000) [FLAC|Lossless|tracks + .cue] <Gospel, Christian>
+Petula Clark - Solitude & Sunshine -The Songs of Rod McKuen (2025) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050079.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Use Us, Jesus
-02. A Perfect Candidate
-03. There Is
-04. You Gotta Know(   Читать дальше...   )Жанр: Gospel, ChristianПродолжительность: 00:38:33
+01. Rock Gently [00:03:00]
+02. People Change [00:02:32]
+03. Love's Been Good to Me [00:03:18]
+04. The Importance of the Rose [00:02:42](   Читать дальше...   )Жанр: PopПродолжительность: 01:02:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8181CBB7CB20656256FF6854F550E0EE511D4B9F
+magnet:?xt=urn:btih:8C6840688C88CD30182E0F18370FAC84D2AA0D1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +170,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844499   (1050112) от 26.12.2025
+###  Публикация: 1804833   (12767) от 02.07.2025
 
-Bee Gees - Greatest (1979) 2 x CD, Compilation, Reissue, 1987, Polydor [FLAC|Lossless|image + .cue] <Pop, Disco>
+VA - Summer Hits 2025 - Songs of the Summer (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050112.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Greatest - это сборник лучших хитов группы Bee Gees. Альбом был выпущен лейблом RSO Records в октябре 1979 года и представляет собой ретроспективу творчества группы за период с 1975 по 1979 год. Это была идеальная квинтэссенция звучания, которое вывело Bee Gees на вершину поп-музыкального мира. В то время это вызвало некоторое невысказанное недовольство у старых (   Читать дальше...   )CD1:
-01. Jive Talkin' (3:45)
-02. Night Fever (3:32)
-03. Tragedy (5:03)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:22:53
+01. Ravyn Lenae - Love Me Not 03:33
+02. Charli Xcx - party 4 u 04:56
+03. Sam Gellaitry - Assumptions 03:40
+04. Teddy Swims - The Door (CYRIL Remix) 03:30(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:09:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5BC42DFBE78D6A2EC5D441A38DE68F8C07E7117
+magnet:?xt=urn:btih:70CB83477DAC56F375AC1DEBBA79C19AC06FA6F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +199,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846452   (1051515) от 08.01.2026
+###  Публикация: 1805453   (12351) от 06.07.2025
 
-Bee Gees - Still Waters (1997) [FLAC|Lossless|image + .cue] <Pop, Disco, Soft rock>
+Pupo - Insieme (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051515.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Still Waters — двадцать первый и предпоследний студийный альбом группы Bee Gees , выпущенный 10 марта 1997 года в Великобритании лейблом Polydor Records.01. Alone - 4:51
-02. I Surrender - 4:18
-03. I Could Not Love You More - 3:44
-04. Still Waters Run Deep - 4:10(   Читать дальше...   )Жанр: Pop, Disco, Soft rockПродолжительность: 00:53:37
+01. Insieme (3:05)
+02. Benvenuta La Vita (3:54)
+03. La felicità - So nah wie noch nie (3:02)
+04. Nell' Anima (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72DC63C2432B8962EB1A4D6D7B6B0AB5549A9CE4
+magnet:?xt=urn:btih:1CB041ADBFAB31D342F1452A3CFE6EAD4CB8A8D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +228,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846477   (1051517) от 08.01.2026
+###  Публикация: 1805548   (12143) от 08.07.2025
 
-VA - Modern Synth Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Electronic>
+VA - #1 Hits of the 50s, Vol. 2 (2001) CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051517.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Charli XCX - Talk Talk (2:42)
-02. Kenya Grace - Strangers (2:53)
-03. Chappell Roan - Sugar High (3:40)
-04. Twenty One Pilots - Vignette (3:23)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 01:20:42
+01. Mark Dinning / Teen Angel    [0:02:37.31]
+02. Frankie Avalon / Why    [0:02:35.20]
+03. Don Gibson / Oh Lonesome Me    [0:02:26.41]
+04. Buddy Knox / Party Doll    [0:02:16.04](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:26:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B73DD12AC1169FE10C5C8255A85A66772270E7C
+magnet:?xt=urn:btih:1F045336C8973D5B2CEF2E190D4DC53DB82FBFC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847813   (1052293) от 14.01.2026
+###  Публикация: 1805529   (12135) от 08.07.2025
 
-Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+Elton John - Greatest Hits 1974 (1992) CD, Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052293.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Немногие артисты могут похвастаться такой богатой карьерой, как Cher, и хотя её творчество получало неоднозначные оценки, её неизменная популярность обеспечила альбому Heart Of Stone грандиозный успех; этот альбом, безусловно, входит в число лучших, выпущенных в 1989 году. Девятнадцатый студийный альбом, Heart Of Stone стал поворотным моментом в карьере певицы и, (   Читать дальше...   )01. If I Could Turn Back Time (4:01)
-02. Just Like Jesse James (4:08)
-03. You Wouldn't Know Love (3:32)
-04. Heart of Stone (4:18)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:48:08
+01. Your Song    [0:04:01.35]
+02. Daniel    [0:03:53.07]
+03. Honky Cat    [0:05:13.18]
+04. Goodbye Yellow Brick Road    [0:03:14.52](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D2358852A1B6BD504586AF21BE51AE07A1C719B
+magnet:?xt=urn:btih:61DE005C53ABAFFB98E9C1FAAF5D1A61CE8D6FC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +286,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848796   (1053084) от 18.01.2026
+###  Публикация: 1805851   (12007) от 09.07.2025
 
-VA - Disco Hits of The '70s, '80s & '90s (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballad, Disco>
+VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053084.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thea Austin SNAP! - Rhythm Is Dancer (3:44)
-02. Company B - Fascinated (Re-Recorded) (4:43)
-03. Jagged Edge - Where the Party At? (Re-Recorded) (4:24)
-04. Leif Garret - Play That Funky Music (4:28)(   Читать дальше...   )Жанр: Pop, Ballad, DiscoПродолжительность: 05:05:00
+01. Bl3ss & Camrinwatsin - Kisses (Feat. Bbyclose) 02:18
+02. Lf System - Afraid To Feel 02:58
+03. A7s - Dumb 02:30
+04. Billy Gillies - Dna (Loving You)Жанр: Pop, DanceПродолжительность: 02:05:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E94219E3AF657AD833AAE0533352B0D78DA357BA
+magnet:?xt=urn:btih:0ED4C548F147CDEC673F8C9760D460911F46C188
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +315,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848799   (1053096) от 18.01.2026
+###  Публикация: 1806798   (11530) от 14.07.2025
 
-VA - Today’s Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
+Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2025) [FLAC|Lossless|tracks + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053096.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex Warren - Ordinary (3:06)
-02. Ed Sheeran - Sapphire (2:59)
-03. ROSÉ - APT. (2:49)
-04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:22:14
+CD1 - Thomas Anders - …Sings Modern Talking - Ready For Romance:
+01. Brother Louie (Thomas' Version) 3:53
+02. Just We Two (Mona Lisa) (Thomas' Version) 4:10
+03. Lady Lai (Thomas' Version) 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 02::10:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A962A06732B3AA23DFCFC05FD2815B1FD65A8BC
+magnet:?xt=urn:btih:FDF63E1B1560E6C6A12FEB507E6A4D1D527B0DEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +344,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848975   (1053182) от 20.01.2026
+###  Публикация: 1808456   (10395) от 25.07.2025
 
-Christina Aguilera - Stripped (2002) [FLAC|Lossless|image + .cue] <Pop, Soul, R'n'B>
+Sandra - Paintings In Yellow (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053182.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stripped - четвёртый студийный альбом американской певицы Christinы Aguilerы, вышедший 22 октября 2002 года лейблом RCA Records. Стремясь отойти от подросткового поп-стиля своего дебютного альбома (1999), Aguilera взяла на себя полный творческий контроль над Stripped, как в музыкальном, так и в лирическом плане, она также создала свой новый публичный имидж. В музыкальном (   Читать дальше...   )01. Stripped (intro) (1:39)
-02. feat. Lil’ Kim - Can’t Hold Us Down (4:15)
-03. Walk Away (5:47)
-04. Fighter (4:05)(   Читать дальше...   )Жанр: Pop, Soul, R'n'BПродолжительность: 01:17:51
+01. Hiroshima (6:52)
+02. (Life may be) A Big Insanity (4:30)
+03. Johnny Wanna Live (4:29)
+04. Lovelight In Your Eyes (5:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E23B6E37434FB2524A906626A9D69CDD37AFBBB1
+magnet:?xt=urn:btih:252FCCCD11799F220B45609DBC8D1C95DD9A991A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +373,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849194   (1053220) от 21.01.2026
+###  Публикация: 1808454   (10364) от 25.07.2025
 
-VA - Summer Hits of the 70's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+Sade - Love Deluxe (1992) 1st Austrian Press [APE|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053220.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Seals and Crofts - Summer Breeze (3:26)
-02. Rod Stewart - Da Ya Think I'm Sexy (5:31)
-03. The Doobie Brothers - What a Fool Believes (3:40)
-04. Frankie Valli & The Four Seasons - Who Loves You (4:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:37
+01. No Ordinary Love (07:21)
+02. Feel No Pain (05:09)
+03. I Couldn’t Love You More (03:50)
+04. Like a Tattoo (03:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:365E31416428424B17A4BD0FFA7395ADE54698DC
+magnet:?xt=urn:btih:9E0FF61244B539F5DE91C5618F6753577604C7EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +402,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848946   (1053356) от 20.01.2026
+###  Публикация: 1808451   (10362) от 25.07.2025
 
-VA - 80s: 100 Remixes (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Hip Hop, Soul, Disco, Soft Rock>
+Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053356.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10362.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cyndi Lauper - Girls Just Want to Have Fun (12_ Version) - (06:02)
- 002. Dead or Alive - You Spin Me Round (Like a Record) (Performance Mix) - (07:26)
- 003. Wham! - Freedom (Long Mix) - (07:06)
- 004. Rick Astley - Never Gonna Give You Up (Cake Mix) - (05:47)(   Читать дальше...   )Жанр: House, Hip Hop, Soul, Disco, Soft RockПродолжительность: 10:34:53
+01. Joyride (4:24)
+02. Hotblooded (3:18)
+03. Fading Like a Flower (Every Time You Leave) (3:53)
+04. Knockin' On Every Door (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EB8793DCA31CE54C0C1A3FD29872D12B5CA2C97
+magnet:?xt=urn:btih:215F28F22AF3FCB58E0BA0AC681B9B18D19542A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +431,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848945   (1053357) от 20.01.2026
+###  Публикация: 1808455   (10357) от 25.07.2025
 
-VA - Hit Parade - From the 70s, 80s & 90s (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053357.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dreams (2018 Remaster) - Fleetwood Mac  - (04:17)
- 002. Iris - THE GOO GOO DOLLS  - (04:50)
- 003. La Isla Bonita - Madonna  - (04:02)
- 004. Right down the Line - Gerry Rafferty  - (04:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:38:02
+01. Secret Land (04:46)
+02. We'll Be Together (04:11)
+03. Heaven Can Wait (04:04)
+04. Just Like Diamonds (05:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E0CFA845DF9F0866532500994646CC6109FED2B
+magnet:?xt=urn:btih:3D2DA901E92908F87E5CF366D93AC974F604CFFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +460,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849238   (1053538) от 22.01.2026
+###  Публикация: 1809024   (10079) от 28.07.2025
 
-VA - Beyond The Pale Horizon - The British Progressive Pop Sounds Of 1972 (2021) [3CD Box Set] [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+VA - Let's Talk About Sex (1992) [APE|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053538.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thin Lizzy - Whiskey In The Jar (5:46)
-02. Status Quo - Paper Plane (2:56)
-03. Hello - The Wench (2:53)
-04. Curtiss Maldoon - One Way Ticket (3:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:58:43
+01. Salt-N-Pepa - Let's Talk About Sex (3:34)
+02. George Michael - I Want Your Sex (4:45)
+03. LaTour - People Are Still Having Sex (4:07)
+04. Right Said Fred - I'm Too Sexy (2:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25D1D3E54753E3F958B1E118C7678AFAFF96FF96
+magnet:?xt=urn:btih:143DD67CA63B81A60EF37A7D4616E29DD03E49C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +489,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849397   (1053768) от 23.01.2026
+###  Публикация: 1809021   (10073) от 28.07.2025
 
-VA - Best Of The 70s. (2006) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+A-HA - Album Collection 5CDs (1985-1993) 1st German Press [APE|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053768.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heat Wave - Boogie Nights (3:42)
-02. Atlanta Rhythm Section - So Into You (6:53)
-03. Taste of Honey - Boogie Oogie Oogie (5:24)
-04. Stephen Bishop - On And On (3:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:00
+Список альбомов:
+1985 - Hunting High And Low
+1986 - Scoundrel Days
+1988 - Stay On These Roads(   Читать дальше...   )Жанр: PopПродолжительность: 03:35:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F95CFF649459BD0A94F6CDE4A4E516FD83A8BF77
+magnet:?xt=urn:btih:2513A18957985D62F2012345F8A44369793E63F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +518,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850243   (1054253) от 
+###  Публикация: 1809049   (10060) от 28.07.2025
 
-Alexander Rybak - Fairytales (2009) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+VA - Global Pop Fusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054253.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roll with the Wind [00:03:34]
-02. Fairytale [00:03:03]
-03. Dolphin [00:04:15]
-04. Kiss and Tell [00:03:21](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:54
+01. Teddy Swims - Bad Dreams (3:04)
+02. Ed Sheeran - Bad Habits (3:50)
+03. David Guetta - Forever Young (2:36)
+04. Melanie Martinez - Dead to Me (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:208987B9D52D14FABBF021276DED791715D94FA6
+magnet:?xt=urn:btih:CFCBAE001D69C1F794A1CC767AC5CD420651522E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +547,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851471   (1055332) от 
+###  Публикация: 1809510   (9746) от 31.07.2025
 
-VA - Undercover Angel: 70's Nostalgia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul, R&B, Funk, Disco>
+Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055332.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Undercover Angel - Alan O'Day - (03:31)
-002. What a Fool Believes - The Doobie Brothers - (03:40)
-003. Right down the Line - Gerry Rafferty - (04:28)
-004. Da Ya Think I’m Sexy - ROD STEWART - (05:31)(   Читать дальше...   )Жанр: Pop, Rock, Soul, R&B, Funk, DiscoПродолжительность: 6:18:09
+01. Never Gonna Give You Up (03:36)
+02. Whenever You Need Somebody (03:57)
+03. Together Forever (03:29)
+04. It Would Take A Strong Man (03:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:766898C3509B9965280081BA3A53E636690AAA67
+magnet:?xt=urn:btih:62C33029C50DA4DE8ED0F0BBEC7006C84072B9C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +576,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851956   (1055537) от 
+###  Публикация: 1809511   (9739) от 31.07.2025
 
-VA - The 100 Greatest Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul>
+Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055537.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Bruno Mars - Just the Way You Are - (03:41)
- 002. Rod Stewart - Have I Told You Lately - (03:58)
- 003. Roberta Flack - Killing Me Softly with His Song - (04:47)
- 004. Fleetwood Mac - Landslide (2018 Remaster) - (03:20)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 06:33:06
+01. She Wants To Dance With Me (03:19)
+02. Take Me to Your Heart (03:31)
+03. I Don’t Want To Lose Her (03:35)
+04. Giving Up On Love (04:06)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B95116DE2D5403868D88C105ED28C199CF7A655C
+magnet:?xt=urn:btih:1E2D2D9F70A1A0EC6EA45B3F67DD73E42A1F2D29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +605,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851758   (1055569) от 
+###  Публикация: 1809470   (9735) от 31.07.2025
 
-VA - 1976 - Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
+VA - Dirty Dancing (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055569.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ABBA - Dancing Queen
-02. Queen - Good Old-Fashioned Lover Boy (Remastered 2011)
-03. Stevie Wonder - Isn't She Lovely
-04. Bee Gees - You Should Be Dancing(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 04:04:45
+01. Bill Medley And Jennifer Warnes - (I've Had) The Time Of My Life (04:50)
+02. The Ronettes - Be My Baby (02:40)
+03. Patrick Swayze - She's Like The Wind (03:53)
+04. Eric Carmen - Hungry Eyes (04:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38CD5B8FE44F1AFE70BF8202F766D344B822ED25
+magnet:?xt=urn:btih:41E6A6AC44F2EABC5802E2A0FD5BE9F1373C20A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +634,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851760   (1055570) от 
+###  Публикация: 1811217   (8936) от 08.08.2025
 
-VA - 70's Vibe (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
+Thomas Anders - …Sings Modern Talking In the Middle of Nowhere (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055570.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Doors - Riders On the Storm - (07:15)
- 02. Talking Heads - Take Me to the River (Edit) - (03:37)
- 03. Chic - Le Freak - (03:30)
- 04. Alice Cooper - School's Out - (03:30)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 02:40:08
+CD1:
+01. Geronimo's Cadillac (Thomas' Version) (3:19)
+02. Riding on a White Swan (Thomas' Version) (3:55)
+03. Give Me Peace on Earth (Thomas' Version) (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C2D91B75C142060B678BB19794C6BE89FCF4C4B
+magnet:?xt=urn:btih:0D7C52E9592031817538A2A07F7C220197A9074A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +663,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852239   (1055588) от 
+###  Публикация: 1811494   (8680) от 10.08.2025
 
-VA - 70s Acoustic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
+VA - wake me up to 80s music (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055588.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Joni Mitchell - A Case of You - (04:23)
- 02. JAMES TAYLOR - Fire and Rain - (03:21)
- 03. Carly Simon - You're So Vain (2023 Remaster) - (04:18)
- 04. ROD STEWART - I Don't Want to Talk About It - (04:52)(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 03:04:03
+01. Roxette - The Look (3:57)
+02. Madonna - La Isla Bonita (4:02)
+03. Pet Shop Boys - It's a Sin (4:59)
+04. Fleetwood Mac - Everywhere (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA0C65125863C08DA52E58DC50797E06B02630EF
+magnet:?xt=urn:btih:E70446614A6C610E9A68624DBA4FC45E63D44429
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +692,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851937   (1055604) от 
+###  Публикация: 1812600   (7769) от 15.08.2025
 
-One Direction - Up All Night (2012) [FLAC|Lossless|tracks + .cue] <Pop>
+Mylene Farmer - 86/97 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055604.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What Makes You Beautiful [0:03:18.54]
-02. Gotta Be You [0:04:01.59]
-03. One Thing [0:03:17.14]
-04. More Than This [0:03:48.52](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:13
+01. Maman a tort
+02. Plus grandir
+03. Libertine
+04. Tristana(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B268081388719C74CA7BD92F45F684AAF5D2B638
+magnet:?xt=urn:btih:3F99572EEDC76537364E3D0DAE9A3AA98B9EEEDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,26 +721,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851643   (1055607) от 
+###  Публикация: 1813391   (6918) от 19.08.2025
 
-Madonna - Like A Prayer  1989 (2005) Reissue [FLAC|Lossless|image + .cue] <Pop Rock>
+VA - LOVE - Love Songs - Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055607.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop Rock
-Производитель диска (релиза): JapanПродолжительность: 00:51:15
+01. Tina Turner - The Best (4:10)
+02. A-Ha - Take On Me (3:48)
+03. Roxette - Run to You (3:39)
+04. Frida Gold - Liebe ist meine rebellion (Radio Version) (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6435190956256CBE0BBAC11E465B1CD018F2DC1
+magnet:?xt=urn:btih:3C2A73C2018B9887F603AF2E85D7DAA7FEE70D23
 ```
 
 https://mybot314.ru/tekegram_catalog/

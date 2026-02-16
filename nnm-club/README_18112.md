@@ -1,364 +1,25 @@
-###  Публикация: 1289853   (684323) от 17.03.2019
+###  Публикация: 1083619   (273772) от 16.12.2016
 
-Kristy & Jimmy McNichol - Kristy & Jimmy McNichol (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's A Dancer (2:42)
-02. Page By Page (3:52)
-03. Girl You Really Got Me Goin' (2:15)
-04. My Boyfriend's Back (2:20)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 00:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C1B2841163644CF2E34A60E99A4B3343D172C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289887   (684324) от 17.03.2019
-
-David Cassidy - Rock Me Baby (1972) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684324.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Rock Me Baby 3:25
-A2. Lonely Too Long 3:19
-A3. Two Time Loser 3:15
-A4. Warm My Soul 2:54(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217DBC4CF7260CDBB13199525345C80C9888C5C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289886   (684325) от 17.03.2019
-
-Orchester Anthony Ventura - Fantastic Dance Party (1978) LP [MP3|320 Kbps] <Pop, Disco, Easy Listening, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ha!Ha! Said The Clown / Peggy Sue (3:31)
-02. Rivers Of Babylon / Hang On Sloopy (4:58)
-03. Oh, Carol / Zusammenleben (4:09)
-04. Mr. Tambourine Man (3:07)(   Читать дальше...   )Жанр: Pop, Disco, Easy Listening, SchlagerПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D705E2C937F13FFBBE9AC75F8712967ACD0534CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289810   (684326) от 17.03.2019
-
-Газета | 1000 рецептов №2 (2019) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684326.jpg" />
-</div>
-
-
-###  Подробнее
-
-«1000 рецептов» - красочное издание, посвященное кулинарии. О том, что кулинария - настоящее искусство, известно всем. И чтобы соприкоснуться с ним, достаточно открыть журнал, выбирать интересные рецепты, и погрузиться в процесс творчества, с полной уверенностью в том, что результат будет превосходным!Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91799AEB5D56D231899EEB5924D43DB058C481DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289745   (684327) от 17.03.2019
-
-Hiddenverse. The Iron Tower (2018) [En] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злой лорд Маркус узурпировал трон королевства и похитил великого механика Леонардо - единственного человека, который мог противостоять новому правителю. Теперь, Сара, дочь Леонардо,хочет спасти своего отца и свергнуть лорда Маркуса. Помогите ей попасть в цитадель и закончить свое царствование.Тип издания: UnofficialРазработчик: Shaman GamesЖанр: Квест, Поиск предметовЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8375F9C5F4E952E4B509E35FC7FA95CB5F18F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289640   (684328) от 17.03.2019
-
-VA - Record Super Chart 578 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Calvin Harris & Rag'n'Bone Man - Giant
-02.  David Guetta - Better When You're Gone (feat. Brooks & Loote)
-03.  Ilkay Sencan - Do It
-04.  Going Deeper - Broken(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DEADFE029F4F7F101C533B5C3391EEA3B6B2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289850   (684329) от 17.03.2019
-
-Журнал | Дачный клуб №4 (апрель 2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684329.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале собрана информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая, собранного на своих грядках, а также советы народной аптечки.Жанр: Дом, сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161515010D3680961FE89591239859601F9BD4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289740   (684330) от 17.03.2019
-
-VA - Let's Dance - Party Pur (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fyah George - Chant
-02. DJ Jazzy James feat. Lara Gee - Where Is My Horse Gone (Funky Western Mix)
-03. Alex Zind - Calling Home
-04. MC Duro - Supergirl (Radio Edit)(   Читать дальше...   )Жанр: Euro-dance, PopПродолжительность: 02:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B72E5A27747B2752EC828E1AE1BC79FF5A7216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289570   (684331) от 17.03.2019
-
-VA - It's Spring Disco Party (2019) [MP3|320 Kbps] <Disco, Electro Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy P - Sos
-02. Dj Rocca - Channa Six
-03. Dr Packer - Power
-04. Hurlee - Paradise Disco(   Читать дальше...   )Жанр: Disco, Electro DiscoПродолжительность: 08:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09017221A1A594A69950084EA1BBC710AB161587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289743   (684332) от 17.03.2019
-
-VA - I Love Trance Ocean (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kayat - Nordwind (Touchstone Remix) 8:22
-02. Matteo Marini - I Want To Believe (Original Mix) 7:58
-03. Kessler - Blue Velvet (Original Mix) 7:23
-04. Andy Viva - This Is My Life (Radio Edit) 3:34(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTranceПродолжительность: 01:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A6927FFF2D84EC5966702B5A6856971C125FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289713   (684333) от 17.03.2019
-
-Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .cue] <Industrial, Experimental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Information 5:42
-2. Becoming Aware 4:53
-3. The Act 8:57
-4. Contemplation 4:27(   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289910   (684334) от 17.03.2019
-
-VA - Schlagerland - Das DJ Festival (2019) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684334.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Wolfgang Petry - Wo sind denn all die Helden (Stereoact Remix)
-02. Anna Maria Zimmermann - Himmelblaue Augen (Franz Rapid Mix)
-03. De Lancaster meets Bella Vista feat. Onkel J. - So wie im Film (United DJs Remix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD60D6006F3E38EF38F15BC6010BEAC71D73A63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289846   (684335) от 17.03.2019
-
-Visitor 2035 - Visitor 2035 (1978) LP [MP3|320 Kbps] <Electronic, Rock, Prog Rock,  Jazz>
+Slaughter And The Dogs - Vicious (2016) [MP3|320 Kbps] <Punk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684335.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don Genardo's Waltz (4:53)
-02. At The Gates Of Consciousness (4:54)
-03. Toefunk (4:14)
-04. Celestial Dream Song (7:05)(   Читать дальше...   )Жанр: Electronic, Rock, Prog Rock,  JazzПродолжительность: 00:41:50
+01|  Trust (All I Want From You)  (03:03) 
+02|  Hollywood Whores  (02:28) 
+03|  Get It On (Bang A Gong)  (04:50) 
+04|  Someday  (03:28) (   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:45:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CC18C76CE65F71663BCAC865429C6CA2BD13859
+magnet:?xt=urn:btih:3846421C213D05EAF5D0F1234F74D91ABBE4A6A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +27,231 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289747   (684336) от 17.03.2019
+###  Публикация: 1083734   (273771) от 16.12.2016
 
-VA - Miami 2019 (2019) [MP3|320 Kbps] <Tech House, Deep Tech, House, Techno>
+iLock 2.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273771.jpg" />
+</div>
+
+
+###  Подробнее
+
+iLock  - защита паролем любого приложения
+iLock - небольшая утилита, которая защищает любое приложение Mac OS X от несанкционированного доступа (в том числе системное), не внося никаких изменений, как в настройки собственно приложения, так и в настроки системы.
+
+iLock очень проста в использовании. Выберите любое приложение, которое вы хотите защитить от drag'n'drop. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 декабря 2016Разработчик: osxbytesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE81CF899EACEF3F02CDC38D9F7923C4F2B2684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083713   (273770) от 16.12.2016
+
+VA - Black Hole Trance Music 12-16 (2016) [MP3|320 Kbps] <Melodic Trance, Progressive Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten - Event Horizon (Extended Mix) 04:49
+02. Michael Badal - Heartbeat 03:28
+03. Eco - Darkness In The Light (Extended Mix) 06:52
+04. Roger Shah - Fire (Extended Mix) 07:34(   Читать дальше...   )Жанр: Melodic Trance, Progressive Trance, Uplifting TranceПродолжительность: 02:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1AE8F4BCC043410050C3DC4F6CE0274980748D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083442   (273769) от 16.12.2016
+
+VA - The Best Of Suanda Voice 2016 (Mixed By Lucid Blue) (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kayat feat. Clare Stagg - The Calling (Denis Kenzo Intro Mix) 7:39
+02. Ruta - Like A Dream (NoMosk Remix) 6:26
+03. CubeTonic feat. Dilara Gadel - So Strong (Original Mix) 5:03
+04. Vito Fognini - True To Myself (Ruslan Radriges Remix) 5:55(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 02:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC1240ADBD88D4305BFAB9C9CBA21253C0A71C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083695   (273768) от 16.12.2016
+
+DJ Drez - The Capture Of Sound (2003) [FLAC|Lossless|tracks + .cue] <hip-hop, instrumental, acid jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. The Prescription
+3. Wise Dread
+4. Cuba (Interlude)(   Читать дальше...   )Жанр: hip-hop, instrumental, acid jazz, oldschoolПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16E67E0217B70A2F96FD43B4CF64A69113AFB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337557   (273767) от 11.11.2019
+
+Robin Eubanks & Steve Turre - Dedication (1989) JMT [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The New Breed [6:22]
+02. V.O. [6:11]
+03. Red, Black & Green Blues [6:33]
+04. Trance Dance [6:43](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A2D789198820152B098C294BC7FEC433DF9366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337508   (273766) от 11.11.2019
+
+Jivko Petrov Trio (JP3) - Between The Worlds (2015) [FLAC|Lossless|image + .cue] <Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renaissance
+02. Between The Worlds
+03. The 3rd Day Of The Year
+04. Alfonsina Y El Mar(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A0EE175D5EE33B9FB64A6CD1B394024DB0189B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337620   (273765) от 11.11.2019
+
+The Presidents of the United States of America - Kudos to You (2014) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Slow Fly (3:26)
+02. Crappy Ghost (2:26)
+03. Good Morning Tycoon (2:30)
+04. Poor Little Me (2:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C809B58EC747121AFBDFB5671451E0AB8755B000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337599   (273764) от 11.11.2019
+
+Grum - Deep State (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684336.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Emery Warman - People Keep On (Original Mix)
-02. Sergio Parrado & Chinonegro - La Siesta (Original Mix)
-03. Sami Wentz - Shade Of Black (Original Mix)
-04. Melanie Ribbe - Get It Right (Original Mix)(   Читать дальше...   )Жанр: Tech House, Deep Tech, House, TechnoПродолжительность: 01:39:58
+01. Deep State [02:17]
+02. Stay (feat. Natalie Shay) [08:12]
+03. Lose Control [05:38]
+04. Tomorrow (feat. Dom Youdan) [05:09](   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:54:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1264741AE40F2BB335ED563E08F5900F1DFBC661
+magnet:?xt=urn:btih:FC67EA75DE6D885EDE1B53C09ABFD89CDE91CFC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +259,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289837   (684337) от 17.03.2019
+###  Публикация: 1337575   (273763) от 11.11.2019
 
-VA - Ballermann Partyhits 2019 - Das Werden Die Hits Des Sommers (2019) [MP3|320 Kbps] <Pop, Schlager>
+Glary Utilities Pro 5.131.0.157 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>Pop
->>Зарубежная поп-музыка
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684337.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD01:
-01. Honk! - Joana
-02. Mia Julia - Nr. 1
-03. Tobee - Cordula Grün(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:05:26
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4DB3AA1D7581312325A3E7FF9D582741437306A
+magnet:?xt=urn:btih:BC761496DFAEDF8332458AD03BCB0D4C2A0C9CB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,297 +285,448 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289758   (684338) от 17.03.2019
+###  Публикация: 1337510   (273762) от 11.11.2019
 
-Н. С. Горячев | Маркс - Энгельс - Ленин о государстве и диктатуре пролетариата [Конспективный очерк] (1928) [PDF]
+Тимоте де Фомбель | Между небом и землёй (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273762.jpg" />
+</div>
+
+
+###  Подробнее
+
+1934 год, площадь перед собором Парижской Богоматери. Через мгновение на глазах огромной толпы Ванго станет священником. Красавица Этель, отчаянно влюбленная в юношу, неотрывно наблюдает за ним. Внезапно какой-то незнакомец, прервав церемонию, стреляет в Ванго. Юноша спасается бегством, однако теперь его преследует еще и французская полиция… Страх погони знаком Ванго (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 14:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B727694D9DC5BDFDDB77B888913BD2EC7B4A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337482   (273761) от 11.11.2019
+
+Журнал | Сваты на даче №8 (56) (август 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273761.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0FEFF6A53F0E149C130B8C8657B0E7A36466E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188379   (273760) от 03.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Мужчины. Индивидуальная гонка (30.11.2017) WEB-DL [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273760.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 ноября 2017 года, четверг. 19:15 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Мужчины. Индивидуальная гонка 20 кмТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CEE74B80291F6BB9A72F046CB495219A89E098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188090   (273759) от 03.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Смешанная эстафета (26.11.2017) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273759.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 ноября 2017 года, воскресенье. 19:10 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Смешанная эстафета 2x6 км + 2x7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25734AB313ED0F605300967191D284DB3D765BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188560   (273758) от 03.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Лейк-Луиc (Канада). Женщины. Скоростной спуск (01.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273758.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 декабря 2017 года, пятница. 22:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Лейк-Луиc (Канада).
+Женщины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE655CDABC9BF36A076504D54E2319FE53B57C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188103   (273757) от 03.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Смешанная эстафета (26.11.2017) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273757.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 ноября 2017 года, воскресенье. 19:10 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Смешанная эстафета 2x6 км + 2x7,5 кмТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6C6B3B08592BBBC6307C012FBA27D40A1CDD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188075   (273756) от 03.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Одиночная смешанная эстафета. Супермикст (26.11.2017) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273756.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 ноября 2017 года, воскресенье. 16:15 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Одиночная смешанная эстафета. СупермикстТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9C4C51D8E46D027D318678B609ED6FEB7F4562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188751   (273755) от 03.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Мужчины. Спринт (02.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273755.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 декабря 2017 года, суббота. 16:45 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Мужчины. Спринт 10 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327170ED02C375D3347F19224CAB9C21C67733AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188749   (273754) от 03.12.2017
+
+VA - Deugene Music Winter Selection Vol. 10 (2017) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alizera - Icarus (Original Mix)
+02. Avery - Promises (Original Mix)
+03. Centaurus B - Exctasy (Original Mix)
+04. Biggoose - Martines (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20284D0BFEF5AAC38D5AEB28019959DBDCDA822F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188522   (273753) от 03.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Бивер-Крик (США). Мужчины. Супергигантский слалом (01.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273753.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 декабря 2017 года, пятница. 20:45 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года.
+Бивер-Крик (США)
+Мужчины. Супергигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A562CF312CFE7CD0BD3E48AF66717428A3F218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188815   (273752) от 03.12.2017
+
+VA - Electric Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. boris vicious - Tonight (Original Mix)
+02. TIJUANA DIABLA - Sillon Rojo (Original Mix)
+03. Biologik - Strange (Original Mix)
+04. Mr. Galaxy - Alien Conspiracy (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F30BCC12A45BF875EC98BA3D8C71F02568DA3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188260   (273751) от 03.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Женщины. Индивидуальная гонка 15 км (29.11.2017) WEB-DL [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273751.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 ноября 2017 года, среда. 19:15 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Женщины. Индивидуальная гонка 15 кмТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B269DDDC496010FF2971998239D641F14542BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188853   (273750) от 03.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Бивер-Крик (США). Мужчины. Скоростной спуск (02.12.2017) WEB-DL [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273750.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 декабря 2017 года, суббота. 21:00 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Бивер-Крик (США).
+Мужчины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F51705BCB938D831468604F624E130DBBAF690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188487   (273749) от 03.12.2017
+
+Футбол. РФПЛ. Чемпионат России 2017-2018. Обзор матчей 18-го тура (27.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273749.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 ноября 2017 года, понедельник
+РФПЛ. Чемпионат России 2017 - 2018. Обзор матчей 18-го тура
+24.11.2017, 17:30 МСК	Амкар – Динамо М
+25.11.2017, 16:30 МСК	Тосно – Арсенал(   Читать дальше...   )Телекомпания: Матч! Наш ФутболЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CAB245B33495635E6FF679BCD58B6F69A10F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188640   (273748) от 03.12.2017
+
+VA - Tag Und Nacht (2016) Total Black [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phase Fatale - Totale (06:11)
+02. Blush Response - Scalebound (05:25)
+03. Stärker - Stark (06:14)
+04. SΛRIN - E.C.M. (04:20)(   Читать дальше...   )Жанр: Techno, Industrial, ExperimentalПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D310AB6D1CD337C76328C1622F50221A4A632B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274393   (273739) от 23.12.2010
+
+Д. Толл | Подводные лодки и глубоководные аппараты [Эксмо] [2004] [PDF]
 
 >>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684338.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нигде мы не наблюдаем такой пестроты, такого разнообразия теорий, как по вопросу о государстве. „По вопросу о государстве столько теорий, сколько в Америке юристов-адвокатов", заметил один ученый. Здесь мы больше всего встречаемся с ловкими манипуляциями, с корыстными потугами представителей господствующих классов замаскировать, замазать, покрыть плотной завесой (   Читать дальше...   )Жанр: История, политология, правоведение, экономика, социология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D541FB2B97C7DCFD6B3F6A19F7B19DF7CB04142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289741   (684339) от 17.03.2019
-
-Nargaroth - Era of Threnody (2017) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn of Epiphany (8:08)
- 02. Whither Goest Thou (6:23)
- 03. Conjunction Underneath the Alpha Weel (7:07)
- 04. ...as Orphans Drifting in a Desert Night (5:34)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8E6FB3E6790560C9A7150C22448F4B87844797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289755   (684340) от 17.03.2019
-
-Г. А. Лопатин и др. | Они встречались с Марксом. Воспоминания русских общественных деятелей (1958) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684340.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящий сборник входят воспоминания русских общественных деятелей: Г. А. Лопатина, Н. А. Морозова, М. М. Ковалевского и П. В. Анненкова.
-
-Г. А. Лопатин — русский революционер-социалист, ученик Н. Г. Чернышевского, был близким другом Маркса и его семьи. Н. А. Морозов — активный деятель революционного движения в России, народник, познакомился с Марксом в 1880 г. (   Читать дальше...   )Жанр: История, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40C523095E88D061D5A8C1C076D0484F2B37E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289686   (684341) от 17.03.2019
-
-Reptilian Death - The Dawn Of Consummation And Emergence (2013) [MP3|320 Kbps] <Brutal Death Metal, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PrimEvil (1:46)
- 02. Inchoate (2:16)
- 03. Stimulate. Hike. Impel. Tear (3:04)
- 04. Soaked With The Imperfections Of Puerile Blood (2:32)(   Читать дальше...   )Жанр: Brutal Death Metal, Technical Death MetalПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3614844116F399037EEA3C07FF0D10697FD72A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289947   (684342) от 17.03.2019
-
-VA - Fruhlings Fox Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Lancaster feat. Onkel J. - So wie im Film
-02. Schlagergold - Flippers Hitmix
-03. Daniela Haake - Liebesrausch
-04. Bernice Ehrlich - Nie wieder missen(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C2A7CCCE028608F729CB5596DEFA63EA45D411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759447   (684343) от 17.05.2017
-
-WhatsApp Messenger 2.17.192 (Beta) + PC 0.2.4240 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение предназначено для прямого обмена сообщениями со смартфона на смартфон без использования СМС. Поддерживается передача картинок, аудиозаписей, видео, местоположений на карте и контактных данных. Можно прикрепить как существующую аудиозапись, так и надиктовать новую с помощью встроенной функции диктофона. При этом возможна отсылка как сообщений, так и контента (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 16.05.17Разработчик: WhatsApp Inc.Поддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5B2C51595FF6737C24891D07130AD59D920083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109793   (684344) от 17.05.2017
-
-Torment: Tides of Numenera - Servant of the Tides Сontent (2017) [Ru/Multi] (1.1.0) License GOG [Immortal Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Torment: Tides of Numenera происходит во вымышленной вселенной Numenera, созданной Монте Куком - мир Numenera представляет собой планету Земля через миллиард лет, усеянную руинами и артефактами погибших цивилизаций. Главный герой игры, Последний Отверженный, в прошлом служил физической оболочкой для бессмертного божества, и перед лицом опасности вынужден (   Читать дальше...   )Тип издания: LicenseРазработчик: inXile EntertainmentЖанр: Adventure, RPG, Isometric, FantasyЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E355C33C334A68F716F28DF45B687EA34BC70B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134559   (684345) от 17.05.2017
-
-Создатели формата mp3 объявили о его смерти
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_684345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики аудиоформата mp3 официально объявили о том, что патенты на него больше не действительны. Это означает символическую смерть расширения, которое являлось стандартом для цифровых музыкальных устройств в течение последних 20 лет, пишет Gizmodo.О конце эпохи mp3 сообщил немецкий Институт интегральных микросхем имени Фраунгофера, который владел патентами на (   Читать дальше...   )
+Подводные лодки произвели революцию в боевых действиях на море и исследованиях Мирового океана. В этой книге представлены фундаментальные сведения как о военном, так и о мирном применении этих кораблей от примитивных подводных лодок с паровыми двигателями времен Гражданской войны в США до современных бесшумных атомных субмарин, которые могут месяцами находиться глубоко под водой. В книге "Подводные лодки и глубоководные аппараты" описывается история их появления и развития, содержится точная информация о конструкциях, технологиях, вооружениях и стратегии. Книга содержит больше шестидесяти цветных рисунков и вставок, а также более 140 цветных и черно-белых фотографий.Формат: PDF
 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134709   (684346) от 17.05.2017
-
-Порошенко ввел в действие решение СНБО о запрете "Яндекса", "ВКонтакте" и "Одноклассников"
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_684346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Президент Украины Петр Порошенко ввел в действие решение Совета национальной безопасности и обороны Украины от 28 апреля 2017 года, которым предусмотрен запрет "Яндекса", "ВКонтакте" и "Одноклассников".
-Так, в отношении "Яндекса" на три года введены следующие санкции: блокирование активов, ограничение торговых операций, предотвращения (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135032   (684347) от 17.05.2017
-
-Жена смотрителя зоопарка / The Zookeeper's Wife (2017) WEB-DLRip [H.264/1080p-LQ]
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальная история отважного подвига смотрителей Варшавского зоопарка Яна и Антонины Жабинских, давших убежище и сохранивших жизнь более, чем 300 евреям во время II Мировой войны. Ежедневный риск и опасность осложняются для Жабинских взаимоотношениями с бывшим другом семьи, а ныне высокопоставленным нацистским чиновником Лутцем Хеком, влюбленным в Антонину.Производство: Чехия, Великобритания, СШАЖанр: Драма, военный, биография, историяРежиссер: Ники КароАктеры: Джессика Честейн, Йохан Хелденберг, Даниэль Брюль, Тимоти Редфорд, Эфрат Дор, Иддо Голдберг, Шира Хаас, Майкл МакЭлхаттон, Вэл Малоку, Марта ИссоваПеревод: Дублированный (iTunes Russia)Субтитры: отсутствуют.Продолжительность: 02:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418656A2CF380FEE2446530C695A798D25BA9279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134834   (684348) от 17.05.2017
-
-Grand Theft Auto: San Andreas (2015) [PS3] [EUR] 4.76 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/En]
-
->>След.
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять лет назад после смерти брата Карл Джонсон по кличке Си-Джей покинул Лос-Сантос, Сан-Андреас. Сейчас начало 90-х — герою улиц пришло время возвращаться домой. Его мать была убита, его семья распалась, а все друзья его детства находятся на полпути к гибели. По его возвращении в родные кварталы, несколько продажных копов подставили его в убийстве. Карл был вынужден (   Читать дальше...   )Тип издания: LicenseРазработчик: Rockstar NorthЖанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC32EE3F23D1515414755E153C3341B5C1C09893
 ```
 
 https://mybot314.ru/tekegram_catalog/

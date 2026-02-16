@@ -1,54 +1,25 @@
-###  Публикация: 1542523   (637254) от 07.04.2022
+###  Публикация: 1534001   (696175) от 01.03.2022
 
-VA - Nu Jazz Swing & Golden Tunes, Vol. 1 (2021) [AAC|~327 Kbps] <Jazz, Nu Jazz, Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriano Celentano - Pregherò, Pt. 1 (Stand By Me) (2:58)
-02. Club Des Belugas, Thomas Siffling - Tequila (Instrumental) (4:21)
-03. Fab Samperi - Jazz Di Mezzaluna (5:46)
-04. Tape Five - Happy (3:30)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, SwingПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D61F7730437A19A48A99741DA7B4B246D8BE5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542543   (637259) от 07.04.2022
-
-VA - Electronic Empire (25 Masterpieces), Vol. 3 (2022) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Maretimo Records - Masterpieces, Vol. 2 (2020) [AAC|~324 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637259.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael e, Tim Gelo - Around and Around (Original Mix) (4:55)
-02. CaPa - When I Wake Up (Original Mix) (3:57)
-03. Weathertunes - Morpheus (Original Mix) (4:40)
-04. Steen Thottrup, Denver Knoesen - A Silhouette of You (Remastered) (5:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:30
+01. DJ Maretimo, Vladi Strecker - I Love the Night (Moonlight Flow Mix) (7:48)
+02. Cinematic - Memories (Red Carpet Mix) (6:00)
+03. Sean Hayman - Moments of Silence (Back in Time Mix) (5:50)
+04. DJ Maretimo, Stereo Gringos - Ipanema Injection (The Bossa Master Mix) (5:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:51:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4215EA43EA0AE572BAA1B8DA006A19C59F64B3C
+magnet:?xt=urn:btih:F345C7AC08FDA8A75A5D01ADEA91408A0F6F47BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907747   (637301) от 12.06.2015
+###  Публикация: 1534054   (696174) от 01.03.2022
 
-Пающие Трусы - Караоке (2015) [AAC|256 кб/с]<Pop>
+Marga Sol - Awakening (Chillout Deluxe & Finest Lounge) (2013) [AAC|~278 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637301.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Караоке
-02. Спортивный Интерес
-03. Красивый Конец!
-04. Гимн ЕВРО 2012(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:21
+01. My Dream (5:24)
+02. Awakening (4:20)
+03. It's You (3:50)
+04. Tocca Me (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00C887821A79164A85A3DD5D94B4B82B829483A2
+magnet:?xt=urn:btih:F5DA0E5065488C7EF891B6AB0BEF565ACFBFC759
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,81 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228345   (637366) от 31.05.2018
+###  Публикация: 1533998   (696088) от 01.03.2022
 
-Chasers / Конвоиры (1994) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офицер берегового патруля военно-морских сил Рок Рилли думал, что его уже ничем не удивишь. Его свежеиспеченному напарнику Эдди Дивейну тоже все осточертело, и он подумывает об увольнении из армии.
-Но удивляться им все-таки пришлось, они почувствовали себя настоящими юнцами, когда повстречались с лейтенантом ВМС Тони Джонсон, красивой и вздорной особой, которая и (   Читать дальше...   )Производство: США / Morgan Creek ProductionsЖанр: Комедия, ПриключенияРежиссер: Деннис ХопперАктеры: Том Беренджер, Эрика Элениак, Уильям МакНамара, Гэри Бьюзи, Фредерик Форрест, Криспин Гловер, Марилу Хеннер, Дин Стокуэлл, Грэнд Л. Буш, Мэттью Глэйв, Битти Шрэм, Сеймур Кэссел, Деннис ХопперПеревод: Дублированный, Профессиональный (двухголосый, закадровый), Авторский (одноголосый, закадровый)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3760D6855EF3467E0F1217ED2A45E7DCD6E26145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228340   (637378) от 31.05.2018
-
-Точка невозврата / Beirut (High Wire Act) (2017) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разгар Ливанской войны. Интриги, предательство, грязные компроматы, нравственное падение, жертвенность и любовь, боль и надежда… На руках героя умирает жена, подстреленная террористами. Через десять лет он, преодолев ненависть и отчаяние, возвращается в Бейрут, чтобы вызволить из плена давнего друга, захваченного в плен боевиками.Производство: СШАЖанр: Триллер, драмаРежиссер: Брэд АндерсонАктеры: Розамунд Пайк, Джон Хэмм, Марк Пеллегрино, Дин Норрис, Шей Уигэм, Дуглас Ходж, Джонатан Койн, Кейт Флитвуд, Лейла Бехти, Алон АбутбулПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1515C46F154EB9B488B36BC12A8D8DFAEFDDC984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542539   (637392) от 07.04.2022
-
-VA - Finest Ambient & Lounge Music (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo, Ambient>
+VA - Maretimo Records - Masterpieces, Vol. 1 (2017) [AAC|~333 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637392.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Sura Quintet - Keep On (5:51)
-02. Model IV - A Little Embroidery (6:08)
-03. Pikomos - Adorning Your Dreams (6:03)
-04. Bio Logical Theory - Melody Tale (5:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, AmbientПродолжительность: 01:46:23
+01. DJ Maretimo - Cafe Internacional (Jumairah Skyscrapers Mix) (6:56)
+02. Cinematic - Typhoon (Phunky Waves Mix) (6:24)
+03. Stereo Gringos - Arte Moderna (Lounge Doctor Mix) (4:53)
+04. In Credo - Siesta del Sol (Laid Back Summer Cut) (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 06:13:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D81D533A1452FC3F956555971AC5DD159761C0B1
+magnet:?xt=urn:btih:F88297A65ED7029F8091D1531073E9AC5D9B947A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542526   (637401) от 07.04.2022
+###  Публикация: 1534057   (696087) от 01.03.2022
 
-VA - Tech House Carnival, Vol. 1 (2022) [AAC|~307 Kbps] <House>
+VA - Deep & Joy, Vol. 1 (2022) [AAC|~325 Kbps] <House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637401.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Balearica - Tendo (Le Club Mix) (3:30)
-02. Sonny Faith - Brothers Affair (Deep Techno Use Mix) (3:39)
-03. K Krown - Close or Not (Original Mix) (4:05)
-04. Modus Medusae - Dandara (Original Mix) (3:36)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:30
+01. Jones, BRock, Nicole Cross - Losing My Religion (Jay Frog Remix) (3:15)
+02. Kosmoss - Bright Lights (3:22)
+03. Luis Hermandez - Trust In Me (3:21)
+04. Flauschig - Forgive Me (Point85 & Maex Remix) (2:40)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:25:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A11E2E46FE18E4F022377F4CE5346C47D3F86942
+magnet:?xt=urn:btih:1D700CB40419FA1250A43072F5D08B7D67A2637A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,25 +114,315 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293399   (637411) от 03.04.2019
+###  Публикация: 1533999   (696086) от 01.03.2022
 
-Ангел / El Angel (2018) BDRip [1080p] ATV
+VA - Full Moon Chill, Vol. 2 (2018) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Hayman - So Beautiful (Skyscraper Cut) (5:45)
+02. Dreamscape - Nautica (Ambient Mix) (4:09)
+03. Island Sun - Calm Sea (Full Moon Mix) (5:05)
+04. Richard van Arp - Artico purcente (Aqua Wellness Mix) (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FFDC826DCA5DA33CBAE3845B30873614967693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534336   (696085) от 01.03.2022
+
+VA - Santorini Solaire Chill 2 (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e, Diego Porchile - When Eyes Speak (Original Mix) (5:21)
+02. Dave de Tommaso, Davide Aru, Dacosta - Timeless (3:33)
+03. Digby Jones, Airglo - Cielo (Night Stars at Cafe Del Mar Mix) (3:49)
+04. Gary B, Ken Fan - Volar (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC859C562BEA8D1796744E8D4FCD9D372189E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534334   (696083) от 01.03.2022
+
+VA - Evening Chillin': Urban Chillhouse Music (2022) [AAC|~322 Kbps] <Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magmatunes - Sunset Lovers (Original MIx) (5:23)
+02. Martin Hiska - Sundays (3:49)
+03. Chillson, Marc Hartman - Different World (4:46)
+04. Legacy202 - 100 Galaxies (Original Mix) (6:47)(   Читать дальше...   )Жанр: Chill HouseПродолжительность: 02:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835FF99D3DCF70FFC05CABF67B5A7422890CF3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534211   (696081) от 01.03.2022
+
+The Soul Crusaders - The Future (2019) [AAC|~316 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Future (Original Mix) (5:31)
+02. Don't Look Back (Original Mix) (4:51)
+03. What It Feels Like (Original Mix) (4:06)
+04. Open Sea (Original Mix) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081AA264EF7810C9110160AEDABF6DCFDB9B1DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534060   (696080) от 01.03.2022
+
+VA - Deep & Joy, Vol. 3 (2022) [AAC|~315 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kosmoss - You (3:04)
+02. Darles Flow - Northern Lights (5:40)
+03. Melvin Reese - Give Me Void (5:46)
+04. Mo'jardo - I Am Fashion (4:43)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8002E4F5D0F342C7896AE27D543F85E89FA343E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534372   (696079) от 01.03.2022
+
+VA - Infinite Chillout (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schlichting - Rethinking (6:00)
+02. Kusuma Orchestra - One for the Books (5:57)
+03. Rheingold Ensemble - Passing Clouds (5:58)
+04. Koenig Eltz - Alluded (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57DEF48C8A8459D8054D943C45553443E884F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534004   (696078) от 01.03.2022
+
+VA - Chillout Essentials 2022 (2022) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Of Duty - Little Moments of Love (6:22)
+02. Proxy Brides - Echoes of Childhood (5:30)
+03. Silbermaus - Feverish Vibe (5:33)
+04. Ackeret - Unofficial Meeting (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF82DAA83B8FF9F6CF92AD06B192EA0B60DEC159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533993   (696075) от 01.03.2022
+
+The Maldive Lovers - Sweet & Lovely (Sunday Chill Out Vibes) (2022) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Luck (2:39)
+02. Soothing Target (2:07)
+03. Airy Sleep (2:05)
+04. True Moments (1:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E61C96C3F6F21F84A6BACD18DF627BE8A4E743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534055   (696071) от 01.03.2022
+
+The Soul Crusaders - The Best Of… The City (2018) [AAC|~336 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satelites (5:53)
+02. Stargazer (4:56)
+03. My Kind of Love (5:03)
+04. Standing in Your Shadow (5:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB824E97430C2589BEF722C9ACDB093A2B63F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534406   (696070) от 01.03.2022
+
+VA - Sub-Division Recordings - Partitions, Vol. 2 (2022) [AAC|~330 Kbps] <Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beskar - Star Destroyer (4:08)
+02. Oli Lewis - Stock Photo (5:13)
+03. Ruckus - System Error (4:54)
+04. Beskar - Thunder Wasp (4:32)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185DD59D0BB7C944804ECE4BFBC42FF6228A57D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794644   (695998) от 09.06.2014
+
+300 спартанцев: Расцвет империи / 300: Rise of an Empire (2014) BDRip [1080p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637411.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Карлитосу 17, у него ангельское лицо и дьявольские наклонности. В школе он знакомится с Рамоном, с которым они составляют блистательный и беспощадный дуэт. На пути изощренного воровства и лжи их совместные преступления становятся лучшим самовыражением.Производство: Аргентина, Испания / El Deseo, Instituto Nacional de Cine y Artes Audiovisuales (INCAA), Instituto de Credito Oficial (ICO)Жанр: Драма, криминал, биографияРежиссер: Луис ОртегаАктеры: Лоренцо Ферро, Чино Дарин, Даниэль Фанего, Мерседес Моран, Малена Вилла, Сесилия Рот, Sofía Inés Torner, Питер Ланзани, Marcelo Cancemi, Луис НьеккоПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:54:38
+После победы над царем Леонидом персидская армия во главе с Ксерксом движется на юг. На её пути оказывается флот Афин под руководством адмирала Фемистокла. Силы противников не равны, и Фемистокл вынужден вступить в союз с заклятым врагом афинского государства Спартой. Только объединившись у враждующих полисов-государств есть шанс что-то противопоставить могущественному Ксерксу.Жанр: Фэнтези, боевик, драма, военныйПродюсер: Марк Кантон, Берни Голдманн, Джанни НуннариВ ролях: Салливан Степлтон, Ева Грин, Джек О’Коннелл, Каллэн Мулвей, Ганс Мэтисон, Родриго Санторо, Лина Хиди, Дэвид Уэнэм, Эндрю Тирнан, Эндрю ПлевинПеревод: Профессиональный (дублированный) (iTunes Russia)Язык субтитров: Русский, АнглийскийПродолжительность: 01:42:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A93FD40B9E1F81C21E52C97A9AEC648FE8D51BE4
+magnet:?xt=urn:btih:83DB44F43BCDD6F62DF43188E88184E08CB7EE4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,25 +430,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293488   (637414) от 03.04.2019
+###  Публикация: 1534002   (695997) от 01.03.2022
 
-Ангел / El Angel (2018) BDRip [720p] ATV
+VA - Maretimo Records - Masterpieces, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Borell - Vibes del Mar (Airwaves Mix) (5:05)
+02. Cinematic - Noises (Dream of You Remastered Mix) (6:27)
+03. DJ Maretimo, Vladi Strecker - The Midnight Hour (Zero O Clock Remastered Mix) (8:56)
+04. Airstream - Night Affair (1 Am Remastered Mix) (7:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9609CC7EC28868B2A0E6C84D81EAD0E6C3082AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534278   (695995) от 01.03.2022
+
+VA - Children of Goth (2022) [AAC|~344 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sisters Of Mercy - Temple of Love (Extended Version, 1983) (7:43)
+02. Joy Division - Dead Souls (4:54)
+03. The Cult - American Gothic (3:57)
+04. Jane's Addiction - Ripple (4:39)(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7B7558E8E429D280EDB4499EE5648CE5256C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534293   (695994) от 01.03.2022
+
+VA - Urban Orange Music 8: Downtempo Experience (2022) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Bring Me Hope (Original Mix) (3:24)
+02. Peter Pearson - Shaken Not Stirred (Original Mix) (4:25)
+03. Michael e, Ramón Sanz - For Hayley (Original Mix) (4:37)
+04. Martin Hiska - Blue Times (Original Mix) (3:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3061FC2458088B1E2180D44EFB7B90C438822D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534276   (695989) от 01.03.2022
+
+The Soul Crusaders - Nightfall (2020) [AAC|~321 Kbps] <Lounge, Chill Out. Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sway (4:33)
+02. This City Never Sleeps (5:02)
+03. Take That (4:57)
+04. Escape from Reality (5:03)(   Читать дальше...   )Жанр: Lounge, Chill Out. Smooth JazzПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390311C58C961BB7073E9B4AC4A809D9075FB830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534230   (695984) от 01.03.2022
+
+VA - Moonlight Lounge (Mediterranean Roots), Vol. 4 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jane Maximova - Puppets (4:58)
+02. Luis Hermandez - Broken Love (4:40)
+03. Weber & Weber - Music Box (So Precious) (4:42)
+04. Living Room - Travelling & Learning (2:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23683A890CF0207D32A7F08721F43319A58C3064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534273   (695981) от 01.03.2022
+
+Beth Hart - A Tribute To Led Zeppelin (2022) [AAC|~337 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole Lotta Love (5:55)
+02. Kashmir (8:15)
+03. Stairway To Heaven (7:54)
+04. The Crunge (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F37719299EF8464CBB1E1BD4A040F162113C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027691   (695903) от 19.06.2016
+
+Чудеса с небес / Miracles from Heaven (2016) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637414.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Карлитосу 17, у него ангельское лицо и дьявольские наклонности. В школе он знакомится с Рамоном, с которым они составляют блистательный и беспощадный дуэт. На пути изощренного воровства и лжи их совместные преступления становятся лучшим самовыражением.Производство: Аргентина, Испания / El Deseo, Instituto Nacional de Cine y Artes Audiovisuales (INCAA), Instituto de Credito Oficial (ICO)Жанр: Драма, криминал, биографияРежиссер: Луис ОртегаАктеры: Лоренцо Ферро, Чино Дарин, Даниэль Фанего, Мерседес Моран, Малена Вилла, Сесилия Рот, Sofía Inés Torner, Питер Ланзани, Marcelo Cancemi, Луис НьеккоПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:54:38
+Удивительная история, в которую невозможно поверить, не увидев собственными глазами. Когда кажется все потеряно, и впереди только боль и отчаяние, небеса дарят надежду тем, кто верит.Производство: СШАЖанр: ДрамаРежиссер: Патрисия РиггенАктеры: Дженнифер Гарнер, Кайли Роджерс, Мартин Хендерсон, Брайтон Шарбино, Кортни Фанслер, Куин Латифа, Брайс Зенткович, Эухенио Дербес, Келли Коллинз, Джон Кэрролл ЛинчПеревод: Многоголосый закадровый (iTunes)Субтитры: Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: 01:49:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3752A25F938E833FCB9254E7836AD7603B023CD
+magnet:?xt=urn:btih:73B9045E4DA078D6CB6BA71E0028E656997162C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,445 +630,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293181   (637419) от 03.04.2019
+###  Публикация: 1533234   (695886) от 01.03.2022
 
-Что у них было / What They Had (2018) WEB-DL [1080p] ATV (MVO)
+Dina Vierny - Chants Des Prisonniers Sibériens D'Aujourd'hui / Блатные песни (1975) [AAC|~329 Kbps] <Chanson, Folk>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quand Nous Nous Sommes Rencontrés (Когда с тобой мы встретились) (3:02)
+02. Le Costume Neuf (Костюмчик новенький) (1:18)
+03. Maman Ne M'attends Pas (Не жди меня, мама) (4:51)
+04. De Nouveau Dans la Prison (И вот сижу опять в тюрьме...) (2:26)(   Читать дальше...   )Жанр: Chanson, FolkПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D17827D7E6D161A16DBC7F53DCD743FD62D510E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534302   (695869) от 01.03.2022
+
+Demis Roussos - Greatest Hits (1971 - 1980) (1983) [AAC|~328 Kbps] <Pop, Ballad, Chanson, Schlager>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Shall Dance (3:33)
+02. My Reason (3:56)
+03. Forever And Ever (3:41)
+04. Goodbye My Love Goodbye (3:59)(   Читать дальше...   )Жанр: Pop, Ballad, Chanson, SchlagerПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BDB702B6AAE7D747DC1EF7F33B47A57C92A980E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534168   (695757) от 01.03.2022
+
+VA - Суперхиты дискотеки 90-х, vol. 3 (2011) [AAC|~328 Kbps] <Eurodance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Unlimited - No Limit (3:49)
+02. U96 - Love Religion (3:36)
+03. E-Type - This Is The Way (3:58)
+04. Dr. Alban - It's My Life (4:37)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076294D59D512632D6BC83501BDA650B53F201D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534401   (695650) от 01.03.2022
+
+Вестсайдская история / West Side Story (2021) BDRip [1080p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637419.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бриджит Эртц возвращается в родной город Чикаго после того как её мать Рут, страдающая болезнью Альцгеймера, теряется в метель перед Рождеством. Вместе с братом они пытаются уговорить их отца отдать Рут в дом престарелых.Производство: Канада, США / Unified Pictures, Bona Fide Productions, Look to the Sky Films, Unified Film Fund IIЖанр: ДрамаРежиссер: Элизабет ЧомкоАктеры: Хилари Суэнк, Майкл Шеннон, Роберт Форстер, Блайт Даннер, Таисса Фармига, Джош Лукас, Сара Сазерленд, Мэрилин Доддс Фрэнк, Эйми Гарсиа, Уильям СмайлиПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Английские (Full)Продолжительность: 01:41:04
+Нью-Йорк, конец 1950-х. История противостояния двух уличных банд и невозможной любви юноши и девушки из враждующих группировок.Производство: США / 20th Century Studios, Amblin Entertainment, Amblin PartnersЖанр: Мюзикл, драма, мелодрама, криминалРежиссер: Стивен СпилбергАктеры: Рэйчел Зеглер, Энсел Элгорт, Майк Фейст, Ариана ДеБос, Дэвид Альварез, Кори Столл, Брайан Д`Арси Джеймс, Рита Морено, Джош Андрес Ривера, Эзра МинасПеревод: Профессиональный многоголосыйСубтитры: АнглийскиеПродолжительность: 02:36:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83066BCB0E7396BBCF67AE850A4E1A4D5EBEBD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907191   (637435) от 12.06.2015
-
-Шафер напрокат / The Wedding Ringer (2015) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой женится на девушке своей мечты. Он купил кольца и смокинг, оплатил шикарный ресторан, но для идеальной церемонии не хватает маленькой детали — друзей жениха. Эту «услугу» он находит в специальном агентстве, где напрокат получает целый комплект «друзей»… Пройдет ли теперь подготовка и сама свадьба идеально?Производство: СШАЖанр: КомедияРежиссер: Джереми ГареликАктеры: Кевин Харт, Джош Гад, Кейли Куоко-Суитинг, Эффион Крокетт, Хорхе Гарсиа, Дэн Гилл, Кори Холкомб, Кен Ховард, Колин Кэйн, Клорис ЛичменПеревод: Дублированный (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C538097ED639015F66E8A9F600F44FA7F0BE6033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907673   (637443) от 12.06.2015
-
-Полное превращение  (2015) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — незадачливый риелтор Дима, жизнь которого — одна сплошная проблема: с работой, с родителями, с девушками…. Он так устал от себя и хочет стать кем-то другим, что случай… предоставляет ему такую возможность. Из рук чудаковатого ученого Дима получает прибор Превращатель, способный превращать любого человека в кого угодно. Пытаясь исправить свои проблемы, (   Читать дальше...   )Производство: РоссияЖанр: Комедия, фантастикаАктеры: Олег Гаас, Арина Постникова, Наиль Абдрахманов, Павел Абдалов, Егор Сальников, Виталий Кудрявцев, Ирина Крутик, Сергей Николаев, Александра Булычёва, Татьяна ОквамоПеревод: Режиссер: Филипп КоршуновПродолжительность: 01:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F07216BB8A5ED64B9FD913C19E851FFB293D57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033434   (637774) от 11.07.2016
-
-Чистое искусство  (2016) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637774.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ты живешь свою жизнь, думаешь про завтра и не знаешь, что кто-то чужой уже влез в твою жизнь и все в ней зачеркнул…»
-Саша — известный фотограф. Она молода и красива. Неожиданно ее счастливая жизнь рушится. Она становится свидетелем загадочного убийства и тут же оказывается вовлеченной в криминальную аферу, связанную с живописью и большими деньгами. Теперь кажется, (   Читать дальше...   )Производство: РоссияЖанр: Триллер, детективРежиссер: Ренат ДавлетьяровАктеры: Анна Чиповская, Пётр Фёдоров, Константин Юшкевич, Илья Любимов, Дмитрий Брауэр, Александр Яценко, Алексей Барабаш, Леонид Мозговой, Людмила Чурсина, Анатолий БелыйПеревод: Не тебуетсяСубтитры: НетПродолжительность: 01:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1DB2C1CD116C2D959161310BDEFB314998C2B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907370   (637808) от 12.06.2015
-
-Фунт плоти / Pound Of Flesh (2015) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды ночью главный герой спасает женщину, но на следующее утро просыпается в номере отеля и обнаруживает, что лежит в ванной весь в крови и без одной почки…Производство: Канада / ACE Film Company, ACE Studios, Odyssey MediaЖанр: боевик, криминалРежиссер: Эрни БарбарашПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: ColdFilmЯзык субтитров: АнглийскийПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8761A775BB7CC9531D751A3DA6EF85C6087925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907496   (637815) от 12.06.2015
-
-Драконы Нью-Йорка / Revenge of the Green Dragons (2013) HDRip [576p] iPad [Line]
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637815.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух братьев-эмигрантов Сонни и Стивена, отправившихся в конце 80-х годов в Нью-Йорк за американской мечтой. В поисках лучшей жизни они влились в банду Чайна-тауна «Зеленые драконы». Делая успехи на новом поприще, Сонни опрометчиво влюбляется «не в ту» девушку, и родные братья становятся злейшими врагами. Сонни начинает мстить своей банде, которая взрастила (   Читать дальше...   )Производство: США, ГонконгЖанр: Боевик, драма, криминалРежиссер: Эндрю ЛуАктеры: Джастин Чон, Кевин Ву, Гарри Шам мл., Рэй Лиотта, Джин Онг, Сюя Чанг, Карл Ли, Леонард Ву, Евгения Йуан, Селия АуПеревод: Дублированный (LINE)Язык субтитров: АнглийскийПродолжительность: 01:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179215AB6CD20B049E78128EAEFAA5AC3295A2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907415   (637824) от 12.06.2015
-
-Фунт плоти / Pound Of Flesh (2015) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды ночью главный герой спасает женщину, но на следующее утро просыпается в номере отеля и обнаруживает, что лежит в ванной весь в крови и без одной почки…Производство: Канада / ACE Film Company, ACE Studios, Odyssey MediaЖанр: боевик, криминалРежиссер: Эрни БарбарашПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: ColdFilmЯзык субтитров: АнглийскийПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661C2AEEC4636FBBA921A6CC0CFCE1DD4A24BE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033583   (637860) от 11.07.2016
-
-Чистое искусство  (2016) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637860.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ты живешь свою жизнь, думаешь про завтра и не знаешь, что кто-то чужой уже влез в твою жизнь и все в ней зачеркнул…»
-Саша — известный фотограф. Она молода и красива. Неожиданно ее счастливая жизнь рушится. Она становится свидетелем загадочного убийства и тут же оказывается вовлеченной в криминальную аферу, связанную с живописью и большими деньгами. Теперь кажется, (   Читать дальше...   )Производство: РоссияЖанр: Триллер, детективРежиссер: Ренат ДавлетьяровАктеры: Анна Чиповская, Пётр Фёдоров, Константин Юшкевич, Илья Любимов, Дмитрий Брауэр, Александр Яценко, Алексей Барабаш, Леонид Мозговой, Людмила Чурсина, Анатолий БелыйПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD07A68CE4694CE9A857402333145171822771B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033591   (637862) от 11.07.2016
-
-Жизнь Пи / Life of Pi (2012) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история сына владельца одного индийского зоопарка, мальчика по имени Пи. Он познаёт мир, учится отстаивать свои принципы, ищет собственную дорогу к Богу, живя по канонам трёх конфессий, влюбляется… Но волей судьбы его семья вынуждена эмигрировать. На полпути между Индией и Канадой корабль терпит крушение, и Пи остается в шлюпке вместе с бенгальским тигром, гиеной, (   Читать дальше...   )Производство: США, Тайвань, ВеликобританияЖанр: Фэнтези, драма, приключенияРежиссер: Энг ЛиАктеры: Сурадж Шарма, Ирфан Кхан, Рейф Сполл, Табу, Адиль Хуссэйн, Жерар Депардье, Аюш Тандон, Гаутам Белур, Аяан Кхан, Мохд Аббас ХалилиПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные, Английские форсированные, Русские, Английские, УкраинскиеПродолжительность: 02:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63BCEF1771332213F590E32F04CCD3B1CB13559B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033439   (637932) от 11.07.2016
-
-Чистое искусство  (2016) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637932.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ты живешь свою жизнь, думаешь про завтра и не знаешь, что кто-то чужой уже влез в твою жизнь и все в ней зачеркнул…»
-Саша — известный фотограф. Она молода и красива. Неожиданно ее счастливая жизнь рушится. Она становится свидетелем загадочного убийства и тут же оказывается вовлеченной в криминальную аферу, связанную с живописью и большими деньгами. Теперь кажется, (   Читать дальше...   )Производство: РоссияЖанр: Триллер, детективРежиссер: Ренат ДавлетьяровАктеры: Анна Чиповская, Пётр Фёдоров, Константин Юшкевич, Илья Любимов, Дмитрий Брауэр, Александр Яценко, Алексей Барабаш, Леонид Мозговой, Людмила Чурсина, Анатолий БелыйПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E55CFB956A2585D2CF1EF8349A30727FBE97CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800947   (637968) от 30.06.2014
-
-Нимфоманка: Часть 2 / Nymphomaniac: Vol. II (2013) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории нимфоманки по имени Джо, чья жизнь была полна множества эротических переживаний, впечатлений и опытов. Она рассказывает о себе немолодому одинокому холостяку Селигману, который наткнулся на нее, избитую и находящуюся в полубессознательном состоянии, в переулке, доставил к себе домой и выходил…Жанр: Драма, детективПродюсер: Мария Сесилия Гаде, Луиза Вест, Беттина БрокемперВ ролях: Шарлотта Генсбур, Стеллан Скарсгард, Шайа ЛаБаф, Джейми Белл, Стэйси Мартин, Уиллем Дефо, Миа Гот, Жан-Марк Барр, Майкл Пас, Кристиан СлэйтерПеревод: Дублированный (LINE)Язык субтитров: Русский, АнглийскийПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74186E83A0EB2792753498EB31CBFA9F065589C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293251   (638827) от 02.04.2019
-
-Юморист  (2018) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638827.jpg" />
-</div>
-
-
-###  Подробнее
-
-У эстрадного юмориста Бориса Аркадьева в жизни все хорошо: счастливая семья, обожание миллионов, очередь поклонниц и благосклонность властей. Но комику не дает покоя несвобода и внешняя, и внутренняя: чем громче его успех на сцене, тем сильнее в нем назревает протест. И вот уже самый смешной становится слишком опасным.Производство: Россия, Латвия, Чехия / Metrafilms, Sirena Film, Tasse FilmЖанр: Драма, биографияРежиссер: Михаил ИдовАктеры: Алексей Агранович, Юрий Колокольников, Алиса Хазанова, Павел Ильин, Артем Волобуев, Полина Ауг, Семен Штейнберг, Вильма Кутавичюте, Ольга Дибцева, Даниэль ШифринПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4644E31DFF2E5ADAC1EADBBF2F19ABB49B447AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228170   (638898) от 30.05.2018
-
-Роман Израэл, Esq. / Roman J. Israel, Esq. (2017) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638898.jpg" />
-</div>
-
-
-###  Подробнее
-
-История опытного адвоката-идеалиста с твёрдой хваткой, Романа Дж. Израэля. Череда событий вынуждает героя пойти на крайние меры, противоречащие его профессиональным и моральным принципам.Производство: СШАЖанр: Драма, криминалРежиссер: Дэн ГилройАктеры: Дензел Вашингтон, Колин Фаррелл, Кармен Эджого, Линда Граватт, Аманда Уоррен, Хьюго Армстронг, Сэм Гилрой, Тони Плана, Дерон Хортон, Амари ЧитомПеревод: Многоголосый закадровый (Лицензия)Субтитры: Русские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 02:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A56B7878BE73DB7255455F0A511EDDF609FFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292858   (638922) от 02.04.2019
-
-Загнанных лошадей пристреливают, не правда ли? / They Shoot Horses, Don't They? (1969) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка в тяжелые годы Великой депрессии. Всюду безработица и бедность. Люди берутся за любую работу, чтобы заработать на кусок хлеба и крышу над головой. Поэтому не удивительно, что танцевальный марафон с призом в 1500 долларов легко собрал в мрачном ангаре на побережье несколько десятков участников со всей страны. Все они такие разные, но каждый готов на все ради (   Читать дальше...   )Производство: США / American Broadcasting Company (ABC), Palomar Pictures CorporationЖанр: ДрамаРежиссер: Сидни ПоллакАктеры: Джейн Фонда, Майкл Сарразин, Сюзанна Йорк, Гиг Янг, Ред Баттонс, Бонни Беделиа, Майкл Конрад, Брюс Дерн, Аль Льюис, Роберт ФилдсПеревод: Дублированный, Профессиональный многоголосый, Профессиональный двухголосый, Авторский одноголосыйСубтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18487A408EE613EAAEB93669A8B066723A2CB1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228135   (639022) от 30.05.2018
-
-Обитель теней / Marrowbone (2017) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мрачная тайна окутывает старинный особняк, в котором Джек уединенно живет с братьями и сестрой. Однако обитель теней открыла свои двери для прекрасной незнакомки, живущей по соседству. Она пока не знает, что здесь в любой момент зловещие силы готовы нанести удар из темноты…Производство: Испания / Lions Gate International, Marrowbone, Telecinco CinemaЖанр: Ужасы, Триллер, ДрамаРежиссер: Серхио Х. СанчесАктеры: Джордж МакКэй, Аня Тейлор-Джой, Чарли Хитон, Миа Гот, Мэттью Стэгг, Николя Харрисон, Кайл Соллер, Том Фишер, Пол ДжессонПеревод: Дублированный  (iTunes)Субтитры: Английские (вшитые, отключаемые), Испанские (вшитые, отключаемые)Продолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDAA44FE83FACAE232AC8127DF255028FED96BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143104   (639078) от 16.06.2017
-
-Красавица и чудовище / Beauty and the Beast (2017) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обозлённая Волшебница превратила принца Адама в отвратительное чудовище за то, что тот был злым, самовлюблённым и грубым. Чтобы снять чары с себя и слуг своего замка, ему необходимо научиться быть добрым, любить и быть любимым. Произойти это должно до того, как с розы, подаренной Волшебницей, упадёт последний лепесток.Производство: СШАЖанр: Mюзикл, фэнтези, мелодрама, семейныйРежиссер: Билл КондонАктеры: Эмма Уотсон, Дэн Стивенс, Люк Эванс, Джош Гад, Кевин Клайн, Хэтти Морахэн, Хейдн Гвин, Джерард Хоран, Рэй Фиарон, Юэн МакГрегорПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 02:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8592BEFCBE86E4D36140BC9D1E5A8C78AACE2245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228086   (639146) от 30.05.2018
-
-Осколки / Middleground (2017) BDRip [1080p] ATV (MVO)
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь думали о том, что жизнь могла сложиться по-другому? Вы могли родиться в другом месте, сделать другой выбор, пойти по незнакомому пути…
-Он и она словно застыли в рутине похожих дней, где сны кажутся более реальными, чем череда будней. Но что, если параллельный мир вовсе не иллюзия и однажды кто-то из них погрузится в него как в настоящий?Производство: Россия, США / ВайТ МедиаЖанр: Драма, МелодрамаРежиссер: Алиса ХазановаАктеры: Наталия Антонова, Александр Дьяченко, Татьяна Черкасова, Валерия Бурдужа, Анна Дулова, Аглая Тарасова, Дмитрий ПчелаПеревод: Многоголосый (профессиональный, закадровый) (iTunes)Субтитры: Русские (вшитые, отключаемые)Продолжительность: 01:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2BAF384E3393A20C45FA45DE7F312C2B49968E
+magnet:?xt=urn:btih:3D09AFC6F73D9B2FCF4AEE7D9EF1150F7B07AC4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

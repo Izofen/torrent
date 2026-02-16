@@ -1,25 +1,25 @@
-###  Публикация: 1122231   (798864) от 05.04.2017
+###  Публикация: 1663796   (186437) от 23.09.2023
 
-Warbringer - Woe To The Vanquished (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+yeule - softscars (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, cyber goth, glitch princess, post pop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798864.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186437.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Silhouettes
-02. Woe to the Vanquished
-03. Remain Violent
-04. Shellfire(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00: 40:59
+01 – x w x
+02 – sulky baby
+03 – softscars
+04 – 4ui12(   Читать дальше...   )Жанр: Synthpop, cyber goth, glitch princess, post popПродолжительность: 00:40:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2343D7697936C3EFFD69429FFB6C1592EDF25A8
+magnet:?xt=urn:btih:D19F02A12B32E41A2DE1375622D3BFB55FCA2FEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122499   (798865) от 05.04.2017
+###  Публикация: 1663763   (186436) от 23.09.2023
 
-VA - Dutch Wonder Trance Anthems (2017) [MP3|320 Kbps] <Trance, Energy, Uplifting, Emotional, Blissful>
+Klubbheads - Pump Up The Heads! (2021) [FLAC|Lossless|tracks + .cue] <House>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798865.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mark W - Azrael (Extended Mix)  5:15
-02.  Ronski Speed - Horoscope (Ronski Speed Remix)  6:37
-03.  Lightform - Orbs (Extended Mix)  6:08
-04.  Sneijder & Katty Heath - The Only Place (UCast Remix)  7:10(   Читать дальше...   )Жанр: Trance, Energy, Uplifting, Emotional, BlissfulПродолжительность: 05:12:48
+01. Hiphopping
+02. Big Bass Bomb
+03. Turn Up The Bass
+04. Let The Party Begin(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE9AAC608A85844FE4CD3230A5F8F35A34634AA1
+magnet:?xt=urn:btih:E3E042799253BC9D2AC42DF377851432A5668B46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122685   (798866) от 05.04.2017
+###  Публикация: 1663816   (186435) от 23.09.2023
 
-VA - Jazz Acoustic Chill Classical Playlist: 14 Smooth and Chilled Tracks (2017) [MP3|320 Kbps] <Jazz>
+Ibiza Lounge - Hot Summer Vibes 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Relax>
 
->>Jazz, Blues, Soul
->>Jazz
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798866.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186435.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Meg Birch - Rolling in the Deep
-02. Chris Snelling - The Earth Prelude
-03. Karizma Duo - Come Away With Me
-04. Ginnie - Next to Me(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:49
+01. Hot Summer Vibes
+02. Sunrays
+03. Cocktail del Mar
+04. Lounge Bar(   Читать дальше...   )Жанр: Chill Out, Lounge, RelaxПродолжительность: 01:51:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5ED7C7A56BBF55A0C135E766DC4C11AAE05F054
+magnet:?xt=urn:btih:A19ED7608F911317C10A59C36848826855481B70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +85,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122463   (798867) от 05.04.2017
+###  Публикация: 1663801   (186434) от 23.09.2023
 
-Вечерний Ургант (2017.04.04) SATRip
+Anastacia - Our Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Days
+02. Now or Never
+03. Beautiful
+04. Still Loving You(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A53B1CA06606FC69F15AFCF28CA4FA83B469F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663764   (186433) от 23.09.2023
+
+Меня зовут Альфред Хичкок / My Name Is Alfred Hitchcock (2022) WEBRip [H.264/1080p] [VO]
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798867.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:01
+Альфред Хичкок обращается к зрителям, чтобы объяснить, почему его фильмы стали классикой и, главное, зачем смотреть их сейчас. Режиссер говорит не о внутренней кухне профессии, а о желании, страхе, тайне — универсальных и близких любому явлениях, которые он сделал скелетом своих картин, знаменитых и не очень.Производство: Великобритания / Hopscotch FilmsЖанр: документальныйРежиссер: Марк КазинсУчастники: Шон Коннери, Альфред Хичкок, Пол Ньюман, Джанет Ли, Джон Уэйн, Ширли Маклейн, Кэри Грант, Ким Новак, Грейс Келли, Джули ЭндрюсПеревод: Одноголосый любительский (Студия 2А)Язык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: 02:00:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A53B2F7E646A524A4072F273CCF5EA1A1D333084
+magnet:?xt=urn:btih:7FEA653DEC89C0FD3B34FD4822C1F2E5972B8C39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +140,161 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122550   (798868) от 05.04.2017
+###  Публикация: 1663431   (186432) от 23.09.2023
 
-Журнал | AD / Architectural Digest [USА] №3 (март 2017) [PDF] [En]
+VA - Boccaccio Life - The End Of An Era (2018) [FLAC|Lossless|tracks] <House, Hard Trance, Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186432.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Compiled By DJ Gert (01:19:56.)
+
+101. Aquaplex & Junk Project - Brightness [3:46]
+102. Club Royale - Loosing Sleep [5:55](   Читать дальше...   )Жанр: House, Hard Trance, Progressive House, TechnoПродолжительность: 05:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FA500FCBE4CD509446E025F50657AF9DB2A274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663820   (186431) от 23.09.2023
+
+Чисто английские убийства / Midsomer Murders (2016) HDTVRip (сезон 18, серии 1-6 из 6) Лексикон
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чисто английский сериал по чисто английским романам Каролины Грэм. От перемены мест слагаемых сумма английского детектива не меняется, и время не властно над истинными ценностями. Чопорные островитяне по-прежнему совершают самые изощренные преступления, за ними с самым обстоятельным и почтительным видом следуют элегантные сыщики, а фоном для этих сдержанных страстей (   Читать дальше...   )Производство: Великобритания / Bentley Productions, Independent Television (ITV)Жанр: драма, криминал, детективРежиссер: Ренни Рай, Питер Смит, Ричард ХолтхоузАктеры: Джон Неттлз, Джейн Уаймарк, Бэрри Джексон, Нил Даджон, Фиона Долмэн, Джейсон Хьюз, Лаура Ховард, Дэниэл Кэйси, Ник ХендриксПеревод: Многоголосый профессиональный (студия "Лексикон")Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: ~01:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AFA448BF261DB240823A909F31DE39D24E5422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663777   (186430) от 23.09.2023
+
+Специалисты / Les specialistes (1985) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186430.jpg" />
+</div>
+
+
+###  Подробнее
+
+При переезде из одной тюрьмы в другую из-под стражи бегут двое заключённых - Поль Брандон и Стефан Карелла. Инициатор побега – Брандон. Он говорит, что у него пожизненный срок. Карелле оставался всего один год. Но что сделано, то сделано. К тому же, Брандон задумал виртуозное ограбление казино. Если дело выгорит, они разбогатеют на 3 миллиарда франков...Производство: Франция, Les Films Christian Fechner, Films A2Жанр: криминал, приключенияРежиссер: Патрис ЛеконтАктеры: Бернард Жиродо, Жерар Ланвен, Кристиан Жан, Берти Кортес, Даниэль Жегу, Кристиан Бьянки, Жан Люк Дебри, Уильям Доэрти, Бернард ХервПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: русские (Е.Клюшина), английские, французскиеПродолжительность: 01:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40027643110FE8FB7C3BBB7F1D75864198DB291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663787   (186429) от 23.09.2023
+
+CamelPhat - Spiritual Milk (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, Vocal, ProgressiveПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513AB9E0D51E82767BF6182BF0891BFF428B4D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663727   (186428) от 23.09.2023
+
+A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer (1974) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Choral, Organ>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186428.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Hear My Prayer/O For The Wings Of A Dove
+A2 O Sacred Head Surrounded (St Matthew Passion)
+A3 Toccata In F
+A4 I Know That My Redeemer Liveth (From 'The Messiah')(   Читать дальше...   )Жанр: Classical, Choral, OrganПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6908EE3E570286E9AF5439E59B75EFDA1B4603D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663836   (186427) от 23.09.2023
+
+Журнал | Смена №9 (сентябрь 2023) [PDF]
 
 >>Журналы
->>Домоводство (журналы)
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798868.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
+Журнал «СМЕНА» издается с января 1924 года. На протяжении своей более чем 80-летней истории всегда публиковал журналистские материалы аналитического, полемического и разъясняющего характера, а также востребованные широкой публикой литературные произведения. В литературном разделе представлены классические зарубежные и отечественные детективы, малоизвестная проза (   Читать дальше...   )Жанр: Публицистика, проза, поэзияИздательство: ООО Издательский дом журнала "Смена"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAFDA5DCBEDB713BAC50712432758146EF768B90
+magnet:?xt=urn:btih:A20FF6FC0AECDE05065438BE4E072A8E46AAA374
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +302,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122357   (798869) от 05.04.2017
+###  Публикация: 1663886   (186426) от 23.09.2023
 
-Disembowelment - Transcendence Into the Peripheral (1993) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+Чёрный кролик - Снег (2023) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798869.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_186426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Tree of Life and Death (10:25)
-02. Your Prophetic Throne of Ivory (07:39)
-03. Excoriate (04:43)
-04. Nightside of Eden (02:38)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:59:33
+1. Снег (feat. Алексей Юзленко, Олег Майоров, Анатолий Скляренко, Алексей Яшин, Игорь «Кэш» Лобанов, Иван Демьян, Тимур Валеев и группа Ключи, Андрей Гречаник, Вячеслав Ширинкин, Бранимир, Александр Старцев, Сергей Ревякин, Михаил Чебоненко, Александр Ряполов, Влад Демьян, Анатолий Иванов, Олег Балашов, Павел Пиковский, Роман Кузьмин, Павел Крахмалев, Денис Михайлов, (   Читать дальше...   )Жанр: RockПродолжительность: 00:23:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:301A28AF5EBB60C9E161115BCDFF8E5ABE1DDB99
+magnet:?xt=urn:btih:490392356E7D9AB748C7DF306BF87B709A61D353
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +328,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122471   (798870) от 05.04.2017
+###  Публикация: 1663667   (186425) от 23.09.2023
 
-VA - Trance April 2017: Melodic Progressive And Vocal, Best Of Collection (2017) [MP3|320 Kbps] <Trance>
+Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798870.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Rais - Quasar  7:14
-02.  TwoB Project - Do Good  6:45
-03.  CJ RcM - Im Alive (Denis Neve Remix)  7:19
-04.  Alexander Dyomin - Rfe  7:09(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:39
+Sirenia — норвежский готик-метал-проект, основанный Мортеном Веландом в 2001 году2002 - At Sixes And Sevens
+2004 - An Elixir For Existence
+2007 - Nine Destinies And A Downfall
+2009 - The 13th FloorЖанр: Symphonic/Gothic MetalПродолжительность: 11:22:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B79EBDE5496609C5C8B0ECD3BAC862E5983B67B
+magnet:?xt=urn:btih:3CFFCE365B756EE82FACC92DDF929812D27B4FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +357,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122302   (798871) от 05.04.2017
+###  Публикация: 1663813   (186424) от 23.09.2023
 
-Michael E - Autumn (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+Владимир Даль. Жизнь в поисках клада (2021) IPTVRip [H.264]
 
->>Electronic
->>Easy listening
+>>Документалистика и Телепередачи
+>>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798871.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Are We There Yet
- 02. Bossa Nova Baby
- 03. Bitter Sweet
- 04. That Feeling(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:19:49
+В течение 53-х лет Владимир Иванович Даль собирал слова. Результатом этого скрупулёзного труда стал уникальный, до сих пор не превзойдённый толковый словарь живого великорусского языка. Труд длиною в жизнь. За несколько часов до своей кончины Даль продиктовал ряд новых услышанных им слов...Производство: Россия / ООО «Телерадиокомпания «Плеяда»Жанр: документальный, биографияРежиссер: Игорь ХолодковЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:29:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9EA84D255ABCAB84C85CE9758094E32874EEA65
+magnet:?xt=urn:btih:2A708E9A9D83D51C85D6E8A5FA74A759EF6DB986
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,83 +383,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122207   (798872) от 05.04.2017
+###  Публикация: 1663825   (186423) от 23.09.2023
 
-Peter Karp - Alabama Town (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alabama Town (04:37)
-02. 'Til You Get Home (03:10)
-03. That's How I Like It (04:01)
-04. Blues In Mind (03:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1811148F8D8886C155E39FECC63DF41D55ACC72F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122354   (798873) от 05.04.2017
-
-VA - Summer Chillout, The Best of Buddha Ambient Experience and Chill Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Total Chillout Music Club — Summer Chillout
-02. Summer Time Chillout Music Ensemble — Buddha Ambient Lounge
-03. Chillout Music Zone — Party Time
-04. Hawaii Chillout Music — Electronic Music(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2390C5950C3819606A949A1680B0FCCEF671602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122579   (798874) от 05.04.2017
-
-PicturesToExe Deluxe 9.0.7 RePack by вовава [Ru/En]
+Brave Browser 1.58.131 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798874.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_186423.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Используя PicturesToExe вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого .exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск. К каждому слайду можно добавить текстовый и звуковой комментарий (wav, mp3, wma), а также фоновую музыку (mp3, wma, wav, midi) для всей презентации. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F569ABF39FD61181E488ABC1F8E1296D01897CAF
+magnet:?xt=urn:btih:392CC58615E542B162323DE200106E38AABC6C70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,57 +409,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122523   (798875) от 05.04.2017
+###  Публикация: 1663574   (186422) от 23.09.2023
 
-Third Party - Hope (2017) [MP3|320 Kbps] <Big Room, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798875.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Without You
-2. Live Forever
-3. Veins
-4. Guiding Light ft. Fran Garcia(   Читать дальше...   )Жанр: Big Room, Electro HouseПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6464FF597223832B60A8A9345044F813E7363D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122068   (798876) от 05.04.2017
-
-Locomotora - This Very Holding Back (2013) [MP3|320 Kbps] <post-rock, instrumental>
+Guns N’ Roses - Anarchy In The Uk (2020) 2023, SMOKIN'[FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798876.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The True Way is Along a Rope
-02. That is not Spanned High in the Air
-03. But Only Just Above the Ground
-04. It Seems Intended More to Cause Stumbling(   Читать дальше...   )Жанр: post-rock, instrumentalПродолжительность: 00:49:51
+01. Welcome To The Jungle [00:04:57]
+02. Out Ta Get Me [00:04:56]
+03. Rocket Queen [00:07:10]
+04. Nightrain [00:03:59](   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 01:09:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E307B4492E22F16817A04AC852A08E36FCF60B01
+magnet:?xt=urn:btih:B298067ED0845BD5CDDFA28A41C840DC01C82FCB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,26 +438,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122353   (798877) от 05.04.2017
+###  Публикация: 1663810   (186421) от 23.09.2023
 
-Permute 2.4.3 [Multi/Ru]
+Кондитерская Люси / Lucy ist jetzt Gangster (2022) WEBRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десятилетняя Люси — очаровательная и воспитанная девочка. Всего несколько недель назад она даже не перешла бы дорогу на красный свет, а теперь ей нужно любой ценой спасти кафе-мороженое своих родителей. Она видит только одну возможность: «Операция Люцифер».Производство: Германия / Bos Bros. Film & TV Productions, INDI Film GmbH, Phanta FilmЖанр: комедия, криминал, семейныйРежиссер: Тилль ЭндеманнАктеры: Виолетта Арнеманн, Бруклин Либиг, Лиза Мари Трензе, Костя Улльман, Беттина Лампрехт, Эстер Швейнс, Франциска Вульф, Том Кеун, Сина Бьянка Хеншел, Тейн ДоктерПеревод: Дублированный (Студия Позитив)Язык озвучки: Русский, немецкийСубтитры: АнглийскиеПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA8F6EFEBE76ED92B5BEFFFFFB3574956D6501C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663839   (186420) от 23.09.2023
+
+Java SE Development Kit 21.0 [En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798877.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_186420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 апреля 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
+Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5700F8CED41536D7F3AD3757E3E5BDB2086B542E
+magnet:?xt=urn:btih:56D3475F1E9B1CE81D6A62EEC71E86A1015B3DB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,28 +491,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122381   (798878) от 05.04.2017
+###  Публикация: 1663783   (186419) от 23.09.2023
 
-VA - Trance Elegance On This Year 012 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
+Специалисты / Les specialistes (1985) BDRip [H.264/720p]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798878.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Elite Electronic - Afterlight (OBI Remix)  7:53
-02.  Feel & Johnny Norberg - One Dream (Attila Syah Remix)  5:10
-03.  SoundLift - River Side (Nick V Remix)  7:43
-04.  Radion6 - Livin The Dream (Extended Mix)  5:27(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:48:36
+При переезде из одной тюрьмы в другую из-под стражи бегут двое заключённых - Поль Брандон и Стефан Карелла. Инициатор побега – Брандон. Он говорит, что у него пожизненный срок. Карелле оставался всего один год. Но что сделано, то сделано. К тому же, Брандон задумал виртуозное ограбление казино. Если дело выгорит, они разбогатеют на 3 миллиарда франков...Производство: Франция, Les Films Christian Fechner, Films A2Жанр: криминал, приключенияРежиссер: Патрис ЛеконтАктеры: Бернард Жиродо, Жерар Ланвен, Кристиан Жан, Берти Кортес, Даниэль Жегу, Кристиан Бьянки, Жан Люк Дебри, Уильям Доэрти, Бернард ХервПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: русские (Е.Клюшина), английские, французскиеПродолжительность: 01:33:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0392FA1B721EEB4B87D31814BAA45074C32D6CD2
+magnet:?xt=urn:btih:E3415659524EBAF4A07647069D73E12387DC580D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,28 +517,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122330   (798879) от 05.04.2017
+###  Публикация: 1663491   (186418) от 23.09.2023
 
-Nana Grizol - Ursa Minor (2017) [FLAC|Lossless|tracks + .cue] <Indie, Indie.Rock, Indie.Folk>
+Культурный слой (2004-2010) WEBRip [H.264] (серии 1-98)
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186418.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Культурный слой» - это историческое расследование средствами современного телевидения. Серия 26-минутных передач, призванная заполнить лакуны в официальной истории, канонизированной в школьных учебниках и ставшей набором расхожих истин.
+«Культурный слой» - это повседневная история страны в эпизодах, оставшихся за кадром, а также быт и нравы, осмысленные как феномен (   Читать дальше...   )Производство: Россия, 5-й канал ПетербургЖанр: документальныйРежиссер: Виталий Галилюк, Александр Аргутин, Оксана АндрееваУчастники: Антон Виноградов, Лев Лурье, Валерий Попов, Сергей Захаров, Ирина Комарова, Леонид Алахвердов, Александр Городницкий, Яков Гордин, Борис Гребенщиков, Константин КинчевЯзык озвучки: РусскийПродолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DE0929796FBFCE07AC6B8CDA09B85DF5C0E520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663873   (186417) от 23.09.2023
+
+VA - A State Of Trance Radio Top 50 - 2023, Vol. 2 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_186417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren, Ferry Corsten, Rank 1 & Ruben De Ronde - Destination (A State Of Trance 2024 Anthem) (Extended Mix) [6:16]
+02. Aly & Fila x Alex M.O.R.P.H. feat. Cheryl Barnes - Eye Of The Storm (Extended Mix) [7:55]
+03. Markus Schulz & Diandra Faye - Eternally (Extended Mix) [8:00]
+04. Paul van Dyk & Ciaran McAuley - Someone Like You (Extended) (   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 05:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B715BFA2A5B5BC39E7A46513158D06E0B9789DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663814   (186416) от 23.09.2023
+
+Леди-кошка / Мурли / Minoes (2001) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186416.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма положен сюжет детской повести «Мурли» нидерландской писательницы Анни Шмидт. Когда-то Мурли была обычной городской кошкой, но однажды она выпила волшебное снадобье и превратилась в девушку. Получив человеческое тело, Мурли сохранила множество кошачьих повадок и привычек, в том числе большую страсть всюду совать свой любопытный нос. Вскоре после превращения (   Читать дальше...   )Производство: Нидерланды, AVRO Television, Bos Bros Film & TV Productions, Amsterdam Video PostproductionsЖанр: фэнтези, комедия, семейныйРежиссер: Винсент БальАктеры: Кэрис ван Хаутен, Тео Маассен, Сара Баньер, Пьер Бокма, Ганс Кестинг, Кеес Хюльст, Ольга Зедерхук, Джек Ваутерсе, Лоес Лука, Катя Схурман, Аннет Мальэрб, Ким Ван Кутен, Мариса Ван ЭйлеПеревод: дублированный, профессиональный многоголосыйЯзык озвучки: русский, нидерландскийСубтитры: русскиеПродолжительность: 01:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5712C2B6726582E1C81A4BC3781C68DBA6F41E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663663   (186415) от 23.09.2023
+
+Bonfire - 3 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798879.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Nightlights I
-2. Bright Cloud
-3. Mississippi Swells
-4. Almost Know Your Name(   Читать дальше...   )Жанр: Indie, Indie.Rock, Indie.FolkПродолжительность: 00:58:12
+Альбомы:
+2023/1986 - Don't Touch the Light (MMXXIII Version)
+2023/1989 - Point Blank (MMXXIII Version)
+2023/1987 - Fireworks (MMXXIII Version)Жанр: Hard Rock |Продолжительность: 02:22:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5267661BB75D739FAF9231357E4640D1A48D44CC
+magnet:?xt=urn:btih:902552DC39E814EC430B7C6868BA5864719881F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,28 +628,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122404   (798880) от 05.04.2017
+###  Публикация: 1663829   (186414) от 23.09.2023
 
-Miles Davis - In Person, Saturday Night at The Blackhawk, San Francisco, Vol.II (1961) 1999, CBS [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Леди-кошка / Мурли / Minoes (2001) BDRip [H.264/720p]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798880.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Well You Needn't [08:18]
- 02.Fran-Dance [07:41]
- 03.So What [12:43]
- 04.Oleo [05:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:57:39
+В основу фильма положен сюжет детской повести «Мурли» нидерландской писательницы Анни Шмидт. Когда-то Мурли была обычной городской кошкой, но однажды она выпила волшебное снадобье и превратилась в девушку. Получив человеческое тело, Мурли сохранила множество кошачьих повадок и привычек, в том числе большую страсть всюду совать свой любопытный нос. Вскоре после превращения (   Читать дальше...   )Производство: Нидерланды, AVRO Television, Bos Bros Film & TV Productions, Amsterdam Video PostproductionsЖанр: фэнтези, комедия, семейныйРежиссер: Винсент БальАктеры: Кэрис ван Хаутен, Тео Маассен, Сара Баньер, Пьер Бокма, Ганс Кестинг, Кеес Хюльст, Ольга Зедерхук, Джек Ваутерсе, Лоес Лука, Катя Схурман, Аннет Мальэрб, Ким Ван Кутен, Мариса Ван ЭйлеПеревод: дублированный, профессиональный многоголосыйЯзык озвучки: русский, нидерландскийСубтитры: русскиеПродолжительность: 01:26:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB6C91738F734A117AD69F97CB2E6D93094BE86A
+magnet:?xt=urn:btih:C227FE2173699E1A1CE27606C81A71EE7908E8B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,173 +654,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122555   (798881) от 05.04.2017
+###  Публикация: 1663844   (186413) от 23.09.2023
 
-VA - Spring Times Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Following Light – Azure (Aluria remix) (09:20)
-02. Aluria – Basilica Philosophica (original mix) (07:41)
-03. Christian Monique – Planetarium (original mix) (06:01)
-04. Findike – The Peaceful (original mix) (08:54)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3422618202BD75A55D0F786FDF57D5E89295C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122412   (798882) от 05.04.2017
-
-VA - Beatport Trance Pack (05.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ThoBa & Bethany Marie - Cold (Original Mix)  5:36
-02.  Miroslav Vrlik - I Believe (O.B.M Notion Remix)  7:14
-03.  DIM3NSION - Voorpret (Ucast Extended Remix)  6:44
-04.  Rene Ablaze - Rock U (Original Mix)  6:41(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 03:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F77E0E110814053030C8F81B234B2D5906C2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122543   (798883) от 05.04.2017
-
-Mokhtar Samba & WDR Big Band Cologne - Musique d'Afrique (2016) [FLAC|Lossless|tracks + .cue] <World Fusion, Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valse des Pharaons (8:05)
-02. Senegal (9:05)
-03. Emattéo (9:12)
-04. Suite for Africa (10:33)(   Читать дальше...   )Жанр: World Fusion, Modern Big BandПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548C583697B59382DF18A33A03ACDD64AF80A66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122285   (798885) от 05.04.2017
-
-VA - Quiet Zone Just Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sombra Modos - Botavara  5:34
-02.  Arrojas - Lazy Sunday  5:48
-03.  Lamar Ensemble - Stay Sharp  5:36
-04.  Chillelektro - Vitt  6:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BB40D0B092766D8EE0AA9FBC2C8819C576332D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122269   (798886) от 05.04.2017
-
-VA - Spring Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sombra Modos - Botavara (Original Mix)  5:34
-02.  Arrojas - Venas Silenciosas (Original Mix)  5:55
-03.  Sweetadelic - Aguas Claras (Original Mix)  5:36
-04.  Lamar Ensemble - Inspirational Shortcut (Original Mix)  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F5F829E0879663228BA54339A84FE612C75356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121976   (798887) от 05.04.2017
-
-Бобслей. Кубок мира 2016-2017. 8-й Этап. Пхёнчхан (Корея). Женщины, Мужчины. Двойки (18.03.2017) IPTV [H.264/720p-LQ]
+OCCT 12.1.5 Final Portable [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798887.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-18 марта 2017, суббота
-Бобслей. Кубок мира 2016-2017. 8-й Этап. Пхёнчхан (Южная Корея)
-Женщины, Мужчины. Двойки. 1-я и 2-я попытка
-Стадион: Alpensia Sliding Centre (Пхёнчхан, Южная Корея)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: Женщины: 01:37:11, Мужчины: 01:36:26
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A297A1621A76B2F2C6EBF518839099F177204B5F
+magnet:?xt=urn:btih:CEA3B5610306031F959D907669B48C146FC2FDEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,86 +680,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122291   (798888) от 05.04.2017
+###  Публикация: 1663874   (186412) от 23.09.2023
 
-Бобслей. Кубок мира 2016-2017. 8-й Этап. Пхёнчхан (Корея). Мужчины. Четверки (19.03.2017) IPTV [H.264/720p-LQ]
+The Who - Tommy (1969) Super Deluxe, 2014, Geffen [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798888.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-19 марта 2017, воскресенье
-Бобслей. Кубок мира 2016-2017. 8-й Этап. Пхёнчхан (Южная Корея)
-Мужчины. Четверки. 1-я и 2-я попытка
-Стадион: Alpensia Sliding Centre (Пхёнчхан, Южная Корея)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:01
+The Original Album 2013 Remastered:
+01. Overture [00:05:20]
+02. It's A Boy [00:00:38]
+03. 1921 [00:02:49](   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:24:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB71306B1AB9A43B2A2459A91167D48897DF3A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122332   (798889) от 05.04.2017
-
-Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). 2 Сессия. Швеция — США (18.03.2017) WEB-DLRip [H.264/1080p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798889.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 марта 2017 года, суббота. 14:00 МСК
-Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай)
-Предварительный этап. 2 Сессия
-Швеция — США(   Читать дальше...   )Телекомпания: WCF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 03:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49FD74C30C12E2E4BD9CDB6B801DCB42C19067F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122303   (798890) от 05.04.2017
-
-Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). 1 Сессия. Китай — Канада (18.03.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798890.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 марта 2017 года, суббота. 08:00 МСК
-Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай)
-Предварительный этап. 1 Сессия
-Китай — Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E66BCA28CDCB38E247B9B7AC1B27DA27652B725
+magnet:?xt=urn:btih:797F229632AD15276A85906D1C69EEA7AD292807
 ```
 
 https://mybot314.ru/tekegram_catalog/

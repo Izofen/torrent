@@ -1,24 +1,22 @@
-###  Публикация: 869467   (887825) от 17.02.2015
+###  Публикация: 1538530   (249715) от 21.03.2022
 
-Rakuen Tsuihou -Expelled from Paradise- OST (2014|FLAC) <OST>
+Fantasy Bishoujo Juniku Ojisan to | В другом мире с мужчиной, обратившимся красоткой (2022) [MP3|320 Kbps] <OP+ED>
 
 >>Аниме музыка
->>Аниме OST (Lossless)
+>>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887825.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Альбомы в раздаче
-(141112) Rakuen Tsuihou -Expelled from Paradise- Main Theme — EONIAN (ELiSA)
-(141210) Rakuen Tsuihou -Expelled from Paradise- Original Soundtrack (Wataru Maeguchi)Жанр: J-PopПродолжительность: 00:01:33:13
+Сборник OST'ов по Fantasy Bishoujo Juniku Ojisan to.Производство: NBCUniversal Entertainment JapanЖанр: OSTПродолжительность: 00:46:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E1080FBCCDF79E5B68F01338C9DD3D84C8118B1
+magnet:?xt=urn:btih:FE5269A539B41EE964D3A5184B64470F0D91CF62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,9 +24,148 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640494   (888504) от 06.04.2013
+###  Публикация: 1538532   (249706) от 21.03.2022
 
-No.6 - Complete Soundtrack (OP, ED, OST) (2011) [MP3|320 kbps]<Soundtrack>
+Fantasy Bishoujo Juniku Ojisan to | В другом мире с мужчиной, обратившимся красоткой (2022) [FLAC|Lossless|tracks] <OP+ED>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник OST'ов по Fantasy Bishoujo Juniku Ojisan to.Производство: NBCUniversal Entertainment JapanЖанр: OSTПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AC3D32D50A8E4DFA5CBFD3CCF2483848D06127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493173   (248935) от 08.05.2012
+
+Tasogare Otome x Amnesia OP Single - CHOIR JAIL [Suzuki Konomi] (2012, FLAC) <OST>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248935.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:54] 01. Suzuki Konomi - CHOIR JAIL
+[04:39] 02. Suzuki Konomi - Zanzou Mirai
+[03:54] 03. Suzuki Konomi - CHOIR JAIL (Instrumental)
+[04:36] 04. Suzuki Konomi - Zanzou Mirai (Instrumental)Жанр: OSTПродолжительность: 00:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDCAC97F718839C537F0A63BAB0DE045A70D91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540666   (245100) от 31.03.2022
+
+86 | Eighty-Six | Восемьдесят шесть (2021-2022) [MP3|320 Kbps] <OST>
+
+>>Аниме музыка
+>>Аниме OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник OST'ов по 86: Eighty-Six.Производство: AniplexЖанр: OSTПродолжительность: 05:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7236CD8E9DE91617964B64652DCEB25EA3D88F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963945   (227680) от 13.12.2015
+
+Rokka no Yuusha OST (2015, FLAC) <OP+ED>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(150909) Rokka no Yuusha ED2 Single — Dance in the Fake (Hikasa Youko)
+(150909) Rokka no Yuusha OP2 Single — Black Swallowtail (UROBOROS)
+(150916) Rokka no Yuusha ED3 Single — Nameless Heart (Yuuki Aoi)Жанр: J-Pop, J-RockПродолжительность: 00:01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F875AB493A65536C2A8CB5F70A24E98C99A6E74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342596   (220959) от 04.12.2019
+
+Проект Альфа / Appleseed Alpha (2014) [MP3|320 Kbps] <OST, Soundtrack>
+
+>>Аниме музыка
+>>Аниме OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex feat. Alvin Risk - Try It Out (Try Harder Mix) (04:46)
+02. AKLO - Castle (02:57)
+03. Passepied - Tokyo City Underground (03:46)
+04. Dj Fumiya - Monster (02:15)(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7BF6CBEF2A2934AA404CCD3BF9EE9941509D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736873   (220113) от 21.12.2013
+
+Universe of Fate OST (Fate/Stay Night, Fate/Zero, Fate/Hollow Ataraxia, Fate/Extra,Carnival Phantasm Soundtrack) [2003-2012][mp3] <OST+OP+ED+Singles+Character Songs>
 
 >>Аниме музыка
 >>Аниме OST
@@ -40,20 +177,20 @@ No.6 - Complete Soundtrack (OP, ED, OST) (2011) [MP3|320 kbps]<Soundtrack>
 
 ###  Подробнее
 
-01. Meguriai ~Piano~ - 02:07
-02. Alone Without You - 02:19
-03. Revenge Of The Rat - 02:35
-04. Master Plan - 02:08
-05. Yagate Anta wa... - 02:09
-06. Soshite Kimi wa... - 02:16
-07. Rou - 02:30
-08. Manhunt - 02:19
-09. Buna no Mori de - 02:15
-10. Correctional Facility - 02:03(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:56:06
+Жанр: Anime OSTПродолжительность: Трэклист:
+1. Yasashisa ni Tadoritsuku Made (優しさに辿りつくまで)
+2. oath sign
+3. EGOiSTiC SHOOTER
+4. now and future
+5. WILD CANDY
+6. Hana to Mitsubachi
+7. ROCK-mode
+8. Waratte Hoshikute
+9. Unfill(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:984F96BEFAB7019141DF53CC09CD32C55BBC77A8
+magnet:?xt=urn:btih:D764F73DA6E6C52EB015910CCE1B13A3FE10FEEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -61,27 +198,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 869466   (891029) от 15.02.2015
+###  Публикация: 1513840   (218410) от 02.12.2021
 
-Kantai Collection Anime OST (2015|FLAC) <OP|ED>
+Akino Kawamitsu / AKINO with bless4 - сross the line (2016) [FLAC|Lossless|image + .cue] <J-Pop, OST, OP Theme>
 
 >>Аниме музыка
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891029.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 cross the line 4:16
+02 I Got This 4:47
+03 cross the line (Instrumental) 4:16
+04 I Got This (Instrumental) 4:47Жанр: J-Pop, OST, OP ThemeПродолжительность: 00:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD81413511CFAB69917688AF174FDA694D12296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966491   (217866) от 18.12.2015
+
+Fate／kaleid Liner PRISMA ILYA OST (2013-2015|FLAC|tracks) <OP|ED|OST|Character Songs>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217866.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Альбомы в раздаче
-(150218) Kantai Collection ED Single — Fubuki (Shiena Nishizawa)
-(150218) Kantai Collection OP Single — Miiro (AKINO from bless4)Жанр: J-PopПродолжительность: 00:00:30:52
+(150128) PRISMA☆ILYA 2wei! Character Songs — Prisma☆Love Parade Vol.3
+(150805) PRISMA☆ILYA 2wei Herz! ED1&ED2 Single  — Happening☆diary／Wishing diary (Yumeha Kouda)
+(150805) PRISMA☆ILYA 2wei Herz! OP Single — WONDER STELLA (fhána)Жанр: OST, OP, ED, Character SongsПродолжительность: 00:04:41:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63AD0353DC80D0C9E3C88A7ECE9EB1941A5A8B6C
+magnet:?xt=urn:btih:18E2B8F4C317C8D491A0D67D9140C9C269E80FF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -89,26 +256,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371100   (893201) от 29.03.2020
+###  Публикация: 844319   (217491) от 18.12.2015
 
-Koi Suru Asteroid OST (2020) [FLAC|tracks] <OP+ED>
+Fate Stay Night Unlimited Blade Works (2014) OST (2014-2015|FLAC) <OP|ED|OST>
 
 >>Аниме музыка
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893201.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Toyama Nao - Aruite Ikou! (Koisuru Asteroid OP)
-Koisuru Asteroid ED Single - Minori Suzuki - YozoraТип издания: OST (OP&ED)Продолжительность: 00:32:18
+Альбомы в раздаче
+(150513) Fate stay night Unlimited Blade Works ED2 Single — ring your bell (Kalafina)
+(150603) Fate stay night Unlimited Blade Works OP2 Single — Brave Shine (Aimer)
+(151007) Fate stay night Unlimited Blade Works OST IIЖанр: SoundTrack, J-PopПродолжительность: 00:03:41:19
+Fate Stay Night Unlimited Blade Works (2014) OST (2014-2015|FLAC) <OP|ED|OST>
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25A6847D334FC7C2FC8DE800ABA6168DA0FCDB6F
+magnet:?xt=urn:btih:B76A4C313C6272CC4AA5FFAC1B26E2B86C1AD0D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -116,52 +286,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371099   (893203) от 29.03.2020
+###  Публикация: 1578977   (207339) от 25.09.2022
 
-Koi Suru Asteroid OST (2020) [MP3|320 kbps] <OP+ED>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toyama Nao - Aruite Ikou! (Koisuru Asteroid OP)
-Koisuru Asteroid ED Single - Minori Suzuki - YozoraТип издания: OST (OP&ED)Продолжительность: 00:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EE8A0B2671691415D633FCF37B3E667D835112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370631   (894742) от 28.03.2020
-
-Housekishou Richard-shi no Nazo Kantei | Загадочные дела ювелира Ричарда - OP Single (2020) [FLAC|Lossless|tracks] <OP>
+Prima Doll OST (2022) [FLAC|tracks] <5CD+OP+ED+OST+Character Song>
 
 >>Аниме музыка
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894742.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207339.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Раздача с ОСТами по Housekishou Richard-shi no Nazo Kantei, но пока только опенинг...  :redface:Производство: UNIVERSAL SIGMA (distributed by UNIVERSAL MUSIC LLC)Жанр: OSTПродолжительность: 00:15:15
+OPテーマ 「Tin Toy Melody」／シャノワール
+キャラクターソングアルバム 「ON STAGE」
+キャラクターソングアルバム 「SHOW UP」 (   Читать дальше...   )Тип издания: Commercial CDЖанр: Anime OSTПродолжительность: 03:24:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06CAADB7577DEC4163A420327D0CD461FE2A6525
+magnet:?xt=urn:btih:62956D868E165DE7DDE27DD22C6D9C166EFF63C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,25 +314,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370634   (894749) от 28.03.2020
+###  Публикация: 1578978   (207334) от 25.09.2022
 
-Housekishou Richard-shi no Nazo Kantei | Загадочные дела ювелира Ричарда (2019-2020) [MP3|320 Kbps] <OP+ED>
+Prima Doll OST (2022) [MP3|320 kbps] <5CD+OP+ED+OST+Character Song>
 
 >>Аниме музыка
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894749.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Раздача с ОСТами по Housekishou Richard-shi no Nazo Kantei, но пока только опенинг и ендинг...   :romashka:Производство: UNIVERSAL SIGMA (distributed by UNIVERSAL MUSIC LLC)Жанр: OSTПродолжительность: 00:32:46
+OPテーマ 「Tin Toy Melody」／シャノワール
+キャラクターソングアルバム 「ON STAGE」
+キャラクターソングアルバム 「SHOW UP」 (   Читать дальше...   )Тип издания: Commercial CDЖанр: Anime OSTПродолжительность: 03:24:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD007EF45BCA281B24E0BFD1E64B2E3277A57C90
+magnet:?xt=urn:btih:8C553C89E32165F367005832418980138ACA944F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,60 +342,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367262   (896379) от 27.03.2020
+###  Публикация: 299883   (203062) от 05.02.2023
 
-Star Twinkle Precure | Хорошенькое лекарство: Мерцание звёзд (2019-2020) [MP3|320 Kbps] <OST+OP+ED+Character Song>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник OST'ов по Star Twinkle Precure - сериалу и мувику, а также совместному мувику.Производство: Marvelous! (distributed by Pony Canyon)Жанр: OSTПродолжительность: 08:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092CBFEEE9B1E19B14D49CCD30DFF3DC28861691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638300   (896459) от 02.04.2013
-
-Maoyuu Maou Yuusha OST (2013, FLAC) <OST+OP+ED>
+Kareshi Kanojo no Jijou / His and Her Circumstances / С его стороны - с её стороны - Setsu Getsu Ka [1999][FLAC]<Character Song>
 
 >>Аниме музыка
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896459.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_203062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[01:21] 01. Takeshi Hama - Hero Fanfare
-[04:17] 02. Riya - Ausutenausto
-[01:54] 03. Takeshi Hama - Col legno March
-[01:14] 04. Takeshi Hama - Sonatine of the Wind
-[03:18] 05. Takeshi Hama - Gateway City
-[02:08] 06. Takeshi Hama - GO T.T.T.
-[03:31] 07. Takeshi Hama - Sit Red O Rat Sit Red O Lassie
-[04:18] 08. YOHKO - Mukaikaze (Head Wind)
-[02:28] 09. Takeshi Hama - Wintering Village
-[02:43] 10. Takeshi Hama - the deadly quartet(   Читать дальше...   )Жанр: OSTПродолжительность: 01:04:33
+#НазваниеДлительностьТранслитерация
+01
+     Passion DE Love
+     4:21(   Читать дальше...   )Жанр: J-Pop, OSTПродолжительность: 00:48:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D2745260DE315BDC51F5C0D493DAA9DA4CF0570
+magnet:?xt=urn:btih:78BC80FFBA9AE6D0B651F238E1A5D7374A63A30C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,57 +371,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368852   (906663) от 21.03.2020
+###  Публикация: 1505785   (147955) от 24.12.2021
 
-Mahou Tsukai Precure! | Хорошенькое лекарство: Девочки-волшебницы (2016-2017) [FLAC|Lossless|tracks] <OST+OP+ED+Character Song>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник OST'ов по Mahou Tsukai Precure! - сериалу и мувику, а также совместному мувику.Производство: Marvelous! (distributed by Sony Music Marketing)Жанр: OST
-Страна: Япония
-Ссылки: World Art (TV),
-World Art (Minna de Utau),(   Читать дальше...   )Продолжительность: 08:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70AE3DBEA94BBC05AC599F18DDF1476777EAFB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368554   (906666) от 21.03.2020
-
-Mahou Tsukai Precure! | Хорошенькое лекарство: Девочки-волшебницы (2016-2017) [MP3|320 Kbps] <OST+OP+ED+Character Song>
+Selection Project OST (2021) [MP3|320 kbps] <4CD+OP+ED+OST+Character Song>
 
 >>Аниме музыка
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906666.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник OST'ов по Mahou Tsukai Precure! - сериалу и мувику, а также совместному мувику.Производство: Marvelous! (distributed by Sony Music Marketing)Жанр: OST
-Страна: Япония
-Ссылки: World Art (TV),
-World Art (Minna de Utau),(   Читать дальше...   )Продолжительность: 08:10:47
+OP&ED (Glorious Days／Only one yell)
+Character Song CD 01
+Selection Project Anime OST
+Unit Song CD (9‐tie、Suzu☆Rena、Splasoda°、GAPsCAPs)Тип издания: Commercial CDЖанр: Anime OSTПродолжительность: 03:36:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:418D2AAABA7AAB67FAEFFF2428F27E26D2EC579E
+magnet:?xt=urn:btih:17960EC0A5056E9E7813D167FD3A34ABDA7EFBA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,25 +400,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368338   (908545) от 20.03.2020
+###  Публикация: 1505786   (147867) от 24.12.2021
 
-Kirakira Precure A La Mode | Хорошенькое лекарство: В моде (2017-2018) [FLAC|Lossless|tracks] <OST+OP+ED+Character Song>
+Selection Project OST (2021) [FLAC|tracks] <4CD+OP+ED+OST+Character Song>
 
 >>Аниме музыка
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908545.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник OST'ов по Kirakira Precure A La Mode - сериалу и мувику, а также совместному мувику.Производство: Marvelous! (distributed by Pony Canyon)Жанр: OSTПродолжительность: 13:22:08
+OP&ED (Glorious Days／Only one yell)
+Character Song CD 01
+Selection Project Anime OST
+Unit Song CD (9‐tie、Suzu☆Rena、Splasoda°、GAPsCAPs)Тип издания: Commercial CDЖанр: Anime OSTПродолжительность: 03:36:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:754EC13976A343CAF6C726A24866079C6F99F415
+magnet:?xt=urn:btih:0FF5D844473DF9511E9E2D7A871B22112FCA6F03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,51 +429,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368067   (910642) от 19.03.2020
+###  Публикация: 1348290   (144330) от 27.12.2019
 
-Kirakira Precure A La Mode | Хорошенькое лекарство: В моде (2017-2018) [MP3|320 Kbps] <OST+OP+ED+Character Song>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник OST'ов по Kirakira Precure A La Mode - сериалу и мувику, а также совместному мувику.Производство: Marvelous! (distributed by Pony Canyon)Жанр: OSTПродолжительность: 13:22:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A829A7AAA8422C6DC325B46737BDAB8E4F50EDBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367787   (911888) от 18.03.2020
-
-Hugtto! Precure | Хорошенькое лекарство: Объятия (2018-2019) [FLAC|Lossless|tracks] <OST+OP+ED+Character Song>
+Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru OST (2019) [FLAC|tracks] <OP>
 
 >>Аниме музыка
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911888.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник OST'ов по Hugtto! Precure - сериалу и мувику, а также совместному мувику.Производство: Marvelous! (distributed by Sony Music Marketing)Жанр: OSTПродолжительность: 07:30:37
+Shinchou Yuusha ~Kono Yuusha ga Ore TUEEE Kuse ni Shinchou Sugiru~ OPТип издания: OST (OP)Продолжительность: 00:17:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C11CE68A3FDA6F27EC65C2FC46DDDA130A49FA71
+magnet:?xt=urn:btih:C3CE9BA3AD69328E2642252A22940B3ACEA8E9AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,25 +455,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367529   (913533) от 17.03.2020
+###  Публикация: 1520375   (141306) от 28.12.2021
 
-Hugtto! Precure | Хорошенькое лекарство: Объятия (2018-2019) [MP3|320 Kbps] <OST+OP+ED+Character Song>
+Various - Call Me Tonight (1986) [MP3|320 Kbps] <Boogie, Funk, Pop Rock, Synth-pop>
 
 >>Аниме музыка
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913533.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник OST'ов по Hugtto! Precure - сериалу и мувику, а также совместному мувику.Производство: Marvelous! (distributed by Sony Music Marketing)Жанр: OSTПродолжительность: 07:26:15
+1.Rumi Natsumi (夏見ルミ) - 不安なジェラシー (2:51)
+2.Rumi Natsumi (夏見ルミ) - Call Me Tonight (3:21)
+3.Rumi Natsumi (夏見ルミ) - あなたにRainy Day (4:24)
+4.Hiroyuki Watanabe (渡辺裕之) - My Little (   Читать дальше...   )Жанр: Boogie, Funk, Pop Rock, Synth-popПродолжительность: 00:14:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A89A1BE00A7608ABABBAF74FA55B4978758F9D2
+magnet:?xt=urn:btih:19518242C8D363CD501CF2F689B18718EB5E83B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,84 +484,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 756931   (921031) от 14.02.2014
+###  Публикация: 1195926   (137783) от 31.12.2017
 
-Yahari Ore no Seishun Love Come wa Machigatteiru OST / Мой подростковый ромком не складывается, как и ожидалось OST [2013] [MP3|320 кб/с] <CD-PV+OP+ED+OST+Character Song>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. no Ouji Sama
-02. Chibasen!
-03. Zaimokuza Kurasshaa
-04. Chimuwaku ha Bacchiri da ne
-05. Maboroshi no Gouruin!
-06. Aikyacchi C
-07. Bitter Bitter Sweet (TV size)
-08. Hello Alone -Band arrange- (TV size)Жанр: Anime OSTПродолжительность: 00:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18E6993E166E9A2AE64D648CA2CC4C905EFBFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363800   (925049) от 10.03.2020
-
-Senki Zesshou Symphogear | Песня боевых принцесс: Мехасимфония (2012-2020) [MP3|320 Kbps] <OST+OP+ED+Character Song>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник OST'ов Senki Zesshou Symphogear всех 5-ти сезонов.Жанр: OSTПродолжительность: 29:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E6759373F77A3EE9D05B696BDEA5A8672D795D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363574   (926762) от 09.03.2020
-
-Senki Zesshou Symphogear | Песня боевых принцесс: Мехасимфония (2012-2020) [FLAC|Lossless|tracks] <OST+OP+ED+Character Song>
+Aho Girl | Дурочка (2017) [FLAC|Lossless] <OST>
 
 >>Аниме музыка
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926762.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник OST'ов Senki Zesshou Symphogear всех 5-ти сезонов в lossless.Жанр: OSTПродолжительность: 22:56:19
+Тип издания: OP Single, ED SingleПродолжительность: 00:39:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07E5BEF4142A4852C782DE92ED2DEE4650C6CE36
+magnet:?xt=urn:btih:3C2164417417C6A7437633479D6484B90539F8BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,112 +510,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364313   (934391) от 04.03.2020
+###  Публикация: 1728793   (108305) от 08.06.2024
 
-Mairimashita! Iruma-kun | Добро пожаловать в ад, Ирума - OP Single (2019) [FLAC|Lossless] <OP>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magical BabyrinthТип издания: OP SingleПроизводство: DIVE II entertainment (distributed by avex pictures)Жанр: OSTПродолжительность: 00:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E697BC656E2A5239CBDD85D7DC5088BC6E2A2B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983001   (941782) от 07.02.2016
-
-Ushinawareta Mirai wo Motomete OST (2014-2015) [FLAC|Lossless|5 CD] <OST+OP+ED+Singles>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: tracks+scansПродолжительность: 02:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2B23A426F32A8CAF4EA3E848461DB361AED8FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931607   (948061) от 03.02.2016
-
-Charlotte OST (2015) [FLAC|Lossless|6 CD] <OST+OP+ED+Singles>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: SinglesПродолжительность: 06:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCAD0716636A9A0548A6A1A57CACC56479F2251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622525   (955050) от 26.02.2013
-
-Ergo Proxy / Эрго Прокси OST [2006][MP3|320 CBR]<OST>
+Mahou Shoujo ni Akogarete | Gushing Over Magical Girls | Восхищаясь девочками-волшебницами / Становясь волшебницей (2024) [MP3|320 Kbps] <OST>
 
 >>Аниме музыка
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955050.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: OSTПродолжительность: 54:33
-01. Futu-Risk
- 02. Mazecity
- 03. Bilbul
- 04. Confession
- 05. Wrong Way Home
- 06. Busy Doing Nothing
- 07. Cytotropism
- 08. Angel's Share
- 09. Hideout(   Читать дальше...   )
+Тип издания: OSTПродолжительность: 01:50:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04EC875B8713FA3C6AD0F097D8D06544DFD54C5F
+magnet:?xt=urn:btih:C97EAB8EEF7C5A8331AA163C3428F0A85BF0FD7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,30 +536,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 622523   (958597) от 23.02.2013
+###  Публикация: 470136   (83935) от 23.03.2012
 
-Darker Than Black / Темнее черного [TV-1 / TV-2 OST] [2007][MP3|320 CBR]<OST+OP+ED> 11CD
+Gundam 00 Complete Best (2009) <OST> [MP3|320 kbps]
 
 >>Аниме музыка
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958597.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: OSTПродолжительность: 1:06:48
-1. Dive into the 9
- 2. Savage Dog Cerberus
- 3. Galaxy Train
- 4. No. 23
- 5. Soul Fusion
- 6. Jesus Cloud
- 7. Karura’s Flame
- 8. Suizen Reika
- 9. Psychic Contact(   Читать дальше...   )
+01 - Daybreak's Bell - L'Arc~en~Ciel
+02 - Wana
+03 - Ash Like Snow
+04 - Friends
+05 - Love Today
+06 - Hakanaku mo Towa no Kanashi
+07 - Prototype
+08 - Namida no Mukou
+09 - Trust you
+10 - Unlimited Sky(   Читать дальше...   )2009Жанр: Anime OSTПродолжительность: 00:53:28
 
 ## Скачать торент
 ```bash
@@ -651,9 +571,40 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 164927   (979763) от 12.01.2010
+###  Публикация: 456790   (77962) от 23.02.2012
 
-Yami to Boshi to Hon no Tabibito / Ями, Шляпа и те, кто путешествуют по книге [2003][FLAC]<OST>
+Rinne no Lagrange OP&ED Single - TRY UNITE! Hello! [Nakajima Megumi] (2012, FLAC)
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77962.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:21] 01. Nakajima Megumi - TRY UNITE!
+[04:39] 02. Nakajima Megumi - Hello!
+[03:41] 03. Nakajima Megumi - TRY UNITE! -Rasmeg Duo-
+[04:21] 04. Nakajima Megumi - Pumpkin Cake
+[04:21] 05. Faber Rasmus - TRY UNITE! -Instrumental-
+[04:36] 06. Kitagawa Katsutoshi - Hello! -Instrumental-Жанр: J-PopПродолжительность: 00:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8E32927930C30D05AA01294C978BBE13C3C0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447697   (74696) от 07.02.2012
+
+Rosario to Vampire / Розарио и Вампир / Крестик для Вампира (2008)[FLAC]<OST+OP+ED+Singles+Character Song>
 
 >>Аниме музыка
 >>Аниме OST (Lossless)
@@ -665,16 +616,16 @@ Yami to Boshi to Hon no Tabibito / Ями, Шляпа и те, кто путеш
 
 ###  Подробнее
 
-01. Deep Dream-Shadows (夢影深遠) (5:39)
-02. Scarlet Light of Dawn (黎明緋光) (4:17)
-03. Yellow Mist Upon the Ridge (稜線黄霞) (3:51)
-04. Clear Drops in the Azure Sky (碧空雫澄) (4:46)
-05. Blue Flow of Stardust (星屑藍流) (4:36)
-06. Brilliant Marks of Heat Haze (陽炎赫符) (3:37)
-07. Purple Clouds and Colorful Waves (紫雲彩波) (3:35)
-08. Sleep Adorned by Flowery Silhouettes (花影睡粧) (3:22)
-09. Sky-Mist in the Arctic Night (白夜天霧) (2:02)
-10. Cycle of the Moon and Rainbow (虹命月生) (3:51)Жанр: Anime OST
+01. MUGO-N... Iroppoi [00:03:57]
+02. Smile for me [00:03:37]
+03. Delicate ni Suki Shite [00:03:22]
+04. Slow Motion [00:04:04]
+05. Hanashi Kaketakatta [00:04:29]
+06. EQUAL Romance [00:04:32]
+07. DESIRE -Jounetsu- [00:04:26]
+08. Shiroi Honoo [00:04:10]
+09. Toki ni Ai ha [00:04:03]
+10. Sabishii Nettaigyo [00:04:31](   Читать дальше...   )2008-2009Жанр: AnimeФормат: FLAC (tracks)Продолжительность: 00:56:44
 
 ## Скачать торент
 ```bash
@@ -686,34 +637,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 611639   (981027) от 05.02.2013
+###  Публикация: 1782196   (69995) от 01.03.2025
 
-Jormungand OST / Jormungand: Perfect Order OST (2012) [MP3|320 CBR]<OST+OP&ED_Singles+Special_CD>
+Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Парень? (2024 - 2025) [FLAC|Lossless] <OST+Character Song>
 
 >>Аниме музыка
->>Аниме OST
+>>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - L'ambition melodique
-02 - Gentle enemy
-03 - Jormungand - cruel mix
-04 - Memories of full moon
-05 - Funny jewelry
-06 - Training
-07 - Explain music
-08 - Sense of crisis
-09 - BookMan
-10 - R(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 1:04:48
+Жанр: OSTПродолжительность: 02:02:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A9FC92304D63B991CD110BA68C1B46236AC8656
+magnet:?xt=urn:btih:3F00A3511C4168F2FA4396B1BB41E0B7FABECFAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -721,28 +663,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 740965   (984270) от 02.01.2014
+###  Публикация: 1704196   (63831) от 06.03.2024
 
-K-On! OST / Кэйон! OST (TV 1, TV 2, Movie) [2009-2012][MP3|320 kbps][55CD]<OST+OP+ED+Singles+Character Songs>
+Elfen Lied | Эльфийская песнь (2004) [MP3|320 Kbps] <OST>
 
 >>Аниме музыка
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Cagayake!GIRLS (Digital Radical remix)
-02 - Don't say ''lazy'' (Siestail-crazy-rmx)
-03 - Fuwa Fuwa Time (High School Dance Party Remix)
-04 - Don't say ''lazy''(Akazukin-chan Goougokoro remix)(   Читать дальше...   )Жанр: Anime OSTПродолжительность: 38:11
+Тип издания: Theme songs, OP Single, ED SingleЖанр: OSTПродолжительность: 37:29
+
+01 - Lilium ~opening version~.mp3
+02 - Katsubou.mp3(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB29D2FE10B2CCA974686EB4559CF1CAC81823BD
+magnet:?xt=urn:btih:6843D702C914B28CDDB0AF35A99C3609B16EFC4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728798   (53943) от 08.06.2024
+
+Mahou Shoujo ni Akogarete | Gushing Over Magical Girls | Восхищаясь девочками-волшебницами / Становясь волшебницей (2024) [FLAC|Lossless|WEB-DL] <OST>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: OSTПродолжительность: 01:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A7F475F244E317F4F5C0BFF6C18C07852BC40D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832460   (39335) от 25.10.2024
+
+Fairy Tail / Фейри Тейл / Сказка о Хвосте Феи [2009-2020] [MP3|320 kbps] <OST|OP|ED>
+
+>>Аниме музыка
+>>Аниме OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39335.jpg" />
+</div>
+
+
+###  Подробнее
+
+OP1 Single - Snow fairy
+OP2 Single - S.O.W. Sense of Wonder Idoling
+OP3 Single - ft.
+OP4 Single - R.P.G. ~Rockin' Playing Game(   Читать дальше...   )Жанр: OSTПродолжительность: 01:09:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BACF4811DEFACA4FBF536E4AA590996F64158FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

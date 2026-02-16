@@ -1,22 +1,25 @@
-###  Публикация: 1386454   (22440) от 05.04.2025
+###  Публикация: 1444293   (1034686) от 01.02.2021
 
-Tropico 6 (2019) [Multi] (1290/dlc) License GOG [El Prez Edition]
+VA - Beatport Dance House: Electro Sound Pack #236 (2021) [MP3|320 Kbps] <Club, Dance, House>
 
->>Win Игры
->>Strategy (Manage/Busin)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22440.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Впервые в серии: огромные архипелаги! Управляйте несколькими островами сразу и отвечайте на новые вызовы. Отправляйте своих агентов за границу на охоту за чудесами света – пора расширить вашу коллекцию. Стройте мосты и тоннели, перевозите граждан и туристов на такси, автобусах и канатных дорогах.Тип издания: LicenseРазработчик: Limbic EntertainmentЖанр: Strategy, SimulationЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+Отличный танцевальный сборник в стиле танцевального электро хауса, который полностью наполнен качественными хитами электронной сцены. Представленные треки продуманы до самых мелочей и демонстрируют собой истинную музыкальную эстетическую гармонию.001. Bobby Stewart - Flashback
+002. Julian Jordan - Boss
+003. Duke Jones - Suddenly (Dub Mix)
+004. Glock.Lee - Bring The House Down(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:59:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97BF315958E3ADA37A3E8D2FEEF2D442863B878F
+magnet:?xt=urn:btih:CA02BE1F7AC7161DA5D2CE4BAFF2AE5938CE43A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148171   (22441) от 05.04.2025
+###  Публикация: 1444183   (1034685) от 01.02.2021
 
-War for the Overworld (2015) [Ru/Multi] (2.1.3/dlc) License GOG [Underlord Edition]
+Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Индианаполис 1 / AMA Supercross Championship. Indianapolis 1 (2021) WEB-DL [H.264/720p-LQ]
 
->>След.
->>Strategy (RTS/TBS/Grand)
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22441.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В честь двухлетия игры War for the Overworld мы собрали столько интересного, что нам позавидовал бы сам Скарг: оригинальную игру, дополнительные материалы из издания Underlord Edition и дополнения Heart of Gold, My Pet Dungeon и Crucible. Надоело захватывать подземелья? Так постройте свое! Игра War for the Overworld сочетает в себе лучшие черты стратегии в реальном (   Читать дальше...   )Тип издания: LicenseРазработчик: Subterranean GamesЖанр: Strategy (God Sim, Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Жанр: СпортПродолжительность: 02:49:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F376A99123EA2C6B892C6D64A3FE28786CEBE200
+magnet:?xt=urn:btih:2CB2796A36552FDFD251CFFBE2F60656C510256D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236080   (22442) от 05.04.2025
+###  Публикация: 1444411   (1034684) от 01.02.2021
 
-Специалист | Профессионал - разработчик под Android (2016) PCRec [H.264]
+Dave Dee, Dozy, Beaky, Mick & Tich - Zabadak (1995) [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22442.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наши эксперты разработали для Вас комплексную программу подготовки «Профессионал-разработчик под Android». Пройдя обучение по комплексной программе, Вы получите все необходимые знания и навыки для успешной разработки мобильных приложений под Android. Программа составлена с учетом наиболее распространенных требований работодателей к сотрудникам. Пройдя обучение по (   Читать дальше...   )Жанр: Программирование, Android, JavaПродолжительность: 52:54:07
+01. The Legend of Xanadu (3:38)
+02. Bend It (2:33)
+03. Save Me (3:01)
+04. Mr. President (3:16)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:52:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1933CCC5889C709025BABC1B64DC5C2E7385C049
+magnet:?xt=urn:btih:335AFDF5A539D186FC217A65596995DAE0995198
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +82,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416708   (22443) от 05.04.2025
+###  Публикация: 1444402   (1034682) от 01.02.2021
 
-Werewolf: The Apocalypse (2020-2024) [En] (1.0.13.2010191537/1.1.13.2504011817) License GOG
+DxO PhotoLab 4 ELITE Edition 4.1.3.49 [Multi]
 
->>Win Игры
->>RPG
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22443.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Werewolf: The Apocalypse - Purgatory – откройте для себя удивительный ролевой триллер, в котором будет много выбора! Превратитесь в молодого оборотня или же беженца из Польши, борющегося в одиночку с темными силами, а также находящегося на грани ярости и отчаяния. Так как же будет разворачиваться эта история? Побеждайте монстров на своем пути и раскройте запутанные (   Читать дальше...   )Тип издания: LicenseРазработчик: Different TalesЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.02.2021Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92C93E1E4A1FCDA4EED6FA16387D11FD8B05B1FF
+magnet:?xt=urn:btih:6AE8F1200B413D1D1D6C9E2F0ADA7053CC6EA604
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749436   (22444) от 05.04.2025
+###  Публикация: 1444057   (1034681) от 01.02.2021
 
-Зимородок / Yali Capkini (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-28 (74-101) из 28) turok1990
+VA - Valentines Day 2021 [MP3|320 Kbps] <Pop>
 
->>3
->>След.
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22444.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Трудные времена бросают Сейран и Ферита в разные стороны жизни. Чувствуя себя счастливее благодаря Синану, Сейран всех удивит, сделав ему предложение. Хоть Суна и пытается объяснить сестре насколько серьезный это шаг, но Сейран уверена в своем решении. А Ферит хоть немного, но отошел от своего прошлого, когда в его жизни появилась Дияр. Однако ему будет нелегко узнать (   Читать дальше...   )Производство: Турция / OGM PicturesЖанр: драма, мелодрамаРежиссер: Бурджу Алптекин, Алптекин БозкуртАктеры: Афра Сарачоглу, Мерт Рамазан Демир, Гюльчин Сантырджиоглу, Эмре Алтуг, Берил Позам, Гёзде Кансу, Пелин Акил, Дирен Полатогуллары, Эрсин Арычи, Сезин Бозаджи, Джем Сёкут, Айшен Сезерел, Хюлья Дуяр, Сериф Сезер, Четин Текиндор и др.Перевод: Одноголосый любительский (turok1990)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:30:00
+01. The Cardigans - Lovefool (03:18)
+02. Keane - Somewhere Only We Know (03:56)
+03. Jackson 5 - I'll Be There (03:57)
+04. Marvin Gaye - Ain't No Mountain High Enough (02:27)(   Читать дальше...   )Жанр: PopПродолжительность: 04:06:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD00562897C0B833B1ACF2A7403149BF13FA39C5
+magnet:?xt=urn:btih:FEF24092E5CCE985F70531ED47A245629FA873F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 31516   (22445) от 05.04.2025
+###  Публикация: 1444145   (1034680) от 01.02.2021
 
-Русь изначальная (1985) DVDRip
+VA - New Italo Disco Music Vol. 2 (Selected by Lajos Birizdo) (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
 
->>След.
->>Отечественная Классика (SD)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22445.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие картины происходит в Древней Руси — в те времена, когда славянам, объединившимся в войско под предводительством Ратибора, сына Всеслава, удалось одержать первые победы над племенами кочевников.Производство: СССР, киностудия им. М. ГорькогоЖанр: драма, историяРежиссер: Геннадий ВасильевАктеры: Борис Невзоров, Людмила Чурсина, Владимир Антоник, Иннокентий Смоктуновский, Маргарита Терехова, Елена Кондулайнен, Игорь Дмитриев, Михаил Кокшенов, Владимир Талашко, Капитолина Ильенко, Ирина Сафронова, Арнис Лицитис, Евгений Стеблов, Виктор ГоголевПродолжительность: 02:20:08
+01. Fancy - Slice Me Nice (Split Mirrors Remix) (5:49)
+02. Digitalo - Beautiful Day (Extended Mix) (9:18)
+03. Maxthor - Hunters (Extended Mix) (4:50)
+04. Loreana C. - Dangerous Love (Extended Mix) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8454ED02C5EF0D52D3B565D51E14EA8859967D50
+magnet:?xt=urn:btih:D7A2EC69FE4B7183D508DE78C125CDA782F2E121
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +167,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789718   (22446) от 05.04.2025
+###  Публикация: 1443813   (1034679) от 01.02.2021
 
-55-й элемент / Fan sing / Cesium Fallout (2024) WEBRip [H.264/1080p]
+The Cancel - Coffee Cafe EP (2012) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22446.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На заводе по переработке отходов происходит утечка радиоактивных веществ, но правительство пытается скрыть катастрофу.Производство: Китай, Гонконг / Alibaba Pictures Group, China Film Co., Ltd., Edko Beijing Films, Edko Films, Fosun PicturesЖанр: боевик, драмаРежиссер: Энтони ПуньАктеры: Энди Лау, Ю Бай, Карен Мок, Цзэ Кван-Хо, Ивана Вон, Луиз Вон, Фиш Лью, Боуи Лам, Майкл Вон, Майкл Ман-Кин ЧоуПеревод: Дублированный (Pride Prodaction)Язык озвучки: РусскийСубтитры: русские (forced, full)Продолжительность: 02:10:24
+01. Coffee time (02:02)
+02. Morning cafe (02:33)Жанр: Hip-Hop, InstrumentalПродолжительность: 00:04:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67AB5F994547C2CD4970EC43B9B5C3E5430620C3
+magnet:?xt=urn:btih:F023094CC80CDD1B2BE5D393CEB4F8E09634FCA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258430   (22447) от 05.04.2025
+###  Публикация: 1444417   (1034678) от 01.02.2021
 
-Весь Городок (2004) DVDRip [H.264] [Коллекционное издание]
+VA - Valentine's Day 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
->>Юмор (ТВ)
->>
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22447.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Говорят, что смех продлевает жизнь. Если это правда, то перед вами возможность прожить подольше. Причём, Вы проведёте это время не где-нибудь, а в «Городке», в компании с любимыми народными артистами Ильей Олейниковым, Юрием Стояновым и еще примерно четырьмя сотнями их смешных персонажей. Там, где-то в «Городке», среди его чудаковатых горожан живём и мы с вами. Точно, (   Читать дальше...   )Жанр: Юмор, ТелепередачаУчастники: Илья Олейников, Юрий СтояновПродолжительность: 6 х ~03:00:00 + 4 х ~01:30:00
+01. The Police - Every Breath You Take - Remastered 2003 (4:14)
+02. Lady A - Need You Now (3:56)
+03. James Morrison - You Give Me Something (3:32)
+04. Shania Twain - You're Still The One (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F111EEDD1558A2E56FD259526756F945BF8C0141
+magnet:?xt=urn:btih:C8F1B36534C3AC8CE5596FCD0F0D3D0AF61964E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +223,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776274   (22448) от 05.04.2025
+###  Публикация: 1444409   (1034677) от 01.02.2021
 
-Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.401.1.0/dlc) Repack seleZen [Digital Deluxe Edition]
+Роско Арбакл. Фатти и Мейбл день стирки / Mabel and Fatty's Wash Day (1915) DVDRip
 
->>След.
->>Action (TPS)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22448.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Достичь большего. Вместе. Невероятная сила симбиота становится серьезным вызовом для Питера Паркера и Майлза Моралеса. В этой части знаменитой франшизы им предстоит искать баланс между личной жизнью, дружбой и долгом, призывающим помогать людям. Паучье чутье зудит. Надевайте маску и совершайте подвиги, играя за отважных борцов со злом в «Marvel Человек-Паук 2» на (   Читать дальше...   )Тип издания: RepackРазработчик: Insomniac Games, Nixxes SoftwareЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+Фатти и Мейбл - соседи. Они находят общий язык и решают совместно провести время.Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Мэйбл Норманд, Роско Арбакл, Гарри МакКой, Элис Девенпорт, Джо Бордо, Джимми Брайант, Люк ДогПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:13:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8480BC4C0320FB8BBBA81409BBD0E5722923855
+magnet:?xt=urn:btih:93286C1E7AC4C3E086852E8F34FB36C0F196588C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +249,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781496   (22449) от 05.04.2025
+###  Публикация: 1444272   (1034676) от 01.02.2021
 
-Звездные врата: ЗВ-1 / Stargate: SG-1 (1997–2007) BDRip [AV1/1080p] [10-bit] (сезон 1-10, серии 1-214 из 214) Инис, AXN SCI-FI, НТВ [hand made remastered AI]
+Storm Seeker - Guns Don't Cry (2021) [FLAC|Lossless|image + .cue] <Folk Metal, Pirate Metal>
 
->>3
->>След.
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22449.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Звездные врата» соединяют далекие пределы Млечного Пути и открывают двери для мгновенного межпланетного перемещения. Отряд ЗВ-1 с их помощью исследует нашу галактику и защищает Землю от нападок пришельцев.Производство: США, Канада / Double Secret Productions, Gekko Film Corp., Kawoosh! Productions IXЖанр: фантастика, боевик, драма, приключенияРежиссер: Питер ДеЛуис, Мартин Вуд, Энди МикитаАктеры: Ричард Дин Андерсон, Кристофер Джадж, Аманда Таппинг, Майкл Шэнкс, Дон С. Дэвис, Гари Джонс, Peter Kufluk, Терил Ротери, Дэн Ши, Бен БраудерПеревод: Многоголосый профессиональный (ТВ-3 «Инис», сезон 1-10) (AXN SCI-FI, сезон 1-10) (НТВ 1-4)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: ~00:43:00 серия
+01. How to be a Pirate (3:23)
+02. Naval Hitchhike (2:55)
+03. Shoot This Ship Down (4:19)
+04. Guns Don't Cry (3:39)(   Читать дальше...   )Жанр: Folk Metal, Pirate MetalПродолжительность: 00:35:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1943AFB1DB391C714DD8B191E7DB2D3CFDAA188E
+magnet:?xt=urn:btih:40B0A1A76B4D0F1371CE084169611F1F1C649F1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,27 +278,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789520   (22450) от 05.04.2025
+###  Публикация: 1444396   (1034675) от 01.02.2021
 
-Zorin OS 17.3 Pro & Pro Lite 17.3 [X86_64] 2xDVD
+Onyx - Lost Treasures (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 
->>3
->>След.
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22450.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Zorin OS — это альтернатива Windows и macOS, разработанная для того, чтобы сделать ваш компьютер более быстрым, мощным, безопасным и уважающим конфиденциальность.
-
-Zorin OS разработана так, чтобы быть простой, поэтому вам не нужно ничего изучать, чтобы начать работу. Приложение Zorin Appearance позволяет вам изменять макет рабочего стола, чтобы он напоминал вам привычную (   Читать дальше...   )
+01. Onyx, Makem Pay - Black Hoodie Rap (03:51)
+02. Sticky Fingaz, Bobby Brown - Boy Still Got It (02:40)
+03. Fredro Starr, Drag-On - Face Off (03:30)
+04. Sticky Fingaz, Mad Lion, Begetz - Gansta Buster (04:19)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F7A51AA7D666BEF6A425B05BE930DB090D3E0A5
+magnet:?xt=urn:btih:EB045FDA6194B2BC8ABA5764EDEA6E61838DDE1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,25 +307,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789034   (22451) от 05.04.2025
+###  Публикация: 1444164   (1034674) от 01.02.2021
 
-Найден новый простой способ установки Windows 11 без учётной записи Microsoft
+VA - New Italo Disco Music Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
 
->>3
->>След.
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22451.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В очередной сборке Windows 11 для участников программы Windows Insider на канале Dev Channel компания Microsoft закрыла доступ к скрипту bypassnro, который ранее позволял завершить установку системы без входа в учётную запись Microsoft. Энтузиасты уже предложили способ восстановления доступа к скрипту через редактор реестра. Теперь найден ещё один обходной путь, (   Читать дальше...   )
+01. Estimado - This My Lady Like the Night (Extended Version) (8:56)
+02. Birizdo I Am - Dont Go (Extended Version) (6:11)
+03. Diamond Rain - Mystic Night (Extended Version) (6:11)
+04. Nikita Fomin - I Dont Wanna Lose You (Extended Version) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:54
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B715BF61A3616A72D6086E3172CC50A7267516FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,25 +336,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778609   (22452) от 05.04.2025
+###  Публикация: 1444381   (1034673) от 01.02.2021
 
-The Sims 2 (2025) [Ru/Multi] (1.0.0.153/dlc) Repack dixen18 [Legacy Collection]
+Syrinx Call - Mirrorneuron (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
 
->>Win Игры
->>Strategy (Manage/Busin)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22452.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Переиздание оригинальной The Sims 2, где судьбы персонажей переплетаются через поколения. В игре можно выбирать жизненные цели для симов: богатство, слава, семья, любовь или знания. Завести питомца, отправиться в путешествие, пережить смену сезонов или даже вступить в брак с пришельцем — каждый день приносит новые возможности.Тип издания: RepackРазработчик: MAXISЖанр: Management, Strategy, 3DЯзык озвучки: СимплишЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+01. Bit By Bit 05:29
+02. Deceptive Illusion 04:59
+03. The Arctic Will Die 04:19
+04. Breakdown 06:13(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:02:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7977ED7CE62852DDCC0D26787C2BFC51FDD377E
+magnet:?xt=urn:btih:98AEEF3A587FB10A105FC1D48C33ADF4019E04C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,25 +365,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789600   (22453) от 05.04.2025
+###  Публикация: 1444158   (1034672) от 01.02.2021
 
-The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl [Remastered]
+VA - New Italo Disco Music Vol. 6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
 
->>Win Игры
->>Adventure/Quest
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22453.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Спустя пять лет после страшного путешествия по охваченной эпидемией Америке Элли и Джоэл осели в Джексоне, штат Вайоминг. Обосновавшись в процветающей общине, они обрели желанную стабильность, несмотря на постоянную угрозу нападения зараженных и теряющих смысл жизни выживших. Но однажды жестокие события разрушают эту идиллию, и Элли снова отправляется в изнуряющее (   Читать дальше...   )Тип издания: RepackРазработчик: Naughty Dog LLC, Nixxes Software, Iron Galaxy StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+01. Estimado - I Bridge New Life (7:07)
+02. Kristian Conde - Don't Give It Up (Maxi Version) (4:45)
+03. The Crosslines - Starlight (Maxi Version) (5:17)
+04. Nation In Blue - I Want U (Extended Version) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E06924835DCACE820B1E57582CE3BD85F6B01CCF
+magnet:?xt=urn:btih:F7E3C43FC3D96F4818B62DE17A87167F2808CA6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,26 +394,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788446   (22454) от 05.04.2025
+###  Публикация: 1443818   (1034671) от 01.02.2021
 
-Activation Program 1.09 Portable by Ratiborus [En]
+The Cancel - Diversity (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:16)
+02. Pending (01:42)
+03. 5 Year (03:00)
+04. Other Content (02:14)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F711C1DC28A76BE3724BAF79EBCB643AE9D9CA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444416   (1034670) от 01.02.2021
+
+Privacy Eraser Free 5.8.0 Build 3816 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22454.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа предназначена для off-line "активации" лицензий продуктов M$, в том числе и лицензий ESU/OCUR на Windows 7. Программа НЕ "активирует" Office 2010-2019 на Windows 7.
-В программе использован код от группы MASSGRAVE "TSforge (c) MASSGRAVE 2025".Язык интерфейса: Английский
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7723CBC3AAA3F5233B5A443878ABF8DBA861E23C
+magnet:?xt=urn:btih:E9876DF1430B6BA05BFD7C668A4AA58C5F3DF7CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,28 +450,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 812422   (22455) от 05.04.2025
+###  Публикация: 1444480   (1034669) от 01.02.2021
 
-Dudley Taft - 10 альбомов (2011 - 2025) [FLAC|Lossless|image + .cue, tracks + .cue]<Blues Rock>
+Тайна Марики Рекк (2012) DVB
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Документалистика и Телепередачи
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22455.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dudley Taft (родился 4 июля 1966, Вашингтон, округ Колумбия), американский блюз-рок музыкант.Список альбомов:
-2011 - Left For Dead
-2013 - Deep Deep Blue
-2014 - Screaming In The WindЖанр: Blues Rock |Продолжительность: 08:42:17 |
+Почему одни считали Марику Рёкк русской шпионкой, а другие – любовницей Канариса, работавшей на немецкую разведку? Почему в судьбе Марики Рёкк – единственной немецкой актрисы – Советский Союз принял такое большое участие? Об этом в документальном расследовании "Совершенно секретно" рассказывают дочь Марики Рёкк – Габриэла Якоби, её партнер по танцам Клаус (   Читать дальше...   )Производство: РоссияЖанр: Документальный, биография, история, расследованиеРежиссер: Алексей АленинЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:33:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:565581ACCC385B0124BD6B77030D7D2D6369BF36
+magnet:?xt=urn:btih:910A2BDCA73B145ADD66DF73B8B2E911B7C415C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,25 +476,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021800   (22456) от 05.04.2025
+###  Публикация: 1444405   (1034668) от 01.02.2021
 
-Русь Изначальная (1985) DVD5 [hand made remastered]
+Dave Dee, Dozy, Beaky, Mick and Tich - The Best of (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
 
->>Остальное
->>hand made * video
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22456.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие картины происходит в Древней Руси — в те времена, когда славянам, объединившимся в войско под предводительством Ратибора, сына Всеслава, удалось одержать первые победы над племенами кочевников.Производство: СССРЖанр: Драма, ИсторическийРежиссер: Геннадий ВасильевАктеры: Людмила Чурсина, Борис Невзоров, Иннокентий Смоктуновский, Маргарита Терехова, Елена Кондулайнен, Арнис Лицитис, Игорь Дмитриев, Владимир Талашко, Анвар Кенжаев, Владимир АнтоникПродолжительность: 02:18:37
+01. Hold Tight (2:51)
+02. The Wreck of the Antoinette (3:24)
+03. Save Me (3:19)
+04. Here's a Heart (3:29)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:37:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A107B8BF2BD52BFBC58C4CFE4F9E64231A637ED
+magnet:?xt=urn:btih:26CB2A1E68F46A331CBAC3CB8073D30AD106A0C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,26 +505,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789371   (22457) от 04.04.2025
+###  Публикация: 1444283   (1034667) от 01.02.2021
 
-Шрифты - Alexander Shimanov - ST-Surzhik [OTF]
+Город льва поднимается / Lion City Rising (2020) WEBRip [H.264/2160p]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22457.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт с кириллицей.
-Разработчик: Alexander ShimanovФормат: OTF
+Сингапур пережил невероятные изменения за последние 8 лет, и я попытался запечатлеть как можно больше из них. В этом фильме не использовались постоянные камеры, требовалось регулярное посещение объекта в течение 988 съёмочных дней и более 3300 снятых кадров.Производство: СингапурЖанр: Документальный, видовойРежиссер: Кейт ЛутитПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C69DC1797FD8FCC436C0AB4FF3E94D43C40ED82D
+magnet:?xt=urn:btih:262C9A652384858FD6A2BC15242392056C9DD66E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,25 +531,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789438   (22458) от 04.04.2025
+###  Публикация: 1444306   (1034666) от 01.02.2021
 
-Juusenki L-Gaim | Heavy Metal L-Gaim | Тяжёлая артиллерия Л-Гайм | Тяжёлый метал [1984, TV, 54 из 54] BDRip 1080p HEVC 10-bit raw+rus
+VA - Silent Shore: Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22458.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие происходит в далёком будущем на пустынной планете Коам. Даба Майроуд и его друг Мираум Као встречают группу воров во главе с Миямой Лилин, которые хотят продать за много денег робота Ла-Гайма. После первой неудачной атаки один из воров — девушка по имени Фаннерия Аму — влюбляется в Дабу, а один из умирающих воров просит Дабу доставить карточку некоему лицу (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Томино ЁсиюкиПеревод: VZbittenЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 54 эп. по 25 мин.
+01. Chris Lyf - Alive (Extended Mix)
+02. Christopher Corrigan - Sleepless Nights (James Kitcher & Adam Taylor Remix)
+03. Andy Kern (DE) - Accelerate (Original Mix)
+04. Drival - Momentum (Triode Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25462E739AD02ECD2142D6C627499B6E96CE535B
+magnet:?xt=urn:btih:94861E05647C8CE52DB7887C28AEB6D85E5F038B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,187 +560,169 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789487   (22459) от 04.04.2025
+###  Публикация: 1444313   (1034665) от 01.02.2021
 
-К.Ю. Поляков, Е.А. Еремин | Информатика. Учебник для 9 класса (2022) [PDF]
+Mountain Duck 4.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mountain Duck позволяет монтировать любой удаленный FTP, SFTP, WebDAV, Azure Cloud Storage, S3, Google Cloud Storage, Google Drive и OpenStack Swift как локальный диск в Finder.
+В приложении реализована поддержка всех основных протоколов для подключения к любому серверу.
+Открывайте файлы на удаленном сервере любым приложением и работайте как на локальном томе, а (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2021Разработчик: David KocherПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF5010CDC3F70774BE43EBE0DED73443C721E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443821   (1034664) от 01.02.2021
+
+The Cancel - Reply from Space (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro from space (01:46)
+02. Ghost (01:42)
+03. NY in night (02:49)
+04. Lullaby from the moon (03:11)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A78E16D9D4F6560794FFF40755174A90C7B68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444438   (1034663) от 01.02.2021
+
+Светлана Колчина | Русский язык. Сочинение на ЕГЭ по новым критериям. Карманный справочник (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит пошаговые рекомендации по написанию сочинения на ЕГЭ по русскому языку. Приводится анализ критериев оценивания с пояснениями и комментариями, подробный алгоритм написания, а также образцовые сочинения на основе различных по проблематике текстов. В пособии учтены все изменения в системе оценивания сочинения по русскому языку в 2019 году.
+Издание адресовано (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7473C8284D811B0B22843D0BEE88108F1AC3939C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444167   (1034662) от 01.02.2021
+
+VA - New Italo Disco Music Vol. 9 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crosslines - To The Space (Extended Version) (5:15)
+02. Diamond Rain - Follow The Rainbow (Extended Version) (5:14)
+03. Birizdo I Am - Just Tonight (Maxi Version) (5:45)
+04. Nikita Fomin - When You Said Goodbye (Extended Version) (5:49)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510820729A69B51402EE176A6E5D170E64221B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444163   (1034661) от 01.02.2021
+
+VA - New Italo Disco Music Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - A Voice in the Dark (Bringing The Light Mix) (6:49)
+02. TDHDriver - Leave Russia (4:17)
+03. Digitalo - Say Yes (Extended Version) (6:52)
+04. Birizdo I Am - Unbelievable (Extended Version) (7:11)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074BE9222363B9903AA1BFD7A28A99500E067C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444425   (1034660) от 01.02.2021
+
+О. Артемова | 200 интересных фактов (2007) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22459.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник предназначен для изучения предмета «Информатика» в 9 классе (базовое и углублённое изучение). Содержание учебника является продолжением курса 8 класса. В нём рассматриваются вопросы, связанные с компьютерными сетями и моделированием, основы математической логики, программирование, работа с табличными процессорами и базами данных, социальная информатика.
- (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+Что любят есть зайчата? Умеет ли ворона петь? Что такое баллиста? Как изобрели очки? Об этом и многом другом узнает маленький читатель из замечательной иллюстрированной книги, в которой собраны самые интересные факты об окружающем мире.
+
+Для младшего школьного возраста.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB71E92F0A058AD56D5A629E21B639AEFFF1A84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789508   (22460) от 04.04.2025
-
-Всё ради хита / Banger (2025) WEBRip [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейские нанимают бывшего диджея, чтобы тот поймал необычную преступную группировку, связанную с его соперником. В процессе работы герой не только приближается к разгадке, но и получает шанс создать новый хит. Сюжет балансирует между криминальным расследованием и музыкальной карьерой. В итоге герой должен сделать выбор между местью и творчеством.Производство: ФранцияЖанр: комедияРежиссер: So-MeАктеры: Венсан Кассель, Алексис Маненти, Лора Фельпен, Николя Мори, Маню Пайе, Нина Зем, Филипп Катрин, Ивик Летексье, Панайотис Паскот, Дебора Люкумуэна и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:38Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789560   (22461) от 04.04.2025
-
-Пресеты - PixelExpand - Arch, Portrait and Noir Presets [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрытие души монохрома: превращение плоских изображений в эмоциональные шедевры Откройте для себя суть черно-белой фотографии с помощью наших пресетов. Попрощайтесь с плоскими, бесчувственными изображениями. Всего за несколько щелчков мыши придайте глубину, текстуру и драматизм своим снимкам, превратив их в шедевры, неподвластные времени. Погрузитесь в магию монохрома (   Читать дальше...   )Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59546FCFB167AC1348EA4FD1006E93CD4D6EA68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789445   (22462) от 04.04.2025
-
-Juusenki L-Gaim III: Fullmetal Soldier | Heavy Metal L-Gaim III: Fullmetal Soldier | Тяжёлая артиллерия Л-Гайм: Цельнометаллический солдат [1987, OVA, 1 из 1] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Побочная история, происходящая примерно после 18 эпизода сериала. Лекси попадает в плен к силам Посейдала и Даба вместе с повстанцами пытается её спасти.Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Сэкита ОсамуПеревод: VZbittenЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 1 эп. на 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EB25E2D98D64A690E009715B1C0FC047D60FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789399   (22463) от 04.04.2025
-
-Рик Хансон, Ричард Мендиус | Мозг Будды нейропсихология счастья, любви и мудрости (2025) [MP3, Ольга Куликова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана на стыке психологии, неврологии и созерцательной практики, предлагает самые эффективные инструменты использования потенциала мозга для улучшения жизни.
-• Как понять механизмы работы собственного мозга?
-• Как достичь счастья, любви и мудрости?
-• Как избавиться от депрессии и агрессивности?Жанр: ПсихологияИздательство: ЛитРес: чтецПродолжительность: 08:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCAA5D57F025EA926104F52701959F49A0F9597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789422   (22464) от 04.04.2025
-
-Пресеты - The Editorial Edit - Master Collection [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите свой монтаж на новый уровень с помощью The Editorial Edit's Master Collection Pack, тщательно подобранного набора, который объединяет три наших лучших пакета пресетов. Эта коллекция предназначена для тех, кто ценит искусство совершенствования своих изображений с помощью редакционной эстетики.Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299BE72D1B67DDE10FCFFDEFA796FD030DD13F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789364   (22465) от 04.04.2025
-
-Шрифты - Alexander Shimanov - ST-KOMSOMOL [TTF, OTF, WOFF, WOFF2, EOT, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Разработчик: Alexander Shimanov
-Материал раздаётся с официальной документацией.Формат: TTF, OTF, WOFF, WOFF2, EOT, SVG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC283D17AC494D6F7761B701913566DFE8063A45
+magnet:?xt=urn:btih:8464D7A596F108A49EFA8CB789B17F1AC9E9050D
 ```
 
 https://mybot314.ru/tekegram_catalog/

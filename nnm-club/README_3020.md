@@ -1,22 +1,22 @@
-###  Публикация: 454494   (93752) от 18.02.2012
+###  Публикация: 624139   (952169) от 28.02.2013
 
-Журнал | Selber Machen [Август 2007] [PDF]
+Плохие дети отправляются в ад / Bad Kids Go to Hell (2012) WEB-DLRip
 
->>
->>
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93752.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Selber Machen - немецкий журнал для домашних мастеров: советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, обустройство приусадебного участка, навыки обращения с рабочим инструментом, мелкий ремонт, идеи по оформлению интерьераАвгуст 2007Жанр: хоббиФормат: PDF
+Несколько студентов, застигнутые врасплох налетевшим штормом, оказываются взаперти в элитной Академии. Теперь им предстоит пережить страшные события, т. к. помимо них в здании находится не только убийца, но и призраки людей, которых он убил…Производство: СШАЖанр: Триллер, комедия, детективРежиссер: Мэттью СпрэдлинАктеры: Джадд Нельсон, Бен Браудер, Аманда Алч, Марк Донато, Оджи Дьюк, Роджер Эдвардс, Али Фолкнер, Камерон Дин Стюарт, Джеффри Шмидт, Шанель Райан...Перевод: Любительское (многоголосое)Продолжительность: 01:32:53
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D89CC24FCA3E367545B50C78F4DE3FF4A66EFAE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,155 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 453730   (93754) от 18.02.2012
+###  Публикация: 1361918   (952168) от 21.02.2020
 
-VA - Ballads in Blue (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Jazz ballads>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Melissa Walker - A Time for Love (4:48)
-02.Dusko Goykovich - No Love Without Tears (6:48)
-03.Gust William Tsilis - Evening in Paris (6:40)
-04.Kevin Mahogany - Here's That Rainy Day (5:35)
-05.Bennie Wallace - It's the Talk of the Town (6:21)
-06.Ferenc Snetberger - Szivarvany (4:27)
-07.Jenny Evans - You Go to My Head (5:23)
-08.Karl Ratzer - Farmer's Charm (6:09)
-09.Abdullah Ibrahim - Eleventh Hour (4:22)
-10.Chet Baker - I Fall in Love Too Easily (6:46)1999Жанр: Jazz, Vocal Jazz, Jazz balladsПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454395   (93759) от 18.02.2012
-
-VA - New Russian Electro - Vol.16 (2012) (2012) [MP3|320 kbps]<Electro House,House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93759.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dan Balan - До Утра (DJ Nejtrino & DJ Stranger Remix) (4:03)
-2. Delay Project & Legeza - Чувства (Original Mix) (5:03)
-3. DJ Boyko & Sound Shocking - На Вечеринке (Original Mix) (7:24)
-4. DJ Gold Sky feat. A&K - Rock Star 2012 (Russian Version) (2:58)
-5. DJ Niki & DJ Squeeze feat. Soda - Поезд На Ленинград (Extended Mix) (6:14)
-6. DJ Niki feat. Soda - Красивые Слова (Club Mix) (5:15)
-7. DJ Sandro Escobar & Нюша - Выше (DJ Andy Wait Remix) (5:20)
-8. DJ Smash feat. Винтаж - Москва (Original Mix) (5:46)
-9. Geegun & Жанна Фриске - Ты Рядом (DJ Stylezz Remix) (4:37)
-10. Mike Candys & Eli Wais & Lana B - Если Ты Захочешь (Booty Mix 2012) (5:33)(   Читать дальше...   )2012Жанр: Electro House,HouseПродолжительность: 02:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D125AC18F987E9E41E93F5828C9A1A4FB3893D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454599   (93762) от 18.02.2012
-
-Журнал | Selbst ist der Mann [май 2011] [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Selbst ist der Mann — немецкий журнал для домашних мастеров: советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, обустройство приусадебного участка, навыки обращения с рабочим инструментом.май 2011Жанр: хоббиФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453718   (93763) от 18.02.2012
-
-Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Rain (7:38)
-02. Blue Moon (9:55)
-03. Gypsy (5:14)
-04. Invitation (13:13)
-05. I Remember Italy (13:08)
-06. Laura (6:30)
-07. Morning Mist (8:20)
-08. This is the Life (7:09)
-09. Woody'n You (4:57)2012Жанр: Post-Bop, Piano JazzПродолжительность: 01:16:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453924   (93767) от 18.02.2012
-
-Яна Алексеева | Охотящиеся в ночи [2011] [FB2]
+GiliSoft Audio Recorder Pro 10.0.0 RePack (& Portable) by TryRooM[Ru/En]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93767.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Господа, рассказать вам сказку? Не добрую и светлую, а настоящую. Про тех, кто скрывается в тени, крадется в ночи, танцует при свете луны? Про берегущих секреты и знания, про стерегущих иные законы? Про Роды и Кланы, про тех, кто нарушает традиции. И про тех, кто следит за порядком в сокрытом от обычных людей мире. Начнем, пожалуй. Однажды поздним вечером по городу кралась волчица…2011Формат: FB2
+GiliSoft Audio Recorder Pro  - это программа для записи звуков воспроизводимых Вашим компьютером. Запись звука, который проходит через звуковую карту вовсе не является сложной задачей, но GiliSoft Audio Recorder Pro обещает сделать все намного проще, даже для тех, кто не обладает глубокими познаниями компьютера. Программа позволяет предварительно определить качество (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:935D94FE849FE5DA17BB316D690B0E774FED86E0
+magnet:?xt=urn:btih:6411EE4303CDF3E1689A386CE7E36FB187D13262
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,34 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454643   (93780) от 19.02.2012
+###  Публикация: 1361780   (952165) от 21.02.2020
 
-Soen - Cognitive (2012) [MP3|320 kbps]<Progressive Metal>
+Спеши любить / A Walk to Remember (2002) BDRemux [H.264/1080p]
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93780.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fraktal 01:11
-02. Fraccions - 04:56
-03. Delenda - 04:31
-04. Last Light - 04:31
-05. Oscillation - 06:49
-06. Canvas - 06:34
-07. Ideate - 04:02
-08. Purpose - 04:12
-09. Slithering - 05:43
-10. Savia - 05:532012Жанр: Progressive MetalПродолжительность: 00:48:29
+Лэндон Картер — кумир своей школы: он независим, красив и жесток к изгоям. И конечно, он не замечает невзрачную Джейми, думающую только об учебе. После очередной дурацкой выходки Картера заставляют заниматься с отстающими и играть в школьном спектакле.
+Тут уж ему не обойтись без помощи скромной отличницы. Джейми соглашается помочь Лэндону, но только если он пообещает, (   Читать дальше...   )Производство: США / Warner Bros., Pandora CinemaЖанр: Драма, МелодрамаРежиссер: Адам ШенкманАктеры: Шейн Уэст, Мэнди Мур, Питер Койот, Дэрил Ханна, Лорен Джерман, Клейн Кроуфорд, Аль Томпсон, Пас де ла Уэрта, Джонатан Паркс Джордан, Мэтт ЛутсПеревод: Дублированный, Многоголосый, ОдноголосыйСубтитры: Русские, АнглийскиеПродолжительность: 01:42:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69C0F76A18A675C440FC8D9B6616652C90282F62
+magnet:?xt=urn:btih:14997F74D4F9BA51658A1569E2DC5362221CCA48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,34 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454682   (93782) от 19.02.2012
+###  Публикация: 1361981   (952162) от 21.02.2020
 
-VA - Minimal Art v.6 (14.02.2012) [MP3|320 kbps]<Minimal>
+Мой Self-Harm (2018) WEBRip
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93782.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Adam Mansell - Minimal Business (Original Mix) (5:00)
- 02. Antoine Brezza - Star Face (6:33)
- 03. Aquinoise, Josh Bartoli - Wild (Original Mix) (7:52)
- 04. Dani Sbert - Crush Me (Original Mix) (6:24)
- 05. Daniel Zuur - Three Days (Original Mix) (6:55)
- 06. Du Sant - Rebote De Azules (Original Mix) (6:49)
- 07. Dub Dread - Warped (Ray Keith Remix) (6:06)
- 08. Giuseppe Visciano - Cocaine (Alessandro Grops Remix) (6:05)
- 09. Leano - Wtf (Original Mix) (7:46)
- 10. Lorenzo Damario - The Boat (Original Mix) (6:30)(   Читать дальше...   )14.02.2012Жанр: MinimalПродолжительность: 02:16:53
+Селфхарм – это набирающий популярность термин, означающий самоповреждение без суицидальных намерений, симптом многих психических расстройств личности. Этот фильм – попытка снять клеймо табуированности и общественного осуждения такого поведения.Производство: РоссияЖанр: ДокументальныйРежиссер: Яков РаскаловСубтитры: ОтсутствуютПродолжительность: 01:31:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A31A56845F226F0F60CFBF35FF477BAF030B57A4
+magnet:?xt=urn:btih:FA5D16562E70F8AE0D0813625F8DC8B782572CC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,347 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454678   (93784) от 19.02.2012
+###  Публикация: 1361904   (952160) от 21.02.2020
 
-VA - Minimal Art v.5 (13.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acida Corporation - Kick Harder (Dark Acid Remix) (7:07)
- 02. Artem Abdrakhmanov - Beer & Chips (Original Mix) (6:07)
- 03. Biohazart - Disco Tron (Original Mix) (7:15)
- 04. Deep Noiser - Pan (Original Mix) (6:30)
- 05. Egoism - Cocain (Original Mix) (6:33)
- 06. Egoism - My Egoism (Original Mix) (8:44)
- 07. G0rR - Den Vollmond (Original Mix) (6:41)
- 08. Hells Kitchen - Bedtime Stories (Original Mix) (4:19)
- 09. Insect Elektrika - Ass Jumping On Ass (Original Mix) (6:58)
- 10. Joe Maker - Trip From The Crypt (Gaga & Mateo Remix) (6:28)(   Читать дальше...   )13.02.2012Жанр: MinimalПродолжительность: 02:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E524D5FA25AFB867CCCF6044C458466270459980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454100   (93793) от 19.02.2012
-
-VA - The Dance Cube XXXI (2011) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ian Solano - Eleven (Michael Tsukerman Remix)
-02. Grube & Hovsepian - Pressure (P.A.F.F. Resmash)
-03. Jochen Miller - Bamm
-04. Tigran Organezov - Raptor
-05. Marcel Woods - Black Angus
-06. Ronski Speed feat. Renee Stahl - Out Of Control (Dennis Sheperd Remix)
-07. Erick Strong - Payback (Matthew Nagle Remix)
-08. Michael Jay Parker & Jan Miller - Shinowata (Original Mix)
-09. Rapha - Impressions (MarkEtesonRemix)
-10. Laura Jansen - Use Somebody (Armin van Buuren Rework)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 01:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2007DB91F91EB847386FA45C3E5ED2B119CA51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452772   (93794) от 19.02.2012
-
-IntroWert - Progressive Reason Episode 070 [06.02.2012] (2012) [MP3|192 kbps]<Progressive Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Javah feat. Mimi Boheme - Waiting (Original Anthem Mix)
- 02. Jan Martin - Exemption (Abstract Vision & Elite Electronic Remix)
- 03. Hardwell & Nicky Romero - Beta (Original Mix)
- 04. Aly & Fila - 200 (FSOE 200 Anthem) (Ummet Ozcan Mix)
- 05. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix)
- 06. Odonbat - October Sky (Original Mix)
- 07. Bobina – Diamond Hell (Original Mix)
- 08. Orjan Nilsen - Lucky Strike (Original Mix)
- 09. Daniel Kandi - Sagittarius (Original Mix)
- 10. Nuera - Imagine (Original Mix)(   Читать дальше...   )2012Жанр: Progressive Trance, Uplifting TranceПродолжительность: 02:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957FAF2E3EEAE493C9CB028AB074D56079EB861C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454408   (93797) от 19.02.2012
-
-VA - Goa 2012 Vol. 1 (2CD) (2012) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93797.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-Продолжительность: 01:08:13
-
-01. Invisible Reality - Special Feeling 07:57
- 02. Suntree - Fear And Love 09:01
- 03. Static Movement vs. Impact - Fairy Tales 07:14
- 04. Klopfgeister - Laser Achim Strikes Back 06:31
- 05. Infinity - Pumping Rhythm 08:16
- 06. Mindwave - Particles 07:28
- 07. Zyce - Source Code 07:24(   Читать дальше...   )2012Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292015F04280EA22C6B133099E02950FD12BBEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454376   (93810) от 19.02.2012
-
-VA - Stay Alive (Compiled by Wega) (2012) [MP3|192-320 kbps]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wega - Las Wegas 06:38
- 02. Wrecked Machines & Joti Sidhu & DJ Edoardo - Plastik Devils 07:08
- 03. Waio & Deeplock - We Are Coming 06:43
- 04. Poli & Menog - Night Breed 09:16
- 05. Scrovinsky - Alliance 06:16
- 06. GMS & Life Style - Scary Ho 07:53
- 07. Wega - Ruback (Cosmonet Rmx) 07:36
- 08. 1MG - Leaked Info 07:40
- 09. Audio-X - 24 Hours 08:47
- 10. Alternate Control - Haarp 06:582012Жанр: Psychedelic / Full OnПродолжительность: 01:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458F62A31FA07C3C2E39E867F4CDC139D09D033E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454378   (93815) от 19.02.2012
-
-VA - Stax Does the Beatles (2008) [APE|Lossless]<Southern Soul, Jazz Soul>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Otis Redding - Day Tripper2008Жанр: Southern Soul, Jazz SoulПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452554   (93817) от 19.02.2012
-
-VA - The Best Of Trance & Progressive 19 (2011) [MP3|320 kbps]<Trance, Progressive Trance, Uplifting Trance, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93817.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hard Rock Sofa & St. Brothers - Blow Up (Thomas Gold Vs. Axwell Remix) (6:15)
-2. Ferry Corsten - Punk (Arty Rock N Rolla Mix) (6:25)
-3. Ferry Corsten - Feel it (Original Extended Mix) (6:16)
-4. Sander van Doorn - Koko (Original Mix) (5:39)
-5. Orjan Nilsen - Between the Rays (3:56)
-6. leon bolier - cape town
-7. abstract vision and elite electronic - rise again
-8. jaco - excuses (original mix)
-9. John O Callaghan - Ride The Wave (feat. Giuseppe Ottaviani)
-10. juventa - dionysia (original mix)(   Читать дальше...   )Жанр: Продолжительность: 19:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5582C334190A3F7DD03187D299B8B201AAF772E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454916   (93826) от 19.02.2012
-
-Журнал | Conde Nast Traveller [Россия] №4 (февраль 2012) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93826.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Condé Nast Traveller» — журнал для путешественников, издаваемый международной корпорацией Condé Nast Publications. Издание принято называть библией для туристов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92BBBF14D4A51647E52490D96C4D2067F6AEEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454308   (93829) от 19.02.2012
-
-Sanathana - Saraswati (2012) [MP3|192-320 kbps]<Psychedelic / PsyAmbient, Electronika>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Land of Nod 7:02
- 02. Raghupati Raghava Rajaram 9:50
- 03. Monsoon Dreams 9:43
- 04. The Tree That Swayed Me 9:47
- 05. Light Seeking Dancer 8:49
- 06. The Purpose of Existence 9:12
- 07. Down The Memory Lane 8:26
- 08. Dark is So Bright 11:152012Жанр: Psychedelic / PsyAmbient, ElectronikaПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D54CD38EDF12F71D8C065AFA68683E403D25D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454455   (93832) от 19.02.2012
-
-VA - Derrick & Tonika, Shyma - Remix EP (2012) [MP3|320 kbps]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Derrick & Tonika - bird 1 (derrick & tonika remix) (05:18)
-02. Shyma - by the wind (derrick & tonika remix) (05:39)2012Жанр: Drum & BassПродолжительность: 00:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451CEEC97E1E446D6402B26E5AB99EE70329FDA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455014   (93842) от 19.02.2012
-
-Н.В.Мельникова | Семейный обед [2012] [DJVU]
+Игнатий Журавлёв | Взламывая психологию (2019) [PDF, EPUB]
 
 >>Разное (категория книг)
->>Кулинария
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93842.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаем читателям рецепты для совместных трапез из недорогих и простых в приготовлении продуктов. Соберитесь всей семьей на обед!2012Формат: DJVU
+Психология – обширная область знаний, с которой, казалось бы, мы хорошо знакомы. Но насколько наши представления соответствуют научным? Эта книга поможет разобраться с тем, что происходит в головах людей. Она познакомит с историей, базовыми концепциями и теориями, объяснит работу и поломки психики, расскажет про практическую психологию и патологии характера, истолкует (   Читать дальше...   )Жанр: О психологии популярноФормат: PDF, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F80CF5E3A22240237880469C61C8260FC80733C5
+magnet:?xt=urn:btih:42D6AC6F64F3942A82C91FF9E0579BBD4845BB38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,34 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454329   (93843) от 19.02.2012
+###  Публикация: 1361867   (952158) от 21.02.2020
 
-VA - Psychology Vol.3 (2012) [MP3|320 kbps]<Psychedelic / Ambient, Psy Chill>
+Реинкарнация Короля Обезьян (Непревзойденный герой) / Monkey King Reincarnation (2018) WEB-DL [H.264/1080p] [VO]
 
->>Electronic
->>Psychedelic, psytrance, fullon
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93843.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lauge & Baba Gnohm - Nordlys 13:39
- 02. Bob Tracker - 17 Grand Way 07:44
- 03. Bahramji and Mashti - All About You 04:56
- 04. MIC - Visite Champetre 16:53
- 05. Nalepa - Snowflakes 06:00
- 06. Metaphorical Cloud - Substance 06:04
- 07. E-Mantra - If there is Nothing 07:29
- 08. Soulalive - Undercurrent 05:10
- 09. Easily Embarrassed - Blurred Clouds Under The Gloomy Moon 08:02
- 10. Side Liner - A Hand To Hold 09:02(   Читать дальше...   )2012Жанр: Psychedelic / Ambient, Psy ChillПродолжительность: 01:41:48
+События в фильме происходят за 500 лет до знаменитого Путешествия на Запад. В целях перевоспитания, для того чтобы прочувствовал человеческие страдания, сердце короля обезьян попадает в мир смертных, в тело фехтовальщика Гун Сюньсюня, любимая женщина которого недавно покончила с собой. По слухам, где-то на востоке, есть вино забвения, выпив которое, можно забыть (   Читать дальше...   )Производство: Китай, Beijing Culture Media Co.Жанр: БоевикРежиссер: Лю ХунчжиАктеры: Хэ Ланьдоу, Бернард Сэнь, Рэйн Лау, Се Нин, Тан Сыцзин, Чан Хайбо, Яо Вэйпин, Чжан Юнхуа, Ли Ао, Чэнь Шэнвэй, Чэнь Сяньминь, Юй ХунцзэПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:23:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20EFC983498F7E72FA4968BCC5ECD551FAE0A697
+magnet:?xt=urn:btih:FFC06CFD1862369648A6759618293DF695591B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,69 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454694   (93845) от 19.02.2012
+###  Публикация: 1361912   (952156) от 21.02.2020
 
-VA - Record Super Chart № 228 (18.02.2012) [MP3|~142-320 kbps]<House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - Changes (Original Mix)
-02. LMFAO - Sexy And You Know It
-03. Niels van Gogh vs. Emilio Verdez - Beatrocker (Original Mix)
-04. Dj Kuba & Ne!tan - Deejay Deejay (Peppermint Remix)
-05. Knife Party - Internet Friends (Original Mix)
-06. DJ SMASH FEAT MAURY - Rendez Vous (Sebastien Lintz Extended Mix)
-07. Roisin Murphy feat. The Crookers - Royal T
-08. Sarvi - Amore (Chuckie Remix)
-09. Dj Antoine vs. Empire Of The Sun - Walking On A Dream (Dj Pitchugin Booty Mix)
-10. Rihanna Feat. Calvin Harris - We Found Love (Chuckie Remix)18.02.2012Жанр: House, Trance, DanceПродолжительность: 02:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949BBB3E7E949D069EE0C09BE1893F296608BE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453831   (93848) от 19.02.2012
-
-Voices From The Lake Feat. Donato Dozzy & Neel - Voices from the Lake (Album) (2012) [MP3|320 kbps]<Techno>
+IObit Uninstaller Pro 9.3.0.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93848.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Iyo 9:53
-02. Vega 4:13
-03. Manuvex 4:56
-04. Circe 4:30
-05. S.T. (VFTL Rework) 8:17
-06. Meikyu 9:09
-07. In Giova 7:25
-08. Twins In Virgo 5:14
-09. Twins In Virgo (Reprise) 4:04
-10. Mika 5:51(   Читать дальше...   )2012Жанр: Techno, Ambient, Deep TechПродолжительность: 01:11:34
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AF95E2DBC7B80389EC059CCD0F90EDBD9655091
+magnet:?xt=urn:btih:CECE708DD3A5D74D70AF84402E17776A9B0B36A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,34 +181,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455074   (93853) от 19.02.2012
+###  Публикация: 1361764   (952155) от 21.02.2020
 
-Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
+Аркадий и Борис Стругацкие | Беспокойство (2020) [MP3]
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93853.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Real Men Don`t Dance (03:23)
-02. The Teaser (03:42)
-03. Big City Life (04:40)
-04. Back Porch (03:44)
-05. Highway 78 (05:11)
-06. Apple Picker (04:45)
-07. Dad`s Story (02:34)
-08. 8. 47 (04:41)
-09. Liquor Store (02:40)
-10. She Used To Call Me Sugar (04:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
+Планета Пандора покрыта густым, загадочным, непонятным лесом. На краю обрыва сидит прославленный звездолетчик Леонид Горбовский, который понимает, что человечество, достигнув Полдня, зашло в тупик. Люди не готовы ко встрече с чем-то по-настоящему Чужим. А тем временем Атос-Сидоров, попавший в лес из-за аварии, пытается выбраться «к своим». Но прежде ему нужно понять, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 03:38:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F1121A71E490833139AEBE184E8E13CEB3741D4
+magnet:?xt=urn:btih:E19EBCD6C065652D901E841FABFEAF0D03B76711
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -738,34 +207,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454742   (93859) от 19.02.2012
+###  Публикация: 1361917   (952154) от 21.02.2020
 
-Semargl - Satanic Pop Metal (2012) [MP3|256 kbps]<Melodic Industrial Metal>
+Анатолий Верчинский | 100 самых нужных и легко запоминаемых английских слов – за 100 минут! (2018) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93859.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Hunger (03:24)
-02. Sweet Suicide (03:24)
-03. Drag Me to Hell (03:31)
-04. God Is Not Love (03:29)
-05. Tak, Kurwa (03:53)
-06. Suck My Dick (02:47)
-07. Labyrinth (03:22)
-08. Join in Fire (02:43)
-09. I Hate You (03:26)
-10. Opium (04:01)(   Читать дальше...   )2012Жанр: Melodic Industrial MetalПродолжительность: 00:44:03
+Как будет по-английски «орган»? Organ. Причём при любом ударении в слове орган! Или возьмём слово хот-дог. Если узнать, что в прямом переводе оно может значить «горячая собака», то словарный запас пополнится сразу двумя английскими словами – hot и dog. С помощью этого самоучителя вы легко и просто выучите сотню английских слов из пятисот самых употребляемых. Не тратьте (   Читать дальше...   )Жанр: Иностранные языкиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D2FB02F09F02D864A302E04FD7FB4498750E6B7
+magnet:?xt=urn:btih:88EAED78740CC4E9C18E6B91BE7F11EEFD6DD301
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -773,26 +233,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454987   (93872) от 19.02.2012
+###  Публикация: 1361847   (952153) от 21.02.2020
 
-Игорь Гаврилов | Стальной арбитр [2012] [FB2,epub,rtf]
+Alien Skin Exposure X5 Bundle 5.2.1.197 [En]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93872.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот мир очень похож на наш. В нем те же материки и те же народы, но у него совсем другая история, творимая не только мечом, но и магией…
-Еще в Средние века европейские страны объединились и образовали Континентальный Имперский Союз, или просто - Империю. Но даже в этой Империи нет мира. Чудовищная и непостижимая эпидемия мгновенно превращает заболевшего человека в зловещего монстра, именуемого эаром. Монстров расплодилось так много, что люди вынуждены начать против них войну. Один из виднейших сановников Империи, герцог Александр Стил, он же Стальной Арбитр, проникает в главную тайну эаров - их создают рнайхи, пришельцы, уже не первый раз пытающиеся захватить Землю. В схватке с рнайхами герцог погибает, но битва еще не проиграна. Совершенно неожиданно для себя Стальным Арбитром становится Юрий Кириллов - россиянин, живущий в нашем времени и в нашем мире…2012Формат: FB2,epub,rtf
+Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: macOS SoftwareРелиз состоялся: 20120Разработчик: ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:500F2206BBF3D732E947B4ADBE5305DCF8E6C817
+magnet:?xt=urn:btih:86B548EB95BC06238351D608BBACE478219133FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -800,28 +259,426 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454753   (93873) от 19.02.2012
+###  Публикация: 1361950   (952150) от 21.02.2020
 
-Пяточка - Ах, какая шаурма! [Single] (2012) [MP3|320 kbps]<Electro-Punk, Steb, Rap>
+Последнее, чего он хотел / The Last Thing He Wanted (2020) WEBRip [H.264/720p-LQ] [hand made 16:9] [PR]
 
->>Архив торрентов
->>Архив Музыки
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93873.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Леопардовые трусы (04:18)
-02. Шаурма (03:30)
-03. Завязал (Crank version) (03:12)
-04. Завязал (Punk version) (03:01)2012Жанр: Electro-Punk, Steb, RapПродолжительность: 00:14:03
+Журналистка газеты Washington Post Елена Макмэхон, выполняя последнюю просьбу матери, отказывается освещать президентские выборы 1984 года и начинает ухаживать за пожилым отцом, который в своё время занимался организацией поставок оружия в Иран и финансированием повстанцев в Центральной Америке.Производство: США | Elevated Films (II), Pimienta, The Fyzz Facility, thefyzzЖанр: триллер, драма, криминал, детективРежиссер: Ди РиисАктеры: Бен Аффлек, Энн Хэтэуэй, Уиллем Дефо, Рози Перес, Тоби Джонс, Эди Гатеги, Мэл Родригез, Ashae Reagan, Лаура Ниеми, Лаура Ниеми, Карлос ЛеальПеревод: Дублированный (Пифагор)Субтитры: Русские, английскиеПродолжительность: 01:55:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB3E83ACCEF25489CF75622E8C4F017319D36E51
+magnet:?xt=urn:btih:F39B61C4C6D2A94917A0262E430DDE828A018EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361782   (952148) от 21.02.2020
+
+AIMP 4.60 build 2175 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновился маленький, качественный, абсолютно бесплатный аудио плеер. Проигрывает большое количество современных популярных форматов. Плеер потребляет самый минимум системных ресурсов, система его просто не замечает, но при этом мгновенно работает с плей листами и радует своей скоростью работы, даже если сравнивать его с платными аналогичными продуктами.
+
+   Радует AIMP (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7559F457E7FF1E0156A3B17C02302D4EADA5829E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361841   (952146) от 21.02.2020
+
+Экшены - GraphicRiver - Chalkboard CS4+ Photoshop Action - 22530831 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chalkboard - действие фотошоп имитирует ваши рисунки или текст нарисованные мелом на школьной доске. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата. Чтобы получить наилучший результат, вам следует использовать изображения размером от 1000 до 5000px. Рекомендуемый размер от 2500 (   Читать дальше...   )Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2624DDA994FF95EAF583B902BAFED8EFD454693E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361781   (952144) от 21.02.2020
+
+Футбол. Лига Чемпионов УЕФА 2019-2020. 1/8 Финала. Обзор 1-х матчей. 2-й День (2020) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей Лиги Чемпионов УЕФА 2019-2020. Плей-офф.
+1/8 Финала. 1-е матчи:
+19 февраля 2020, среда
+Аталанта (Италия) — Валенсия (Испания)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D363F3A896B486F6A7D1A9C4C016854A3FA61F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361772   (952142) от 21.02.2020
+
+Футбол. Лига Чемпионов УЕФА 2019-2020. 1/8 Финала. Обзор 1-х матчей. 1-й День (2020) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей Лиги Чемпионов УЕФА 2019-2020. Плей-офф.
+1/8 Финала. 1-е матчи:
+18 февраля 2020, вторник
+Боруссия Д (Германия) — ПСЖ (Франция)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7A6A448E73BAD5E9F832520F2A3290D1491139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361899   (952139) от 21.02.2020
+
+Garden Planner 3.7.34 RePack (& Portable) by TryRooM [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garden Planner - программа для проектирования сада и ландшафтного дизайна.
+С помощью неё, можно легко создать свой собственный сад мечты.
+Присутствует встроенная библиотека из более чем 1200 растений и объектов, где любой элемент может настраиваться пользователем по своему усмотрению. Доступны простые в использовании инструменты для рисования, которые позволяют создавать (   Читать дальше...   )Язык интерфейса: Английский Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23F7E3E85A0E336423D306331738B7FB8F1F64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361837   (952137) от 21.02.2020
+
+Кровавый спорт / Bloodsport (1988) BDRip [H.264] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952137.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Гонконге должны состояться подпольные соревнования по восточным единоборствам, к которым готовится и один из американских военнослужащих. В свое время, будучи ребенком, он стал приемным сыном японца — учителя каратэ, достиг совершенства путем упорных тренировок и в знак успеха получил священный японский меч.
+Он самовольно оставляет воинскую часть и отправляется (   Читать дальше...   )Производство: США / Cannon InternationalЖанр: Драма, Спорт, Биография, БоевикРежиссер: Ньют АрнольдАктеры: Жан-Клод Ван Дамм, Боло Йен, Форест Уитакер, Дональд Гибб, Леа Эйрс, Норман Бёртон, Рой Чяо, Филип Чань, Пьер Рафини, Кен СиуПеревод: Дублированный, Многоголосый, Двухголосый, Авторский, Студийный одноголосый, Любительский одноголосыйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, английскиеПродолжительность: 01:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A8DDACDBF0F6AC4A9BF0B3D51F78DB04A4AADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361358   (952136) от 21.02.2020
+
+Улыбки летней ночи / Sommarnattens leende / Smiles of a Summer Night (1955) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания из нескольких абсолютно разных людей, судьбы которых переплетены самым причудливым образом, проводят летнюю ночь в одном месте. Бывшие и нынешние любовники, жёны и мужья... Все они испытывают какое-то неудовлетворение и о чём-то или, скорее, о ком-то грезят. Но магия летней ночи как будто опьяняет персонажей картины, заставляя их чувства вырываться наружу, (   Читать дальше...   )Производство: Швеция / Svensk Filmindustri (SF)Жанр: Мелодрама, комедияРежиссер: Ингмар БергманАктеры: Улла Якобссон, Эва Дальбек, Харриет Андерсон, Маргит Карлгвист, Гуннар Бьёрнстранд, Ярль Кулле, Оке Фриделль, Бьёрн Бьельфвенстам, Найма Вифстранд, Юллан КиндальПеревод: Многоголосый профессиональный, одноголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF7588F355CDE86FDF386917F391DB972AE502D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361978   (952133) от 21.02.2020
+
+Злодеи / Villains (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ограбив бензоколонку и удирая на машине, молодая парочка Микки и Джули через пару километров обнаруживает, что посреди пустынной лесной дороги у них закончился бензин. За неимением лучших вариантов они залезают в удачно подвернувшийся дом, где в подвале обнаруживают девочку на цепи. А вскоре возвращаются хозяева, пожилая семейная пара, и наша четвёрка оказывается (   Читать дальше...   )Производство: США / BRON Studios, Star Thrower Entertainment, Creative Wealth Media FinanceЖанр: триллер, драма, комедия, криминалРежиссер: Дэн Берк, Роберт ОльсенАктеры: Билл Скарсгард, Майка Монро, Джеффри Донован, Кира Седжвик, Блейк Баумгартнер, Ной Роббинс, Дэнни Джонсо, Nikolas KontomanolisПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4816B0FEED169DDFAB653C66F75FF11EDA23687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361850   (952130) от 21.02.2020
+
+VeraCrypt 1.24 update 4 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952130.jpg" />
+</div>
+
+
+###  Подробнее
+
+VeraCrypt - бесплатный инструмент для шифрования «на лету», форк закрытого проекта TrueCrypt с открытым исходным кодом. VeraCrypt примечателен заменой используемого в TrueCrypt алгоритма RIPEMD-160 на SHA-512 и SHA-256, увеличением числа итераций хэширования, упрощением процесса сборки для Linux и OS X, устранением проблем, выявленных в процессе аудита исходных текстов (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED9873D834CB48DA454D0586DD9475E8C3F7F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361931   (952127) от 21.02.2020
+
+Злодеи / Villains (2019) BDRip [H.265/720p] [10-bit] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ограбив бензоколонку и удирая на машине, молодая парочка Микки и Джули через пару километров обнаруживает, что посреди пустынной лесной дороги у них закончился бензин. За неимением лучших вариантов они залезают в удачно подвернувшийся дом, где в подвале обнаруживают девочку на цепи. А вскоре возвращаются хозяева, пожилая семейная пара, и наша четвёрка оказывается (   Читать дальше...   )Производство: США / BRON Studios, Star Thrower Entertainment, Creative Wealth Media FinanceЖанр: триллер, драма, комедия, криминалРежиссер: Дэн Берк, Роберт ОльсенАктеры: Билл Скарсгард, Майка Монро, Джеффри Донован, Кира Седжвик, Блейк Баумгартнер, Ной Роббинс, Дэнни Джонсо, Nikolas KontomanolisПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE73E9225F4CBAB12D9E726466B8595DF77A839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361955   (952123) от 21.02.2020
+
+Последнее, чего он хотел / The Last Thing He Wanted (2020) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналистка газеты Washington Post Елена Макмэхон, выполняя последнюю просьбу матери, отказывается освещать президентские выборы 1984 года и начинает ухаживать за пожилым отцом, который в своё время занимался организацией поставок оружия в Иран и финансированием повстанцев в Центральной Америке.Производство: США / Elevated Films (II), Pimienta, The Fyzz Facility, thefyzzЖанр: Триллер, драма, криминал, детективРежиссер: Ди РиисАктеры: Бен Аффлек, Энн Хэтэуэй, Уиллем Дефо, Рози Перес, Тоби Джонс, Эди Гатеги, Мэл Родригез, Ashae Reagan, Лаура Ниеми, Лаура Ниеми, Карлос ЛеальПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced), английские (Forced, SDH), немецкие, испанские, финские, французские, итальянские, польские, португальскиеПродолжительность: 01:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C996CE9F8973FB3C2A4A7175B0A08E9972B953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361878   (952121) от 21.02.2020
+
+Реинкарнация Короля Обезьян (Непревзойденный герой) / Monkey King Reincarnation (2018) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952121.jpg" />
+</div>
+
+
+###  Подробнее
+
+События в фильме происходят за 500 лет до знаменитого Путешествия на Запад. В целях перевоспитания, для того чтобы прочувствовал человеческие страдания, сердце короля обезьян попадает в мир смертных, в тело фехтовальщика Гун Сюньсюня, любимая женщина которого недавно покончила с собой. По слухам, где-то на востоке, есть вино забвения, выпив которое, можно забыть (   Читать дальше...   )Производство: Китай, Beijing Culture Media Co.Жанр: БоевикРежиссер: Лю ХунчжиАктеры: Хэ Ланьдоу, Бернард Сэнь, Рэйн Лау, Се Нин, Тан Сыцзин, Чан Хайбо, Яо Вэйпин, Чжан Юнхуа, Ли Ао, Чэнь Шэнвэй, Чэнь Сяньминь, Юй ХунцзПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1D651268A52F5F962EFB18CC1E44725564E260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361572   (952119) от 21.02.2020
+
+NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе береговую линию, усыпанную валунами, отдельно стоящие горные вершины и золотистые прерии. Стаи волков здесь выслеживают стада диких мустангов, хищники, умеющие лазить по деревьям, держат в страхе всех обитателей леса, а высоко в небе, прямо над грохочущим прибоем, пара аистов пытается вырастить свое потомство прямо на возвышающейся вверх скале.Телекомпания: National GeographicЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый профессиональныйСубтитры: Русские (DVB)Продолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8BBF9BB236371E26BE3EE583CC2D0CDD0203B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360391   (952116) от 21.02.2020
+
+Небоскреб / Skyscraper (2018) UHD BDRip [H.265/2160p-LQ] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый высокий и технологичный небоскрёб в мире становится центром огненной катастрофы. Только бывший агент ФБР, а теперь эксперт по безопасности Уилл Сойер может спасти вертикальный город под небесами. Когда нельзя доверять никому, а жизнь семьи в опасности, каждая секунда на счету.Производство: Гонконг, США / 7 Bucks Productions, Flynn Picture Company, Legendary Pictures, The Third FloorЖанр: боевик, триллер, приключенияРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Нив Кэмпбелл, Чинь Хань, Роланд Мюллер, Ноа Тейлор, Байрон Манн, Пабло Шрайбер, МакКенна Робертс, Ной Коттрелл, Ханна КуинливанПеревод: Дублированный, Двуголосый профессиональный, АвторскийСубтитры: русские (форсированные, полные), английские (полные, для слабослышащих)Продолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818C0E92E24D47310175E53B1B8A55835CF06D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361755   (952112) от 21.02.2020
+
+Topaz Mask AI 1.1.0 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание сложных выделений вручную и их совершенствование почти всегда занимает больше времени, чем ожидалось. Topaz Mask AI позволяет создавать сложные маски в рекордно короткие сроки благодаря нашей интуитивной технологии машинного обучения и технике trimap. Меньше пользовательского ввода для чрезвычайно высококачественной маски всегда было мечтой фотографа, и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BAAC47CE49202192341F8CCBD300CDA13FFDF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

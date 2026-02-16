@@ -1,54 +1,22 @@
-###  Публикация: 1098048   (912661) от 28.01.2017
+###  Публикация: 1699339   (117938) от 12.02.2024
 
-Joe South - Introspect / Don't It Make You Want To Go Home? (2003) [FLAC|Lossless|image + .cue] <Pop, Southern Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912661.jpg" />
-</div>
-
-
-###  Подробнее
-
-ntrospect (1968)
-01. All My Hard Times (2:53)
-02. Rose Garden (2:50)
-03. Mirror Of Your Mind (4:40)(   Читать дальше...   )Жанр: Pop, Southern Rock, SoulПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F5A4209D68DE6B21DB860A594774B047FEAAB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097783   (912662) от 28.01.2017
-
-VA - Vocal Trance Classics 004 (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+AlDente Pro fo Mac 1.25 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912662.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Andrew Rayel - How Do I Know (feat. Jano)  3:44
-02.  Tritonal - What I Say  3:16
-03.  Cosmic Gate - Falling Back  3:39
-04.  tyDi - Half Light (feat. Tania Zygar)  3:40(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:13:28
+Энтузиасты из Австрии создали небольшую, но полезную утилиту под названием AlDente. Она способствует более щадящему и эффективному использованию аккумуляторов любых MacBookТип издания: macOS SoftwareРелиз состоялся: 09.02.2024Разработчик: © 2023 AppHouseKitchenПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D96B213EAC85C642E3A691F928A76F7612355088
+magnet:?xt=urn:btih:FAF42DBDE9F16DA900C1B2FDDA8E1C1166D64111
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,80 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 634057   (912663) от 24.03.2013
+###  Публикация: 1699300   (117937) от 12.02.2024
 
-Louna - Проснись и Пой! (live) (2012) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертная видеосъемка и аудиозапись были осуществлены на большом сольном концерте группы Louna, который состоялся 26 октября 2012 года в московском клубе MILK. Интервью с группой было снято в помещении фотостудии "GetShot" (Москва). В фильме также использованы видеоматериалы выступлений группы на фестивалях "Нашествие-2012" и "Кубана-2011". (   Читать дальше...   )DVD1:
-01. Проснись и пой
-02. Кризис Крайст Суперстар
-03. Время Х(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADCA78A0946C8FA766A15CEEDC1CEA31BF5FAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097800   (912664) от 28.01.2017
-
-С. Заяицкий | Африканский гость (1927) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи с картинками о жизни и путешествии по миру большого слона.Жанр: Детская проза, СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEDDCDBEECB59324773CDAA01BB81DE45F30F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634377   (912665) от 24.03.2013
-
-Журнал | Железный мир №1-2, 3 [январь - март 2013] [PDF]
+Журнал | Здоровье №1-2 (802) (январь-февраль 2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912665.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал Железный мир - ведущее профессиональное издание, посвященное силовым видам спорта. Он отражает события, происходящие в мире бодибилдинга, пауэрлифтинга, армрестлинга, серии «Стронгмен». Много материалов посвящено методикам построения тренировочного процесса и спортивного питания, советам профессиональных спортсменов.Формат: PDF
+Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье – основные (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ИД журнала «Здоровье»Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:566F3D4ACA74E0F845BC8D3E343F8737922DA0DD
+magnet:?xt=urn:btih:398921D93059D82FA68B9E267A9DFFD2AB0EB44B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,57 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097706   (912667) от 28.01.2017
+###  Публикация: 1699223   (117936) от 12.02.2024
 
-VA - Voice Hits Vol 1 (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Denis Sender Ft. Cari - Don't Give Up (Radio Edit) 03:05
-02. Frainbreeze & Lucid Blue - Light My Way (Sunset Pres. Symsonic Remix) 06:36
-03. Moonlight Tunes - Lonely Tonight (Radio Edit) 02:41
-04. Michael Li - Beyond (Original Mix) 07:01(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05F5463C50EE65381446451BA5690B5C34D8397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097849   (912668) от 28.01.2017
-
-Smultron: Easy-to-use, powerful text editor 9.2.2 [Multi/Ru]
+BoltAI 1.13.5 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912668.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smultron - простой и удобный редактор
-Smultron - простой и элегантный текстовый редактор, с которым можно легко создавать и редактировать любые неформатированные тексты.
-
-По словам разработчика, при создании редактора ставилась задача снабдить программу богатой функциональностью и обеспечить удобство ее использования как для опытных пользователей, так и для новичков. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 января 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Русский, Английский и др.
+BoltAI — это универсальный инструмент, который повышает производительность в широком спектре профессий, от написания текстов и разработки до управления и предпринимательства.
+BoltAI — это мощный помощник ИИ, предназначенный для пользователей macOS. Он использует технологию OpenAI GPT для предоставления помощи ИИ в приложениях macOS. В нем есть библиотека подсказок, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2024Разработчик: © 2023 Podzim LLCПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62A8A53FB9126A9F4716834B00A42EFC4A0FC42B
+magnet:?xt=urn:btih:E21F003BB2C55607DBA163903C033BD5FE91029F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,26 +77,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097831   (912669) от 28.01.2017
+###  Публикация: 1699224   (117935) от 12.02.2024
 
-House of Spirits - 2 Albums (1994,1999) [FLAC|Lossless|image + .cue] <Progressive Metal>
+Sandboxie 5.68.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA90CB416C36149EDE19FDA3E0937421E52BD8A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699240   (117934) от 12.02.2024
+
+Joey Alexander - Continuance (2023) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue [6:46]
+02. Why Don't We [7:48]
+03. Hear Me Now [8:28]
+04. I Can't Make You Love Me [5:04](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EE81E9DDE2608629823FF4334B251E4C95F4F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699112   (117933) от 12.02.2024
+
+Galleons - Violent Delights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock, Experimental, Progressive>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Who Swallowed A Falling Star
+02. Kiss The Sky
+03. Vagabond
+04. Kismet(   Читать дальше...   )Жанр: Post-Hardcore, Alt.Rock, Experimental, ProgressiveПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053EA315A62A9B4720FED7A84B44C2578004705B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699208   (117932) от 12.02.2024
+
+Coming soon 3 v.3.20 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите самую свежую информацию о предстоящих выпусках фильмов.Тип издания: macOS SoftwareРелиз состоялся: 11.02.2024Разработчик: © 2021 Ivan KashkarovПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDD8B9F975E5572279B202951E5200E2F547220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699185   (117931) от 12.02.2024
+
+Strider - Dominion Of Steel (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912669.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 1994 году из двух половинок полураспавшихся групп (Olaf Bilic и Martin Hirsch из Jester's March, Uwe Baltrusch и Jorg Michael из Mekong Delta) собралась одна супергруппа. И сотворила шедевр прог-металла, по какому-то недоразумению не замеченный широкой публикой. Стилистически первый альбом не похож ни на одну из групп-предшественниц, но на Queensryche образца пика (   Читать дальше...   )1994-Turn Of The Tide
-1999-PsychosphereЖанр: Progressive MetalПродолжительность: 01:36:54
+01. Strike Of The Strider
+02. Break The Chains
+03. Throne Of Metal
+04. We Are Strider(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D87E0302DCF9DB78E5D324329CA663827142AD1
+magnet:?xt=urn:btih:9B28DF43F451FFBB80797BBE591A00D65F591DCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,28 +216,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097810   (912670) от 28.01.2017
+###  Публикация: 1699241   (117930) от 12.02.2024
 
-VA - Ibiza Opening Party (2016) [MP3|320 Kbps] <Progressive House, Trance>
+John Coltrane - And The Jazz Giants (1956 - 1958) 1986, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
->>Electronic
->>House
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912670.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Eve Belle & Brian Laruso - Solace (M-22 Remix)  4:43
-02.  Myon & Shane 54 with Haley - Round We Go (SNR Remix)  5:15
-03.  WSTLNDR & Fisher - Save Me (Bolier Remix)  4:14
-04.  Nerq ft Floor Cry - Song  4:40(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:58:22
+01. Airegin [4:27]
+02. Mating Call [5:36]
+03. Monk's Mood [7:53]
+04. Trinkle, Tinkle [6:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E70FEC62F4148A18D7F73D25BBDD7FC6F2585B8
+magnet:?xt=urn:btih:7F8C810703B47D1FCD1E6EF847C6C9C5F285094F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,28 +245,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097924   (912671) от 28.01.2017
+###  Публикация: 1699301   (117929) от 12.02.2024
 
-Cholane - Caution! (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+The Funeral Procession - In Still Silence (2024) [MP3|320 Kbps] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bitter Remnants
+02. Siren's Lament
+03. Forsaken
+04. Critical Apparition(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95D871F6B42434618947749FB934BA871930149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699225   (117928) от 12.02.2024
+
+Riot - Fire Down Under (1981) Reissue, 2023, Rhino[FLAC 24/192|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swords and Tequila (3:19)
+02. Fire Down Under (2:32)
+03. Feel the Same (4:53)
+04. Outlaw (4:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB703F9E8D2E7449EA1DF6EFB1BFF0B5714250E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699110   (117927) от 12.02.2024
+
+Ossian - Angyalok es Emberek (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912671.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01|  Shake Your Bones  (03:03) 
-02|  Wicked Man  (04:06) 
-03|  Streets On Fire  (03:44) 
-04|  Get Down  (04:37) (   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:49:19
+01. Továbblépni [00:03:17]
+02. Létezik [00:04:37]
+03. Soha nem késő [00:03:57]
+04. Angyalok és Emberek [00:03:56](   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:47:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F076FD90C3A3C2F683D36E1435EE9A5BAEAE784
+magnet:?xt=urn:btih:657FD003CB0592A59F6BEC9E3EA70BCF72007E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,26 +332,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097756   (912672) от 28.01.2017
+###  Публикация: 1699210   (117926) от 12.02.2024
 
-Permute 2.3.8 [Multi/Ru]
+Cookie 7.2.3 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.02.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 12.0 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874BD405EBC1568851C34CE4E81EF5CC314C069B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699143   (117925) от 12.02.2024
+
+Soren Andersen - City of Angels (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.City of AngelsЖанр: RockПродолжительность: 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C8BB9F084FC19BBDE72AB8D2B94A78942865BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699060   (117924) от 12.02.2024
+
+Iadora's Journey - Iadora's Journey: Journey 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quest for Acceptance (4:46)
+02. Mofu Blues (4:10)
+03. Blues with a Feeling (3:54)
+04. Mr Scunk (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A64CFE39414C9B1D92E61D45FFA4F8690B9DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699347   (117923) от 12.02.2024
+
+djay - DJ App & AI Mixer 5.1.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912672.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 января 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2024Разработчик: © 2024 algoriddim GmbHПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D54D2DD373C0CF83038251FF4163FF740A6386C9
+magnet:?xt=urn:btih:087016B2118E56A2E8B84CFA312DB640A9014729
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,28 +440,170 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097715   (912673) от 28.01.2017
+###  Публикация: 1699231   (117922) от 12.02.2024
 
-Skyliner - Condition Black (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Metal, Power Metal>
+Gregory Aigersson - White Morning & Valentine Coffee (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cupid's Cappuccino (4:15)
+02. Snowy Sunrise (4:09)
+03. Double Rainbow (3:38)
+04. Heartwarming Espresso (4:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDD4A133922C2F25053D68EA477F4CEB5A6AD3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699057   (117921) от 12.02.2024
+
+Archie Baker - Carbrook (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carbrook (1:29)
+02. Courtney Wilson - Anyway (3:29)
+03. Fall (3:52)
+04. Chloë Beth Rogers - Missing You (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235DF34D209819B320EE8C7A49DCD45ADC38532E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699141   (117920) от 12.02.2024
+
+Crush++ - Power Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Pop Punk, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Machine [00:02:09]
+02. Like A Fever Dream [00:03:54]
+03. No Lids, No Love [00:02:56]
+04. Dread It (Until I Can't Remember It) [00:03:56](   Читать дальше...   )Жанр: Post-Hardcore, Pop Punk, ElectronicПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC5F7867D6F63C492E503DC689300894758C7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699314   (117919) от 12.02.2024
+
+Dropover for Mac 4.13.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropover - это утилита, облегчающая управление и перемещение содержимого между папками, приложениями, окнами и рабочими пространствами с помощью Drag and Drop. Подвигайте курсор, чтобы загрузить утилиту и перетащите все, что перетаскиваете в полку. Эта полка плавает поверх всех остальных окон, что позволяет без труда перейти к целевой папке или программе. Это работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2024Разработчик: © 2024 Damir TursunovicПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC80BD665A2C343F1992EBF797ACDAC3555FD9A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699232   (117918) от 12.02.2024
+
+Iolanda Lomuscio - Jazzscape Harmony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulful Riverside Reflections (2:37)
+02. Chill Beats (2:15)
+03. Island Dreamin' Jazz (2:32)
+04. Cosmic Journey (2:51)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BC6F1076EAB4A5A26CFEC283BBA89A3598A119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699115   (117917) от 12.02.2024
+
+Mass - When 2 Worlds Collide (2018) Reissue, 2024, Escape Music Ltd [FLAC|Lossless|WEB-DL|tracks] <heavy metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912673.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tidal
-02. Condition Black
-03. Too Many Voices
-04. No World Order(   Читать дальше...   )Жанр: Heavy Metal, Progressive Metal, Power MetalПродолжительность: 01:00:58
+01. Just Can't Deny [00:03:57]
+02. Only a Dream [00:04:16]
+03. Falling in Love [00:04:57]
+04. Alive [00:04:32](   Читать дальше...   )Жанр: heavy metal, Hard RockПродолжительность: 00:49:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8DBE952515712F4CDD809A1F9F4E65B9204ED94
+magnet:?xt=urn:btih:CB0A93BE39DB04FA838B0834D4A4CBEC9DEEF63D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,28 +611,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097454   (912674) от 28.01.2017
+###  Публикация: 1699056   (117916) от 12.02.2024
 
-Фигурное катание. Чемпионат Европы 2017. Острава (Чехия). Танцы на льду. Короткий танец (26.01.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
+Frankie Boy & The Blues Express - Young Man's Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guitar JR (3:50)
+02. Going Fishing (4:48)
+03. Young Man's Blues (5:30)
+04. Anna (2:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F865685DBC8947806B4D9649373078E172913F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699066   (117915) от 12.02.2024
+
+Smokehouse Porter - My Ears Are Ringing (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me And These Doggone Blues (3:34)
+02. She Dog (6:58)
+03. The Flood of 2016 (4:39)
+04. Xmas in July (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BC884BFC0B502A92538D1222F183D05DD28984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699213   (117914) от 12.02.2024
+
+FSNotes 6.6.8 [Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912674.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 января 2017 года, четверг. 14:00 МСК
-Чемпионат Европы 2017. Острава (Чехия)
-Танцы на льду. Короткий танец
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 03:56:15
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.02.2024Разработчик: © 2024 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Украинский и Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C72FC8AEBC04F91509A2683CE2AFE12A67B4273
+magnet:?xt=urn:btih:1948C50C50438DEC08407B7531530DA337DB36AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,357 +695,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097766   (912675) от 28.01.2017
+###  Публикация: 1699212   (117913) от 12.02.2024
 
-Фигурное катание. Чемпионат Европы 2017. Острава (Чехия). Мужчины. Короткая программа (27.01.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
+EazyDraw 11.5.0 [Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912675.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-27 января 2017 года, пятница. 13:15 МСК
-Чемпионат Европы 2017. Острава (Чехия)
-Мужчины. Короткая программа
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 04:23:32
+EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 10.02.2024Разработчик: © 2022-2023 Dekorra Optics, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76A362A7D3A285D07D8B95DD5E0BCE3895D93EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097450   (912676) от 28.01.2017
-
-Фигурное катание. Чемпионат Европы 2017. Острава (Чехия). Спортивные пары. Короткая программа (25.01.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912676.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 января 2017 года, среда. 20:45 МСК
-Чемпионат Европы 2017. Острава (Чехия).
-Спортивные пары. Короткая программа
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7321576221A00AE1AA910A64D28BE4499A10732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097761   (912677) от 28.01.2017
-
-Фигурное катание. Чемпионат Европы 2017. Острава (Чехия). Спортивные пары. Произвольная программа (26.01.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912677.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 января 2017 года, четверг. 21:00 МСК
-Чемпионат Европы 2017. Острава (Чехия)
-Спортивные пары. Произвольная программа
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F97A6518B93FA1EEF34BAC4EB465C4A2F2891EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097872   (912678) от 28.01.2017
-
-Фигурное катание. Чемпионат Европы 2017. Острава (Чехия). Церемония открытия (25.01.2017) WEB-DLRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912678.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 января 2017 года, среда. 14:00 МСК
-Чемпионат Европы 2017. Острава (Чехия)
-Церемония открытия
-(   Читать дальше...   )Жанр: Спорт, ШоуЯзык озвучки: ИнтершумПродолжительность: 00:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97FB9059775E928E006D453D4F71630C1DB183D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097836   (912679) от 28.01.2017
-
-Биатлон. Чемпионат Европы 2017. Душники-Здруй (Польша). Женщины. Спринт 7,5 км (27.01.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912679.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 января 2017, пятница. 14:30 МСК
-Чемпионат Европы 2017. Душники-Здруй (Польша)
-Женщины. Спринт 7,5 кмТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6B3A3B9724B6A115EAA8F8FC19F343259A6DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 51838   (912680) от 05.03.2010
-
-Книги по программированию C++, NET, DELPHI, JAVA, JAVASCRIPT, PERL, PHP, PASCAL, VB
-
->>След.
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912680.jpg" />
-</div>
-
-
-###  Подробнее
-
-ARCHITECTURE NET
-ASSEMBLER
-BORLAND C++ BUILDER
-C++ ДЛЯ ЧАЙНИКОВ(   Читать дальше...   )Жанр: Программирование
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180472   (912681) от 05.03.2010
-
-Активатор Windows 7 Build 7600 RTM (x86/x64)+ Выпуск 10.0 (03/03/2010) Обновленная версия [Русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая последняя на сегодняшний день версия OEM Активатора для Windows 7.
-Она устанавливает OEM сертификат одной из крупных фирм, после чего активирует вашу копию Windows 7,
-и дает возможность проходить проверку подлинности.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180467   (912686) от 05.03.2010
-
-Невидимая сторона / The Blind Side (2009) DVDRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальная история игрока в американский футбол команды Baltimore Ravens Майкла Оэра. Оставшийся без крова молодой афроамериканец взят под опеку зажиточной семьёй. Жизнь в новом окружении полностью меняет судьбу замкнутого подростка, помогает реализовать свой потенциал. Поступив в университет штата Миссисипи, он играет в студенческой команде и познаёт скрытую сторону (   Читать дальше...   )Производство: США, Alcon EntertainmentЖанр: Драм, СпортРежиссер: Джон Ли ХэнкокАктеры: Сандра Буллок, Тим МакГроу, Куинтон Аарон, Джей Хед, Лили Коллинз, Рэй МакКиннон, Ким Диккенс, Адриан Ленокс, Кэти Бейтс, Катрин ДайерПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 02:08:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 179285   (912700) от 05.03.2010
-
-Полярный Экспресс 3D / The Polar Express 3D (2004) [720p] BDRip
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необыкновенная история о маленьком мальчике, который верит в Санта Клауса, несмотря на то, что все друзья и вся семья в один голос утверждают, что это всего лишь сказка. И однажды искренняя вера мальчика вознаграждается. В канун Рождества у его дома останавливается волшебный поезд "Полярный экспресс" и уносит мальчика в чудесное незабываемое путешествие (   Читать дальше...   )Жанр: Семейный, Анимация, ФэнтезиРежиссер: Роберт ЗемекисАктеры: Том Хэнкс, Эдди Дизен, Питер Сколари, Брендан Кинг, Гордон Харт, Майкл Джетер, Крис Коппола, Жульен Рени, Чарлз Флайшер, Стивен ТайлерПеревод: ДублированныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:59:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180437   (912703) от 05.03.2010
-
-Наследство / L'heritage (2006) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая женщина из Франции неожиданно получает в наследство полуразвалившийся дом в Грузии. Недолго думая, она отправляется в экзотическое путешествие, прихватив с собой друзей, переводчика и пару видеокамер. Добравшись до Тбилиси, они забиваются в маленький рейсовый автобус, который должен доставить их в нужное место. Неожиданно их внимание привлекают двое пассажиров — молодой человек и его престарелый дедушка, которые среди прочей поклажи везли с собой гроб. Позже выясняется, что путники едут в стан вражеской семьи, чтобы там принести деда в «жертву» межклановой войне, возникшей еще 40 лет назад.Жанр: ДрамаРежиссер: Темур и Гела Баблуани.Актеры: Сильви Тестю, Станислас Мерар, Ольга Легран, Паскаль Бонгар, Георгий Баблуани, Лео Гапаридзе, Огюстен Легран, Гиви Сихарулидзе и др.Перевод: Многоголосый закадровыйПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634233   (912706) от 24.03.2013
-
-Секрет Сахары / Il segreto del Sahara (Secret of the Sahara) (1987) DVDRip [H.264] (серии 1-1 из 4)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного романа Эмилио Сальгари. В 1925 году американский археолог Дезмонд Джордан (Йорк) находит древние манускрипты, указывающие на существование легендарной Говорящей Горы, хранящей в своих недрах несметные богатства. Он отправляется на поиски, и судьба ведет его по самым удаленным уголкам великой пустыни. Только мужество, любовь и верные друзья (   Читать дальше...   )Производство: Швейцария, Италия, Германия (ФРГ), Испания,  RAI International,Rai 1,TF1 Films ProductionЖанр: Приключения, Боевик, СемейныйРежиссер: Альберто НегринАктеры: Майкл Йорк, Джеймс Фарентино, Бен Кингсли, Энди МакДауэлл, Дэвид Соул, Мигель Бозе, Даниэль Ольбрыхский, Диего Абатантуоно, Делия Боккардо, Ана Обрегон, Радост Бокель,  Уильям МакНамара, Итако Нардулли, Матильда Мэй, Жан-Пьер Кассель, Сальваторе БоргезеПродолжительность: 01:32:45+01:25:41+01:27:02+01:15:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634358   (912707) от 24.03.2013
-
-Чарльз Диккенс | Пиквикский клуб (2005) [MP3, Ю. Недзвецкий  и др.]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания забавных джентльменов все время попадают в смешные, курьезные ситуации из-за отсутствия сноровки. Выражаясь словами одного из героев, спектакль представляет нам юридически-правильный английский юмор.Жанр: Комедия, Аудиоспектакль
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C86B5C79024BF821150AB4FB6B7790E06F8B739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634345   (912709) от 24.03.2013
-
-Garmin TOPO Deluxe Chile 2.0 (март 2013) <En>
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем карты для путешествий по Чили. Эти подробные топографические карты отображают места и улицы для активного отдыха, показывая контуры местности, парков, береговых линий, рек, озер, географических пунктов и многое другое.
-Включают в себя детальные топографические карты для пеших прогулок, пешего туризма, езды на велосипеде и других приключений. Показывают маршрутизируемое содержание дорог в том числе от поворота к повороту. Включает в себя поисковую базу данных точек интересов, а также информацию о национальных парках, тропах и трассах, озерах, реках и ручьях.Разработчик: GarminЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:E61F818900432B4D5FB85E30724EC65C68C44952
 ```
 
 https://mybot314.ru/tekegram_catalog/

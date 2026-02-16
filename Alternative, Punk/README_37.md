@@ -1,6 +1,35 @@
-###  Публикация: 186396   (880319) от 26.03.2010
+###  Публикация: 1833288   (248553) от 03.11.2025
 
-Sinead O'Connor - The Black Album(8CD) (2008) [MP3|128 kbps]<Alternative Rock, Pop Rock, Folk, Swing>
+Biohazard - Divided We Fall (2025) [MP3|320 Kbps] <Rapcore, Hardcore, Crossover>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  - Fuck the System [00:03:43]
+02.  - Forsaken [00:03:33]
+03.  - Eyes On Six [00:03:20]
+04.  - Death of Me [00:03:50](   Читать дальше...   )Жанр: Rapcore, Hardcore, CrossoverПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A168B2FFBE35C08E108191FE5145B078FA536C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484120   (247977) от 05.05.2012
+
+Evans Blue - Graveyard of Empires (2012) [MP3|320 кб/с]<Alt. Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
@@ -12,7 +41,16 @@ Sinead O'Connor - The Black Album(8CD) (2008) [MP3|128 kbps]<Alternative Rock, P
 
 ###  Подробнее
 
-Жанр: Alternative Rock, Pop Rock, Folk, Swing
+1. This Time It’s Different (3:29)
+2. Crawl Inside (3:35)
+3. Thank You (3:42)
+4. Beyond The Stars (3:42)
+5. Graveyard Of Empires (2:49)
+6. Alone Not Lonely (3:24)
+7. In The Shadow (3:30)
+8. Live To Die (3:41)
+9. Destroy The Obvious (3:48)
+10. Warrior (4:05)(   Читать дальше...   )2012Жанр: Alt. MetalПродолжительность: 00:42:55
 
 ## Скачать торент
 ```bash
@@ -24,28 +62,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373336   (880427) от 06.04.2020
+###  Публикация: 1608185   (245816) от 29.01.2023
 
-Muckrakers - 2-Albums/1-EP/2-Singles (2013-2019) [MP3|320 Kbps] <Hardcore Punk>
+Scalp - Black Tar (2023) [MP3|320 Kbps] <Death Metal, Grindcore, Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880427.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(2013) Воля (Volition) ЕР
-(2016) I regret nothing (Single)
-(2016) Жить не во лжи (To Live Not In a Lie)
-(2019) Детство в лагерях (Childhood In Camps)(   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 5 CD, 01:16:21
+01 - Yin [00:01:03]
+02 - Jesus is God [00:02:03]
+03 - Endless Relapse [00:01:55]
+04 - Diabetic Necrosis [00:01:20](   Читать дальше...   )Жанр: Death Metal, Grindcore, HardcoreПродолжительность: 00:12:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73131EFD449B4B9E80BBED1D5139F86BE16590DD
+magnet:?xt=urn:btih:0EFFFB039F18094137E4FE53ED5470A6D2387B32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,34 +91,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 641424   (881240) от 10.04.2013
+###  Публикация: 1611080   (244025) от 11.02.2023
 
-Bastille - Bad Blood (2013) [MP3|320 кб/с]<Indie, Electronic, Alternative>
+Pierce The Veil - The Jaws of Life (2023) [MP3|320 Kbps] <Post-Hardcore, Pop-Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Pompeii (3:35)
-2. Things We Lost In The Fire (4:01)
-3. Bad Blood (3:33)
-4. Overjoyed (3:26)
-5. These Streets (2:55)
-6. Weight Of Living Pt. II (2:55)
-7. Icarus (3:45)
-8. Oblivion (3:16)
-9. Flaws (3:39)
-10. Daniel In The Den (3:09)(   Читать дальше...   )Жанр: Indie, Electronic, AlternativeПродолжительность: 00:43:52
+01. Death Of An Executioner
+02. Pass The Nirvana
+03. Even When I’m Not With You
+04. Emergency Contact(   Читать дальше...   )Жанр: Post-Hardcore, Pop-PunkПродолжительность: 00:41:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE1E67774716D7539BB61B99422D9104A2000052
+magnet:?xt=urn:btih:0CC9F225CF3B815D210AE93C1096F7507C29077C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,28 +120,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103979   (881891) от 14.02.2017
+###  Публикация: 1614735   (242964) от 23.02.2023
 
-Quercia - Non e vero che non ho piu l'eta (2016) [MP3|320 Kbps] <Alternative, Punk, Indie>
+Dosser - Violent Picture / Violent Sound (2023) [MP3|320 Kbps] <Alternative, Post Grunge, Shoegaze>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881891.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nubi (02:32)
-02. Ritardo (03:23)
-03. Lynch (03:07)
-04. Stima (01:13)(   Читать дальше...   )Жанр: Alternative, Punk, IndieПродолжительность: 00:18:35
+01 - Joy Thief [00:03:57]
+02 - Kids [00:04:00]
+03 - Fade [00:04:13]
+04 - Dark Air [00:04:45](   Читать дальше...   )Жанр: Alternative, Post Grunge, ShoegazeПродолжительность: 00:41:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45A5B6ED055479E27E7AA63A092BA5363A3EF9E1
+magnet:?xt=urn:btih:635D1016C23881F215335C5D6DEEF47AA95E1F44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -117,34 +149,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 186189   (881948) от 25.03.2010
+###  Публикация: 1623579   (242931) от 02.04.2023
 
-Rev Theory - Light It Up (2008) [MP3|320 kbps]<Alternative, Nu Metal>
+Life's Addiction - Inner Shade (1997) [MP3|320 Kbps] <Alternative Rock, Alternative Blues Rock, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hell Yeah
-02. Favorite Disease
-03. Light It Up
-04. Broken Bones
-05. Kill The Headlights
-06. Wanted Man
-07. Ten Years
-08. Falling Down
-09. You're The One
-10. Far From Over2008Жанр: Alternative, Nu MetalПродолжительность: 00:39:34
+01. Cherry Red
+02. I Do Believe
+03. Jesus Coming In for the Kill
+04. Like Me Again(   Читать дальше...   )Жанр: Alternative Rock, Alternative Blues Rock, Female VocalПродолжительность: 00:58:01
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:DC961637CE5A9322780E192577FF504AA7B5725A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -152,28 +178,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 995892   (882961) от 12.03.2016
+###  Публикация: 1634193   (242839) от 19.05.2023
 
-Mono Inc. - An Klaren Tagen (2015) EP [MP3|320 кб/с] <Gothic Rock>
+The Used - Toxic Positivity (2023) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882961.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. An Klaren Tagen (Piano Version)
-02. Chasing Cars
-03. Damn Happy Man
-04. Feuer(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:21:00
+01. Worst I've Ever Been [00:02:50]
+02. Numb [00:02:54]
+03. I Hate Everybody [00:02:48]
+04. Pinky Swear [00:02:13](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Alternative RockПродолжительность: 00:30:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7924A09A6078FDCD716885B1E57E921D4834D1B2
+magnet:?xt=urn:btih:4AA0D6BA3D71D6B503D76D201FBBAD88456D7FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,34 +207,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640447   (884167) от 08.04.2013
+###  Публикация: 1457311   (242812) от 26.03.2021
 
-Evanescence - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Alternative, Gothic Rock, Female Vocal>
+As Everything Unfolds - Within Each Lies the Other (2021) [MP3|320 Kbps] <Post-Hardcore, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Made Of Stone - 03:33
-02. Tourniquet - 04:38
-03. Weight Of The World - 03:37
-04. Lost In Paradise - 04:42
-05. Everybodys Fool - 03:16
-06. All That I'm Living For - 03:48
-07. The Other Side - 04:05
-08. Haunted - 03:06
-09. Where Will You Go - 03:47
-10. Disapper - 03:06(   Читать дальше...   )Жанр: Alternative, Gothic Rock, Female VocalПродолжительность: 01:19:50
+01 On the Inside [00:03:11]
+02 Take Me There [00:03:41]
+03 Wallow [00:04:35]
+04 Stranger in the Mirror [00:03:16](   Читать дальше...   )Жанр: Post-Hardcore, Female VocalПродолжительность: 00:40:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7E1A387E98AC1B9B682FFE69777C667213C0A81
+magnet:?xt=urn:btih:36139B0208BFF0D1758D342F63C67609F207E70B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,28 +236,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 995175   (884618) от 11.03.2016
+###  Публикация: 1457314   (242749) от 26.03.2021
 
-Circle of Dust - Circle of Dust (1992) Remastered, 2016, FiXT Music [MP3|320 кб/с] <Industrial Rock, Electronic Rock>
+'68 - Give One Take One (2021) [MP3|320 Kbps] <Chaotic Hardcore, Noise Rock, Garage Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884618.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Circle of Dust - Parasite (3:40)
-02. Bed of Nails (3:34)
-03. Exploration (Redux) (3:50)
-04. Onenemy (4:50)(   Читать дальше...   )Жанр: Industrial Rock, Electronic RockПродолжительность: 00:57:22
+01 The Knife The Knife The Knife [00:04:05]
+02 Bad Bite [00:03:10]
+03 Nickels and Diamonds [00:03:30]
+04 What You Feed [00:04:06](   Читать дальше...   )Жанр: Chaotic Hardcore, Noise Rock, Garage PunkПродолжительность: 00:40:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D61F2F7F66AB5A89B70BEC35D1A3E03EA9DDF403
+magnet:?xt=urn:btih:32ADC2460D4D216763638C708428BDEF7B339EB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,34 +265,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640781   (885145) от 08.04.2013
+###  Публикация: 1457307   (242731) от 26.03.2021
 
-Transit - Young New England (2013) [MP3|320 кб/с]<Pop-Punk>
+Immerse - The Weight That Holds Me Here (2021) [MP3|320 Kbps] <Post-Hardcore, Melodic Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Nothing Lasts Forever (2:41)
-2. Second To Right (3:14)
-3. Young New England (3:50)
-4. Sleep (3:12)
-5. So Long, So Long (3:49)
-6. Weathered Souls (3:40)
-7. Hang It Up (3:16)
-8. Don't Go, Don't Stray (3:32)
-9. Thanks For Nothing (4:03)
-10. Summer, Me (2:59)(   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 00:45:29
+01 Vile [00:03:25]
+02 Burn [00:03:57]
+03 With You [00:03:06]
+04 Southbound [00:03:03](   Читать дальше...   )Жанр: Post-Hardcore, Melodic HardcoreПродолжительность: 00:35:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFC445E91D6BCD91593DDD362A02C255C7B5FC01
+magnet:?xt=urn:btih:759CB4F06DC655C829915C3177EFFFD9E346192F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,28 +294,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 995259   (885827) от 10.03.2016
+###  Публикация: 1627848   (242702) от 20.04.2023
 
-3 Doors Down - Us and the Night (2016) [MP3|320 кб/с] <Alternative Rock, Post - Grunge>
+Enter Shikari - A Kiss for the Whole World (2023) [MP3|320 Kbps] <Alternative Rock, Experimental>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885827.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Broken
- 02. In The Dark
- 03. Still Alive
- 04. Believe It(   Читать дальше...   )Жанр: Alternative Rock, Post - GrungeПродолжительность: 00:37:56
+01. A Kiss for the Whole World x
+02. (pls) set me on fire
+03. It Hurts
+04. Leap into the Lightning(   Читать дальше...   )Жанр: Alternative Rock, ExperimentalПродолжительность: 00:39:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA4DA0A8C4771A9182B9320DBB7502EE5AF0CEA2
+magnet:?xt=urn:btih:CF25B4221EC5C74E22BE2CD815EB6F0335DDD830
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,29 +323,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 870293   (886178) от 18.02.2015
+###  Публикация: 1372559   (242153) от 03.04.2020
 
-Alien Ant Farm - Always And Forever (2015) [MP3|320 кб/с]<Alternative Rock>
+August Burns Red - Guardians (2020) [MP3|320 Kbps] <Progressive Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yellow Pages
-02. Simpatico
-03. Burning
-04. Let Em Know
-05. Our Time(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:07
+01. The Narrative (04:10)
+02. Bones (04:16)
+03. Paramount (04:49)
+04. Defender (04:21)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:49:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBD76166D843F8B0931ED44E3A5355414B00E7D4
+magnet:?xt=urn:btih:2B5AD6B35E182595F5EAA1B8A2555C6956FF0937
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,32 +352,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 297436   (886839) от 18.02.2011
+###  Публикация: 918413   (241413) от 16.04.2022
 
-Radiohead - The King Of Limbs (2011) [MP3|320 kbps]<Alternative Rock>
+Northlane - 6 альбомов + 1 EP (2010-2022) [MP3|320 кб/с]<Progressive Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bloom - (5:15)
-02. Morning Mr Magpie - (4:41)
-03. Little By Little - (4:27)
-04. Feral - (3:13)
-05. Lotus Flower - (5:01)
-06. Codex - (4:47)
-07. Give Up The Ghost - (4:50)
-08. Separator - (5:20)Жанр: Alternative RockПродолжительность: 00:37:35
+01. Dispossession
+02. Abrasumente
+03. Comatose
+04. Transcending Dimensions(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 06:36:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66EE1E5112CEB55185C12EF50398074D4181A5B9
+magnet:?xt=urn:btih:3D75C6BE85F9350A75CD806AE797E82997FD843C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,28 +381,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372139   (887280) от 02.04.2020
+###  Публикация: 1636283   (240974) от 29.05.2023
 
-Shallow Truths - Alive Again (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
+Marina - Nuclear (2023) [MP3|320 Kbps] <Metalcore, Deathcore, Post-Hardcore, Electronic>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887280.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_240974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Grave (feat. Shayley Bourget) [00:04:17]
-02 Scarred [00:02:51]
-03 On Our Own [00:04:08]
-04 Alive Again [00:04:04](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:43:06
+01. You Have Been Warned [00:00:47]
+02. Our Flying Flags [00:03:40]
+03. The Age Of Retribution [00:02:56]
+04. Bloodwork [00:03:41](   Читать дальше...   )Жанр: Metalcore, Deathcore, Post-Hardcore, ElectronicПродолжительность: 00:27:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E6F5E65A81D9266BFF4AC2FCAF71737D593ED68
+magnet:?xt=urn:btih:F55878211C993A87566EB13C235A3A7BAAEBCFD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,25 +410,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 128464   (887655) от 21.03.2010
+###  Публикация: 1406475   (240567) от 05.09.2020
 
-30 Seconds to Mars - Discography (2002-2010) [MP3|128-320]<Alternative Rock>
+Fame on Fire - LEVELS (2020) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 
->>След.
+>>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2002Жанр: Alternative Rock
+01 Cover Band (Intro) [00:01:02]
+02 Her Eyes [00:03:15]
+03 Not Dead Yet [00:03:22]
+04 I'm Fine [00:03:38](   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:39:29
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9F5FEDC757DDEAFF833A70DEBEE7410B42D10B85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,25 +439,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 185310   (887816) от 21.03.2010
+###  Публикация: 1626776   (240126) от 17.04.2023
 
-Mike Patton etc. (Faith No More, Fantomas, General Patton, Kaada & Patton, Lovage, Mr. Bungle, Peeping Tom, Tomahawk) - Discography (1989..2008) [MP3|320 kbps]<Psychodelic, Experimental, Tri ...
+From Fall to Spring - Rise (2023) [MP3|320 Kbps] <Alt.Metal, Rapcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Psychodelic, Experimental, Trip-Hop, Ballad
+01. Br4infck (3:09)
+02. Black Heart (3:35)
+03. Draw the Line (2:53)
+04. Supernova (3:44)(   Читать дальше...   )Жанр: Alt.Metal, RapcoreПродолжительность: 00:32:03
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7A9D032C3A2ED7CB7DFD1B2B39F14D111F6B2F52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,34 +468,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 185094   (888059) от 21.03.2010
+###  Публикация: 1636287   (239130) от 29.05.2023
 
-Poets Of The Fall - Twilight Theater (2010) [MP3|192-320 kbps]<Alternative Rock | Modern Rock>
+Avery Watts - Death Ground (2023) [MP3|320 Kbps] <Alternative Rock, Rapcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Dreaming Wide Awake
-2. War
-3. Change
-4. 15 Min Flame
-5. Given and Denied
-6. Rewind
-7. Dying to Live
-8. You're Still Here
-9. Smoke and Mirrors
-10. Heal My WoundsЖанр: Alternative Rock | Modern Rock
+01 - Countdown
+02 - Here to Stay
+03 - Burn
+04 - The One(   Читать дальше...   )Жанр: Alternative Rock, RapcoreПродолжительность: 00:41:16
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:204E22402060047508271A843FA1BC56F2DA7890
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,29 +497,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 870030   (888114) от 17.02.2015
+###  Публикация: 1636807   (238779) от 01.06.2023
 
-36 Crazyfists - Time And Trauma (2015) Deluxe Edition [MP3|320 кб/с]<Alt.Metal / Nu-Metal>
+Stella Rose (Gahan) - Eye Of Glass (2023) [MP3|320 Kbps] <Alternative, Post Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vanish (3:51)
-02. 11.24.11 (3:53)
-03. Sorrow Sings (4:05)
-04. Lightless (2:56)
-05. Time And Trauma (4:08)(   Читать дальше...   )Жанр: Alt.Metal / Nu-MetalПродолжительность: 00:56:31
+01. Maid 03:15
+02. Faithful 03:38
+03. Death Rattle 04:42
+04. Muddled Man 04:53(   Читать дальше...   )Жанр: Alternative, Post PunkПродолжительность: 00:39:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B97C735DEA4A6C7BE3C25BA2C851D4FA12EE1F63
+magnet:?xt=urn:btih:F96AB523A0BFB606A7DC78C0153FA4DADA9A848E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +526,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371792   (888707) от 01.04.2020
+###  Публикация: 1580033   (238533) от 30.09.2022
 
-Ty Segall - Segall Smeagol (2020) EP [MP3|320 Kbps] <Indie Rock, Alternative Rock>
+Counterparts - A Eulogy For Those Still Here (2022) [MP3|320 Kbps] <Metalcore, Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888707.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Coconut
-02. Gotta Get Up
-03. Drivin Along
-04. Early in the Morning(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:20:51
+01 7_26_2020 [00:00:38]
+02 Whispers Of Your Death [00:02:54]
+03 Bound To The Burn [00:03:03]
+04 Unwavering Vow [00:03:07](   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 00:33:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37ABCF0E724DCF838128F51F9ED0BD4E9830CD15
+magnet:?xt=urn:btih:591EED794D1705F5EC51305BBBFCB53D67A29214
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,34 +555,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 639995   (889696) от 06.04.2013
+###  Публикация: 1580022   (238436) от 30.09.2022
 
-Holly Throsby - See (2010) [MP3|~172 кб/с]<Indie>
+Within Destruction - Lotus (2022) [MP3|320 Kbps] <Nu Metalcore, Electronic>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.  Putt Putt                             (3:00)
-2.  Fish And Mice                      (4:18)
-3.  The Seasons                       (2:53)
-4.  Diamonds Are So Shiny      (2:48)
-5.  Drum Lesson                      (0:17)
-6.  Shadow And Echo               (2:47)
-7.  Can I Do That Too?             (1:56)
-8.  Hello Tiger                          (2:02)
-9.  What Turns?                       (3:34)
-10. See The World                   (2:05)(   Читать дальше...   )Жанр: IndieПродолжительность: 00:28:11
+01. Lotus [00:03:32]
+02. Toxic [00:03:34]
+03. Nightmare [00:03:48]
+04. Survival [00:03:19](   Читать дальше...   )Жанр: Nu Metalcore, ElectronicПродолжительность: 00:41:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3D21CB5E4B9CB9ADCD392FC5B7FF357E48B95FD
+magnet:?xt=urn:btih:EA3DCAA60F5D5DD6CEFA29D8A6A4DBAA99E824B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,29 +584,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 869816   (889715) от 16.02.2015
+###  Публикация: 1625963   (237804) от 13.04.2023
 
-Calabrese - Lust for Sacrilege (2015) [MP3|320 кб/с]<Alternative Rock>
+Planet On A Chain - 2 Albums (2022-2023) [MP3|320 Kbps] <Alternative, Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Dark Is Who I Am
-02. Down In Misery
-03. Teenage Crimewave
-04. Flesh And Blood
-05. Lust For Sacrilege(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:24
+01. Bechtold [00:01:55]
+02. Hart Island [00:01:47]
+03. The Keeper and the Kept [00:02:29]
+04. Boxed In [00:02:28](   Читать дальше...   )Жанр: Alternative, HardcoreПродолжительность: 2 CD, 00:39:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAA2E66DD030FAE1A0FD9030036D8AFA7FF3A784
+magnet:?xt=urn:btih:82091BC0FBA4E5D96EA3E9515EE89534571C7AB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,29 +613,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 869807   (889731) от 16.02.2015
+###  Публикация: 1639462   (237016) от 13.06.2023
 
-My Sad Captains - Best Of Times (2014) [MP3|320 кб/с]<Alternative/ Indie/ Folk/ Pop Rock>
+White Denim - Relaxed (2023) [MP3|320 Kbps] <Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_237016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Goodbye 04:36
-02. Wide Open 04:51
-03. In Time 07:04
-04. All Times Into One 05:35
-05. Extra Curricular 05:28(   Читать дальше...   )Жанр: Alternative/ Indie/ Folk/ Pop RockПродолжительность: 00:45:57
+01 - Bounce Back [00:03:27]
+02 - Crystal Bullets (feat. Andy Pickett) [00:03:23]
+03 - King Tears [00:03:39]
+04 - Hired Hand [00:03:19](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA7C4608B476B81BB5A12EC89961D62A4F5B541F
+magnet:?xt=urn:btih:B051B4110D51349B38497D62F168E11A500E5623
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,29 +642,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 869828   (889738) от 16.02.2015
+###  Публикация: 1504788   (236804) от 24.10.2021
 
-Aeon Spoke - Aeon Spoke (2007) [MP3|320 кб/с]<Alternative/ Indie Rock>
+The Replacements - Sorry Ma, Forgot To Take Out The Trash (1981) Deluxe Edition, 4CD, 2021, Rhino [MP3|320 Kbps] <Garage Rock, Punk Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cavalry Of Woe (04:15)
-02. No Answers (03:38)
-03. Sand And Foam (03:20)
-04. Nothing (05:23)
-05. The Fisher Tale (05:25)(   Читать дальше...   )Жанр: Alternative/ Indie RockПродолжительность: 00:45:07
+01. Takin a Ride (2021 Remaster) [00:02:23]
+02. Careless (2021 Remaster) [00:01:08]
+03. Customer (2021 Remaster) [00:01:29]
+04. Hangin Downtown (2021 Remaster) [00:02:07](   Читать дальше...   )Жанр: Garage Rock, Punk Rock, Indie RockПродолжительность: 4CD, 03:47:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81C659A2BA413846213A4157643CF049D51BE61F
+magnet:?xt=urn:btih:AF82229DF47F645D70D34E2AC1A1F231D6B24A78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,28 +671,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102237   (891188) от 09.02.2017
+###  Публикация: 1458194   (235651) от 28.03.2021
 
-Fight The Fight - Fight The Fight (2017) [MP3|320 Kbps] <Alternative Metal>
+Purity - Animus (2021) EP [MP3|320 Kbps] <Nu-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891188.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Fight the Fight
-2. The Edge
-3. The Other Side
-4. Perfect Combination(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:29:09
+01. Enmity (feat. John Vetter & Silenus) [00:03:53]
+02. Animus [00:01:03]
+03. Serpentine [00:05:10]
+04. Mirrors [00:03:45](   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:19:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6ECF659B399F0236FB4B891A8523B7F2340AEF3F
+magnet:?xt=urn:btih:A46461B515B816F1AE198376E865724977F74F8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,28 +700,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102227   (891293) от 09.02.2017
+###  Публикация: 1458330   (235633) от 28.03.2021
 
-Afterlife - Vicious Cycle (2017) EP [MP3|320 Kbps] <Nu Metal, Metalcore, Rapcore>
+Death from Above 1979 - Is 4 Lovers (2021) [MP3|320 Kbps] <Alternative, Indie Rock, Dance-Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891293.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235633.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Anthem
-02 - Pain & Pleasure
-03 - Vicious Cycle
-04 - Fading Away(   Читать дальше...   )Жанр: Nu Metal, Metalcore, RapcoreПродолжительность: 00:15:22
+01 - Modern Guy [00:03:29]
+02 - One + One [00:03:46]
+03 - Free Animal [00:02:51]
+04 - N.Y.C. Power Elite Part I [00:02:49](   Читать дальше...   )Жанр: Alternative, Indie Rock, Dance-PunkПродолжительность: 00:31:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79B70DA2C627F0A685E9D0C58EE9CAF88B777CE3
+magnet:?xt=urn:btih:1F7E4A1CBB76A5D8CC93A6A7F6E8FFACE9690AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -730,59 +729,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 869339   (891358) от 15.02.2015
+###  Публикация: 1458348   (235624) от 28.03.2021
 
-WeAreCastor - Bon Voyage (2014) [MP3|320 кб/с]<Alternative, Electronic, Psychedelic Rock, Folk, Funk, Experimental, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Voyage
-02. Colossi
-03. Bright Lights
-04. Trouble Will Come
-05. Eskimo(   Читать дальше...   )Жанр: Alternative, Electronic, Psychedelic Rock, Folk, Funk, Experimental, PopПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4D1955CE4C4A2C237BCE36CB1259ACB8E7268B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869420   (891513) от 15.02.2015
-
-Saving Abel - Blood Stained Revolution (2014) [MP3|320 кб/с]<Alternative/ Modern Hard Rock/ Post-Grunge>
+Breaths - Lined in Silver (2021) 2CD [MP3|320 Kbps] <Blackgaze, Post-Hardcore, Post-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ready to Burn (03:15)
-02. 15 Minutes of Fame (03:44)
-03. Love Like Suicide (03:15)
-04. Blood Stained Revolution (03:57)
-05. With You ( I Think About You ) (03:42)(   Читать дальше...   )Жанр: Alternative/ Modern Hard Rock/ Post-GrungeПродолжительность: 00:37:43
+01. Lined in Silver (Instrumental) [00:07:13]
+02. The Weight & The Bellows (Instrumental) [00:09:08]
+03. Like Wires (Instrumental) [00:05:26]
+04. A Year on Fire (Instrumental) [00:05:44](   Читать дальше...   )Жанр: Blackgaze, Post-Hardcore, Post-MetalПродолжительность: 02:00:33 (2CD)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DEF7ED521EE1DC56B376FE4CD8F12FEC6A51DAB
+magnet:?xt=urn:btih:DE7FBFE2BB0D74E53678BB624238E38245137703
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 1291756   (652417) от 26.03.2019
+###  Публикация: 1260999   (307110) от 09.11.2018
 
-Векторный клипарт - Инфографика - Морской транспорт [EPS]
+3D модели - VizPeople - Canon EOS-1DX [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652417.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторная инфографика морской транспорт и порты.Формат: EPS
+Как некоторые из вас заметили, мы обновили нашу самую популярную коллекцию 3d моделей «3D Home Gadgets». Теперь это называется ремиксом. Мы сняли некоторые модели и заменили их на новую. Но большинство старых моделей по-прежнему великолепны, и я хотел бы поделиться некоторыми с вами. Первой - отличная камера Canon EOS-1DXФормат: V-Ray|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19D1921816FD8E3F80163E3BD920703F346880DF
+magnet:?xt=urn:btih:4B57A66C74EE64D15C8C99DCA3BB8A9A29F76C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291782   (652418) от 26.03.2019
+###  Публикация: 960204   (307021) от 28.11.2015
 
-Векторный клипарт - Vector Architecture Collection #19 [AI, EPS]
+Футажи - Happy New Year Collection - I [MOV, MP4]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652418.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Архитектура.
-25 AI, EPS + Preview.Формат: AI, EPS
+Скажите: "Да! Хочу!" этому сборнику новогодних футажей от различных авторов и придайте особую неповторимую оригинальность Вашей видеопродукции, используя элегантное сочетание традиционных и современных анимационных элементов дизайна. Комбинируйте, создавая разное и непохожее видео. Экономьте ваше время и повышайте ценность своей работы.Формат: MOV, MP4Разрешение файлов: 1920х1080 / 1280х720
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63F0C5A55B78682FA619F535CAD2376CDE85194A
+magnet:?xt=urn:btih:2A1A04668514F5D3E9752ECE6A0F80E2866EB3DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,27 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291832   (652494) от 26.03.2019
+###  Публикация: 960300   (307015) от 28.11.2015
 
-Векторный клипарт - Vector Fantastic Heroes Collection #37 [AI]
+Футажи - Happy New Year Collection - II [MOV, MP4, AVI]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652494.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Сказочные герои
-25 AI + PreviewФормат: AI
+Вторая часть сборника новогодних футажей от различных авторов. В раздачу в качестве дополнительного бонуса включены музыкальные треки.Формат: MOV, MP4, AVIРазрешение файлов: 1920х1080 / 1280х720
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1A04B26E17FCB06815CC2B348C8284A86D05C7E
+magnet:?xt=urn:btih:3C4E2CB495FEF94BBB5C553F9910DAA762963161
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,27 +76,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291784   (652495) от 26.03.2019
+###  Публикация: 1261014   (306921) от 09.11.2018
 
-Векторный клипарт - Vector Architecture Collection #21 [AI]
+Шаблоны - GraphicRiver - Wine Mockup Kit 2.0 - 22732337 [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652495.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Архитектура
-50 AI + PreviewФормат: AI
+Винный набор шаблонов.
+Теперь с отражающими стеклами, неограниченными цветовыми вариациями и более реалистичным результатом.Формат: PSDРазрешение файлов: 5000x3500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADA7D076E74700C540164A7E67EE2AFC648236B5
+magnet:?xt=urn:btih:7CEBF0AC0841FB5902B9D9BC2A14923D8B0AF5BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,27 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291844   (652498) от 26.03.2019
+###  Публикация: 584341   (306859) от 04.12.2012
 
-Векторный клипарт - Vector Flowers Collection #94 [AI, EPS]
+Digital Juice - ToxicTraxx Volume 03: Cinematic Christmas (.djmusic)
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652498.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_306859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Цветы
-50 AI, EPS + PreviewФормат: AI, EPS
+Toxic Traxx: Collection 3 - Cinematic Christmast - Коллекция многослойной музыки, специально переработанной для использования в промо производствах к рождественским праздникам! Toxic Traxx 3: Cinematic Christmas представляет собой мощный набор энергичных весёлых музыкальных треков, которые идеально подойдут для любых промо-проектов - будь то трейлеры, рекламные ролики, заставки, шоу или видео знаменательных событий... Каждый из этих треков был профессионально записан и спродюсирован специально для вас! Добавьте в ваше производство ту же энергию и ритм, которые вы чувствуете, когда смотрите популярное промо-видео!
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55AB4A8199DA996C747967FFC4F06F9ADC06078C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,27 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291838   (652501) от 26.03.2019
+###  Публикация: 1183146   (306777) от 14.11.2017
 
-Векторный клипарт - Vector Flowers Collection #90 [AI]
+Футажи - FilmLooks - 4k 16mm Head And Tail Film Leaders Collection [MOV]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652501.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Цветы
-50 AI + PreviewФормат: AI
+4k 16mm Head And Tail Film Leaders Collection - набор уникальных пленочных эффектов для применения в вашем кинопроизводстве.Формат: MOVРазрешение файлов: 3840x2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB31D2BA9897BC01B1824B9F402054A2DD520C24
+magnet:?xt=urn:btih:656F76152625FFE22F9F05CA9D62FA8D10911945
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,27 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291847   (652503) от 26.03.2019
+###  Публикация: 1183519   (306758) от 14.11.2017
 
-Векторный клипарт - Vector Flowers Collection #96 [AI]
+3D модели - Moooi - Collection 3D models [MAX, 3DS]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652503.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Цветы
-50 AI + PreviewФормат: AI
+Moooi - Collection 3D models: сборник оригинальных и уникальных 3D-моделей мебели, освещения и аксессуаров от производителя. Коллекция 2016-2017 гг. Также в сборник вошли текстуры дизайнерских ковров Moooi.Формат: MAX, 3DS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:493E133E23E8B0DAE12BC29DD96A000B1D9BCE14
+magnet:?xt=urn:btih:2520D738D58020E744A0C83F6868B3DD692B0B77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,27 +181,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291845   (652506) от 26.03.2019
+###  Публикация: 1077233   (306192) от 28.11.2016
 
-Векторный клипарт - Vector Flowers Collection #95 [AI]
+Экшены - GraphicRiver - Magic Night CS3+ Photoshop Action [ATN, ABR]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652506.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Цветы
-50 AI + PreviewФормат: AI
+Magic Night - добавьте магического волшебства к Вашим фотографиям.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D9A60B975AD97D8890EE3D5592B018C6D8425F2
+magnet:?xt=urn:btih:04473A05AC3A973A98CF12FEF3A90482559070DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,27 +207,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291828   (652507) от 26.03.2019
+###  Публикация: 1077260   (306190) от 28.11.2016
 
-Векторный клипарт - Vector Fairy Collection #36 [AI]
+Экшены - GraphicRiver - Double Exposure Photoshop Action - 18278676 [ATN]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652507.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Сказка
-25 AI + PreviewФормат: AI
+Double Exposure - отличный инструмент для фотографа или дизайнера. Создайте удивительный эффект двойной экспозиции в течение нескольких секунд. После того, как действие закончит работу, вы можете добавить цветовой тон, или градиент к вашей композиции.Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15589DF183FBDD89188B0336D8B25CED6D5419BA
+magnet:?xt=urn:btih:104B28006A00D95035D97E427E70DCE41F0F7B4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,27 +233,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291831   (652578) от 26.03.2019
+###  Публикация: 1077215   (306184) от 28.11.2016
 
-Векторный клипарт - Vector Fantastic Heroes Collection #36 [AI]
+Экшены - GraphicRiver - Pen Sketch Photoshop Action - 18522026 [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652578.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Сказочные герои
-25 AI + PreviewФормат: AI
+Pen Sketch - данное действие всего за один клик поможет Вам создать из любых ваших фотографий потрясающий эскиз с эффектом шариковой ручки. Окончательный результат полностью многослойный со множеством эффектов и настроек. 10 цветовых пресетов также включены. Совмещайте различные стили, чтобы создать своё собственное произведение.
+Перед выполнением данного действия, (   Читать дальше...   )Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0168A14CB9FA890B8A8D5FF00F7EEDE214F01ED9
+magnet:?xt=urn:btih:128F205B00ABED24F6244DD3E55D71D231565F87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,27 +260,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291783   (652584) от 26.03.2019
+###  Публикация: 1077221   (306098) от 28.11.2016
 
-Векторный клипарт - Vector Architecture Collection #20 [AI]
+Экшены - GraphicRiver - Animated Snow Globe Photoshop Action for Christmas [ATN, PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652584.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Архитектура
-50 AI + PreviewФормат: AI
+Animated Snow Globe Photoshop Action for Christmas - Этот экшен позволит вам создавать анимированный снежный шар, используя ваши собственные изображения. Вы можете создавать неограниченное количество эффектов, и можете изменить фон, цвета, градиенты, добавить свой собственный текст и логотип. Это полностью настраиваемый PSD макет. Вы можете сохранить результат в (   Читать дальше...   )Формат: ATN, PSD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A176F7748CC1EDB1B5E786129495CA0FED45EDD
+magnet:?xt=urn:btih:1FF8B6E032CE1B3DD5DA902ABC0353297F97A6A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -304,27 +286,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291829   (652586) от 26.03.2019
+###  Публикация: 1422942   (305931) от 10.11.2020
 
-Векторный клипарт - Vector Fantastic Heroes #39 [AI]
+Векторный клипарт - Christmas holiday greetings Santa and friends design [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652586.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305931.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Сказочные герои
-50 AI + PreviewФормат: AI
+Рождество и новый год
+9 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E46AA9F6646C2F2C46F746D5850C5DD4BBE45F99
+magnet:?xt=urn:btih:3B1AC90CDB379DED321448BD523E3AAF6CCC481B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,27 +314,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291839   (652593) от 26.03.2019
+###  Публикация: 1422934   (305766) от 10.11.2020
 
-Векторный клипарт - Vector Flowers Collection #91 [AI]
+Кисти - ArtStation - 400 Vintage Patterns Alpha (17k And 4k) 32 Bit [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652593.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Цветы
-50 AI + PreviewФормат: AI
+Винтажные узоры для Альфа кистей разрешение: 4096 * 4096 и 17072 * 17072 Вы можете использовать этот пакет для создания удивительных материалов в Substance Painter, Zbrush, Substance Designer, Blender, 3dsmax и ... Формат: файлов PNG, 32 битаФормат: PNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC797A4D0ECE36FBB69E5224204DC9E165C7301A
+magnet:?xt=urn:btih:065D8C7AD2245ECF6E76A1F72950179CEEE7B134
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,27 +340,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291842   (652594) от 26.03.2019
+###  Публикация: 1183810   (305417) от 15.11.2017
 
-Векторный клипарт - Vector Flowers Collection #93 [AI]
+Векторный клипарт - Vector cute white owl with gold florals [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652594.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305417.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Цветы
-50 AI + PreviewФормат: AI
+Векторные милые белые совы с золотыми цветочными
+10 files EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9DD5C437705D8BE004E8D1C1C8A7AA4F11957FE
+magnet:?xt=urn:btih:3EFBC1E2DEA82BABF67C0B1BA0A4EE66EFA4C7EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,27 +368,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291818   (652595) от 26.03.2019
+###  Публикация: 1183812   (305302) от 15.11.2017
 
-Векторный клипарт - Vector Easter #10 [AI]
+Векторный клипарт - Vector wooden christmas board set [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652595.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305302.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Пасха
-50 AI + PreviewФормат: AI
+Векторная деревянная Рождественская доска с елкой и украшениями
+14 files EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:123044B09899F078342532A24A42D4A9DDCE3940
+magnet:?xt=urn:btih:80D1170876FB421D9AF1216E780D39A210463D8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,27 +396,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291785   (652596) от 26.03.2019
+###  Публикация: 1183818   (305273) от 15.11.2017
 
-Векторный клипарт - Vector Cat Collection #16 [AI]
+Векторный клипарт - Vector vintage designer cards for invitations [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652596.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305273.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Котята
-50 AI + PreviewФормат: AI
+Векторные старинные дизайнерские открытки для приглашений
+14 files EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:495F02B3FCAFF1F1D11DF9F263B8C7AB15CE1C52
+magnet:?xt=urn:btih:A70843D6D0450CABE15AE8215BF4CCCF8225BCAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,27 +424,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291811   (652599) от 26.03.2019
+###  Публикация: 585157   (305224) от 05.12.2012
 
-Векторный клипарт - Vector Drinks Collection #15 [AI]
+Растровый клипарт - Новогодние упряжки, санки и салазки [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652599.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Напитки
-15 AI + PreviewФормат: AI
+Новогодние упряжки, санки и салазки на прозрачном фоне.
+Дизайн и подборка: NatalivesnaФормат: PNGРазрешение файлов: 433x324 - 3300 x2800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF3BE4F705254FEC071765CCF97FD9EC57F38373
+magnet:?xt=urn:btih:E8A39AEAD9D6A7DF515C0438C4787A9CD7ED976B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,27 +451,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291837   (652600) от 26.03.2019
+###  Публикация: 1183808   (305171) от 15.11.2017
 
-Векторный клипарт - Vector Flowers Collection #89 [AI]
+Векторный клипарт - Merry christmas and New Year vector [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652600.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305171.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Цветы
-50 AI + PreviewФормат: AI
+С Рождеством и Новым Годом
+14 files EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF5F3A718EB2D1E7B364334CA654F1E3A804D27A
+magnet:?xt=urn:btih:52C11387AB90ED874169182969DA620D7FA85B45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,27 +479,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291840   (652601) от 26.03.2019
+###  Публикация: 1183711   (305168) от 15.11.2017
 
-Векторный клипарт - Vector Flowers Collection #92 [AI]
+Растровый клипарт - Fotolia - Sensual beautiful brunette [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652601.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Цветы
-50 AI + PreviewФормат: AI
+Чувственная красивая брюнетка женщина позирует в красном платьеФормат: JPGРазрешение файлов: 4912x7360-7360x4912
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D702BA29D277280E03429706468407CE77A31F09
+magnet:?xt=urn:btih:E1748DB15EEFBFA79B652FBF49C0F4E55BC6B3EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,27 +505,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291826   (652602) от 26.03.2019
+###  Публикация: 1333369   (305142) от 24.10.2019
 
-Векторный клипарт - Vector Fairy Collection #34 [AI]
+Spitfire Audio - Spitfire Solo Violin [Kontakt, OGG]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652602.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Сказка
-25 AI + PreviewФормат: AI
+Наш высоко оцененный инструмент Total Performance для скрипки (Virtuoso) теперь можно приобрести в виде отдельной библиотеки Kontakt Player. Наша самая подробная и продвинутая сольная скрипка на сегодняшний день была исполнена всемирно известным скрипачом-виртуозом Джеком Либеком в The Hall в AIR Studios.Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX; OGG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D22BE5F609B0ABC63B4DB9591FB1D3768752CB0
+magnet:?xt=urn:btih:BDF71B21DD4F11021237E774E52592FEAD61126E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,27 +531,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291822   (652603) от 26.03.2019
+###  Публикация: 1333253   (305108) от 24.10.2019
 
-Векторный клипарт - Vector Fairy Collection #32 [AI]
+Экшены - GraphicRiver - Vector Look Photoshop Action - 24612746 [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652603.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Сказка
-25 AI + PreviewФормат: AI
+Vector Look - простой в использовании экшен фотошоп стилизует ваши обычные фотографии под векторный рисунок.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3E5557C119D8D7A4BBC1A99A79833C4BC547EB4
+magnet:?xt=urn:btih:9C1AF0D7B5F018888CFCB8C54BA12448A85AB9E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,27 +557,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291825   (652604) от 26.03.2019
+###  Публикация: 584711   (305073) от 05.12.2012
 
-Векторный клипарт - Vector Fairy Collection #33 [AI]
+Фоны - Фоны С Новым годом! Part 3 [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652604.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Сказка
-25 AI + PreviewФормат: AI
+Многослойные PSD фоны можно настраивать применяя стили,градиенты,маски
+и все инструменты, и палитры в фотошопе изменяя слои, добавляя новые,
+в общем изменяйте на сколько хватит фантазии,
+если нет желания оставляйте как есть.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D6A3027670A5A1614186A4B476D90E500BF4BC4
+magnet:?xt=urn:btih:EE0086D3F109B79C3F47D1C3707D2E01840B331C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,27 +586,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291815   (652605) от 26.03.2019
+###  Публикация: 1333247   (304954) от 24.10.2019
 
-Векторный клипарт - Vector Easter #09 [AI]
+Экшены - GraphicRiver - Pencil Drawing Effect - Photoshop Action - 11658178 [ATN]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652605.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Пасха
-50 AI + PreviewФормат: AI
+Pencil Drawing Effect - это действие Photoshop преобразует вашу фотографию в красивый и реалистичный рисунок. Просто запустите его и наблюдайте, как ваш рисунок оживает!
+Наше действие разработано с использованием многоязычного метода. В любом случае для достижения наилучших результатов настоятельно рекомендуется английская версия.  (от автора)Формат: ATN
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:948493D85E8E58812B4CAD3A806D623B9A66315C
+magnet:?xt=urn:btih:EB29168A479B6CFA91CFF272AA46D3C605D46699
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,27 +613,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291806   (652607) от 26.03.2019
+###  Публикация: 1333206   (304953) от 24.10.2019
 
-Векторный клипарт - Vector Circus Collection #12 [AI]
+Lens Distortions - Beginnings [WAV, MP3]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652607.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Цирк
-25 AI + PreviewФормат: AI
+Beginnings - универсальная и эффектная библиотека, которая поможет Вам подчеркнуть тонкости в ваших будущих проектах. Черпая вдохновение из первых заглавных эпизодов, драм и нетрадиционных кинематографических рекламных роликов, Авторы создали эти мелодии, чтобы помочь вам вызвать любопытство и создать кинематографический тон в ваших фильмах.Формат: WAV, MP3
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4940CAE07F2E09C8D6147A76DDE3173F8A9238C2
+magnet:?xt=urn:btih:4ED73D3DB443CC6A7855FAD158BDAABC1527EDA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,27 +639,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291833   (652650) от 26.03.2019
+###  Публикация: 1183830   (304941) от 15.11.2017
 
-Векторный клипарт - Vector Flowers Collection #88 [AI]
+3D модели - Dream Land - Дизайнерская мебель для спальни [MAX]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652650.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Цветы
-25 AI + PreviewФормат: AI
+Коллекция дизайнерской мебели Dream Land. Все для спальни.Формат: MAX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9B30440BBFFC25D80AD4F26C058AAE8D210AAA3
+magnet:?xt=urn:btih:111681E1FB8F01CF8CB3E40788F8193C14E23362
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,27 +665,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291790   (652656) от 26.03.2019
+###  Публикация: 1184016   (304935) от 15.11.2017
 
-Векторный клипарт - Vector Circus Collection #11 [AI]
+Фоны и наложения - CreativeMarket - Exclusive Overlays Collection - 1918278 [JPG, ZXP]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652656.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Цирк
-25 AI + PreviewФормат: AI
+Exclusive Overlays Collection - эта коллекция состоит из 108 высококачественных накладок и многофункциональной панели, которая очень комфортно позволит вам работать с ними.Формат: JPG, ZXP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45EA8E2B43D614C902079A340634AAA235C4C829
+magnet:?xt=urn:btih:397F719BB0355B08B824DAAC1DD53966E7F855B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

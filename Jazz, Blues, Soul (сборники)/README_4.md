@@ -1,25 +1,25 @@
-###  Публикация: 1617947   (201408) от 11.03.2023
+###  Публикация: 1370152   (898367) от 26.03.2020
 
-VA - Blues & Rock Relax Ballads (2023) 2CD [MP3|320 Kbps] <Blues, Rock>
+VA - The Blues Mystery (2020) [MP3|320 Kbps] <Blues, Rock Blues>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201408.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dr. Hector, The Groove Injectors - Safe In Your Arms Again [05:10]
-02. Dudley Taft - Have You Ever Loved a Woman (Live) [07:33]
-03. Terry Davidson and the Gears - Thirteen Hour Train [04:07]
-04. Vargas Blues Band - Do You Believe in Love (feat. Chris Rea) [05:17](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 13:33:32
+001. Eric Clapton - Cocaine
+002. Slim Butler - Coconut Monster
+003. Richard Thompson - Parchman Farm
+004. Keb' Mo' - When The Children Sing(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 07:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A244A22D555A7B8C94AE5412D4D78421B9CD3A90
+magnet:?xt=urn:btih:A0B932A10DB9F6CC6D0206CC08D417AC05E7C339
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618199   (201422) от 11.03.2023
+###  Публикация: 993658   (895534) от 05.03.2016
 
-VA - We Got The Blues (2023) [MP3|320 Kbps] <Blues, Rock>
+VA - Smooth and Sexy - Premium Jazz Grooves (2016) [MP3|320 кб/с] <Jazz, Chill Out, Lounge>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201422.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Eric Clapton, B.B. King - Worried Life Blues [04:26]
-002. Scott Holt - One Room Country Shack [05:18]
-003. Magic Slim , Nick Holt , The Teardrops - How Unlucky Can One Man Be [07:13]
-004. Bonnie Tyler - I Put a Spell on You [04:38](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 15:32:25
+01. De el Mar a la Luna (Jazz Loungebar Mix) - Vladi Strecker
+02. It's a Good Life (Sax Mix) - Bar Blue
+03. Honeytrap (Keys and Trumpet Mix) - Noise Boyz
+04. Blown Away (Acoustic Mix) - Orange Music(   Читать дальше...   )Жанр: Jazz, Chill Out, LoungeПродолжительность: 05:35:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AABCCDFE605CF09AC2A8FF334A82BAB46D2E089A
+magnet:?xt=urn:btih:8FCCBBB993EFB88A7D32159B51856C1842B1F6F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829232   (201994) от 25.10.2025
+###  Публикация: 1370393   (894820) от 28.03.2020
 
-Whiskey River - Broken Highway (2024) [MP3|320 Kbps] <Blues, Blues Rock>
+VA - 100% Blues Ballads & Slow Blues (2020) 5CD [MP3|320 Kbps] <Blues>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201994.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deserted Dreams [02:00]
-02. Whiskey Nightsong [02:00]
-03. Midnight Road [02:00]
-04. Whiskey Glow [01:54](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:38:41
+01. Craig Erickson - No Reply
+02. Johnny Littlejohn - Drifting
+03. Blue Stew - Bringing Home The Blues
+04. Jimmy Johnson - Your Turn To Cry(   Читать дальше...   )Жанр: BluesПродолжительность: 24:14:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85BA3DFECFAFBA59507B4F5B43353055A2F8B6C5
+magnet:?xt=urn:btih:9FEEEB2853FE7A690539536BEE7BEF2187FFBC9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651843   (206463) от 12.08.2023
+###  Публикация: 995421   (884492) от 11.03.2016
 
-Blues Delight - Nothing Special But The Blues (2023) Compilation [MP3|320 Kbps] <Blues>
+VA - Jazz Juice: Vocal Compilation (2016) [MP3|320 кб/с] <Jazz, Modern jazz, Blues>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206463.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Foolish Thing [02:48]
-02. Slightly Hung Over [04:46]
-03. Give Me My Old Life Back [02:52]
-04. The Look In Her Eyes [03:06](   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:24
+001. Queen Latifah - Dont Cry Baby
+002. Ledisi - Blues In the Night
+003. Etta James - Stormy Weather
+004. Cassandra Wilson - I've Grown Accustomed to His Face(   Читать дальше...   )Жанр: Jazz, Modern jazz, BluesПродолжительность: 07:55:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E957A4818A10CDCF4387EB9585FEDC8D86C8282
+magnet:?xt=urn:btih:98B5AA8B72CB3F86EA54DC4C0ED6BEBD146EF26E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,473 +114,9 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646124   (208668) от 18.07.2023
+###  Публикация: 870693   (884181) от 19.02.2015
 
-VA - Blues: It's Only Love (2023) [MP3|320 Kbps] <Blues, Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208668.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. James Brown - It's A Man's, Man's, Man's World (Mono) [02:50]
-002. Willie Nelson - A Woman's Love [03:22]
-003. Led Zeppelin - Stairway to Heaven (Remaster) [08:03]
-004. Delle - Power Of Love [04:00](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 08:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F661ADF3904CC49CC379E054ADBE950BF2BB2816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646359   (208954) от 14.07.2023
-
-VA - Relaxing Vocal Jazz (2023) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katrine Madsen - From a Mother to a Child (7:32)
-02. Vanessa Rubin - If You Could See Me Now (7:10)
-03. Veronica Swift - Confession The Other Woman (6:44)
-04. Katrine Madsen - City Garden (6:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 06:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DC69FE4BC0F341CD342D47FC16AAE683DFF500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645748   (209094) от 12.07.2023
-
-VA - Blues In The Garden (2023) [MP3|320 Kbps] <Blues, Country Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209094.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Leyla Mccalla - Feyo [03:15]
-002. Damon Fowler - Taxman [04:41]
-003. Roosevelt Sykes - Pocketful Of Money [02:30]
-004. Johnny Drummer - Bad Attitude [05:09](   Читать дальше...   )Жанр: Blues, Country BluesПродолжительность: 08:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150787B27943372CEDE3046063FED7F3355035E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603685   (209761) от 17.01.2023
-
-VA - The Charming Blues (2022) [MP3|320 Kbps] <Blues, Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209761.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jimmy Hall - Jumpin’ For Joy [03:47]
-002. Ben Harper - Bad Habits [03:45]
-003. Blind Blake - Southern Rag [02:53]
-004. Blind Boy Fuller - Homesick Blues [03:12](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 08:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6135E8C2577934EEEE2949467CCDC3012458FBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643752   (209888) от 03.07.2023
-
-VA - Blues For Your Evening (2023) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Beard - Can't Walk Away [03:51]
-002. Ray Charles - Early In The Morning [02:48]
-003. Smokey Robinson - Gasms [04:25]
-004. Tab Benoit - Fast And Free [03:09](   Читать дальше...   )Жанр: BluesПродолжительность: 08:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7737BA6BADB44CA8FB995B0CF5D922410F2A09E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641397   (210540) от 25.06.2023
-
-VA - Blues On My Soul (2023) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210540.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jimmy Thackery - Run Like The Wind [06:31]
-002. Micke Bjorklof - Girl Of My Favourite Song [03:04]
-003. The Groundhogs - Music Is The Food Of Thought [04:35]
-004. Van Morrison - Nervous Breakdown [05:09](   Читать дальше...   )Жанр: BluesПродолжительность: 08:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6002C9BE00D8FDE42C6F39C126827BB32B8F72C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638483   (211669) от 12.06.2023
-
-VA - Hey, what's that sound - Hammond Organ! (2023) 2CD [MP3|320 Kbps] <Jazz, Hammond, Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down to the Bone - Vinyl Junkie [05:25]
-02. Eloy - Inside (Remastered) [06:42]
-03. John McLaughlin - My Favourite Things (Instrumental) [06:17]
-04. Elvis Costello & The Attractions - Watch Your Step [02:59](   Читать дальше...   )Жанр: Jazz, Hammond, RockПродолжительность: 11:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B551F4CD020B5BF572EC59F5942FB0E50E6F38B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832094   (213483) от 30.10.2025
-
-Chicago Blues Radio - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Midnight Ashes
- 02 - Midnight Blues Serenade
- 03 - Midnight Bourbon Blues
- 04 - Midnight Glass(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 01:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D57338D7F9AA758524D1E7FEFD55CA966BF2094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426349   (214448) от 24.11.2020
-
-VA - Merry Christmas, Baby! - Christmas Blues (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angela Strehli - Boogie Woogie Santa Claus
-02. Daniela Andrade - The Perfect Christmas
-03. Louis Armstrong - When the Saints Go Marching in (Remastered)
-04. Elvis Presley - White Christmas (Remastered)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7C35E70BADC4D2E561B5978CE3EE2DC392FCCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426147   (215966) от 23.11.2020
-
-VA - Smooth Jazz: Romantic Travel (2020) [MP3|320 Kbps] <Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215966.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Magda Shortankard - Mr. Hammond
-002. Lebron - Never Say Never
-003. Oli Silk - Ooh Baby!
-004. The Smooth Jazz Alley - Smooth Jazz Alley(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14922CB0CAB4F0EDC47CBD3AA6F035CDF3E32C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966818   (216293) от 19.12.2015
-
-VA - Christmas Jazzy Lounge Grooves (2015) [MP3|320 кб/с] <Lounge, Jazz, Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Appleton - Christmas Song (03:54)
-02. Paul Eerhart - Making Room (03:50)
-03. Mo'jardo - Coloured Glass (04:41)
-04. Velvet Dreamer - French Kisses (05:00)(   Читать дальше...   )Жанр: Lounge, Jazz, Smooth JazzПродолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87F865D8AEAEAE59C3EB37C52E41AAED5DAD0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514110   (217056) от 03.12.2021
-
-VA - The Autumn Blues (2021) [MP3|320 Kbps] <Blues, Soul, Lyric>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник, вышел в середине осени и у названия этого микса самая прямая отсылка к текущему времени года. Музыка этой подборки передаёт атмосферу осени, красоту лесного убранства, свежесть остывающего воздуха и меланхоличного настроения.001. Peter Martinsson Group - Beautiful
-002. Monkeyjunk - The Marrinator
-003. Steve Baker - Hey Buddy
-004. Aj Fullerton - Slippin' Away(   Читать дальше...   )Жанр: Blues, Soul, LyricПродолжительность: 08:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A616D9E907EF71F4472D74A9FE29E4B300CAA442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343377   (218148) от 06.12.2019
-
-VA - Velvet Evening Jazz (2019) [MP3|320 Kbps] <Jazz, Instrumental, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218148.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Broker - Magicxx (Original Mix)
-002. Mike Stern - Nu Som
-003. Aaron Parks - Siren
-004. White Noise Trio - Seventeen(   Читать дальше...   )Жанр: Jazz, Instrumental, BluesПродолжительность: 10:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7C1827FC226412DD8817EF9FEEB0B4C281C3A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514104   (219063) от 02.12.2021
-
-VA - Blues Velour (2021) [MP3|320 Kbps] <Blues, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219063.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Monkeyjunk - All About You
-002. Roger Hammer - Walkin' Round Blues
-003. Bob Margolin - Good Driving Song
-004. Steve Baker - Now Youre Here(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 08:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0422F27799389D81A1AEC570DF0B05DE3250BF2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084195   (220279) от 18.12.2016
-
-VA - Jazz Sax and Piano (2016) [MP3|320 Kbps] <Instrumental Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220279.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Bernie Mcgann Quartet - Happy Times 5:41
-002.Krzysia Gorniak - Vision 8:49
-003.Instrumental Music Ensemble - Unforgettable Moments With Jazz 3:04
-004.Terrace Martin - Valdez Off Crenshaw 4:31(   Читать дальше...   )Жанр: Instrumental JazzПродолжительность: 08:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C44AD00602B8BF29BF2F71B3CCA0E9A1EB51CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084241   (221006) от 18.12.2016
-
-VA - A Jazzy Little Christmas: 50 Jazz and Swing Holiday Favorites (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warner/Chappell Productions - God Rest Ye Merry Gentlemen
-02. Hal David, John Cacavas - I Love this Time of the Year
-03. Leonard La Croix - It Came Upon a Midnight Clear
-04. Yuletide Music Ensemble - Jazzin Jingle Bells(   Читать дальше...   )Жанр: JazzПродолжительность: 01:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5543609A9DCB301FDC4D002B5CE51DE4D81CA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852499   (221027) от 22.12.2014
-
-VA - Blues and Rock Ballads Vol.5 (2014) [MP3|320 кб/с]<Blues, Blues Rock>
+VA - 50 Greatest Blues (2015) [MP3|320 кб/с]<Blues>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
@@ -592,20 +128,15 @@ VA - Blues and Rock Ballads Vol.5 (2014) [MP3|320 кб/с]<Blues, Blues Rock>
 
 ###  Подробнее
 
-001. The Dana Fuchs Band - Hiding From Your Love
-002. Los Lonely Boys - Road To Nowhere
-003. Jon Strahl Band - Too Long
-004. Moondogs Blues Party - Woman In Red
-005. John F. Klaver Band - Listen & Hear
-006. Mike Stern - We're With You
-007. Janie Cribbs ft. The T. Rust Band - Believe
-008. Sean Chambers - In The Winter Time
-009. Richard Van Bergen - Od On Love (Slight Return)
-010. Ronnie Baker Brooks - See You Hurt No More(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 07:25:49
+01. Nina Simone - Feeling Good (02:54)
+02. The Commitments - Mustang Sally (feat Andrew Strong) (03:59)
+03. John Lee Hooker - One Bourbon, One Scotch, One Beer (02:59)
+04. Muddy Waters - Mannish Boy (02:56)
+05. Susan Tedeschi - Evidence (03:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 03:09:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:385BDF39F0878495D10EE30A420C5DD7CAA8A8CD
+magnet:?xt=urn:btih:C325EE875A1111DD5AAB96B6391AF6C966FF889A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,28 +144,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269017   (223053) от 13.12.2018
+###  Публикация: 995855   (882400) от 12.03.2016
 
-VA - Living With The Blues (2018) [MP3|320 Kbps] <Blues, Country, Jazz>
+Screamin' Jay Hawkins - I Put A Spell On You: Screamin' Years(2016) 2CD [MP3|319-320 кб/с] <Blues, Rhythn'n'Blues, Soul>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223053.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 13Ghosts - Cocksuckers
-002. Alan Jackson - That's Where I Belong
-003. Alvin Lee - Lost In Love
-004. Chet Atkins - On The Road Again(   Читать дальше...   )Жанр: Blues, Country, JazzПродолжительность: 12:06:24
+Гений, опередивший время... да и живший, собственно, вне этого времени...В числе тех, кого можно считать его учениками и последователями - Том Уэйтс, Ник Кэйв, Артур Браун, Элис Купер, Оззи Осборн... может, кого-то еще я и упустил... Его "I Put A Spell On You" перепета в самых разнообразных версиях сотни... тысячи раз... кто ее только не пел - от Нины Симон (   Читать дальше...   )01. I Put A Spell On You
+02. She Put The Whamee On Me
+03. What That Is
+04. This Is All(   Читать дальше...   )Жанр: Blues, Rhythn'n'Blues, SoulПродолжительность: 06:09:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AE4C2CB69DB5B28AE4E4B87E143355F1B392F7F
+magnet:?xt=urn:btih:0977A5F44AE1429477C1796833940A419DDC0A5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,9 +173,67 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 736461   (223799) от 20.12.2013
+###  Публикация: 1373074   (881986) от 05.04.2020
 
-VA - Блюз Хиты (vol. 12) (2013) [MP3|320 кб/с]<Blues, Blues Rock>
+Janis Joplin - 100% Janis Joplin (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Brother & The Holding Company; Janis Joplin - Turtle Blues (Take 9)
+02. Big Brother & The Holding Company; Janis Joplin - Catch Me Daddy (Take 1)
+03. Big Brother & The Holding Company; Janis Joplin - Flower In the Sun (Take 3)
+04. Big Brother & The Holding Company - Need A Man To Love(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E274CB3127138A95F4B15630EFF685C9B77DAA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996267   (880953) от 13.03.2016
+
+VA - Smooth Jazz Vocal Grooves (2016) [MP3|320 кб/с] <Smooth Jazz, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nicholas Cole - So Good 4:16
+2. Lin Rountree - Givin' You Love 4:02
+3. James Vargas - Say You Will 5:34
+4. Nicholas Cole - When I Think of You 4:16(   Читать дальше...   )Жанр: Smooth Jazz, JazzПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3EDBD8D099668849FBC1884CD1BB03BE5D1C80D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871601   (879339) от 22.02.2015
+
+VA - Vintage Plug 60 Session 7 - Blues Rock, Vol. 1 (2015) [MP3|320 кб/с]<Blues, Blues Rock>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
@@ -656,20 +245,15 @@ VA - Блюз Хиты (vol. 12) (2013) [MP3|320 кб/с]<Blues, Blues Rock>
 
 ###  Подробнее
 
-01. Wicked Grin - Down On Love
-02. Blues Company - If I Only Could
-03. Tony Joe White - Gypsy Epilogue
-04. Glenn Hughes - So Much Love To Give
-05. Innes Sibun - Lost In The Wilderness
-06. Lucky Peterson - Tribute To The King
-07. The Eric Jerardi Band - Pain
-08. Buck 69 - No Medicine Like The Blues
-09. Vargas Blues Band - Searching For Love
-10. Danny Bryant's RedEyeBand - Danny's Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:16:01
+01. Tom Langford - Satellites (04:15)
+02. Geoffrey Wilson - Hell Rider (01:14)
+03. Larry Warren - Race Car Driver Trax (04:12)
+04. Geoffrey Wilson - My Phat Ride (01:19)
+05. Ben Harris - Sidewalk Strut (04:03)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:58:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74978DA231DA2D904DB1A8CC51D32AF782C47902
+magnet:?xt=urn:btih:A0901CCCA695D408F74BC292AC59AE06E11D3724
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,28 +261,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342265   (223800) от 02.12.2019
+###  Публикация: 871632   (879121) от 22.02.2015
 
-VA - Jazz Magic: Kings Of Improvisation (2019) [MP3|320 Kbps] <Jazz, Instrumental, Blues>
+VA - Vintage Plug 60 Session 9 - Blues Rock, Vol. 2 (2015) [MP3|320 кб/с]<Blues, Blues Rock>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223800.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-001. Neo Soul Acid Jazz Collective - Wondering
-002. Jason Mcguiness - Apollo
-003. Monkey House - Nine O'clock Friday
-004. Jazz Moon - Hey There Stranger(   Читать дальше...   )Жанр: Jazz, Instrumental, BluesПродолжительность: 09:45:27
+01. Michael Keck - Delta Clawhammer (02:08)
+02. Roger Charles - Race Driver (02:14)
+03. Ravage the Rain - Got the Hots (Instrumental Version) (03:53)
+04. George and Marguerite - Biker's Blues (02:17)
+05. Mockingbird Hill - The Witching Hour (Instrumental Version) (04:16)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:02:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:994AAFFEC9F07C7855DE02D9A674372B898AA5C0
+magnet:?xt=urn:btih:39A9A771E9F103342B3E9706725EB77EFB3365FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,28 +291,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268685   (226246) от 11.12.2018
+###  Публикация: 1374095   (876489) от 08.04.2020
 
-VA - Blue Jean Bar Blues (2018) [MP3|320 Kbps] <Blues, Country, Rock Blues>
+Eric Clapton - 100% Eric Clapton and... (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226246.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Black Pistol Fire - Storm Cussin'
-002. Back To Blue - Jerusalem Blues
-003. Ciaram Granger - Way Down
-004. Dr. Feelgood - Two Times Nine(   Читать дальше...   )Жанр: Blues, Country, Rock BluesПродолжительность: 11:53:40
+01. Eric Clapton - Cocaine
+02. Cream - Sunshine of Your Love
+03. Eric Clapton - After Midnight
+04. Derek & The Dominos - I Looked Away (40th Anniversary Version / 2010 Remastered)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:35:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54F859D1ABC3718DEFF17C7B3CE5CF7D8300111A
+magnet:?xt=urn:btih:D7988D61C9C50399F595E3678F217D2C400FB5DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -735,28 +320,446 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268301   (227879) от 10.12.2018
+###  Публикация: 1373961   (876480) от 08.04.2020
 
-VA - Aesthetiсs Blues (2018) [MP3|320 Kbps] <Blues, Rock Blues, Soft Jazz>
+Beth Hart - 100% Beth Hart (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227879.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. The Bluesmasters - Same Old Blues
-002. Jefferson Airplane - Somebody To Love
-003. Welcome - BluesMen Channel
-004. Joe Louis Walker - Hornet's Nest(   Читать дальше...   )Жанр: Blues, Rock Blues, Soft JazzПродолжительность: 11:28:17
+01. Sugar Shack
+02. Bad Woman Blues
+03. War In My Mind
+04. Caught Out In The Rain(   Читать дальше...   )Жанр: Rock, Blues, Blues RockПродолжительность: 02:26:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0D9F88DF08F6C437319F702EA9C96A88784CD7A
+magnet:?xt=urn:btih:2EE0CE5AA597BDEB1FF87AF9589C37EEECFBEC03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996507   (875462) от 16.03.2016
+
+VA - Sentimental Dialoguel: Rock Blues Classic (2016) [MP3|320 кб/с] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jimmy Witherspoon - Good Rocking Tonight
+002. Rush - Cold Fire
+003. B.B. King. Ruth Brown - You're the Boss
+004. Neil Young And Crazy Horse - Blue Eden(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 10:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1795BDFD860B5FD2DAABB85649C36B4D045F5F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374301   (874295) от 09.04.2020
+
+VA - Monday Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Guy; James Bay - Blue No More
+02. Elvis Presley - Heartbreak Hotel
+03. Van Morrison; Joey DeFrancesco - Everyday I Have the Blues
+04. Johnny Winter - Mean Mistreater(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF128BAF32A7707266521368970081651A8383C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374211   (874189) от 09.04.2020
+
+Ana Popovic - 100% Ana Popovic (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Won't Let You Down
+02. The Hustle Is On
+03. Love Fever
+04. Minute 'Till Dawn(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 06:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B467AB66338C9ADFE8BD6F8FBB322C50812B7C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997844   (871762) от 18.03.2016
+
+VA - Blues Forever vol.33 - vol.36 (2015) [MP3|320 кб/с] <Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Zito - Dirty Things
+02. Blues Merchants - Getting Used
+03. David Gogo - Jet Set
+04. Stevie Cochran - Between The Lines(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE8EABA29BEEEFC601AFCFA6EC1126FDF82203D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374806   (870430) от 11.04.2020
+
+Chris Rea - 100% Chris Rea (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving You Again
+02. Ace of Hearts
+03. Gone Fishing
+04. Winter Song(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F749987DFED59723F53AF99C36F30C1E7CEA4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998183   (870163) от 19.03.2016
+
+VA - Blues Forever vol.37 - vol.40 (2015) [MP3|320 кб/с] <Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Bartoccioni - Together
+02. Michael Burks - Christmas Snow
+03. Gerry Lane - Cryin'
+04. Mary-Ann Brandon - It's A Dirty Job(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C33F7640C3CA3828B8F8B958D98C929F8C3DBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997837   (868442) от 20.03.2016
+
+VA - The Very Best of Latin Jazz (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quincy Jones- Soul Bossa Nova
+02. Herbie Hancock- Watermelon Man
+03. Joao Gilberto- Um Abraco no Bonfa
+04. Luiz Bonfa- Samba de Duas Notas(   Читать дальше...   )Жанр: JazzПродолжительность: 03:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BD297AC6A95DD52F53E60162A86EC9A9A0DC92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998630   (868214) от 20.03.2016
+
+VA - Blues Forever vol.41 - vol.44 (2016) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Gogo - Why Don't You Show Me
+02. Ellis Hooks - To Get Close To You
+03. The Johnny Mac Band - Nothin' Left To Lose
+04. Brad Wilson - Hot Stuff(   Читать дальше...   )Жанр: BluesПродолжительность: 05: 14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4397DD8205A735F79AD38297A6BEBE5934B4AFE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107179   (867853) от 22.02.2017
+
+VA - Woman of Jazz (2017) [MP3|320 Kbps] <Jazz, Vocal Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melody Gardot - Goodnite
+02. Astrud Gilberto - Solo El Fin (For All We Know)
+03. Sophie Milman - Lonely in New York
+04. Karen Souza - Everyday Is Like Sunday(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 04:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9934505B6029F516B7401CE832F32C94EF619AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644979   (867123) от 17.04.2013
+
+VA - Sex Music for Intimate Erotic Moments, Hot and Smooth Sexual Healing Love Making (2013) [MP3|320 кб/с]<Instrumental, Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I Need It
+02. Erotic Moments
+03. Wide Open
+04. Sexual Relaxation
+05. Making Love Slowly
+06. Soft Sexual Music
+07. Chill out Time
+08. Night Music
+09. Music for Hot Sex
+10. Smooth Jazz(   Читать дальше...   )Жанр: Instrumental, Jazz, BluesПродолжительность: 02:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2001CCBE3D25831954B9CFCF952CEAFF7F2FB9B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 645439   (865265) от 18.04.2013
+
+VA - Музыка для секса (2013) [MP3|320 кб/с]<Instrumental, Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I Need It
+ 02. Erotic Moments
+ 03. Wide Open
+ 04. Sexual Relaxation
+ 05. Making Love Slowly
+ 06. Soft Sexual Music
+ 07. Chill out Time
+ 08. Night Music
+ 09. Music for Hot Sex
+ 10. Smooth Jazz(   Читать дальше...   )Жанр: Instrumental, Jazz, BluesПродолжительность: 02:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074B6AFA8E1385C4AE04303468CF20A3A7873494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999295   (862774) от 23.03.2016
+
+VA - Chill Out Blues (2014) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clarence - What Am I Living For
+002. JJ Grey & Mofro - Tupelo Honey
+003. Koko Taylor - I'd Rather Go Blind
+004. Janiva Magness - Things Left Undone(   Читать дальше...   )Жанр: BluesПродолжительность: 02:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34812A4578DE5523EFB419168636C241251A54B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108540   (862581) от 25.02.2017
+
+Livin' Blues - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shylina
+02. I Came Home At Night
+03. One Night Blues
+04. Sunrise(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE51AA87096C13B03C9E5B35F23127CF44FA4CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999585   (862520) от 23.03.2016
+
+James Brown - 10 Of The Best (2015) [MP3|320 кб/с] <Funk, Soul, R&B>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please, Please, Please
+02. Papa’s Got a Brand New Bag
+03. Cold Sweat
+04. Say It Loud – I’m Black and I’m Proud(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41FAA5AA9F9858F24730B4D8BCD5D2C5E723D464
 ```
 
 https://mybot314.ru/tekegram_catalog/

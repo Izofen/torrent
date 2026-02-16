@@ -1,25 +1,22 @@
-###  Публикация: 929476   (518503) от 20.08.2015
+###  Публикация: 706046   (449363) от 30.09.2013
 
-Failure - Fantastic Planet (1996) [OGG| 477-552 кб/с]<Alternative Rock, Space Rock, Grunge>
+Солдатское сердце (1959) SATRip
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518503.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Saturday Saviour
-02. Sergeant Politeness
-03. Segue 1
-04. Smoking Umbrellas(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, GrungeПродолжительность: 01:08:02
+Жанр: ВоенныйРежиссер: Сергей КолосовАктеры: Владимир Земляникин, Роза Макагонова, Николай Погодин, Анатолий Осмольский, Павел Винник, Евгений Кузнецов, Геннадий Карнович-Валуа, Гирт Яковлев, Владимир Гуляев, Петр Константинов, Ада ВойцикПродолжительность: 01:28:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:353CA1ECA84E6A70909371B50777A71FB974E1EE
+magnet:?xt=urn:btih:508098FC866F60716301EF29788FC5EFFB1979E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 929471   (518504) от 20.08.2015
+###  Публикация: 552552   (449360) от 26.09.2012
 
-Costa Cadeu - Cadeu (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Glitch, Experiemental>
+VA - Monster Tunes Top 10 September (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518504.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What (6:06)
-02. Shakes (5:09)
-03. Alexandra (5:14)
-04. Hellag (4:15)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, ExperiementalПродолжительность: 00:57:57
+01. Boxer & Forbes - Getting Closer - Pobsky Remix (07:06)
+ 02. Ralph Novell - Lagoon - Original Mix (07:56)
+ 03. Eximinds - Sunrise 6AM - Original Mix (07:26)
+ 04. Matt Holiday - Face The Sun - Mark Bester Remix (06:13)
+ 05. Right Face - Pure State - Original Mix (07:08)
+ 06. Andrew Candid - Polarise - Thomas Datt Remix (07:46)
+ 07. Solis - Strength To Strength - Original Mix (08:20)
+ 08. Snatt & Vix - Here For The Rush - Tomas Heredia Uplifting Mix (07:55)
+ 09. Matt Davey - Elise - Original Mix (07:13)
+ 10. Darren Porter - Alchemy - Original Mix (06:33)Жанр: TranceПродолжительность: 01:13:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A83C2C6153DF0AC5123C5B2033C5F23D5B1B7508
+magnet:?xt=urn:btih:FF166EF019999FC69148B46D57278993B2A58DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +59,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 929739   (518505) от 20.08.2015
+###  Публикация: 552406   (449359) от 26.09.2012
 
-Татьяна Тронина | Цветы мертвы (2005) [PDF, DJVU]
+Журнал | Скоровар №14 [2012] [DJVU]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518505.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Долгие годы Вадим, молодой отчим Ольги, отчаянно, страстно любил свою красавицу падчерицу. Теперь, когда жена умерла, он не собирается останавливаться ни перед чем, чтобы пробудить в девушке ответное чувство. И пусть Ольга, обвиняя Вадима в смерти матери, испытывает к нему жуткую ненависть, пусть бежит от него в маленький провинциальный городок — влюбленный мужчина (   Читать дальше...   )Жанр: РоманФормат: PDF, DJVU
+Очередной номер всем известного и популярного кулинарного издания "Скоровар". В газете собраны лучшие рецепты читателей со всех уголков России и ближнего зарубежья. Приятного аппетита!Формат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AAE68E264497BFA9D79189592FE1BABA2CFCB14
+magnet:?xt=urn:btih:BCD4503631BAF8316A51BE14001D7A499EFA66BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 929554   (518506) от 20.08.2015
+###  Публикация: 551317   (449358) от 26.09.2012
 
-А. И. Мельчин | Американская интервенция на советском Дальнем Востоке в 1918-1920 гг. (1951) [DJVU]
+Sexy Girls Pack Wallpapers (24.09.12) [Wallpapers 16+]
 
->>Научная и техническая литература
->>Историческая литература
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518506.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одним и наиболее активных направлений для агрессивных, грабительских устремлений американского империализма во второй половине XIX века, наряду с островом Гаити, Гавайскими и Филиппинскими островами и Китаем, стал русский Дальний Восток. Его упорное стремление захватить последний с его неисчерпаемыми богатствами определило и враждебную России политику правительства (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2871
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3F3BDD675D3D6EE9A8872A14AB1D990CE420058
+magnet:?xt=urn:btih:51E707CA77D8CD30C7952528BDEEAAC3D2BB3FAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 929779   (518507) от 20.08.2015
+###  Публикация: 552623   (449357) от 26.09.2012
 
-Журнал | Цветники в саду №9 (сентябрь 2015) [PDF]
+Sexy Girls Pack Wallpapers (26.09.12) [Wallpapers 16+]
 
->>Журналы
->>Домоводство (журналы)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518507.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прекрасно иллюстрированный журнал даст представление о гравийном саде.  Это относительно новая тема в ландшафтном дизайне. Кто-то видел, кто-то слышал, кто-то вообще не знает, о чем идет речь. А ведь это современное стилистическое направление ландшафтного дизайна не только интересно само по себе, как явление, но и весьма адаптивно и перспективно.Жанр: цветоводство, ландшафтный дизайнФормат: PDF
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2563
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC3B6BDF94A8841C33324DFE3BDBC73FD0F35346
+magnet:?xt=urn:btih:ABD09C111B55F6FB16D6CD5E7EF613A56F75B2C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,28 +137,461 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 929665   (518508) от 20.08.2015
+###  Публикация: 551826   (449356) от 26.09.2012
 
-Ideal Zero - In Perfect Darkness (2014) [MP3|320 кб/с]<Alternative Rock , Heavy, Female Vocal>
+Wallpapers Sexy Girls Pack (25.09.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5600x3733
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209D8C2FAE25A918ED4F5F4C4F79BEFC1E40B856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551290   (449353) от 26.09.2012
+
+Best HD Wallpapers Pack (23.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D11C58D0117E1FCE84DA3942B3CB2F0457C220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551825   (449352) от 26.09.2012
+
+Sexy Girls Pack Wallpapers (25.09.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2522
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4611B5DFA5E6B6EE071A129644244098E4C63A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546906   (449351) от 26.09.2012
+
+VA - Choice Cuts Volume Two (2011) [MP3|320 кб/с]<drum and bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toez - the rock (original mix) (06:43)
+02. Soultec & Blade - it's jazz (original mix) (06:18)
+03. Melos - input (original mix) (07:43)
+04. B4ssTee - show it to me (original mix) (05:39)
+05. Tidal - queen eyes hazel green (original mix) (06:04)
+06. Toez - holland (original mix) (06:52)
+07. NUSENSE - waiting for spring (original mix) (06:03)
+08. Jrumhand - gamble of life (original mix) (05:31)
+09. AQUASION - two nice people (original mix) (06:02)
+10. B4ssTee - feel your soul (original mix) (05:27)(   Читать дальше...   )Жанр: drum and bassПродолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F838EA5A84B32B3ADE132C23A3F567317090B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552520   (449350) от 26.09.2012
+
+[Wallpapers] Нравятся! Сотня № 023 (1920х1080-2560х1600)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Хотя на вкус и цвет...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E2F34521A6114DB03A4477CDC10F81225103C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552672   (449349) от 26.09.2012
+
+Подшивка журналов | Контрольная Закупка [2009-2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый независимый журнал, посвященный изучению качества продуктов питания местного производства, услуг и товаров народного потребления. Какой производитель изготавливает самые качественные и вкусные продукты? Мы готовы ответить! В раздаче представлены все номера журнала, вышедшие с 2009 (первый выпуск) по 2011 год.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2839FAC7CA791EB8F74991C653A1876B219743A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551315   (449348) от 26.09.2012
+
+Best HD Wallpapers Pack (24.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B54F7C53ED8DAE133910CF933133954523612C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552624   (449346) от 26.09.2012
+
+Wallpapers Sexy Girls Pack (26.09.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C11B5960EDB6C668443B14E8ED3FF8E573A59B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551897   (449345) от 26.09.2012
+
+MsDos - Soul Searchers  Blue Sky High (2011) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wisdom
+02. Deep Inside
+03. Blue Sky High
+04. Broken Arrow
+05. Dragons Lair
+06. East Ride
+07. Jack
+08. Numinous
+09. San Francisco Cable Car
+10. MSoulthangs(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C04A8529F421AD274061F69912DB956FAF0E410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551318   (449344) от 26.09.2012
+
+Wallpapers Sexy Girls Pack (24.09.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 6749x4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C727FE03EF2306562A8F5A3AB78AE89F472D6E50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552528   (449343) от 26.09.2012
+
+[Wallpapers] Нравятся! Сотня № 026 (1920х1080-2560х1600)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Хотя на вкус и цвет...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B33E58040C3B09719FA80A19DDEC9D253602F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551472   (449342) от 26.09.2012
+
+VA - Phuture Funk Volume 3 (2011) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449342.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pappa G - She Knew - (06:19)
+2. DJ Origin - Breaking Heartz - (06:06)
+3. Nookie - Walking Away - (06:14)
+4. Nookie - Mr Slippery - (06:43)
+5. Nookie - Sunset Over Sopot - (07:03)
+6. Nookie - Stone Groove - (06:46)
+7. Matizz - Divided - (07:27)
+8. Turtled - Tropico - (06:28)
+9. Division - Stand By - (07:25)
+10.Dr Dub - Walk Away (feat Harvest) - (05:12)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 01:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF2BFD87312A6C9D2F18FFDABDD234338160668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551699   (449341) от 26.09.2012
+
+John Trudell - Blue Indians (1998) [MP3|320 кб/с]<Native american, Political, Spoken word, Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Indians [04:02]
+02. Bad Dog [06:47]
+03. All Nite Cafe [04:09]
+04. Toy [03:36]
+05. Devil and Me [04:46]
+06. Johnny and Joe [04:17]
+07. Angel of Sin [03:44]
+08. Terminal Neon [03:35]
+09. Dizzy Duck [05:43]
+10. Grassfire [04:03](   Читать дальше...   )Жанр: Native american, Political, Spoken word,New Age, RockПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A08AA1918F2295326F8448E9FCB62CB756BBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409027   (449340) от 15.09.2020
+
+Manu Beats - Manila (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hip-Hop, Beats>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M.A.N.I.L.A (1:28)
+02. Born Dead (2:05)
+03. Street Kids (Ft. Sceno) (1:46)
+04. Crisis (Ft. N-Wise Allah) (2:46)(   Читать дальше...   )Производство: Ruanda RecordsЖанр: Hip-Hop, Instrumental Hip-Hop, BeatsПродолжительность: 00:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D413AE4444D2321060F37AA44BFD8AE258D81C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408454   (449339) от 15.09.2020
+
+Hurts - Faith (2020) [AAC|~296 Kbps]<Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices (3:10)
+02. Suffer (4:27)
+03. Fractured (3:00)
+04. Slave to Your Love (5:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8989AD487145AF45E0E452F06CFCF244565AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408817   (449338) от 15.09.2020
+
+Conan & Deadsmoke - DOOM SESSIONS VOL​.​1 (2020) Split Album [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518508.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Before We Drown
-02. Little Blue Man
-03. Don't Give Up
-04. Walls(   Читать дальше...   )Жанр: Alternative Rock , Heavy, Female VocalПродолжительность: 00:39:18
+01. Conan - Beheaded [00:17:04]
+02. Deadsmoke - Dethroned Concrete [00:11:09]
+03. Deadsmoke - Dead Minds Army [00:05:48]Жанр: Doom Metal, Stoner MetalПродолжительность: 00:34:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A5B7574D7B7AF2BDE01522265906E38A9AF69FC
+magnet:?xt=urn:btih:E94225D69C3729BEF20F5D4BBB8D8352E06FB87C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +599,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 929516   (518509) от 20.08.2015
+###  Публикация: 1409159   (449337) от 15.09.2020
 
-Журнал | Школа цветовода №3 (28) (июль 2015) [PDF]
+Downer Inc. (Kellin Quinn ft. Sleeping With Sirens) - Whatever This Is (2020) EP [MP3|320 Kbps] <Post-Hardcore>
 
->>Журналы
->>Домоводство (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518509.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В последние годы это пластичное эффектное растение буквально ворвалось в ландшафтную моду. В нашем представлении, это высокие деревья, раскидистые кустарники. Но, оказывается, среди представителей их огромного семейства есть множество невысоких и даже маленьких, ползучих форм, ив для альпийских горок и контейнеров, которые способны стать настоящим украшением вашего (   Читать дальше...   )Жанр: Ландшафтный дизайнФормат: PDF
+1. Ground Zero [00:03:48]
+2. Generation Z [00:03:40]
+3. Work of Art [00:03:53]
+4. Letdown [00:04:24](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:23:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B88CED3AE1E7C4746B2451D7B539DB9C626D832
+magnet:?xt=urn:btih:A4DC55CB1BB5DD61689354808322004B1894D6D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,28 +628,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 929465   (518510) от 20.08.2015
+###  Публикация: 1409142   (449336) от 15.09.2020
 
-Costa Cadeu - O (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Glitch, Experiemental>
+Natural Spirit - Під серпом часу (2020) [FLAC|Lossless|WEB-DL|tracks] <Slavonic Pagan Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Боги між нами [00:04:08]
+02. Гори, палай! [00:04:19]
+03. Чортів млин [00:04:18]
+04. Не бачу бога [00:05:11](   Читать дальше...   )Жанр: Slavonic Pagan Folk MetalПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5173684630304DFCEB5B319DC007FDE47AA0DC07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409065   (449335) от 15.09.2020
+
+Swift Publisher 5 v5.5.6 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518510.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Off (1:31)
-02. Visions (3:26)
-03. Derjenige (3:45)
-04. Dead Hugs (2:57)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, ExperiementalПродолжительность: 00:31:01
+Swift Publisher - это пакет графических утилит для macOS особенно пригодится тем, кто занимается полиграфией. Swift Publisher предназначен для создания макетов документов, печати листовок, газет, брошюр, буклетов и подобных документов. Swift Publisher работает с шаблонами страниц, благодаря чему пользователь может разместить на них объекты, используемые одновременно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Belight Software, LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Испанский, Итальянский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01AE0441663C0719367FEF640758863A624089DF
+magnet:?xt=urn:btih:801515609C2D93F41B0C650090F7E3E725B98028
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,86 +683,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 929641   (518511) от 20.08.2015
+###  Публикация: 1409089   (449334) от 15.09.2020
 
-VA - Encrypted Drum & Bass (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slang Banger - Slaughter House
-02. Bladerunner - Old Times
-03. Stealth - Broken
-04. Gerra & Stone - Po'rdosol(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384D1786430FEF5F8595D13AB052700212BED2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929474   (518512) от 20.08.2015
-
-Heather Powell - A Haze of Grays and Blue (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unexpected
-02. Black And White Thinking
-03. Remember The Love
-04. Blue Light(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF01F6C217CF67CD5853AD8E9A1524285B550319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929645   (518513) от 20.08.2015
-
-VA - Mind Technologies Vol. 6 (2015) [MP3|320 кб/с]<Drum & Bass>
+VA - Nicholson - Reverent (2020) [FLAC|Lossless|tracks] <Trance>
 
 >>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518513.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Okuli - Game Over
-02. Invadhertz - Listen Up
-03. Thesys - Brain Data
-04. Double Helix, Host - Velvet Future(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:19:05
+01. Nicholson - Butterflies (Original Mix)
+02. Nicholson - Sunstroke (Original Mix)
+03. Nicholson & Niki Mak - To The Flame (Charlotte's Theme) (Nicholson's Reverent Remix)
+04. Nicholson & Paul Skelton - Universal (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5777AE93073FDA5D2F6F5699E665DBE9759E6816
+magnet:?xt=urn:btih:F14FA24B9BD0EFFCC20DC2A06FC88C5F449643D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,407 +712,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 929624   (518514) от 20.08.2015
+###  Публикация: 1409090   (449333) от 15.09.2020
 
-Disparition - Madoc (2013) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Experimental, Industrial, Techno>
+Zoner Photo Studio X 19.2009.2.272 RePack by KpoJIuK [Ru/En]
 
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charles Wallace (13:08)
-02. Echthroi Part 1 (17:44)
-03. Echthroi Part 2 (19:08)
-04. Madoc (22:11)Жанр: Ambient, IDM, Experimental, Industrial, TechnoПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99911020FE3FAB0B24B7211390DD92D93D7F55FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929776   (518515) от 20.08.2015
-
-В теме. Холодная война? (2015) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Столичные специалисты изучают маневры, которые проводят сейчас войска НАТО в Европе. Там стартовали масштабные учения. Вице-спикер Госдумы Николай Левичев назвал их "фоном для селфи туристов". Более взвешенно учения анализирует политолог Борис Блохин.Телекомпания: Москва ДовериеЖанр: Документальный, ТелепередачаПродолжительность: 00:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF8D4CCDCE6D16484C2C5285080D8D7DEF04101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929627   (518516) от 20.08.2015
-
-Cyantific - Colour In The Shadows (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colour in the Shadows (feat. Benji)
-02. No More Heroes
-03. Colour in the Shadows (Instrumental)Жанр: Drum & BassПродолжительность: 00:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85A4880F57760C06517ECAD4E748FF5D993F80E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929552   (518517) от 20.08.2015
-
-Х. М. Ибрагимбейли | Крах «Эдельвейса» и Ближний Восток (1977) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518517.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой читателю монографии рассматриваются военно-политические события на Ближнем и Среднем Востоке накануне и после вероломного нападения фашистской Германии на  СССР, подготовка и осуществление агрессивных планов, предусматривавших эахват Кавказа и распространение гитлеровской  агрессии на страны Востока. Анализируются германо-итальянские  (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5B4565CBFDB34536161C98B26F0A348420602C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929632   (518518) от 20.08.2015
-
-oneBYone - Somebody Else EP (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody Else (feat. SevenEver) (Original Mix)
-02. Leave It All (feat. SevenEver) (Original Mix)
-03. Somebody Else (feat. SevenEver) (Sapphire Remix)
-04. Somebody Else (feat. SevenEver) (Instrumental Mix)Жанр: Drum & BassПродолжительность: 00:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB6389EF2B4BCAA950ECF7943359BC182532300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929676   (518519) от 20.08.2015
-
-Chuck Mangione Quintet - Recuerdo (1962) /1990, Jazzland/ [FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recuerdo [05:35]
-02. Big Foot [04:26]
-03. I Had The Craziest Dream [06:24]
-04. Solar [04:20](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B581992A7ED29353C9B4931FA5D056D697C33EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929638   (518520) от 20.08.2015
-
-Zombie Cats - Cat Attack (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cat Attack (Original Mix)
-02. Draw Blood (Original Mix)
-03. Don't Be Playing (Original Mix)Жанр: Drum & BassПродолжительность: 00:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45015738CFE0390C1492BA89B259E328701D024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929592   (518521) от 20.08.2015
-
-Дмитрий Горбунов | Ворона Ивановна (1972) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летела над улицей стая ворон, одна ворона вдруг отстала от подружек своих, спустилась на крышу дома, посидела возле трубы немножко, потом на снег во дворе слетела. На улице мороз, а тут ребятишки с горки катались, кто на санках, кто на на коньках, а иные просто на фанерных дощечках. Увидали ребята ворону и к ней, думали, она напугается, взмахнет крыльями и улетит, (   Читать дальше...   )Жанр: Детская прозаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB89B1EB8E25C3E19BCA59412CE41E500B86C8D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929555   (518522) от 20.08.2015
-
-И. М. Волков (отв. ред.) | Октябрь и советское крестьянство. 1917-1927 гг. (1977) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник включает статьи, в которых рассматриваются вопросы истории советского крестьянства и аграрной политики Советской власти в первое десятилетие ее существования. В нем обобщаются новые данные о крестьянском движении накануне Октября. На большом фактическом материале прослеживается развитие социалистической революции в первый год диктатуры пролетариата, поднимается (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DB6171A8FC9BA90165E5364232338EA2055862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929613   (518523) от 20.08.2015
-
-Benny Bailey Quintet - While My Lady Sleeps (1990) /Gemini/ [FLAC|image+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vino, Oh Vino! [05:51]
-02. Serenade To A Planet [07:52]
-03. Expectation [06:46]
-04. H&T Blues [06:06](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C0A3A2997A96BA1904BC9BB55282E679F6EDFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929609   (518524) от 20.08.2015
-
-Bob Wilber & Kenny Davern - Summit Reunion (1990) /Chiaroscuro Records/ [FLAC|image+.cue]<Jazz, Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long As I Live [05:39]
-02. Love Come Back To Me [06:11]
-03. St. Louis Blues [11:25]
-04. Black And Blue [04:57](   Читать дальше...   )Жанр: Jazz, Swing, Mainstream JazzПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED44BF41CE43A2BAE625F2CA2074AB0969BB799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929629   (518525) от 20.08.2015
-
-Avizura - Crystal EP (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Crystal
-02 Over The EdgeЖанр: Drum & BassПродолжительность: 00:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7601DEAF46FEEF1BA8EEDE01B453DB3A8C55340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369747   (518526) от 09.08.2011
-
-NoNaMe Клубу 5 лет!
-
->>3
->>94
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уважаемые друзья!Сегодня, 31 июля нашему Клубу исполняется 5 лет.
-За это время мы проделали немаленький путь. Были взлеты и падения, потери и приобретения, было много всего, но самое главное, что мы смогли устоять и сохранить свое лицо, имя и достоинство.Хочется поблагодарить всех тех, кто прошел вместе с нами через все эти годы, всех старожилов трекера, благодарим так же релизеров и сидеров, модераторов и кураторов, техподдержку и конечно девелоперов, а так же простых пользователей, без которых Клуб не был бы тем, кем сейчас является - одним из авторитетных трекеров Рунета.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 373490   (518530) от 09.08.2011
-
-Отбросы / Плохие / Долбанутые / Misfits  (2009) BDRip [H.264] (Сезон 1, серии 1-6 из 6) [Кубик в Кубе]
-
->>Зарубежные сериалы
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518530.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Келли, Натан, Кёртис, Алиша и Саймон выполняют общественные работы за совершение мелких преступлений. Они — не друзья. Более того, у них нет ничего общего. В группе постоянно происходят конфликты, споры и драки. Но в удивительный день во время сильного шторма сильная молния делает из них супергероев и наделяет их сверхвозможностями. Они понятия не имеют, что делать (   Читать дальше...   )Жанр: Фантастика, чёрная комедияРежиссер: Том Грин, Том Харпер, Чина Му-ЕнАктеры: Роберт Шиэн, Иван Реон, Лорен Соша, Антония Томас, Натан Стюарт-Джарретт, Алекс Рид, Рут Негга, Крэйг Паркинсон, Майкл Обиора, Анна Коваль, и др.Перевод: Двуголосый закадровый, профессиональныйОзвучка / Автор перевода: Кубик в КубеЯзык субтитров: Русские, АнглийскиеПродолжительность: ~ 00:45:00 мин
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 373636   (518543) от 09.08.2011
-
-Мальчишник в Вегасе / The Hangover (2009) DVD5 [Расширенная версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они мечтали устроить незабываемый мальчишник в Вегасе. Но теперь им действительно необходимо вспомнить, что именно происходило! Чей ребенок сидит в шкафу шикарного номера отеля? Как в ванную попал тигр? Почему у одного из них (Эд Хелмс) нет зуба? И, самое главное, куда делся жених (Джастин Барта)?! То, что парни вытворяли на вечеринке, не идет ни в какое сравнение (   Читать дальше...   )Производство: Warner Bros. Pictures / Legendary Pictures / Green Hat Films / IFP Westcoast Erste (США, Германия)Жанр: комедия / криминалРежиссер: Тодд ФиллипсАктеры: Брэдли Купер, Эд Хелмс, Зак Галифианакис, Джастин Барта, Хэзер Грэм, Александра Баррези, Джефри Тэмбор, Кен Жонг, Рэйчел Харрис, Майк Тайсон и др.Перевод: Дублированный + /на эпизодах расширенной версии многоголосый от Киномании/Субтитры: Вшитые, отключаемыеЯзык субтитров: 1. Русские с лицензии / 2. Русские - от seqw0 (есть нецензурные выражения) / 3. English / 4. Русские - только надписиПродолжительность: 01:47:54
+Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash

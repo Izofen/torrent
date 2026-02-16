@@ -1,651 +1,22 @@
-###  Публикация: 598134   (1000259) от 03.01.2013
+###  Публикация: 1723046   (56550) от 14.05.2024
 
-VA - Different Shores (2012) [MP3|320 кб/с]<Deep Dubstep, Deep Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. LM1 - Season Of Descent (DLVRY remix) (06:30)
-02. Oscillist - Aerie (original mix) (06:33)
-03. Marso & Gala - Northern Lights (original mix) (06:09)
-04. LM1 - Different Shores (original mix) (06:07)
-05. Fullarity - Loneliness (original mix) (05:03)
-06. LM1 & Glen E.Ston - Undercurrent (original mix) (06:23)
-07. Seathasky - Enough (original mix) (05:44)
-08. Good Natured Threat - Beacons (Keosz remix) (06:48)
-09. Robot Redford - 86 (original mix) (06:44)
-10. M25 & LM1 - Lost In Solar (original mix) (06:24)(   Читать дальше...   )Жанр: Deep Dubstep, Deep Drum & BassПродолжительность: 02:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4D61521292CA1DBC8CABBF4CCA99CD239C3BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597775   (1000260) от 03.01.2013
-
-Nature Wallpapers (02.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:137D602DED56843FE2EACC4F3407BC58A8B8DE9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597900   (1000261) от 03.01.2013
-
-Журнал | Делаем сами №24 (285) (Украина) [декабрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Издание представляет полезные советы домашним мастерам и мастерицам - тем, кто шьет и вяжет, строит и ремонтирует, придумывает и творит. Для тех, кто любит делать красивые и полезные вещи своими руками, создает уют в доме. Схемы, чертежи и описания самоделок, другая полезная информация. Спецпроект - подарки на все случаи жизни.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD2299A0B8A97D9A5C994AACD753CB4656AD0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597830   (1000262) от 03.01.2013
-
-[Wallpapers] Compilation of anime Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000262.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Compilation of anime Pack 4
-Название: Compilation of anime Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 5000х3000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00 до 5-ти сидов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DA137B928642C2A28A597AFCEA7B62B9B5A796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598054   (1000263) от 03.01.2013
-
-The Air I Breathe - Great Faith In Fools (2011) [FLAC|Lossless]<Metalcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Inevitable
-02 - Take This To Heart
-03 - Deliverance
-04 - Desolate And Disowned
-05 - For What It’s Worth
-06 - Vultures
-07 - The Life They Promised
-08 - Here’s To Letting Go
-09 - XIII
-10 - The AwakeningЖанр: MetalcoreПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597768   (1000264) от 03.01.2013
-
-VA - Dubai Beach Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sir Joe - Battersea
-02. Juicy Lotta - Close Your Eyes
-03. Took - Cloudy Sky
-04. Peter Flower - Cocktail Fusion (Original)
-05. Pleasure Lounge - Dreamworks
-06. Dr. Drummer - Galactica Soul
-07. Juicy Lotta - Gonna Make You Dance (Original)
-08. Armando Gomez - Hatton Cross
-09. Barfuesser - Je Suis Desolee
-10. Peter Flower - Latin Beach (Original)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CB1FAA17C4513C599329C472D2CBC5509CADBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597828   (1000265) от 03.01.2013
-
-[Wallpapers] Compilation of anime Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000265.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Compilation of anime Pack 2
-Название: Compilation of anime Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 5000х3000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00 до 5-ти сидов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27650560B1AFE81D50A767EC4B826F3AF9A57FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597987   (1000268) от 03.01.2013
-
-DJ Feel - TranceMission (27-12-2012) (TOP 30 2012) [MP3|320 кб/с]<Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Dj Feel - TranceMission Top 30 Of 2012 - INTRO
- 01. Omnia feat. Ira - The Fusion (Original Mix) COLDHARBOUR
- 02. Red Hot Chili Peppers - Otherside (Third Party Remix) CD-R
- 03. Phase Spin - Happiness (Original Mix) CD-R
- 04. Hannah - Falling Away (Protoculture Remix) ARMADA
- 05. Bobina - Quattro 372 MAGIK MUZIK
- 06. Hard Rock Sofa & Swanky Tunes - Here We Go (Original Mix) AXTONE
- 07. Audile - Tomorrow (Original Mix) TRANCE ALL STARS
- 08. Radion 6 - Lost In Space (Original Mix) RESET
- 09. Gareth Emery Feat. Christina Novelli - Concrete Angel (Original Mix) GARUDA(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65FA1F8F9B18E3DBEF485D3DE0DCC2FF40A1AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598070   (1000272) от 03.01.2013
-
-Журнал | Кулинария. Коллекция №1 [январь 2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-"Кулинария. Коллекция" - лучшие рецепты к вашему столу! Сборник оригинальных рецептов на каждый день. В каждом номере: салаты, супы, блюда из мяса и рыбы, картофеля и грибов, соусы, гренки, торты - все, что нужно для разнообразного меню, а также полезные материалы и советы, тонкости и хитрости кулинарного мастерства.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947464DA2E3A7543F65D093700DF7240D3AD1A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597777   (1000273) от 03.01.2013
-
-Animal Wallpapers (02.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C61D4C3887FD10DD014538E6438930FC928980E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598146   (1000274) от 03.01.2013
-
-VA - Platipus Archive 2 (2012) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Terra Ferma - Lunar Sunrise (10:14)
-02. Quietman - Now & Zen (08:25)
-03. Union Jack - Cockroach (remastered) (06:50)
-04. Art Of Trance - Kaleidoscope (Sunday Club extended Lens Of Atlantic remix) (10:23)
-05. POB feat. X-Avia - The Awakening (Seismix mix) ( (07:58)
-06. Union Jack - Water Drums (remastered) (09:06)
-07. Catalyst - Stare (Eye Saw mix) (06:04)
-08. Love Club - The Journey (Light remix) (09:03)
-09. Quietman - The Sleeper (Man With No Name remix) (07:35)
-10. Terra Ferma - Floating (09:45)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99924077D1834AC214B3DC16569043214EE8631A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597913   (1000275) от 03.01.2013
-
-Журнал | Золотая коллекция рецептов №137 [декабрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Новый год на пороге и пора обдумывать праздничное меню для ваших гостей друзей и любимых родственников. Здесь вы найдете: Канапе – ёлочка, роща, застольное, тарталетки – утренние, жемчужные, новогодние корзинки, рулеты – счастье, деликатесные, закуски – остренькая, мистер краб.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D728096A21B60D93810711B431889B71C1AB095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597988   (1000276) от 03.01.2013
-
-DJ Feel - TranceMission (24-12-2012) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-DJ Feel - TranceMission (24-12-2012) - INTRO
- 01. Karanda feat. Laura Shea - Agony (Shawn Mitiska Remix) ENHANCED
- 02. D-Mad - Must Be Together (Original Mix) AIR UP THERE
- 03. Andy Hope - Palmira (Original Mix) INTERSTATE
- 04. Broning Vs. Solis & Sean Truby - Rokit (Original Mix) INFRASONIC
- 05. Adam Kancerski - Ancients (Original Mix) INFRASONIC
- 06. Digital Self & Tek-Tonic - Rekall (Original Mix) DEV
- 07. Yuri Kane feat. Melissa Loretta - Daylight (DJ Feel Remix) FLASHOVER
- 08. Mino Safy - Passenger (Original Mix) TELLURIUM
- 09. Braiman & Falcon - Serenity (Original Mix) ALWAYS ALIVE(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE7A3FBB941422ABF6A02B186A2628ED61F22A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598124   (1000277) от 03.01.2013
-
-Madutec - Pressure Drop EP (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Pressure Drop (Original Mix) (07:09)
-02. Pressure Drop (Steve Mulder Remix) (07:14)
-03. Anatomy (Original Mix) (07:24)Жанр: TechnoПродолжительность: 00:21:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A72E541F68B5465F6EA0A25DA464747025FC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597995   (1000278) от 03.01.2013
-
-M.PRAVDA - Live in Motion 127 (Мегамикс из лучших треков 2012) [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Speed Limits - Bris
-2. C Systems & Jo Micali feat. Hanna Finsen - Love Is Strong
-3. Markus Schulz feat. Seri - Love Rain Down (Myon and Shane 54 Summer of Love Mix)
-4. M.Pravda - Hocus Pocus (Original)
-5. Kyau and Albert - A Night Like This
-6. Neev Kennedy - A Bridge (DNS Project Remix)
-7. Julie Thompson and Marlo - Broken Wing (Tom Cloud Remix)
-8. Paul Oakenfold feat. J Hart - Surrender
-9. Dennis Sheperd Feat. Molly Bancroft - Silence (Club Dub)
-10. Store n Forward - Sugar(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C0B7E90EC4D3DF96412F053ABA620BAD1C321B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598028   (1000279) от 03.01.2013
-
-M.PRAVDA - Live in Motion 123 (24.11.2012) Best of November [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.Speed Limits - Here We Are
-2. C Systems & Jo Micali feat. Hanna Finsen - Love Is Strong
-3. Alan Morris and Sequenita - Contact
-4. Ben Gold feat. The Glass Child - Fall With Me
-5. Paul Van Dyk feat. Adam Young - Eternity (Paul Van Dyk and Alex M.O.R.P.H club mix)
-6. Arty, BT & Nadia Ali - Must Be The Love (Shogun Remix)
-7. Dan Stone - Drive (Stoneface & Terminal Remix)
-8. MaRLo - Dreams
-9. Dash Berlin feat. Kate Walsh - When You Were Around (Ferry Corsten fix)
-10. Photographer - Airport(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D257C89865239C01F99D46EA5318BBFE6AC51620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598067   (1000280) от 03.01.2013
-
-M.PRAVDA - Live in Motion 110 (25.08.2012) Best of August [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Matt Darey Feat. Leah - Hold Your Breath
-2. Matt Darey Feat. Kate Louise Smith - Still Waters (Colorless Album Version)
-3. Dennis Sheperd Feat. Molly Bancroft - Silence (Club Dub)
-4. Stoneface & Terminal Feat. Cathy Burton - Go The Distance (Club Mix)
-5. Solarstone with Aly & Fila - Fireisland (Future Disciple Remix)
-6. Paul Oakenfold feat. J Hart - Surrender
-7. Alexander Popov feat. Kyler England - My World
-8. Dash Berlin feat.Emma Hewitt - Like Spinning Plates
-9. Аna Criado and Omnia - No One Home
-10. Broning feat. Anthya - Divine(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8396E9EDB1C38DA5A603028C4D9F42502E4CE297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598006   (1000281) от 03.01.2013
-
-M.PRAVDA - Live in Motion 126 (22.12.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Jjoo - Sakura
-2. Mike Koglin vs. 7 Skies - Vision
-3. Jaytech - Multiverse (Mimax Remix)
-4. HollyMy and M.Pravda - Pulse (National Sound Exclusive)
-5. Ana Criado and Beat Service - Whispers
-6. Estiva and Cardinal ft. Arielle Maren - Wait Forever (Estiva Mix)
-7. Essonita - I'd Be Lying
-8. Lange - Destination Anywhere
-9. Anna Lee vs. Alex TeeB - One Summer Day (Igor Dyachkov & U-Jeen Remix)
-10. Moonbeam feat. Aelyn - You Win Me (Akira Kayosa Bevan Miller Remix)(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6CF2D4BF51513730040A0A8CFD40F35288BE814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598061   (1000282) от 03.01.2013
-
-M.PRAVDA - Live in Motion 112 (09.09.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. The Thrillseekers feat. Stine Grove - Everything (Wellenrausch Dub)
-2. Matt Darey feat. Kate Louise Smith - I Still Remember (Lian July Remix)
-3. Velvetine - The Great Divide
-4. Richard Durand vs. The World - Sequence
-5. Stoneface & Terminal and Cathy Burton - Go The Distance (Club Mix)
-6. Ashley Wallbridge feat. Elleah - Keep the Fire (Club mix)
-7. Susana and Shogun - Only You
-8. Dankann - Unika (Antillas Rework)
-9. Aimoon and ARS - Lightyear
-10. Willem De Roo - DatamoonЖанр: Progressive Trance, TranceПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C851ADB4321FD320E399C414C8BEE48D16FD410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597826   (1000288) от 02.01.2013
-
-Идеальный голос / Pitch Perfect (2012) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Картина основывается на книге Мики Рэпкина «Пой идеально: Погоня за славной вокалиста а капелла», в которой рассказывается о студентке, внезапно обнаружившей в себе страсть к пению а капелла, то есть, без музыкального сопровождения.Жанр: Комедия, МузыкаРежиссер: Джейсон МурАктеры: Анна Кендрик, Скайлар Эстин, Бен Платт, Бриттани Сноу, Анна Кэмп, Ребел Уилсон, Алексис Кнапп, Эстер Дин, Хана Мэй Ли, Ванета Уолмсли, Шелли Регнер, Адам Дивайн, Уткарш Амбудкар, Майкл Вируэт, Дэвид Дель Рио, Элизабет Бэнкс, Джон Майкл Хиггинс, Фредди Строма, Джейкоб Высоцки, Скотт Шилстоун, Брок Келли, Дрю Баттлс, Катрина Деспейн, Камерон Дин Стюарт, Кетер Донохью, Карен Гонзалез, Лорен Грос, Майкл Александр, Тайлер Форрест, Джабари Томас, Джудд Лорманд, Кристофер Минц-Плассе, Стивен Бэйли, Майкл Анайа, Брайан Сильвер, Уэс Лагарде, Дональд Уоткинс, Джессика Джайн, Нат Ховард, Роуз Дэвис, Чиара Питтман, Эмилия Грейвз, Эмили Родригез, Чейз КуксиПеревод: Одноголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 01:52:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596956   (1000292) от 02.01.2013
-
-Драйверы для ноутбуков ASUS K43TA/K53TA/A53TA/X53TA/PRO5NTA Windows 7/8 [Eng/Rus]
+Adobe Audition 2024 24.4.0.45 (x64) Portable by 7997 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000292.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-К вашему вниманию предлагаю образ оригинального диска идущего в комплекте с ноутбуком ASUS K53TA-SX222D. Диск включает в себя все необходимые программы/драйвера для работы ноутбука. Windows 7 отлично воспринимает все программы, все проверено, все работает.Название программы: Драйверы для ноутбуков ASUS K43TA/K53TA/A53TA/X53TA/PRO5NTAЯзык интерфейса: Eng/Rus
+Adobe Audition - Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:21BEB1952369C0C42DC2B22442E2251EF01F78E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597499   (1000296) от 02.01.2013
+###  Публикация: 1721770   (56547) от 14.05.2024
 
-Knytt Underground [En] (L/1.0) 2012 | POSTMORTEM
+Plus Messenger (Telegram+) v10.12.0.1 Mod by Alex.Strannik [Ru/Multi]
 
 >>Архив торрентов
->>Архив Игр
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000296.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Knytt Underground - продолжит историю приключений бедолаги, похищенного инопланетянами. Герой попадет в аварию на незнакомой планете и будет вынужден отправиться на поиски запчастей для космического корабля, чтобы улететь домой.
-
-Спасение вселенной в руках крошки Mi - необходимо успеть ударить в 6 колоколов судьбы, иначе пойдет необратимая цепная реакция и нашей прекрасной планете наступит конец. Исследуйте 3 чудесных мира, используйте уникальные способности главного героя, чтоб добраться до своей цели и спасти наш мир от опасности.
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.05.2024Разработчик: rafalenseПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17848381EA4E412290B347628865BEE79AF24B30
+magnet:?xt=urn:btih:73CA53C2E311645A7752CC609E993100D49DE011
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,51 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597355   (1000297) от 02.01.2013
+###  Публикация: 1723263   (56517) от 15.05.2024
 
-Черный дрозд / Deadfall (2012) [720p] HDTVRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эддисон и Лиза в бегах после неудачного ограбления казино. Бывший боксер Джей направляется домой, чтобы провести День Благодарения в кругу семьи. Судьба неумолимо сводит этих людей, чтобы они встретили Зло и вступили в схватку с ним.Жанр: Триллер, Драма, КриминалРежиссер: Штефан РуцовицкиАктеры: Эрик Бана, Оливия Уайлд, Чарли Ханнэм, Сисси Спейсек, Крис Кристофферсон, Джейсон Кавалье, Кевин Десфоссес, Ален Голем, Эллисон Грэхэм, Патрик КертонПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: den904Продолжительность: 01:34:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597427   (1000298) от 02.01.2013
-
-Total Commander 8.01 InnoV8Pack 1.12.12.01 Beta 9 [Русский/Английский]
+Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by elchupacabra (14.05.2024) [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000298.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Total Commander InnoV8Pack - сборка использует популярный файловый менеджер Total Commander, включает в себя лучшие плагины и дополнительные программы для простой и удобной работы, имея при этом небольшой размер.Название программы: Total CommanderЯзык интерфейса: Русский/Английский
+Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1862CBE006814ED83D035FCDBB61341538D8080F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -734,27 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597818   (1000304) от 02.01.2013
+###  Публикация: 1723401   (56514) от 15.05.2024
 
-Hiren's Boot DVD 15.2 Restored Edition 1.0 (January 2013) [Английский]
+Adobe Acrobat Reader 2024.002.20759.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000304.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hiren's Boot DVD 15.2 Restored Edition ! - незаменимый инструмент, используемый многими компьютерными техниками и системными администраторами. Hа одном загрузочном DVD собраны десятки самых популярных программ и утилит для работы в режиме DOS. Это утилиты для работы с жестким диском, его восстановления и диагностики, утилиты диагностики всех узлов компьютера, файловые менеджеры, утилиты для работы в сети, а также многие другие. Hiren's Boot DVD избавляет от необходимости держать под рукой десятки и десятки дисков с необходимыми в ежедневной работе программами. Так же включены 3 Mini Windows (98, XP and 7) и 2 Linux. Новая Mini Windows 7 это модификация Wondershare LiveBoot 2012 Windows 7 PE.
-
-(   Читать дальше...   )Название программы: Hiren's Boot DVD Restored EditionЯзык интерфейса: Английский
+Adobe Acrobat Reader — приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество — теперь работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D8F1331B7DC6168DE1922A0E0A3C0866DC467B62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -762,25 +102,577 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597747   (1000311) от 02.01.2013
+###  Публикация: 1723307   (56513) от 15.05.2024
 
-MAGIX Music Maker MX Production Suite 18.0.3.0 [Английский]
+SketchUp Pro 2024 24.0.484 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MAGIX Music Maker MX Production Suite сочетает в себе все возможности MAGIX Music Maker MX Premium с невероятным пакетом дополнений, специально разработанных для удовлетворения потребностей продвинутых пользователей. Этот гигантский архив звуков может похвастаться огромным количеством универсальных возможностей для создания ваших собственных песен, с более чем 10000 высококачественных звуков и лупов, полным набором удивительных виртуальных инструментов Vita Solo, предоставляющих реальные возможности для любого производства, Vintage Effects Suite - набором студийных эффектов, и впечатляющей VariVerb Pro студией реверберации. Вдобавок ко всему, Independence - полная рабочая сэмплер станция для профессионального производства музыки, включающая обширную библиотеку сэмплов, размером 12 Гб. Делайте свою собственную музыку просто, используя больше эффектов, убедительные инструменты и реальные синтезаторы. Начните прямо сейчас, даже без каких-либо предварительных навыков!Название программы: MAGIX Music Maker MX Production SuiteЯзык интерфейса: Английский
+SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E6D058CAD117EBA88EDB434FE62F61C700AE7223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723430   (56504) от 15.05.2024
+
+VMware Workstation 17 Pro 17.5.2 Build 23775571 RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56504.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E053CD92D941DF66CBCF253DC557BD6842CE4F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723291   (56503) от 15.05.2024
+
+SIV (System Information Viewer) 5.77 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56503.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIV (System Information Viewer) - мощнейшая утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5470788941F79F3E52427B59E763BF7320DE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723361   (56501) от 15.05.2024
+
+7-Zip 24.05 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56501.jpg" />
+</div>
+
+
+###  Подробнее
+
+7-Zip - очень хороший и качественный архиватор, который превосходит многих конкурентов и поэтому все больше пользователей останавливают выбор именно на нем. Забота разработчика программы проявляется в распространении 7-Zip по всему миру, переводу программы на 79 языков мира, среди которых есть и русский.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F1C967B755D728452BC922BCDCAF856FB8A19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723239   (56500) от 15.05.2024
+
+Planet VPN 2.8.3.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью бесплатный VPN сервис без ограничений по трафику и скорости. Для подключения не требуется регистрация и ввод личных данных. С Planet VPN вы можете не беспокоиться об интернет-цензуре и ограничении доступа к любимым сайтам. Наслаждайтесь просмотром потокового видео и прослушиванием музыки на сайтах, спортивными мероприятиями, играми, социальными сетями, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1AAA3B00FB3F98331D7A028188C1FFB5814C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723277   (56496) от 15.05.2024
+
+Adobe Acrobat Pro 24.002.20759.0 (x32-x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3CAF053F039BC0315CC6A6FAF35FE36C4ABE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723298   (56488) от 15.05.2024
+
+Total Commander 11.03 Extended 24.5 Full / Lite RePack (& Portable) by BurSoft [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый известный файловый менеджер под Windows - Total Commander в Extended версии - это новый взгляд на функциональность и стабильность! Lite - версия отличается от старшего брата отсутствием встроенных программ.
+Total Commander Extended - это x86 и x64 версии Total Commander в одном инсталляторе. Оптимальный набор программ и плагинов. Поддерживает интеграцию дополнительных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61AF6AEC9A270E133BF7AFF8088B60A4037BFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723327   (56482) от 15.05.2024
+
+XviD4PSP 8.1.80 Pro (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56482.jpg" />
+</div>
+
+
+###  Подробнее
+
+XviD4PSP - универсальный пакетный аудио/видео конвертер, позволяющий работать практически со всеми известными медиа форматами (AVI, DIVX, ASF, MPG, MPE, M2V, MPEG, VOB и многие другие). Программа примечательна отсутствием зависимости от наличия системных компонентов и установленных кодеков.
+Также присутствуют пресеты, позволяющие осуществлять быстрое конвертирование (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD22EF186F1CBF38A72BB1CE339122CBC0E60C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723245   (56481) от 15.05.2024
+
+FreeCommander XE 2024  donor x64 build 907 + portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56481.jpg" />
+</div>
+
+
+###  Подробнее
+
+FreeCommander XE - это довольно-таки удобный в работе файловый менеджер, который поможет значительно упростить повседневную работу с компьютером. Эта программа легка в освоении и использовании, и послужит отличной альтернативой стандартному проводнику Windows и другим менеджерам файлов. Функционал инструмента разнообразен, что даст возможность управлять всеми процессами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB3DC5B58F432270BF297F9428EAB82C141CC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723394   (56478) от 15.05.2024
+
+PotPlayer 240514 (1.7.22230) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daum PotPlayer - бесплатный мультимедийный проигрыватель, от автора KMPlayer со всеми его функциями и схожим интерфейсом, но заметно усовершенствованный. Отличительными чертами плеера является высокое качество воспроизведения, поддержка всех современных видео и аудио форматов и наличие встроенных DXVA видео кодеков. Плеер оснащен современным дизайном, удобен в настройке, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F216174091DFD54734C5024227CE093D487E5795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723421   (56475) от 15.05.2024
+
+Topaz Video AI 5.0.4 (x64) RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4131C03C2775DE6F46CDC54BDB7F6938F6D65EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723352   (56473) от 15.05.2024
+
+AIDA64 Extreme Edition 7.20.6835 Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56473.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB465CC385ACA9DC37B9C6B269ADC123ED3F22F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723388   (56469) от 15.05.2024
+
+LDPlayer 9.0.71 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56469.jpg" />
+</div>
+
+
+###  Подробнее
+
+LDPlayer 9 — мощный бесплатный эмулятор устройства с операционной системой Android для ПК Windows. Это приложение позволяет запускать на вашем компьютере почти все популярные мобильные игры и приложения созданные для ОС Android. Игры можно устанавливать из магазина LD Store, Google Play или с помощью APK-файла и управлять ими с помощью мыши и клавиатуры.
+Этот эмулятор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E46A8138FDD3B67DFBE3926BF2C4DFF07CF33DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723381   (56460) от 15.05.2024
+
+doPDF 11.9.453 Free [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56460.jpg" />
+</div>
+
+
+###  Подробнее
+
+doPDF — программа для преобразования документов в формат PDF. Поддерживается работа со многими форматами файлов, включая Microsoft Excel, документы Word или PowerPoint, сообщения почты и веб-страницы.
+После установки doPDF в папке "Принтеры" появится новый виртуальный принтер, через который и будет происходить процесс преобразования. Таким образом, для (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5BA79F96FF10853E6515201E1C3EDE849A29CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723316   (56455) от 15.05.2024
+
+KMPlayer 4.2.3.12 Plus (x86) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56455.jpg" />
+</div>
+
+
+###  Подробнее
+
+The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766998ECA88A4226550A5448F244FA9FF2F5468B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723294   (56453) от 15.05.2024
+
+Microsoft .NET 7.0.19 Runtime [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
+С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C175CE5741613C8EEBFCCBE30C0556ABAE393DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723310   (56451) от 15.05.2024
+
+LosslessCut 3.61.0 Standalone (x64) Pre-release [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56451.jpg" />
+</div>
+
+
+###  Подробнее
+
+LosslessCut — простой видеоредактор для нарезки медиафайлов без потери качества. Не делает никакого декодирования/кодирования и поэтому работает чрезвычайно быстро. Вырезанный фрагмент мгновенно появляется рядом с исходником. Делает слияние выбранных сегментов и слияние произвольных файлов (с одинаковыми кодеками) без потерь. Извлекает без потерь видео, аудио и субтитры. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF2652C4833EFF1BA81D9F0CF55CFCB5F59C27D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723431   (56448) от 15.05.2024
+
+Pipette 24.5.15 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pipette — данный продукт пригодится дизайнерам, web-разработчикам, фотографам, которые занимаются редактированием своих работ. Это совершенно бесплатное приложение, представляющее собой, как не сложно догадаться из названия программы — пипетку. Поскольку инструмент является портативным, вы также можете использовать его без установки. С помощью этого приложения можно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDDFEAB995EC47BCC9578999620CC9EC5F6E1E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723436   (56447) от 15.05.2024
+
+Capture One 23 Enterprise 16.4.0.2112 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E1B2FCE5581F02BA3865E8D1B95F05AEC69297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723393   (56443) от 15.05.2024
+
+Mullvad Browser 13.0.15 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mullvad Browser основан на движке Firefox ESR. Содержит множество функций Tor Browser, но не использует сеть Tor, а предназначен для использования с надежным VPN (не требует использования Mullvad VPN).
+Mullvad Browser подойдет для пользователей, которые хотят защитить свою конфиденциальность, избегая использования Tor. Браузер включает режим "HTTPS Only", (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289B3EFE334EEDBB56233D5B973DDA053D9155A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723341   (56442) от 15.05.2024
+
+Яндекс.Браузер 24.4.2.954 (x32) / 24.4.2.956 (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83773ABD88C285D4669F4CAEEB0DE305B4FCB44A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723301   (56441) от 15.05.2024
+
+PotPlayer 240514 (1.7.22230) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D06B9A6437E762000AB5E7BF4775273D54FAA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,23 @@
-###  Публикация: 1468031   (1017426) от 06.05.2021
+###  Публикация: 1806786   (11529) от 14.07.2025
 
-Картинки - Птица Кардинал [JPG]
+Картинки - Tattoo Flash [JPG, GIF, BMP, PSD]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017426.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок птица кардинал.Формат: JPGРазрешение файлов: 2048x1491-7360x4912
+Огромный пакет изображений с татуировками отсортированные по папкам по алфавиту.
+Количество 12000+Формат: JPG, GIF, BMP, PSDРазрешение файлов: Разное
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E1384A33589D3A061D16536B3FACE096E2E34AC
+magnet:?xt=urn:btih:7AF7F8643852E6753DA34B3A36F7369E7097401C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468028   (1017430) от 06.05.2021
+###  Публикация: 1806792   (11526) от 14.07.2025
 
-Картинки - Дятел [JPG]
+Промты - SevenUnited LLC - 416 Midjourney Prompts for Creative Portraits - 9576470 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017430.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок дятел.Формат: JPGРазрешение файлов: 2040x1148-6016x4000
+Пакет из 416 настраиваемых промтов для создания креативных портретов.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:036AE5B1E3249B7903BD708BEC3A1468963A9847
+magnet:?xt=urn:btih:5DC5E7871D3EB463C2BF2F50E476D5DF5F86EC70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465486   (1019117) от 26.04.2021
+###  Публикация: 1806895   (11415) от 15.07.2025
 
-Картинки - Пасхальные Яйца [JPG]
+Промты - SevenUnited LLC - 711 Ai Art Prompts for Style References: Vol 4 - 4819870 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019117.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок пасхальные яйца.Формат: JPGРазрешение файлов: 426x640-17867x11867
+711 промтов по стилю для AI-искусства: том 4. Каждый промт содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DCCDCFF1FB345822027A674E800FE7DAAA08EF0
+magnet:?xt=urn:btih:58ECEC4B7EB96A8F1CAFC027425FC1ABF5D9B8F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464099   (1019964) от 21.04.2021
+###  Публикация: 1807090   (11325) от 16.07.2025
 
-Картинки - Italian vintage and classic motorcycles photos [JPG]
+Промты - SevenUnited LLC - 699 Ai Art Prompts for Style References - 9336128 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019964.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Итальянские винтажные и классические мотоциклы 1920 - 1980-х годов выпуска.Формат: JPGРазрешение файлов: 795х555-7816x3813
+Это набор из 699 промтов по стилю, созданных с помощью AI. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6E3DBCD030042CC794E2E9C6775FCFC72366576
+magnet:?xt=urn:btih:C81C4888A87187611EBA349A8C6BFA9DF47B1336
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464098   (1019969) от 21.04.2021
+###  Публикация: 1807776   (10883) от 20.07.2025
 
-Картинки - Vintage and classic USA motorcycles photos [JPG]
+Промты - SevenUnited LLC - 435 Midjourney Prompts for Fantasy Characters - 3863627 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019969.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Винтажные и классические мотоциклы США 1910 - 1980-х годов выпуска.Формат: JPGРазрешение файлов: 895х815-7043x4242
+Набор из 435 настраиваемых промтов Midjourney для фантастических персонажей.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E6DC51F90D9FEC988C8CB6484B641C875F77235
+magnet:?xt=urn:btih:580DC89D0C2F26074FD0C09D77C87B25DD456913
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464314   (1019970) от 21.04.2021
+###  Публикация: 1808020   (10660) от 22.07.2025
 
-Картинки - British Motorcycles photos [JPG]
+Промты - SevenUnited LLC - 425 Ai Art Prompts for Fashion - 5778045 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019970.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цветные фото английских дорожных мотоциклов 1910 - 1980-х годов выпуска.Формат: JPGРазрешение файлов: 997х662-8256х5504
+Набор из 425 ИИ-промтов по моде. Каждый промт сопровождается 4 примерами изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E8C32390DBE63F3A20DF2DB281B75A710A4ADF8
+magnet:?xt=urn:btih:1F470C2F212DC94E1A5CD6825AF6923C07D7C061
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462624   (1020992) от 15.04.2021
+###  Публикация: 1808215   (10586) от 23.07.2025
 
-Картинки - Грузия [JPG]
+Промты - SevenUnited LLC - 402 Ai Art Prompts Environments - 5776902 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020992.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок Грузия.Формат: JPGРазрешение файлов: 2048x1536-9856x6528
+Набор из 402 промтов с изображением ИИ для локаций. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:316E967ACC67183D10B27EEBECE40419B391E6D3
+magnet:?xt=urn:btih:D90C285F8FE95ECC4CC958CAB9DE787C83D54292
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +181,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462621   (1021019) от 15.04.2021
+###  Публикация: 1808733   (10248) от 26.07.2025
 
-Картинки - Белка [JPG]
+Промты - SevenUnited LLC - 616 MJ Prompts For Scrapbook Cutouts: Vol 3 - 3361092 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021019.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок белка.Формат: JPGРазрешение файлов: 1280x793-8688x5792
+Набор из 616 настраиваемых ИИ-промтов c фигурками для скрапбукинга: том 3. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDF4F1E724CCA5FE6C00EF2C397643F4637996C0
+magnet:?xt=urn:btih:A7092162B6B50043023B6DAF6A348204B0354DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +207,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461798   (1021551) от 11.04.2021
+###  Публикация: 1808912   (10150) от 27.07.2025
 
-Картинки - Panoramic Wallpapers [JPG]
+ИИ Арты - Fruit & Femme [JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021551.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка панорамных обоев.Формат: JPGРазрешение файлов: 3840x1200-7680x1600
+Небольшой набор ИИ искусства.Формат: JPGРазрешение файлов: 2536x2536 - 4000x2667
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55948B32E626E493CC8080C750BDF7030FEBC706
+magnet:?xt=urn:btih:705C8FCB5A59627205211DA8300027C9300B6DE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +233,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461853   (1021566) от 11.04.2021
+###  Публикация: 1809098   (10062) от 28.07.2025
 
-Картинки - InterfaceLIFT - 16x10  Wallpapers [JPG]
+Промты - SevenUnited LLC - 645 Midjourney Prompts for T-Shirt Designs: Vol 3 - 5510589 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021566.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1920x1200-6400x4000
+Набор из 645 настраиваемых промтов Midjourney для дизайна футболок. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:633753BF736F9E89A213C40CDF9C949F44B107A1
+magnet:?xt=urn:btih:2332C0A377799BBE99EC0F542979FF6E0669C4D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +259,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461768   (1021600) от 11.04.2021
+###  Публикация: 1809431   (9864) от 30.07.2025
 
-Картинки - Новая Зеландия [JPG]
+Промты - SevenUnited LLC - 403 Ai Art Prompts For Gothic Tattoos - 5510589 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021600.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок Новая Зеландия.Формат: JPGРазрешение файлов: 4770x3180-14840x5853
+Набор из 403 промтов для готических татуировок от ИИ. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39C2B163C1A4CE4D45947D6093E726AD35854DA5
+magnet:?xt=urn:btih:26EBBF15B536524B8D8C8080A7087EC394C30675
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +285,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461764   (1021602) от 11.04.2021
+###  Публикация: 1809828   (9649) от 01.08.2025
 
-Картинки - Таджикистан [JPG]
+Промты - SevenUnited LLC - 401 Midjourney Prompts for Mood Portraits - 3312009 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021602.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9649.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок Таджикистан.Формат: JPGРазрешение файлов: 1920x1280-9732x4602
+Это набор из 401 промтов Midjourney с примерами изображений для mood портретов.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDDBAB8B1B16AC2CA115D4E12DDFD15DD5B5E93F
+magnet:?xt=urn:btih:D92D2D56E62703D08DADC99BCD20CAAC3090BD2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +311,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461763   (1021603) от 11.04.2021
+###  Публикация: 1810252   (9451) от 03.08.2025
 
-Картинки - Киргизия [JPG]
+Промты - SevenUnited LLC - 598 Midjourney Prompts for Tattoo’s - 8168812 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021603.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок Киргизия.Формат: JPGРазрешение файлов: 1920x1280-11273x4253
+Пакет из 598 настраиваемых промтов Midjourney для татуировок.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C7A92F7C1081E32F0E5C9B9966B3D70BEDB77C0
+magnet:?xt=urn:btih:701BFDF21E842C99FCEBC7ACD5FD981C04025145
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,25 +337,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461765   (1021622) от 11.04.2021
+###  Публикация: 1810394   (9341) от 04.08.2025
 
-Картинки - Попугай Кеа [JPG]
+Промты - SevenUnited LLC - 644 Midjourney Prompts for Invitations: Vol 2 - 3976880 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021622.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок попугай кеа.Формат: JPGРазрешение файлов: 1275x1920-5663x2692
+Пакет из 644 настраиваемых промтов Midjourney для приглашений: часть 2.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25F7DADF5A0094BFC3AC867C37EC67E43176A597
+magnet:?xt=urn:btih:A9B4B3F6113C970720D73630F1F2E8AD1FA2B3AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,25 +363,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461035   (1022081) от 08.04.2021
+###  Публикация: 1810595   (9259) от 05.08.2025
 
-Картинки - Дикие Кошки [JPG]
+Промты - SevenUnited LLC - 432 Midjourney Prompts for Aliens - 8015415 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022081.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок дикие кошки.Формат: JPGРазрешение файлов: 2434x1622-6000x4000
+Набор из 432 настраиваемых промтов Midjourney для инопланетян.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B2D7B666034824FB5A77D5B2FA26C52D189994F
+magnet:?xt=urn:btih:5A0A3E339C4EFCBB6EC23F13AF57BBFA414279DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,25 +389,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461045   (1022099) от 08.04.2021
+###  Публикация: 1810762   (9130) от 06.08.2025
 
-Картинки - Ралли [JPG]
+Промты - SevenUnited LLC - 377 Midjourney Prompts for the 90’s - 6490687 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022099.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок ралли.Формат: JPGРазрешение файлов: 1933x1289-6000x4000
+Пакет из 377 настраиваемых промтов Midjourney для 90-х.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:268FEC00C9C33900C737A57995AF3632E1742280
+magnet:?xt=urn:btih:FC823C5943B9DDC8B4CEA0628B9CEE7FEA7954F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,25 +415,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461037   (1022115) от 08.04.2021
+###  Публикация: 1810954   (9001) от 07.08.2025
 
-Картинки - Павлин [JPG]
+Промты - SevenUnited LLC - 396 Midjourney Japanese Art Prompts - 8704516 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022115.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок павлин.Формат: JPGРазрешение файлов: 1280x851-9856x6528
+Набор из 396 настраиваемых промтов Midjourney для японского искусства.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F70ABB2EA0CE765DF1548F991638E4742809852
+magnet:?xt=urn:btih:3657614B2D1D62821E8D4668D0CA798392E53174
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,25 +441,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460737   (1022442) от 06.04.2021
+###  Публикация: 1812376   (7906) от 14.08.2025
 
-Картинки - Поход в горы [JPG]
+Промты - SevenUnited LLC - 374 Midjourney Prompts For Smartphone Mockups - 2253290 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022442.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок поход в горы.Формат: JPGРазрешение файлов: 720x1280-8608x5576
+Пакет из 374 настраиваемых промтов Midjourney для макетов смартфонов.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C58EA46B901FB54B643BCB5066CE19870154228
+magnet:?xt=urn:btih:FEC2A520DA16F4F0E1104FAF85975EB5557F052A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,25 +467,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460738   (1022447) от 06.04.2021
+###  Публикация: 1813600   (6789) от 20.08.2025
 
-Картинки - Птица Воробей [JPG]
+Промты - SevenUnited LLC - 391 Midjourney Prompts for Characters - 4907669 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022447.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок воробьи.Формат: JPGРазрешение файлов: 2048x1365-6000x4000
+Набор из 391 настраиваемых промтов Midjourney для дизайна персонажей.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40E72DDC24FFBFCA6E2997080CA8455E5B15C382
+magnet:?xt=urn:btih:43EF3B3E3634F8B5C9F0BAFBE1C7BF205156E083
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,25 +493,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459704   (1023128) от 02.04.2021
+###  Публикация: 1814050   (6493) от 22.08.2025
 
-Картинки - Моря и океаны [JPG]
+Промты - SevenUnited LLC - 374 Midjourney Prompts for Cultural Portraits - 1715073 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023128.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок море и океан.Формат: JPGРазрешение файлов: 1920x1080-7952x5304
+Пакет из 374 настраиваемых промтов Midjourney для портретной фотосъемки в культурном контексте.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF4DAD8D593930685C6F446532EA51CE7F9B9739
+magnet:?xt=urn:btih:5E63D9653077B06DBC669B1E6543869405635A5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,25 +519,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459708   (1023136) от 02.04.2021
+###  Публикация: 1814798   (5860) от 26.08.2025
 
-Картинки - Птицы [JPG]
+Промты - SevenUnited LLC - 639 Ai Art Prompts for Style References: Vol 2 - 3995597 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023136.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок птицы.Формат: JPGРазрешение файлов: 1920x1052-8601x4500
+639 промтов по стилю для AI-арта: том 2. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:915C445755C7050074BD9DA893A1C8F9E1F0E3B0
+magnet:?xt=urn:btih:42E7CDE5F9E4C9918DD8B706F89DB8B3F1C38F3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +545,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458354   (1024006) от 28.03.2021
+###  Публикация: 1815246   (5379) от 29.08.2025
 
-Картинки - Super mix wallpapers 623 [JPG]
+Промты - SevenUnited LLC - 634 Ai Art Prompts For Cute Kawaii Vol 4 - 6948569 [TXT, JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024006.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1920x1080-7680x4320
+Комплект из 634 промтов для ИИ по созданию милых кавайных изображений: том 4. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D167EE0313C9806FECAC03D627D7737B01D93C9
+magnet:?xt=urn:btih:1FE704ED10C276736AC53364B8EAF44F8ECC8F89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,25 +571,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457497   (1024405) от 26.03.2021
+###  Публикация: 1815429   (5250) от 30.08.2025
 
-Картинки - Коллекция картинок Море №11 [JPG]
+Картинки - Wallpapers Mix №1960 [JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024405.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок море.Формат: JPGРазрешение файлов: 1920x859-7087x4724
+Высококачественные обои в новом сборнике на ваш рабочий стол.
+Количество 583.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0A0A7E824E8D8EA69E12100F97F0DE2A9FE8C9A
+magnet:?xt=urn:btih:A9AB0A8AA8FF144F1E84BBA1FF582AB90875F9F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,25 +598,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457495   (1024409) от 26.03.2021
+###  Публикация: 1815378   (5226) от 30.08.2025
 
-Картинки - Коллекция картинок Море №10 [JPG]
+Картинки - Wallpapers Mix №1959 [JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024409.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок море.Формат: JPGРазрешение файлов: 1920x1080-7087x4724
+Высококачественные обои в новом сборнике на ваш рабочий стол.
+Количество 510.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05B849A320EF03BAD9DA1E2C8F0904FA74498B29
+magnet:?xt=urn:btih:A400385A9A8CA8FE78495B96948959B1FC474AD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,25 +625,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457494   (1024424) от 26.03.2021
+###  Публикация: 1815481   (5026) от 31.08.2025
 
-Картинки - Коллекция картинок Море №9 [JPG]
+Картинки - Wallpapers Mix №1961 [JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024424.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок море.Формат: JPGРазрешение файлов: 3000x1688-6042x4063
+Высококачественные обои в новом сборнике на ваш рабочий стол.
+Количество 666.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE06F65E41F96CE25802B5D8095C6E396F972D75
+magnet:?xt=urn:btih:F9E01AD4BFDEE9A361C1472B47733C7FA2CF613F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +652,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457468   (1024428) от 26.03.2021
+###  Публикация: 1815559   (5008) от 31.08.2025
 
-Картинки - Коллекция картинок Море №5 [JPG]
+Картинки - Wallpapers Mix №1958 [JPG]
 
 >>Графика, Арт, Разное
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024428.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка картинок море.Формат: JPGРазрешение файлов: 6000x4000
+Высококачественные обои в новом сборнике на ваш рабочий стол.
+Количество 547.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F475B7AFC3AD6264A9C31D381568D4496EEA1EF8
+magnet:?xt=urn:btih:1ACC019865C9EE249BCDA05D76E4C87ECBE22558
 ```
 
 https://mybot314.ru/tekegram_catalog/

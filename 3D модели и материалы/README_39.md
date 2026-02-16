@@ -1,22 +1,22 @@
-###  Публикация: 1848101   (1052598) от 16.01.2026
+###  Публикация: 1820342   (589) от 27.09.2025
 
-3D print - CW Studio - Eve (Santa Outfit) [STL]
+3D print - ArtStation - Maria Panfilova - Dark Elf Lineage 2 - 4a9JW [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052598.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-От автора на рендеры данного продукта "Надеюсь, вы с нетерпением ждёте выхода Евы! Она будет готова очень скоро, а пока, пожалуйста, наслаждайтесь её финальными рендерами. Думаю, вам также будет интересно узнать, что она будет поставляться с двумя вариантами причёски: с шляпой и без неё. Вы также можете выбрать два варианта для её рук: с длинным рукавом или (   Читать дальше...   )Формат: STL
+От автора: "Lineage 2 была огромной частью моей юности. Я создала эту работу, вложив в неё все эти воспоминания и чувства."Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6B30A051DD494F864DFC5FC396C43685EC9F97D
+magnet:?xt=urn:btih:3B9AE393B24A7B74766B3B9C4DA58F888A6DD03F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848065   (1052623) от 15.01.2026
+###  Публикация: 1820397   (573) от 27.09.2025
 
-3D print - Fandom Collectibles - Mary Jane [STL]
+3D print - KcStudio - 2B - Nier Automata [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052623.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекцию пополнила модель Мэри Джейн элегантным и чувственным дизайном, сочетающим в себе культовый костюм, вдохновленный образом Человека-паука, с расслабленной и уверенной позой.
-
-В комиксах Мэри Джейн несколько раз надевала костюм Человека-паука, демонстрируя более активную и смелую сторону своего персонажа.Формат: STL
+2B - Nier AutomataФормат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02EFCF5F5B13F6561113C3FFAEF65634FDFA7E81
+magnet:?xt=urn:btih:BFE23A8F1A8FA73C4EC70667FCEE3301E996B809
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852483   (1056003) от 
+###  Публикация: 1820688   (272) от 28.09.2025
 
-3D print - Cults3D - Tanuki Figures - Satoru Gojo - Jujutsu Kaisen - Bust [STL, LYS]
+3D print - Chibi Station - Hidan - Naruto Shippuden [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056003.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Великий Годжо Сатору из "магички" для ваших полочек.Формат: STL, LYS
+Моделька Хидана из знаменитого аниме Наруто для ваших полочек.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8770035942166FFD5F2E32B543D225EACCC02C3
+magnet:?xt=urn:btih:D4249E7CAA2983DF2042A7A62D04AFD7305B1F71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852444   (1056034) от 
+###  Публикация: 1820862   (40) от 29.09.2025
 
-3D print - CGTrader - myAnimate - Seiko from Dandadan [STL, CHITUBOX]
+3D print - Cults3D - Bulkamancer Sculpts - Sciel | Clair Obscur: Expedition 33 [STL, LYS]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056034.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Среди криков, хаоса и ударов дедушки Турбо, Сейко встречает своих демонов, не задумываясь — для нее изгнание демонов — это просто обычный день.Формат: STL, CHITUBOX
+Силь из Clair Obscur: Expedition 33. Можно объединить в диораму с другими участниками экспедиции. Оптимизирована для печати смолой, поставляется с полностью проработанной вручную поддержкой.Формат: STL, LYS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79B76C8F63C71ADB15EA28E75CAA4D4D82D44034
+magnet:?xt=urn:btih:2F879B38B36FC9F8440D0D171B57E00E3010918E
 ```
 
 https://mybot314.ru/tekegram_catalog/

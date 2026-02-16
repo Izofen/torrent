@@ -1,48 +1,22 @@
-###  Публикация: 872659   (873607) от 25.02.2015
+###  Публикация: 1658308   (191411) от 07.09.2023
 
-Mozilla Firefox 36.0 (Яндекс-версия) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный интернет браузер на основе движка Mozilla. Очень быстрый, безопасный и гибкий в настройках вэб-обозреватель с поиском и дополнениями от компании Яндекс.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27B7949B194C51901F806B36EB461ECC1879A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872622   (873611) от 25.02.2015
-
-Uniblue SpeedUpMyPC 2015 6.0.7.0 [Multi/Ru]
+Vit Registry Fix Pro 14.8.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SpeedUpMyPC является удобным настройщиком вашей операционной системы и обеспечивает для нее более устойчивую и быструю работу. Программа позволяет освобождать память и другие системные ресурсы, предотвращать фатальные сбои, уменьшать время загрузки и делать более эффективной связь с интернетом. Утилита также позволяет проводить мониторинг системы и дает рекомендации по ускорению запуска программ. Хотя скорость работы процессора и не изменяется, но, определив критические приложения, можно увеличить число циклов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Vit Registry Fix Pro - мощная программа для очистки реестра от ошибок и устаревших данных. Программа обладает мощным автоматическим средством сканирования и удаления ошибок самых разных типов. Vit Registry Fix может находить более 50 вариантов разновидностей ошибок в реестре.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D85E19BAA0F9605800FCD238EB457C21DB921177
+magnet:?xt=urn:btih:421418C6776A59ED42413715C8F4AC4CBBCCFF57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,34 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 766005   (873614) от 13.03.2014
+###  Публикация: 1658301   (191384) от 07.09.2023
 
-Electric Blue - Born In Sin (2014) [MP3|320 кб/с]<Blues Rock>
+SketchUp Pro 2023 23.1.315 RePack by KpoJIuK [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Born In Sin [00:05:24]
-02 - Texas Steel [00:07:36]
-03 - Black Joe [00:03:29]
-04 - Coffee Shop [00:08:27]
-05 - The Wizard [00:03:56]
-06 - Bruised & Broken [00:04:26]
-07 - Lady Low [00:04:24]
-08 - Color Blue [00:03:19]
-09 - JLH [00:07:27]
-10 - Downtown [00:07:43]Жанр: Blues RockПродолжительность: 00:56:15
+SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A146C860B61960B8101C4621F03F62B16F03726
+magnet:?xt=urn:btih:A812600F38C480A037DA322622FF6B6923D34964
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,34 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 765929   (873618) от 13.03.2014
+###  Публикация: 1658310   (191371) от 07.09.2023
 
-VA - High Contrast Miami Trance (2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
+iZotope - Ozone 11 Advanced 11.0.0 VST 3, AAX (x64) RePack by R2R [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Svenson - Sunlight Theory (Richard Durand Remix) [06:56]
-02. Rank 1 - 13.11.11 [13:11]
-03. Marc Simz - Move On [07:19]
-04. DJ Madwave - Synergy Anthem 2013 (Dennis Sheperd Remix) [06:09]
-05. Svenson & Gielen - The Beauty Of Silence (Menno De Jong Remix) [06:41]
-06. M.I.K.E. - Canvas (Club Mix) [07:27]
-07. Bastian Salbart - Run! (Original Mix) [07:52]
-08. Proyal - Upside Down [07:54]
-09. Nenes and Pascal Feliz - Platinum (Ben Gold Remix) [06:34]
-10. Marcel Woods - Inside Me (Bassjackers Remix) [06:22](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:41:53
+Компания iZotope выпускает новую версию известной программы Ozone, предназначенной для мастеринга треков. Новинка получила несколько нововведений, ряд улучшений и дополнительные параметры.
+Заявлено, что новый модуль Clarity работает как адаптивный спектральный максимайзер, позволяя получить более профессиональное звучание с чётко звучащими отдельными элементами трека. (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8185834080E14BBE1BFD97C039D440B56AF84477
+magnet:?xt=urn:btih:45DE153DAE9699E440705AEBC216547192D19F6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -120,31 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 766096   (873622) от 13.03.2014
+###  Публикация: 1658396   (191364) от 07.09.2023
 
-Damocles - Couchsurfer (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Experimental>
+iZotope - Nectar 4 Advanced 4.0.0 VST 3, AAX (x64) RePack by R2R [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. See You Next Time (3:53)
- 02. Trippin on Pluto (4:16)
- 03. Holiday (5:01)
- 04. Joy in Others (2:59)
- 05. Waking You Up (4:35)
- 06. Hul Gil (2:42)
- 07. Good Health (5:28)Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:34:53
+Nectar 4 может похвастаться полным набором инструментов для микширования, продюсирования и проектирования вокала. Изучите новые модули, такие как Auto-Level для обеспечения единообразия, Voices для наложения вокала, Backer для фоновых певцов и Vocal Assistant для простой и мощной обработки. Используйте набор мощных плагинов для полного контроля над звучанием вашего (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B8F34824F941975B3EE0E482F38087F004B5D39
+magnet:?xt=urn:btih:C3B22B721AA517AF0FA802563238F4EBD47BC35D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -152,34 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 766077   (873625) от 13.03.2014
+###  Публикация: 1588611   (191353) от 05.11.2022
 
-VA - Bobina Presents Russia Goes Clubbing Radio Top 10 February 2014 [MP3|320 кб/с]<Trance>
+Apeaksoft Video Converter Ultimate 2.3.18 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Bobina - Play Fire With Fire (Bobina Megadrive Mix)
-002. Gareth Emery - U
-003. Johnny Yono - Open Your Mind (Radio Edit)
-004. Bogdan Vix - Providance (Original Mix)
-005. Tomas Heredia - Memories Of You (Radio Edit)
-006. J-Soul - Not My Guy
-007. Giuseppe Ottaviani - Heal This Empty Heart (Walsh & McAuley Remix)
-008. Klauss Goulart - Live For Now (Absolute Chaos)
-009. Sied Van Riel - Share This Night (Bogdan Vix Remix)
-010. C-Systems - Just Begun(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:16
+Apeaksoft Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из DVD и видеофайлов, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные знаки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7C0861BB64D19CD6EE1FB776EE7799609E0267C
+magnet:?xt=urn:btih:8A33F9C120CD78B2F8A9504806E8353BDA3C73BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,34 +129,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 765949   (873628) от 13.03.2014
+###  Публикация: 1658328   (191351) от 07.09.2023
 
-Big City - Wintersleep (2014) [MP3|320 кб/с]<Hard Rock>
+Garmin: Дороги России Топо 6.43 [Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Midnight Train
-02. Innocence Of A Kill
-03. Wintersleep
-04. Fire And Stone
-05. Too Late
-06. The Last Step
-07. Iseline
-08. Love Breaks The Heart
-09. Harbor Of Tears
-10. Will You Be GoneЖанр: Hard RockПродолжительность: 00:46:32
+На топографических картах отображаются данные, помогающие в определении местоположения на местности, планированию маршрута организации активного и безопасного отдыха на природе.
+В картах дана информация о рельефе, растительности и гидрографии района. Рельеф представлен горизонталями, сечением 20 метров, профилями оврагов и балок, высотами. Приведена информация об (   Читать дальше...   )Тип издания: разблокированоРелиз состоялся: август 2023Разработчик: НавикомПоддерживаемая ОС: GarminЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1B5E28279BE8616A2878F09676BF78217FFF290
+magnet:?xt=urn:btih:92621C9EE5E92B4954E4B70E2E1C1BCB3BEF269E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,34 +156,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 766081   (873630) от 13.03.2014
+###  Публикация: 1588511   (191349) от 05.11.2022
 
-VA - Ferry Corsten Presents: Corsten's Countdown February 2014 [MP3|320 кб/с]<Trance>
+iZotope - Neutron 4 4.2.0 VST3, AAX (x64) RePack by R2R [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Giuseppe Ottaviani - Heal This Empty Heart (Extended Mix)
-002. Grube - Fair Winds
-003. The Essentials - Azumea (Jacob Van Hage Edit)
-004. Savid - Quorra (Original Mix)
-005. Ira - Constant Invasions (Alexander BobkoV Remix)
-006. NouveauBeats - Yeah Boy (Original Mix)
-007. Solis - Sectioned (Original Mix)
-008. Daniel Garrick - Upgrade (Original Mix)
-009. Naian - Zero Motion (Radio Edit)
-010. Mark Sixma - Refused (Radio Edit)Жанр: TranceПродолжительность: 00:57:43
+Производитель профессионального программного обеспечения для работы со звуком iZotope представляет четвёртую версию плагина Neutron, объединяющего в себе современные разработки и достижения производителя в области обработки звука.
+Neutron 4 предлагает обновлённые модули Sculptor, Exciter и Transient Shaper, получившие дополнительные функции и обновления. Помощник (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9AE5C3B7ADD98553AFF49577E6BAEC8D1984D27
+magnet:?xt=urn:btih:5888F1C32C92B9D7A6225519A08DE4C7C822F822
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,33 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 765994   (873631) от 13.03.2014
+###  Публикация: 1588596   (191339) от 05.11.2022
 
-Papercuts - Life Among The Savages (2014) [MP3|320 кб/с]<Indie Rock>
+Aiseesoft Video Converter Ultimate 10.5.38 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191339.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Still Knocking At The Door
-02 – New Body
-03 – Life Among The Savages
-04 – Staring At The Bright Lights
-05 – Family Portrait
-06 – Easter Morning
-07 – Psychic Friends
-08 – Afterlife Blues
-09 – TouristЖанр: Indie RockПродолжительность: 00:36:56
+Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED0D6230F8D67ABE8E0F84D9D50D9201F8087493
+magnet:?xt=urn:btih:0B18F199A156BB2AC6057A9897DCE31DD9731609
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,31 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187773   (873652) от 30.03.2010
+###  Публикация: 1588607   (191335) от 05.11.2022
 
-Autumn Moonlight - The Sky Over Your Shoulders (2009) [MP3|192-320 kbps]<Instrumental Post-Rock>
+Aiseesoft DVD Creator 5.2.56 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Autumn Moonlight Part I
-02. The Sky Over Your Shoulders
-03. Letters To God
-04. Dawn of Atlantis
-05. Aurora Borealis
-06. T.O.R.
-07. Autumn Moonlight Part IIЖанр: Instrumental Post-Rock
+Aiseesoft DVD Creator - это одна из лучших профессиональных программ для создания DVD дисков. Она легко конвертирует в DVD или ISO практически любые популярные видеоформаты, включая AVI, MPEG, DivX, TS, MTS, DV, VOB, WMV и MP4. Кроме того, Aiseesoft DVD Creator позволяет создавать замечательные пользовательские меню DVD, которые можно выбрать из предлагаемых шаблонов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FBC3BB6B36DBAB5494D2795BA028B19FC99BF652
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -323,25 +235,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 188014   (873653) от 30.03.2010
+###  Публикация: 1588599   (191325) от 05.11.2022
 
-Журнал | Популярная механика №4 (90) [2010] [PDF]
+4Videosoft Video Converter Ultimate 7.2.16 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал о том, как устроен наш мир. Для всех, кто хочет знать о научных изобретениях, сделанных в России и по всему миру, об инновационных технологиях, последних разработках в области космоса, авиации, автомобилей, оружия и компьютеров, которые в скором будущем могут усовершенствовать нашу жизнь.Формат: PDF
+4Videosoft Video Converter Ultimate - профессиональный и простой в использовании конвертер, который легко преобразует DVD и видеофайлы, может работать с 4K видео и прочими известными аудио и видео форматами. Вы сможете преобразовать DVD и 2D видео в 3D видео. Есть возможность скачивать видео из интернета и сразу конвертировать его в нужный вам формат с нужными вами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:93C57F64D8C4923E6A85C2D5124FEA9D8B5EA9A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,27 +261,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 188001   (873654) от 30.03.2010
+###  Публикация: 1588551   (191303) от 05.11.2022
 
-Журнал | ELLE декор №4 [2010] [PDF]
+Firefox Browser 106.0.5 [Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание является источником вдохновения для ведущих дизайнеров и декораторов мира. Для людей, задумывающихся о строительстве и обустройстве дома, оно служит путеводителем в мире современных материалов и тенденций интерьерной моды. В каждом номере — архитектурные новости, выбор лучших дизайн-объектов и знакомство с их создателями, практические советы и подробные репортажи о проектах признанных мастеров.
-
-"Elle декор" - самый красивый и полезный международный журнал о современном интерьере, который преследует просветительскую миссию: читатели журнала всегда в центре самых последних тенденций в области дизайна, архитектуры и декорирования пространства.2010Формат: PDF
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D1381B8B2EDE7BB2D87DD52EC50EDE9D15AF526C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,25 +287,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187833   (873655) от 30.03.2010
+###  Публикация: 1588651   (191302) от 05.11.2022
 
-АПЛ. Чемпионат Англии 2009-10 (32-й тур) / Обзор Тура [Футбол, НТВ+] (2010) SATRip
+Phase One Capture One 22 Enterprise 15.4.2.10 RePack by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перевод: ОригиналФормат: AVI
+Phase One Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9D3A9AC90907481F09AFC4DF82FF9B933A607ADF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,34 +313,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 186657   (873656) от 30.03.2010
+###  Публикация: 1588683   (191295) от 05.11.2022
 
-VA - Electro-House Party vol.15 (2010) [MP3|320 kbps]<Electro-House>
+MediaHuman YouTube Downloader 3.9.9.76 (2410) RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 Aaren San - Photon Beats (Miles Dyson Edit)
-2 Bassreactor - Forever Loved (DJ Gollum Radio Remix)
-3 Boemklatsch - Noisy (D.Fine Remix)
-4 Chris Garcia - The Rhythm Of The Night (Teo Moss, Daniel Shems Remix)
-5 Danny-S - Keep Me Hanging On (Roberto Bedross Remix)
-6 DJ Analyzer vs Cary August - The Launch (Oliver Contestabile RMX)
-7 DJ Herbie, Jolly DJ - Strong Limit (Cheerleader Mix)
-8 Dont You Know Keemerah Remix
-9 Francesco Baldi - Musix feat. Diego Parisi - Joy Di Maggio Remix
-10 Full Intention, Marco Demark, Dave Manna - America (I Love America) - Jolyon Petch Mix(   Читать дальше...)Жанр: Electro-House
+MediaHuman YouTube Downloader - удобное приложение с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер с YouTube, и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того программа может отслеживать буфер обмена, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:63B7B5CF6E7C185ED7A4878CB6DC9D4EE63094C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,30 +339,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 186987   (873657) от 30.03.2010
+###  Публикация: 1588657   (191289) от 05.11.2022
 
-Даешь молодежь! 52 серия (KVNforAll)
+Windows 11 Manager 1.1.7 Portable by FC Portables [Multi/Ru]
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый комедийный сериал от создателей 6 кадров!
-В институте и в ночном клубе, в кино и на скамейке в парке, в фитнес-клубе
-и на пляже – они шутят везде. Смотрите о каждом из вас, о повседневной
-жизни, модных тенденциях и личности современного молодого человека.
-Сериал про молодежь и о молодежи!Смотрите только на KVNforAllПодробности:В офисе
-- консультация по отчету(   Читать дальше...)
+Windows 11 Manager - это универсальная утилита специально для Microsoft Windows 11, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 11, помогает ускорить работу вашей системы, устранить системные ошибки, повысьте стабильность и безопасность, персонализируйте свою копию Windows 11 и оправдайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:99C36758E3231B1A9024DC86F8F7DE740C0C202D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,34 +365,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187822   (873658) от 30.03.2010
+###  Публикация: 1658601   (191287) от 08.09.2023
 
-EXISTENCE - Like A Shot Through My Heart (2004) [MP3|320 kbps]<New Age, Relax, Meditative >
+Mirillis Action! 4.37.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 . Existence Means Harmony
-02 . First Nations Flute Prayer
-03 .Like A Shot Through The Heart
-04 . Sacrificed
-05 . It Comes From The Heart
-06 . Crossing Borders
-07 . Land Of 1000 Buffalos
-08 . Indigenous People
-09 . Crying For The Good
-10 . Desert Lands Of Freedom(   Читать дальше...)Жанр: New Age, Relax, Meditative
+Программа для записи игр «Action!» — это множество полезных инструментов и функций, которые позволяют записывать игры как никогда легко и просто. Благодаря наглядному интерфейсу нужная функция находится мгновенно, а загрузить записанные игры на популярные видеопорталы можно за пару щелчков мыши.
+Программа для записи игр «Action!» не требовательна к компьютеру: передовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EBF738B86B130DD9C75B9D0D41060A1A36311395
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,28 +392,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 185917   (873660) от 30.03.2010
+###  Публикация: 1588687   (191278) от 05.11.2022
 
-Roger Shah pres. Savannah - Darling Harbour (15.03.2010) [MP3|320 kbps]<Trance>
+ByClick Downloader Premium 2.3.33 RePack (& Portable) by Dodakaedr [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Darling Harbour (Roger Shah Mix)
-02. Darling Harbour (Fast Distance Mix)
-03. Darling Harbour (Electribe Remix)
-04. Darling Harbour (Edit)Жанр: Trance
+ByClick Downloader (бывший YouTube By Click) - отличный и удобный в использовании загрузчик видео роликов из популярнейшего портала YouTube. Кроме этого хостингового ресурса, поддерживается также скачивание файлов из Facebook, Vimeo, Dailymotion и других сайтов. Разработчики постарались сделать это приложение максимально комфортным в работе. Для того, чтобы скачать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7CFBE8515D09C4AED572E1D39A75B71179512E64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,34 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187762   (873662) от 30.03.2010
+###  Публикация: 1588563   (191272) от 05.11.2022
 
-VA - Trance In Motion Vol.47 (29.03.2010) [MP3|320 kbps]<Trance / Progressive>
+Beyond Compare Pro 4.4.4.27058 RePack (& Portable) by Dodakaedr [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Edward Maya feat. Vika Jigulina - Stereo Love (Paki & Jaro Remix Extended)
-02.Moonpax vs. Snatt & Vix - Winter Of Love (Original Mix)
-03.Tritonal - Utopia (Arty Remix)
-04.Adam Antine & Tenthu - When You Stand Upon Me (Original Mix)
-05.Alex Pich - Tinctures (Arty Remix)
-06.Klems & Vorne - Usual Bordel (Klems Remix)
-07.Matt Cassar presents Most Wanted - Seven Days And One Week (Myon & Shane 54 Remix)
-08.Sander Van Doorn - Renegade (The Official Trance Energy Anthem 2010)
-09.Tiesto feat. Tegan & sara - Feel It In My Bones (Marcus Schossow's Suck On It Remix)
-10.Phynn & Alpha Centauri - Supernova(   Читать дальше...)Жанр: Trance / Progressive
+Beyond Compare – мощная и одна из лучших программ для сравнения файлов и папок. С её помощью можно синхронизировать архивы, сравнивать файлы сайтов по FTP, обновлять веб-сайты, управлять исходным кодом, находить отличия между папками и файлами, сравнивать текстовые файлы и т.д. Beyond Compare может сохранять образцы структуры выбранных папок и в заданное время сравнивать (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:04BC83CCF37A8B018724E319978CBFB996B0E0D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,25 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 186724   (873663) от 30.03.2010
+###  Публикация: 1588587   (191271) от 05.11.2022
 
-VA - Big Voices (4CD) 2009 [MP3|224 kbps]<Easy Listening>
+Compressor 4.6.3 [Multi]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Easy Listening
+Compressor – простой и мощный инструмент для сжатия видео. Compressor может сжимать ваше видео с поддержкой большинства популярных форматов, включая HEVC, MPEG-4, H.264, MXF и др. Кроме этого, в приложении имеется замечательная возможность прямого экспорта последовательности сегментов видео с применением различных эффектов и фильтров на прямую из Final Cut, для последующей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2022Разработчик: Apple Inc.Поддерживаемая ОС: macOS X 11.5.1 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B1A618C647F82846B8C92A53A3361AA0A8D1CFEE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,25 +470,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187351   (873664) от 30.03.2010
+###  Публикация: 1658427   (191265) от 08.09.2023
 
-Quattroruote / Quattroruote (28.03.2010 г.) SATRip
+DesktopDigitalClock 5.02 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Главная дорога» — Теперь «Quattroruote» — это и 26-минутная программа обо всем новом и интересном, что предлагает нам автомобильная промышленность. Создается она совместно и с использованием материалов популярнейшего журнала.Жанр: ТелепередачаПеревод: Многоголосый закадровый, профессиональный
+DesktopDigitalClock - простые и красивые цифровые часы для рабочего стола с различными темами оформления и настройками отображения на любой вкус.
+Присутствуют сменные темы оформления, возможность вручную устанавливать прозрачность, шрифт, цвет и расположение на рабочем столе (также имеется возможность зафиксировать часы в центре экрана). Приложение практически не (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:3B810062B5AB073169D9B81C5A9CC0F237431966
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,26 +497,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 186877   (873665) от 30.03.2010
+###  Публикация: 1658654   (191260) от 08.09.2023
 
-Above and Beyond - Trance Around The World 313 [Nitrous Oxide Guestmix] (26-03-2010) [MP3|256 kbps]<Trance>
+YT Downloader 9.3.6 RePack (& Portable) by Dodakaedr [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kyau & Albert "Once In A Liftime" (Euphonic)
-02. Reverse "Absolute Reality"Жанр: Trance
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0EA08D11A5C3611862942AA8FCF6BFFBB4D66082
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,25 +523,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187312   (873666) от 30.03.2010
+###  Публикация: 1658625   (191254) от 08.09.2023
 
-Лицо / Face (2004) DVDRip
+DirPrintOK 6.91 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Расследуя дело о серии зверских убийств, в которых тела жертв растворены кислотой, полиция обращается за помощью к Хюн-Мину, специалисту по реконструкции лиц, который покинул службу из-за ухудшения здоровья дочери, перенесшей трансплантацию сердца. В ходе работ, Хюн-Мин выясняет, что одна из жертв страдала редким недугом, тем самым, от которого ухудшилось состоянии его дочери после трансплантации. А следствие находит связь между жертвами серийного убийцы и трансплантацией органов. Тем временем у дочери Хюн-Мина начинаются странные видения...Жанр: УжасыРежиссер: Сан-Гон Ю/Sang-Gon YooАктеры: Юн-А Сон, Хён-Юн Шин, Сён-Вук Ким, Сёк-Хван Ан, Вон-Хай Чо/, Чей-Хо СонПеревод: Одноголосый закадровый
+В DirPrintOK есть функция "Фильтр", оно может помочь вам предварительно просмотреть определенные типы файлов или каталогов перед печатью содержимого. Обратите внимание, что приложение поддерживает как негативную, так и позитивную фильтрацию данных, поэтому вы можете сделать тщательный выбор файлов, включая подкаталоги. Вы можете удалить объекты из представления (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1DBE6A615E3C48CDC628A83635081C3D541E86A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,25 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187697   (873667) от 30.03.2010
+###  Публикация: 1588704   (191251) от 05.11.2022
 
-VA - Звёзды Эфира (2010) [MP3|192-320 kbps]<Pop>
+SophiApp 1.0.87 Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop
+SophiApp — это графический наследник Sophia Script for Windows. Бесплатная и полностью опенсорная программа для тонкой настройки Windows 10 и Windows 11. SophiApp предлагает современные UI/UX, более 130 твиков, и показывает как можно настроить Windows официальными методами, ничего не сломав в ОС. Правильная работоспособность программы гарантируется лишь в при использовании (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:93BB1BAB15781BB0CED4057DD9165691DFA21CEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -699,34 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187944   (873668) от 30.03.2010
+###  Публикация: 1588646   (191246) от 05.11.2022
 
-VA - Pumping Trance Vol 3 (2010) [MP3|320 kbps]<Trance>
+Windows 11 Manager 1.1.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A.M.R. - As Time Goes By (Original Mix) (7:34)
-02. White Quasar - Dark Confession (Original Mix) (7:27)
-03. Aava - Karma (Original Mix) (8:59)
-04. Sunny Lax - Release (Uplifting Mix) (9:42)
-05. Mysterious Movement - Vanquish (Original Mix) (8:37)
-06. A.M.R. - Elevation (Fast Distance Remix) (8:22)
-07. Xgenic - Daylight (Original Mix) (7:50)
-08. Angel Ace - Everythings Gonna Be Fine (Serenade Remix) (7:29)
-09. Karanda - Karanda (Astuni And Manuel Le Saux Remix) (7:09)
-10. Estiva - Vortex (Original Mix) (8:16)(   Читать дальше...)Жанр: Trance
+Windows 11 Manager - это универсальная утилита специально для Microsoft Windows 11, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 11, помогает ускорить работу вашей системы, устранить системные ошибки, повысьте стабильность и безопасность, персонализируйте свою копию Windows 11 и оправдайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:95F29642A595E619DAA25D38EF41B5F8B6A71AC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -734,34 +601,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187873   (873669) от 30.03.2010
+###  Публикация: 1658618   (191241) от 08.09.2023
 
-VA - The Best Music of Day from DjmcBiT (27.03.2010) [MP3|192-320 kbps]<Electro House>
+IceCream Ebook Reader Pro 6.35 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Antoine Clamaran feat. Soraya - Live Your Dreams (Syndicate Of Bass Remix)  315 kbps
-2.Bassmonkeys - Bad 4 My Health (BM Elektromonkey Remix)
-3.Dance Nation - Sunshine (Mr Basic & Tony Tweaker Remix)
-4.D-Tune Vs EMD Boyz - Bring The Bass Back (Marc Kiss Remix)
-5.Gasparian Ft Ben Norris - I Like The way ( D'azoo At Night Remix ) Soundcloud
-6.Luca Savazzi - I Feel Good (Niels van Gogh vs. Dave Ramone Remix)
-7.Mario Lopez - Sadness (DB Pure Remix)
-8.Martin Marshall feat. Aneym - I Don't Give A Damn (Tony Tweaker Remix)
-9.Mason - Exceeder (Felguk Remix)
-10.Spencer & Hill - 303 (Original Mix)(   Читать дальше...)Жанр: Electro House
+Читалка для ПК, которая превратит Ваш экран в первоклассную программу для чтения книг. Читайте книги в ePub, MOBI, FB2, CBR и других популярных форматах. С легкостью управляйте цифровой библиотекой на компьютере с Icecream Ebook Reader. Добавляйте заметки, переводите текст, используйте закладки и многое другое.Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8A4B8EDAB6AA621FF0EF0C726272D7F5CDDD21D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -769,34 +627,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187951   (873671) от 30.03.2010
+###  Публикация: 1658594   (191240) от 08.09.2023
 
-VA - Collected Works Vol 2 (2010) [MP3|320 kbps]<Trance>
+Universal USB Installer 2.0.1.7 Portable [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ice Upon Fire - The Next Level (Oen Bearen Teardrop Remix) (9:16)
-02. Decipher - Emulous (Original Mix) (7:00)
-03. Perry & Jackson - Eternity Dawn (Original Mix) (8:12)
-04. Low Spectrum - Surface Glow (Original Mix) (7:27)
-05. The Synergy - Into The Night (Original Mix) (7:12)
-06. Philippe Gerard - As Never Before (Original Mix) (6:58)
-07. Mike Danis - Synecdoche (Blufeld Progressiva Remix) (7:46)
-08. Actuate - Crisis Point (Original Mix) (7:47)
-09. Igor Olnev - Mint Smell (Original Mix) (6:41)
-10. Stories From The Beyond - Someday (Original Mix) (6:13)(   Читать дальше...)Жанр: Trance
+Universal USB Installer – портативная программа для создания загрузочных USB-накопителей с операционными системами Windows и Linux, а также другими загрузочными программами. Утилита поддерживает запись на USB-устройство загрузочных образов Windows 10 / 8.1 / 7 и Vista, а также операционные системы Ubuntu, Linux Mint, CentOS, Debian, Fedora, OpenSUSE, Puppy Linux (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:5EFAFD95942CCAA1AFD34309D00462A1241D185A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658620   (191238) от 08.09.2023
+
+AutoPowerOptionsOK 5.66 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191238.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoPowerOptionsOK — небольшая по размеру утилита, позволяющая управлять такими параметрами питания ПК как настройка выключения монитора, режим сна и переключение между разными планами электропитания в установленные пользователем интервалы времени.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A01288ECBF8E9B0BC935928E65FF808F4984B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

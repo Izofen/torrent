@@ -1,22 +1,25 @@
-###  Публикация: 1611393   (1041300) от 11.02.2023
+###  Публикация: 1819043   (1843) от 20.09.2025
 
-Sarah Brightman - La Luna (2000) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Rock, Pop, Classical>
+Nine Inch Nails - TRON: Ares (2025) Original Motion Picture Soundtrack [FLAC 24/48|Lossless|WEB-DL|tracks] <Soundtrack>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041300.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1843.jpg" />
 </div>
 
 
 ###  Подробнее
 
-La Luna — седьмой альбом, записанный английской певицей Сарой Брайтман в 2000 году. Он был выпущен по лицензии Nemo Studios для Angel Records. Альбом сочетает в себе произведения классиков и современных композиторов. По данным Nielsen SoundScan, это 17-й самый продаваемый классический альбом 2000-х годов в США, и второй самый продаваемый альбом Брайтман в стране (   Читать дальше...   )Жанр: Modern Classical, Soft Rock, Synth-popПродолжительность: 00:58:23
+01. - Init (2:08)
+02. - Forked Reality (1:51)
+03. - As Alive As You Need Me To Be (3:57)
+04. - Echoes (3:46)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:06:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A39A0BC2295997A54F4B033F836122FBA9B15FAD
+magnet:?xt=urn:btih:E5EA8C1FE96354B75A3E9339271581CC339E6224
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438000   (1041352) от 07.01.2021
+###  Публикация: 1819066   (1791) от 20.09.2025
 
-Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) 1976 1973 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+Sarah McLachlan - Better Broken (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041352.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Emmanuelle (1976)
-
-01. Emmanuelle (Soloist, GuitarЖанр: Easy ListeningПродолжительность: 01:13:49
+01. Better Broken
+02. Gravity
+03. The Last to Go
+04. Only Way Out Is Through(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C26D469545BC210F9F1A51E40372F367AEDA6796
+magnet:?xt=urn:btih:DCAA56F592870F31C95CB3732E7F024CA82DBC16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,28 +56,231 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437921   (1041705) от 06.01.2021
+###  Публикация: 1819149   (1790) от 20.09.2025
 
-Оркестр "Современник" п/у А. Кролла - Музыка из к/ф "Мы из джаза" (1983) Сувенирное издание [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Jazz>
+Neverlove - Kings Of Strip Club (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KINGS OF STRIP CLUB [00:04:07]
+02. Сама так хотела [00:02:45]
+03. S1000RR [00:02:50]
+04. Не такая [00:02:55](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74041FEAC7352AED641DCCAF46480B02BEE46845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819036   (1782) от 20.09.2025
+
+I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Synthetic Soul (4:30)
+02. - NWO (2:41)
+03. - Pray (3:12)
+04. - Annihilate Me (3:22)(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733205A48AEFD9854A6299948C3721F9C7016A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819103   (1781) от 20.09.2025
+
+Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.June(1:58)
+02.Major Arcana(6:38)
+03.Ravenous(6:28)
+04.Mercy(5:56)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBBE2F0B92D4EA68E24E4891DE0D738F990E631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819047   (1780) от 20.09.2025
+
+Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Death [00:03:26]
+02. Become The Blade [00:03:13]
+03. The Shield [00:03:08]
+04. Remember The Days [00:04:32](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350A33ECD67171F79F52D490F39569908B5116D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819034   (1778) от 20.09.2025
+
+King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Girl Violence (2:16)
+02. - Jaime (2:23)
+03. - Origin (2:14)
+04. - I Feel Pretty (3:02)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578C538C0649B80FE26EC3D4D4C99C9248F8CC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819049   (1774) от 20.09.2025
+
+Cardiacs - LSD (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Men In Bed (3:39)
+02. - The May (2:57)
+03. - Gen (3:44)
+04. - Woodeneye (3:20)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CB19BF61CCA594CF6BC0FA27745FED4D33CFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819342   (1598) от 21.09.2025
+
+3rd Rock Studios - The price of war (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Join the Air Force (3:27)
+02.  Black Boots (3:27)
+03.  Give me 100 more (3:47)
+04.  False flags (3:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44B76F2986582ADE32B19ABE0DC0C38FD021C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819303   (1586) от 21.09.2025
+
+Lolita (Edith "Ditta" Einzinger) - Sailor, Sailor And Lolita's Greatest Hits (1961) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041705.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Рэгтайм
-A2 Улыбка Старой Москвы
-A3 Рэг-Дикси
-A4 Эрмитаж, Фокстрот(   Читать дальше...   )Жанр: Soundtrack, JazzПродолжительность: 00:41:04
+A1 Sailor (Your Home Is The Sea)
+A2 La Luna (The Moon)
+A3 Lieber Jonny, Komm' Doch Wieder (Paper Roses)
+A4 Souvenir D'Amour (Memory Of Love)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11FFFE39BCBF096BC3601C6ADB312888E6909F30
+magnet:?xt=urn:btih:4BDC18F99BB11232D658BE3BA9C7636040F7E81B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610733   (1041888) от 09.02.2023
+###  Публикация: 1819365   (1585) от 21.09.2025
 
-Talisman - Studio Albums (10 releases) (1990 - 2015) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+Robin Ross - Robin Ross & The Bluesberry Jam (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041888.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Talisman — шведская рок-группа, основанная в 1989 году басистом-автором песен Марселем Джейкобом и возглавляемая американским певцом Джеффом Скоттом Сото1990 - Talisman
-1993 - Genesis
-1994 - Humanimal. Part 1
-1994 - Humanimal. Part 2Жанр: Hard RockПродолжительность: 10:04:31
+01.  High Time (2:44)
+02.  Restless (3:20)
+03.  All Talk (3:51)
+04.  Good Boy (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3C7FCCA94A92725AD1E704033B4EA645B579BA6
+magnet:?xt=urn:btih:FF96087E408DA4C143129476ED730EBF7C951074
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610271   (1042343) от 07.02.2023
+###  Публикация: 1819316   (1584) от 21.09.2025
 
-Work Of Art - Studio Albums (4 releases) (2008 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, AOR>
+Damiano David - FUNNY little FEARS (DREAMS) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042343.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Work Of Art — хард-рок-группа из Стокгольма, Швеция, основанная в 1992 году.2008 - Artwork
-2011 - In Progress
-2014 - Framework
-2019 - ExhibitsЖанр: Hard Rock, AORПродолжительность: 03:36:09
+01 - Talk to Me (feat. Tyla, Nile Rodgers) [3:14]
+02 - Cinnamon (feat. Albert Hammond Jr) [2:25]
+03 - Naked [2:38]
+04 - Mysterious Girl [3:22](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:03:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38FDDE8E1ABAE802FB00B59FD15911CDBD4C9597
+magnet:?xt=urn:btih:4690E00FAE75D2C829B8582977AC567ADEF1DFB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436864   (1042756) от 02.01.2021
+###  Публикация: 1819364   (1583) от 21.09.2025
 
-Sing Sing - Sex Attraction (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+Mike Tramp - Songs Of White Lion, Vol. III (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042756.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Last Goodbye
-A2 Love On The Beach
-A3 There's No Way Back
-A4 She's Gone(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:32
+01.  Dirty Woman (3:35)
+02.  Warsong (6:06)
+03.  Fight To Survive (5:05)
+04.  She's Got Everything (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C149B190D6B9D54DA288DE1BD2C35A3F3722E8CD
+magnet:?xt=urn:btih:142B6E618329D132EAD8EE6FF839BBC34916B0E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,26 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609869   (1042875) от 05.02.2023
+###  Публикация: 1819360   (1581) от 21.09.2025
 
-Sarah Brightman - Eden (1998) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Modern Classical, Soft Rock, Synth-pop>
+Few Miles On - Mother Lode (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042875.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Eden - шестой альбом английской певицы Сары Брайтман, выпущенный в 1998 году по лицензии Nemo Studios для Angel Records.
-	Подобно более позднему альбому Брайтман La Luna, в Eden сочетались популярные английские песни с итальянскими оперными ариями. Это был отход от ее предыдущих альбомов, которые почти полностью исполнялись на английском языке, таких как Fly. В Eden (   Читать дальше...   )Жанр: Modern Classical, Soft Rock, Synth-popПродолжительность: 00:59:23
+01.  So Lonely (3:34)
+02.  She Might Be (4:34)
+03.  Mother Lode (4:11)
+04.  Second Hand Blues (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89541A8D3853173A46C18DA8E8BB9893B5B6D988
+magnet:?xt=urn:btih:FC1D6A902387BEA257277B6EC8C1AE5FE1379350
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609809   (1042934) от 05.02.2023
+###  Публикация: 1819368   (1578) от 21.09.2025
 
-Type O Negative - Studio Albums (8 releases) (1991 - 2007) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic/Doom Metal>
+Sleepwell Citizen - This Is Only A Test (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042934.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Type O Negative (с англ. — «первая группа, резус-отрицательный»)— метал-группа из Бруклина (Нью-Йорк), одни из основателей жанра готик-метал. Основной чертой группы была медленная, мрачная музыка с частым использованием клавишных и низким, но чистым мужским вокалом в исполнении Питера Стила. Питер также писал тексты группы, посвящённые эротике, страсти, (   Читать дальше...   )1991 - Slow, Deep And Hard
-1992 - The Origin Of The Feces
-1993 - Bloody Kisses
-1996 - October RustЖанр: Gothic/Doom MetalПродолжительность: 09:45:44
+01.  Intro (1:11)
+02.  Thunderheart (2:35)
+03.  Men, Women, and Dogs (5:33)
+04.  Double Helix (4:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD4A6D39E7607E360FF6C737C93E3B07D4C25247
+magnet:?xt=urn:btih:ACAE3BA81F5B03A1533E2EE3183A4F46EA1BB9BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,27 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608205   (1043653) от 30.01.2023
+###  Публикация: 1819355   (1576) от 21.09.2025
 
-The Dogma - Studio Albums (3 releases) (2006-2010) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Gothic/Power Metal>
+Daisychain - All In A Name (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043653.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Dogma — прогрессив-метал/пауэр-метал группа из Анконы, Италия.2006 - Black Roses
-2007 - A Good Day to Die
-2010 - Black WidowЖанр: Symphonic Gothic/Power MetalПродолжительность: 02:38:16
+01.  Shadowfax (3:42)
+02.  G String (3:01)
+03.  Eve (2:09)
+04.  Rivers (3:49)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:35:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:245C1B0A9C1653B600171059B943283EFB304FD9
+magnet:?xt=urn:btih:1C994CB40A96B8EFF4E201BDAF971E648039D5D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573515   (1043800) от 28.01.2023
+###  Публикация: 1819350   (1574) от 21.09.2025
 
-Lake of Tears - Studio Albums (9 releases) (1994 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Doom/Gothic Metal>
+Band Of Friends - Ballroom Of Dreams - Band Of Friends - Ballroom Of Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043800.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lake of Tears (с англ. — «Озеро слёз») — шведская группа, играющая в жанрах готик-метал и дум-метал с элементами психоделического рока и прогрессивного метала.1994 - Greater Art
-1995 - Headstones
-1997 - A Crimson Cosmos
-1999 - Forever AutumnЖанр: Doom/Gothic MetalПродолжительность: 06:18:37
+01.  In Too Deep (5:34)
+02.  Stand Your Ground (4:54)
+03.  Under The Gun (4:13)
+04.  When You Lose A Friend (4:22)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48B2686D3E950699D7DFEE40C0A0AF91CE42D1DD
+magnet:?xt=urn:btih:7E526245EFDBEDF8015442F080A8C7D0D20B5F13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608024   (1043805) от 28.01.2023
+###  Публикация: 1819161   (1573) от 21.09.2025
 
-Alice in Chains - Studio Albums (8 releases) (1990 - 2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Grunge, Heavy/Sludge Metal, Hard Rock>
+Sakura - Матрос на стройке (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043805.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Alice in Chains — американская рок-группа из Сиэтла, образованная Джерри Кантреллом и Лейном Стейли в 1987 году. В начале 90-х годов коллектив получил широкую известность на волне роста популярности гранжа, наряду с Nirvana, Pearl Jam и Soundgarden.1990 - Facelift
-1992 - Dirt
-1995 - Alice In Chains
-1999 - Music Bank(   Читать дальше...   )Жанр: Grunge, Heavy/Sludge Metal, Hard RockПродолжительность: 11:44:40
+01. Загляни в глубину [00:04:24]
+02. Позывные [00:04:16]
+03. Время придет [00:04:34]
+04. Эго в агонии [00:04:43](   Читать дальше...   )Жанр: Indie, Alternative RockПродолжительность: 00:48:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4321F77154E854F08DB88D4B5D9FAFA56DCF662
+magnet:?xt=urn:btih:5A0707EF2B626C1701F2A605A59CABD2F4837F15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,29 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607472   (1044025) от 26.01.2023
+###  Публикация: 1819352   (1572) от 21.09.2025
 
-Falkenbach - Studio Albums (6 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Viking/Black/Folk Metal>
+Brandon Isaak - Walkin' With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044025.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Falkenbach — немецко-исландский метал-проект.
-Группа на самом деле представляет сольное творчество Маркуса Тюммерса (Vratyas Vakyas). По происхождению немец, большую часть своей жизни он прожил в Исландии. Потом переехал в Германию, сейчас живёт в Дюссельдорфе, где у него собственная студия звукозаписи Skaldik Art, специализирующаяся на поддержке молодых языческих (   Читать дальше...   )1996 - ...En Their Medh Riki Fara...
-1998 - ...Magni Blandinn Ok Megintiri...
-2003 - Ok Nefna Tysvar Ty
-2005 - Heralding The FirebladeЖанр: Viking/Black/Folk MetalПродолжительность: 04:39:19
+01.  Walkin' With The Blues (4:12)
+02.  Good and Blue (4:14)
+03.  Hold Me Baby (3:22)
+04.  Forever And A Day (4:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE5FE7B3487FF74257B3A15564CCA03BF213E88A
+magnet:?xt=urn:btih:5A124B10969C9AE647018B4D66F7334399814F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607410   (1044058) от 26.01.2023
+###  Публикация: 1819349   (1571) от 21.09.2025
 
-Рок-группа «Мост» - Музыка Сергея Баневича (1983) [FLAC 2.0|192/24|image+.cue] <Art Rock, Prog Rock, Pop Rock>
+Bad Wolves - Die About It (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, Alt.Rock, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044058.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Ночной Полет
-A2 Ау, Улетевшее Детство
-A3 Корабль
-A4 Ночь(   Читать дальше...   )Жанр: Art Rock, Prog Rock, Pop RockПродолжительность: 00:37:41
+01.  Intro (1:04)
+02.  Bad Friend (3:31)
+03.  Die About It (3:31)
+04.  Savior (2:59)(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Hard RockПродолжительность: 01:20:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3707E093ACCEBFD19C32638E27DB699A89A05FA3
+magnet:?xt=urn:btih:CEE794F9986715206620F4275A2614EF85B20CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607185   (1044158) от 25.01.2023
+###  Публикация: 1819344   (1566) от 21.09.2025
 
-Татьяна Кочергина и Рок-группа «XX Век» - «Добром за добро» (1988) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+7 Names Remain - Malcolm Ave (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044158.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Добром За Добро
-A2 Наказ Сыну
-A3 Симфония, Часть 1
-A4 Тiнi(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:12
+01.  Indigo Sky (4:49)
+02.  Peace of Mind (5:08)
+03.  Rescue Me (4:40)
+04.  Let's Run Away (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A17A4CE643D8847CE7E1CFD22E22534E740929BE
+magnet:?xt=urn:btih:8139C8D9F76CD0CBE438C800815F6A08E0225B66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606807   (1044308) от 23.01.2023
+###  Публикация: 1819346   (1565) от 21.09.2025
 
-Skaldowie - Szanujmy Wspomnienia (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+Alan Arena - Deceived (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044308.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Wszystko Kwitnie WkoloA2 Zyczenia Z Calego Serca
-A3 Zgadzam Sie Na Ten Swiat
-A4 Slowa Do Matki
-A5 Szanujmy Wspomnienia(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:17
+01.  Raised on Radio (3:05)
+02.  Believe in Yourself (4:35)
+03.  Deceived (3:18)
+04.  Big Black Cat (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B702E12FBDB5C1E1E3A0823688A228309BF034C7
+magnet:?xt=urn:btih:AA261768ACFD821354D57F728B0266903DF23050
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,25 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605804   (1044694) от 19.01.2023
+###  Публикация: 1819362   (1562) от 21.09.2025
 
-Steely Dan - Two Against Nature (2000) SACD, Reissue, Remastered, 2022, Analogue Productions [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Rock, Pop>
+Juri Amicabile - Geared Up (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>SACD-R
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044694.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Gaslighting AbbieЖанр: Jazz, Rock, PopПродолжительность: 00:51:32
+01.  Eviction (3:03)
+02.  Jimmy In N' Out (4:00)
+03.  41 (3:23)
+04.  Sugar (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE67A33D9917F473E5AB28801F9288676E769AC1
+magnet:?xt=urn:btih:F13344A59DD68E6E5CA65461C0603E21B82557EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604982   (1044917) от 17.01.2023
+###  Публикация: 1819366   (1561) от 21.09.2025
 
-Czerwone Gitary - Two Albums (1974, 1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Funk>
+Rusty Ends & Hillbilly Hoodoo - Roadhouses, Juke Joints and Honky-Tonks (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044917.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Dzien Jeden W Roku
-A2 Nad Swiatem Cicha Noc
-A3 Lec Koledo
-A4 Gwiazda Na Kiju(   Читать дальше...   )Жанр: Pop Rock, FunkПродолжительность: 01:15:57
+01.  Bad Like Billy the Kid (3:31)
+02.  The Same Thing (2:44)
+03.  Honky Tonk Man (2:51)
+04.  Lost in the Blues (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:777FB3100117D2AA13CAE8293BCA015E18E8E9F4
+magnet:?xt=urn:btih:150AEE226318D0C322A9339F918B82B53572B8CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603371   (1045758) от 09.01.2023
+###  Публикация: 1819155   (1560) от 21.09.2025
 
-Jim MacLeod and his band - 60 Minutes de danses écossaises (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Celtic, Folk>
+Ded - Resent (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative-Metal, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045758.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Face 1:
-01.Duke And Duchess Of Edinburgh
-02.McDonald Of Sleat
-03.Circassian Circle(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:00:41
+01. Wasted [00:03:10]
+02. You Want Honest? [00:02:49]
+03. Purpose: Be Myself [00:03:00]
+04. Rockstar [00:02:55](   Читать дальше...   )Жанр: Nu-Metal, Alternative-Metal, MetalcoreПродолжительность: 00:37:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B51C36E44B5715D78F1B08940C57CDFB31E257B
+magnet:?xt=urn:btih:DF3BE48A54081072B9ADD595CBFC2579A348C3D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,231 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602194   (1046184) от 04.01.2023
+###  Публикация: 1819348   (1558) от 21.09.2025
 
-Alison Krauss & Union Station - New Favorite (2003) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Bluegrass, Country>
+Alice Armstrong - Fury & Euphoria (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046184.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Неплохо сведенный в многоканале, очень мелодичный альбом кантри-музыки. Мне понравилось))За образ SACD благодарим01. Let Me Touch You For Awhile
-02. The Boy Who Wouldn't Hoe Corn
-03. The Lucky One
-04. Choctaw Hayride(   Читать дальше...   )Жанр: CountryПродолжительность: 00:44:44
+01.  Persephone (Intro) (2:11)
+02.  Punchline (3:23)
+03.  Good Love (3:21)
+04.  Bombshell (2:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:818C609FCB90075462399BCA49BEAF186E1D936D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839615   (1046696) от 29.11.2025
-
-VA - 20 Rock 'N' Roll Hits (1976) Original Versions [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046696.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Chuck Berry - Carol
-A2 Jerry Lee Lewis - High School Confidential
-A3 Marty Wilde - A Teenager in Love
-A4 Fats Domino - Jambalaya (On The Bayou)(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D719CD4652C3E95FE3317F4A76D5281B25A143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839985   (1046930) от 02.12.2025
-
-Nailed to Obscurity - Studio Albums (5 releases) (2007-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nailed to Obscurity - метал-группа из города Эзенс, Германия, основана в 2005 году.2007 - Abyss
-2013 - Opaque
-2017 - King Delusion
-2019 - Black FrostЖанр: Melodic Doom/Death MetalПродолжительность: 04:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83A18E85EE510D67D4F933E0DCCB5852AAAB67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840145   (1047156) от 04.12.2025
-
-Broken Fate - Studio Albums (5 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broken Fate - швейцарская метал-группа из Цюриха, основана в 2007 году.2015 - The Bridge Between
-2018 - Reborn
-2021 - C-Digital Session 2020
-2023 - Fighters & DreamersЖанр: Melodic Death/Thrash MetalПродолжительность: 04:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A6B6526201B19774B6DFD568231E390DF2CEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840150   (1047157) от 04.12.2025
-
-VA - Britain's Hot 12. Vocal (1970) Series: Britain's Hot 12 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047157.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 E. K. Boone - Raindrops Keep Fallin' On My Head
-A2 Firerain - Young, Gifted And Black
-A3 The Olympics - Come And Get It
-A4 Danny Field's Corp. - I Can't Tell The Bottom From The Topa(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC382EC4BAA9CAAB71E519D9524506861127FA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840151   (1047159) от 03.12.2025
-
-VA - Britain's Hot 12 (Vocal), Vol. 6 (1971) Series: Britain's Hot 12 [[FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047159.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ted Pelkins - Another Time, Another Place
-A2 Sweet Cream - I Believe (In Love)
-A3 Ted Jenniff - Maggie May
-A4 Street Crew - Tweedle Dee - Tweedle Dum(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAE29039F315E65988930F0E8E29278EC37262D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840349   (1047282) от 04.12.2025
-
-VA - Believe In Music. 20 Original Hits 20 Original Stars (1972) Series: 20 Original Hits 20 Original Stars [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047282.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Faces - Stay With Me
-A2 O'Jays - Backstabbers
-A3 Free - All Right Now
-A4 Roxy Music– - Virginia Plain(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61527BFC57E760905C31509384B215484223971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840956   (1047680) от 08.12.2025
-
-Triskelyon - Studio Albums (3 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triskelyon - канадский трэш-метал проект, созданный Джеффом Уэйем в 2021 году..
-2022 - Downfall
-2023 - Artificial Insanity
-2025 - Maelstrom Of ChaosЖанр: Thrash MetalПродолжительность: 02:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2E72718F04AF5F4B10DD6D78519948A4406ADE
+magnet:?xt=urn:btih:4A2E8E1B516634CA44FE1FEACC8C678C1DE1B7E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

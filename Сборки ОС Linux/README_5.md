@@ -1,22 +1,23 @@
-###  Публикация: 1438453   (1040987) от 08.01.2021
+###  Публикация: 1817542   (3381) от 11.09.2025
 
-Debian GNU/Linux 10 (Buster) LXQt by Lazarus [x86, x86_64] (2xDVD) [Авторская раздача]
+Ubuntu Game*Pack 24.04 (сентябрь 2025) [amd64] DVD
 
 >>Linux, Unix и другие ОС
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040987.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Debian – операционная система Linux, состоящая из свободного ПО с открытым исходным кодом. Debian GNU/Linux является одним из самых старейших и популярных дистрибутивов Linux, на нем основывается огромное количество других, не менее популярных дистрибутивов, в числе которых всем известный дистрибутив Ubuntu.
+Это операционная система, которая включает в себя инструменты и средства для гарантированного запуска более чем 100 тысяч игр, как специально разработанных для Linux, так и разработанных для Windows, DOS, различных игровых приставок Sega, Nintendo, PSP, Sony PlayStation, ZX Spectrum и много других.
+Дистрибутив основан на операционной системе Ubuntu*Pack 24.04 (LikeWin), (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9F4DD25A5512ABA350681172C5D5DAA92A06D08
+magnet:?xt=urn:btih:FB3E518132E636B798C4AE4B346B60578665E09E
 ```
 
 https://mybot314.ru/tekegram_catalog/

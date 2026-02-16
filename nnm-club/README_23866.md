@@ -1,272 +1,25 @@
-###  Публикация: 1363605   (942478) от 28.02.2020
+###  Публикация: 1761273   (103063) от 19.11.2024
 
-Лариса Черникова - Подари мне ночь (1996) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подари мне ночь (4:05)
-02. Замкнутый круг (4:09)
-03. Мой танец-любовь (4:35)
-04. Найди меня в радуге дня (3:20)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584D24BF1F358BC8357E5CEC586B5BF6E3514150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091593   (942479) от 09.01.2017
-
-Вилы / Pitchfork (2016) WEB-DLRip [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания друзей приезжает в дом одного из них, чтобы помочь ему разгадать одну тайну. Только иногда старые тайны могут оказаться смертельно опасными.Производство: СШАЖанр: УжасыРежиссер: Гленн Дуглас ПаккардАктеры: Дэниэл Уилкинсон, Brian Raetz, Lindsey Nicole, Райан Мур, Селина Бич, Nicole Dambro, Keith Webb, Sheila Leason, Vibhu Raghave, Рэйчел КартерПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Продолжительность: 01:34:59Реклама: Присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B80F9042936E6ADD2EBC3684211EDAA1C15556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363490   (942480) от 28.02.2020
-
-Дональд Уэстлейк | Пижона - в расход (2020) [MP3, Сергей Пухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сложная интрига, сложные, противоречивые герои известного американского автора детективов держат читателя в постоянном напряжении.
-В бар, поздно ночью, приходят двое в строгих костюмах и вручают чёрную метку бармену. У него есть только один способ избежать смерти, доказать, что он не виновен.Жанр: ДетективПродолжительность: 06:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520FE17B07947496E6B473F85BFC933134920121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983625   (942482) от 07.02.2016
-
-Футбол. Чемпионат Испании 2015-2016. 23 тур. Атлетико (Мадрид) - Эйбар. (06.02.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942482.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 февраля 2016, суббота. 18:00 МСК
-23-й тур
-
-Стадион: Висенте Кальдерон (Мадрид, Испания) , 45 321 зритель (82 % при вместимости 54 960)(   Читать дальше...   )Телекомпания: Футбол 2 HDЖанр: СпортПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B545B4896B9F4A563F856D92AF76A83327656A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626827   (942483) от 06.03.2013
-
-Дмитрий Старицкий | Путанабус. Лишние Земли лишних [2013] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш мир, как оказалось, не одинок. Другой мир был случайно открыт во время научного эксперимента, но его существование не разглашается учеными и их спонсорами, которые создали тайную организацию — орден. Своей главной целью орден декларирует заселение нового мира и незаметно для окружающих отправляет туда людей, которые здесь, на Старой Земле, посчитали себя лишними. (   Читать дальше...   )Жанр: ФантастикаИздательство: Альфа-книгаФормат: FB2Качество: Изначально электронное (e-book) без илл.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEDE2E76DEDEC87880135307C8079232493CB9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363281   (942484) от 28.02.2020
-
-Wrangler - A Situation (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthropocene (05:24)
-02. How To Start a Revolution (04:40)
-03. Machines Designed (To Eat You Up) (05:43)
-04. Mess (07:09)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA849B38EFE7AEB771F6702A1BABD3098D51B5C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859464   (942485) от 15.01.2015
-
-Салам, New York! (2013) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о приключениях парня из Кыргызстана в удивительном мегаполисе! Сможет ли он обрести любовь, дружбу, счастье, успех на чужбине? Через что приходится пройти, чтобы добиться своей мечты? Отправьтесь вместе с «Салам, New York» в незабываемое путешествие!Производство: Кыргызстан, Nomadmen FilmsЖанр: Комедия, драма, мелодрамаРежиссер: Руслан АкунАктеры: Бектемир Мамаюсупов, Аида Тулебаева, Фредд Трим, Юлия Даурова, Сергей Смойлович, Алекс Мейзлин, Даниэль БуркановПеревод: Не требуется (язык русский)Продолжительность: 02:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB031C739780CCFE43AAC575E2AB6AFEC649E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091503   (942487) от 09.01.2017
-
-Инферно / Inferno (2016) BDRemux [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Роберт Лэнгдон приходит в сознание в одной из итальянских больниц, полностью потеряв память. Местный врач Сиенна Брукс пытается помочь Роберту не только восстановить воспоминания, но и остановить загадочных злоумышленников, которые намерены распространить смертоносный вирус. Разгадка таинственной истории связана с «Адом» (ит. Inferno) — первой частью «Божественной (   Читать дальше...   )Производство: Венгрия, США / Columbia Pictures, Imagine EntertainmentЖанр: Боевик, Триллер, Драма, Криминал, Детектив, ПриключенияРежиссер: Рон ХовардАктеры: Том Хэнкс, Бен Фостер, Сидсе Бабетт Кнудсен, Фелисити Джонс, Ирфан Кхан, Омар Си, Ана Улару, Ката Сарбо, Ида Дарвиш, Вольфганг ШтегеманПеревод: Дублированный (iTunes)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A898A47F2A9A2C5FAF48739C080070C948228525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983397   (942489) от 07.02.2016
-
-Хоккей. КХЛ 2015-2016. Динамо (Москва) - Йокерит (05.02.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942489.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 февраля 2016, пятница. 19:30 МСК
-
-Стадион: ВТБ Ледовый дворец (Москва, Россия) , 11 164 зрителя (89 % при вместимости 12 500)
-Главный судья: Вячеслав Буланов (Москва, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортПродолжительность: 01:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F492B40FA39A7B6C7E67D5A84AE10EB9A698B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363550   (942490) от 28.02.2020
-
-Confess - Burn 'em All (2020) [MP3|320 Kbps] <Hard Rock, Glam Metal>
+Mystyc Blade - The Master Is Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942490.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 - So What? [2:50]
- 2 - Malleus [3:11]
- 3 - Welcome Insanity [4:10]
- 4 - A Beautiful Mind [4:18](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:38:22
+01. Don’t Forget to Live 5:40
+02. Feel Invincible 4:08
+03. Stay Away... Last Warning 4:34
+04. Pyramids and Mystery 7:39(   Читать дальше...   )Жанр: Heavy-MetalПродолжительность: 01:03:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7CE10C7A4A771142F957C5965FC3654FAE078D4
+magnet:?xt=urn:btih:BF5EF0181B55CBE777D55186EFE992B9559038FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091604   (942492) от 09.01.2017
+###  Публикация: 1761295   (103062) от 19.11.2024
 
-Abelssoft SSD Fresh 2017 6.1 Retail [En/De]
+Kreator - Live in Chile (April 2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942492.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Abelssoft SSD Fresh - если вы счастливый обладатель SSD накопителя и задумывались над тем как такой диск оптимизировать, продлить срок службы, то эта утилита всё сделает быстро и за пару кликов. Abelssoft SSD Fresh настроит вашу систему Windows на оптимальную работу с SSD накопителем, отключит доступ к записи, увеличит производительность, снизит количество операций (   Читать дальше...   )Язык интерфейса: Английский, Немецкий
+01. Sergio Corbucci is Dead (Live) (1:00)
+02. Hate Über Alles (Live) (4:03)
+03. People of the Lie (Live) (5:44)
+04. Awakening of the Gods (Live) (1:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:781FDE49128350F96F0752C245C767570948BAA1
+magnet:?xt=urn:btih:96C315838AA9207546388B465A60BA56EEDB17B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983685   (942494) от 07.02.2016
+###  Публикация: 1761200   (103061) от 19.11.2024
 
-Футбол. Чемпионат Германии 2015-2016. 20 тур. Байер - Бавария. (06.02.2016) HDTVRip [H.264/720p-LQ]
+Месье Пип выращивает грибы / Monsieur Pyp als Champignon-Zuchter (1913) WEBRip
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942494.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-06 февраля 2016, суббота. 20:30 МСК
-20-й тур
-
-Стадион: Бай-Арена (Леверкузен, Германия) , 30 210 зрителей (100 % при вместимости 30 210)(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:44:06
+Месье Пип бездельник, транжира и, как следствие, банкрот. Поправить свои дела он решил за счет своего состоятельного дяди. Причем довольно банально. Он наплел дяде, что мол, он начинает перспективный бизнес и скоро обогатится и вот только для начала надо вложиться и не мог бы дядя помочь (вполне по современному звучит, ага?). Дядя готов помочь, но, как человек не (   Читать дальше...   )Производство: Германия / MonopolfilmЖанр: короткометражный, комедия, немое киноРежиссер: Шарль ДекруаАктеры: нет сведенийПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:18:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6A5C6FBC515A2A709B7C8E1EAD60095E5BCF14D
+magnet:?xt=urn:btih:5D59073C556BCCB8A0A19AB587747C0558C723E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 587128   (942495) от 09.01.2017
+###  Публикация: 1761370   (103060) от 19.11.2024
 
-Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|320 кб/с]<Trance,Progressive Trance>
+Joe Grushecky & The Houserockers - Can't Outrun A Memory (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Electronic
->>Radioshow, Live Mixes
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942495.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cerf, Mitiska, Jaren - Light The Skies (Harry Peat remix)
- 02. DJ Fire - Midnight In Beijing
- 03. Andrew Bennett - Menar (Markus Schulz remix)
- 04. ATB - Desperate Religion (Aurosonic remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 198:21:38
+01. This Is Who We Are (4:12)
+02. Here In '68 (4:37)
+03. Can't Outrun A Memory (4:28)
+04. Just Drive (3:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:11:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A847F021CE563DD43E479E0350AE42AEE6E766CA
+magnet:?xt=urn:btih:14F74BB02B0F9B43A68BE9B309D8997566EAC732
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -358,25 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 859438   (942496) от 15.01.2015
+###  Публикация: 1761368   (103059) от 19.11.2024
 
-Сати Казанова - Дура (2013) [1080p] [hand made 60fps]
+J. Boss Blues Band - White Cats Play The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Театр и Музыкальное видео
->>Музыкальные клипы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942496.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Формат: MKVПродолжительность: 00:03:44
+01. Baby What You Want Me To Do (4:13)
+02. Steady Rollin' Man (5:21)
+03. It Takes a Lot Of Love, It Takes A Train To Cry (6:33)
+04. I Can't Hold Out (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9737BDCBE187E7AC25D6325C2DBA1B800F5D50B5
+magnet:?xt=urn:btih:D869AA9AEF240DF4ADE6AE84D15517756302E4D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,28 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984037   (942497) от 07.02.2016
+###  Публикация: 1761323   (103058) от 19.11.2024
 
-Футбол. Чемпионат Италии 2015-2016. 24 тур. Верона - Интер. (07.02.2016) HDTVRip [H.264/720p-LQ]
+Rauw Alejandro - Cosa Nuestra (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Reggaeton, R&B, Trap>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942497.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-07 февраля 2016, воскресенье. 14:30 МСК
-24-й тур
-
-Стадион: Марк-Антонио Бентегоди (Верона, Италия) , вместимость: 39211(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:46:05
+01. Cosa Nuestra [00:04:20]
+02. Déjame Entrar [00:04:14]
+03. Qué Pasaría... [00:03:11]
+04. Tú Con Él [00:04:49](   Читать дальше...   )Жанр: Pop, Reggaeton, R&B, TrapПродолжительность: 01:07:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71A37DAC00B5A8B03A81FF9A7E4CED7923F27361
+magnet:?xt=urn:btih:7FF9C0128E9398DFB2892441FFE4F7FC6259B98E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,25 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362923   (942498) от 28.02.2020
+###  Публикация: 1761360   (103057) от 19.11.2024
 
-Ultra Mood - Country Party (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
+Wes Jeans - One Day at a Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942498.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ultra Mood - Country PartyЖанр: HardcoreПродолжительность: 00:02:40
+01. Wes Jeans feat. Tommy Katona - No Tears Left to Cry (4:14)
+02. Wes Jeans feat. Tommy Katona - Graceland (4:51)
+03. Me & My Woman (3:52)
+04. Wes Jeans feat. Tommy Katona - Dimples (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:21:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C06B257601AE8B72B4DC1A3812D5011BB6F0D84
+magnet:?xt=urn:btih:227D86D46925AD706760C1761E786D008A689D5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -439,25 +198,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091397   (942499) от 09.01.2017
+###  Публикация: 1761278   (103056) от 19.11.2024
 
-Futuremark 3DMark 2.2.3509 Professional Edition RePack by KpoJIuK [Multi/Ru]
+Lordi - Made Of Metal (Single) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942499.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3DMark - поможет вам протестировать ваше оборудование для игр. Играете вы на персональном компьютере,ноутбуке или планшете? В 3DMark есть все инструменты для вашей платформы что бы протестировать игровую производительность. 3DMark поможет вам протестировать ваше оборудование в основных популярных базовых и таких разрешениях как 2K и 4K и даже супер экстремальных (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
+01. Made Of Metal 04:12Жанр: Heavy Metal, Hard RockПродолжительность: 00:04:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:264B7FB9E513C26DCEF36C14E284BF8CAADA6C16
+magnet:?xt=urn:btih:E8DEA9E063467D0F6597B31871BC2C6FFA3A85C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,28 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984082   (942502) от 07.02.2016
+###  Публикация: 1761289   (103055) от 19.11.2024
 
-Футбол. Чемпионат Франции 2015-2016. 25 тур. Монако - Ницца (06.02.2016) HDTVRip [H.264/720p-LQ]
+Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|image + .cue] <Brutal, Technical Death Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942502.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-06 февраля 2016, суббота. 16:00 МСК
-25-й тур
-
-Стадион: Луи II (Монако, Франция) , 12 842 зрителя (69 % при вместимости 18 523)(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:44:54
+01. Stelae of Vultures
+02. Chapter for Not Being Hung Upside Down on a Stake in the Underworld and Made to
+Eat Feces by the Four Apes
+03. To Strike with Secret Fang(   Читать дальше...   )Жанр: Brutal, Technical Death MetalПродолжительность: 00:53:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C86F19E2AE0E9C1E644E5D97FC958378FA8237C
+magnet:?xt=urn:btih:5F4BFCBD401D9D3DC51BA5CFBCE4FC8CC7F383AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363467   (942503) от 28.02.2020
+###  Публикация: 1761359   (103054) от 19.11.2024
 
-Архимандрит Андрей (Конанос) | Христос — это свобода! (2019) [PDF, DJVU, FB2, EPUB]
+Infanticide - Extinction Scheme (2007) [FLAC|Lossless|image + .cue] <Grindcore>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942503.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Архимандрит Андрей (Конанос) — знаменитый в православном мире миссионер-проповедник. Крупнейшая церковная радиостанция Греции «Пирейские митрополии» в 2003 году запустила авторскую программу архимандрита Андрея Конаноса «Невидимые переходы». Архимандрит Андрей вёл лекции на различные церковные темы, отвечал на вопросы радиослушателей, нашёл подход к каждому из них, (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: PDF, DJVU, FB2, EPUB
+01. Attention Whore
+02. No Fucking Way
+03. Do Not Think / Do Not Act
+04. Shitstorm(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:29:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B40D2C69641475AE338278DD7DE54F593A05A0FE
+magnet:?xt=urn:btih:2B4226FAB63F63ECA714772D024148D8509EC455
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091468   (942504) от 09.01.2017
+###  Публикация: 1761590   (103053) от 21.11.2024
 
-SketchUp Pro 2017 v17.1.173 [Ru]
+About Us - Take A Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942504.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 ноября 2016Разработчик: Trimble Navigation LimitedПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский
+01. Come To You (3:53)
+02. Endure (3:45)
+03. Legion (3:29)
+04. Fire With Fire (4:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AA6F470F14534EF82C14A2F98A02138A294EA5B
+magnet:?xt=urn:btih:939CB4B52D2F7A9FE4AEAB78695C5FECF3B54A86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +311,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362998   (942507) от 28.02.2020
+###  Публикация: 1761582   (103052) от 21.11.2024
 
-Lil Wayne - Funeral (2020) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+Eve 6 - It’s All in Your Head (2003) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942507.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Funeral (03:14)
-02. Mahogany (02:57)
-03. Mama MIA (03:45)
-04. I Do It (feat. Big Sean & Lil Baby) (03:04)(   Читать дальше...   )Жанр: Hip HopПродолжительность: 01:16:04
+01. Without You Here (2:23)
+02. Think Twice (3:44)
+03. At Least We’re Dreaming (4:09)
+04. Still Here Waiting (2:16)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 00:44:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04EB8522D47B9E0E53CEC4DEA2656ABBCDE9012D
+magnet:?xt=urn:btih:57EFC4E0A418213D232CFB1159E2B9B3BF7A31EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +340,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983999   (942508) от 07.02.2016
+###  Публикация: 1761598   (103051) от 21.11.2024
 
-Хоккей. НХЛ 2015-2016. Сент Луис - Миннесота. (06.02.2016) WEB-DL [H.264/720p-LQ] [EN]
+Suat Ernur Bilge - Troubled Sadness (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942508.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-07 февраля 2016, воскресенье. 04:00 МСК
-
-Стадион: Скоттрэйд-центр (Сент Луис, США) , 19 318 зрителей (98 % при вместимости 19 808)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада)(   Читать дальше...   )Телекомпания: FOX SportsЖанр: СпортЯзык озвучки: английскийПродолжительность: 02:08:34
+01. Resist (3:16)
+02. Break these chains now (3:13)
+03. There is no tomorrow (3:11)
+04. Fake world (2:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:808FD3F83170DBACBC06D53FF9AFBFC1FA5CC160
+magnet:?xt=urn:btih:50FE561EF3FDE75054E7FF69330D3E4DCCBB1EEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091489   (942509) от 09.01.2017
+###  Публикация: 1761479   (103050) от 21.11.2024
 
-Джон Дж. Мэрфи | Технический анализ финансовых рынков (2016) [PDF]
+Sylvaine - Silent Chamber, Noisy Heart (2014) Remasteredб 2024, Eisenwald [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doomgaze, Shoegaze, Atmospheric Black Metal>
 
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942509.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джон Мерфи - классик технического анализа, автор нескольких бестселлеров по финансовым рынкам. В своей книге "Технический анализ финансовых рынков" он рассказывает обо всех существующих видах графиках, и о том, как использовать их в биржевой торговле.
-
-Основное темы книги:
- - основы технического анализа и построения графиков;(   Читать дальше...   )Жанр: Финансы. Банковское дело. ИнвестицииФормат: PDF
+01. Sylvan (Remastered) [00:02:47]
+02. It Rains in My Heart (Remastered) [00:06:02]
+03. Silent Chamber, Noisy Heart (Remastered) [00:06:32]
+04. Тоска (Remastered) [00:04:18](   Читать дальше...   )Жанр: Doomgaze, Shoegaze, Atmospheric Black MetalПродолжительность: 00:59:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA2095699E6730EFB39A8D6E1412081F31597FE2
+magnet:?xt=urn:btih:75D94064AD9272009297A550BDB51F77DCDA9D20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +398,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363624   (942510) от 28.02.2020
+###  Публикация: 1761512   (103049) от 21.11.2024
 
-The Lacs - Kickin' up Mud: The Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop, Country Rap, Blues Rock>
+Живая лестница / De levende ladder (1913) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942510.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kickin' up Mud (3:37)
- 02. Country Road (4:00)
- 03. 190 Proof (2:53)
- 04. Country Boy Fresh (3:42)(   Читать дальше...   )Жанр: Hardcore Hip-Hop, Country Rap, Blues RockПродолжительность: 00:43:26
+Романтическая драма с голландской дивой раннего кинематографа: Энни Бос. Энни влюбляется в циркового клоуна, но родители запрещают ей быть с ним. Жених - клоун! Разве такого мужа они желали дочери? Завидной партией клоуна не назовешь. Но у цирковых есть и неоспоримые достоинства - они традиционно очень сплоченные, сильные, ловкие и решительные люди. И они докажут (   Читать дальше...   )Производство: Нидерланды / N.V. Maatschappij voor Artistieke CinematografieЖанр: короткометражный, мелодрама, драма, немое киноРежиссер: Мауриц Бингер, Louis H. ChrispijnАктеры: Энни Бос, Алекс Бенно, Koba Kinsbergen, Barend Barendse, Луис БоувмеестерПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:24:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71A157B251DE4AD1A1792CECC0C199194CED61D2
+magnet:?xt=urn:btih:3719F260D10127E65FC18A664AF44EF9A858196C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +424,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984000   (942513) от 07.02.2016
+###  Публикация: 1761595   (103048) от 21.11.2024
 
-Хоккей. НХЛ 2015-2016. Нэшвилл - Сан Хосе. (06.02.2016) WEB-DL [H.264/720p-LQ] [EN]
+Juan Raul Rosero - Everything is Possible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942513.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-07 февраля 2016, воскресенье. 04:00 МСК
-
-Стадион: Бриджстоун-Арена (Нэшвилл, США) , 17 192 зрителя (100 % при вместимости 17 231)
-Главный судья: Марк Жоанетт (Вердун, Канада)(   Читать дальше...   )Телекомпания: FOX SportsЖанр: СпортЯзык озвучки: английскийПродолжительность: 01:53:05
+01. This is Sparta (2:16)
+02. The Triathlon Anthem (3:15)
+03. Now or Never (3:06)
+04. Resilience Warrior (2:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4311DE761F1E2EF5E59026C2C0FF016BE09F62EC
+magnet:?xt=urn:btih:E9DDC0DD71B609B6221C27DB8B91B54F9C85113A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,25 +453,289 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091574   (942514) от 09.01.2017
+###  Публикация: 1761600   (103047) от 21.11.2024
 
-Adobe Acrobat XI Pro 11.0.19 [Multi/Ru]
+Accuser - Rebirthless (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942514.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe® Acrobat® XI Pro — это не просто популярный конвертер PDF. Он содержит множество интеллектуальных функций, которые предоставляют дополнительные возможности для взаимодействия. Легко, быстро, профессионально. Объединение широкого диапазона содержимого включая документы, электронные таблицы, электронную почту, изображения, видеоматериалы, 3D-графику и карты в (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+1. Violent Vanity
+2. Ghost Of Disease
+3. Rebirthless
+4. Painted Cruelty(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3F454A968AC6C97FAD92C30E6FB776DD0067ED2
+magnet:?xt=urn:btih:458A97D6EA5FC17FFF5E6B84BCB71151FA053052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761714   (103046) от 21.11.2024
+
+Marco Grompi & Michele Fortis - WINTERFLOWERS (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AIMLESS BLUES (4:30)
+02. MICHELE FORTIS & Marco Grompi - LITTLE FLOWER (7:08)
+03. TO FILL MY SOUL (4:52)
+04. LEVEL CROSSING (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F2C98EA45BCC79A231A550C753BF1AD6CB8DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761871   (103045) от 22.11.2024
+
+Wako - Evig liv, perfekt orden (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Folk (1:41)
+02. Drifting (5:36)
+03. Homemade (4:40)
+04. Amerika (4:11)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9C0C6DBC747C586D22F25C9A1133620353F7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761867   (103044) от 22.11.2024
+
+The San Pedro Allstars feat. Reed Turchi, Austin White, Marlon Patton & Eric Burns - Stress 'N' Grits (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ayahuasca Old Fashioned (3:55)
+02. Stress 'N' Grits (3:30)
+03. Going Down South (5:07)
+04. Ima Bore (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0416F38D80B70AD10194CB11C1DC3EA974C3D6E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761858   (103043) от 22.11.2024
+
+Staples Jr. Singers - Searching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Staples Jr. Singers feat. Annie Brown Caldwell - Living In This World Alone (3:01)
+02. Lost In A World Of Sin (4:02)
+03. You Got To Believe (3:09)
+04. Walk Around Heaven (3:35)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A085D25F39B907203629C6428CC6B1062DA6F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761660   (103042) от 22.11.2024
+
+Silent Winter - Utopia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Burn The Future (4:43)
+02. Hellstorm (4:33)
+03. Hands Held High (6:45)
+04. Reign Of The Tyrants (4:53)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C8C3F56B28E5ED17EC40596D9E3D82C7CCB799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761646   (103041) от 22.11.2024
+
+Mind Control - This Present Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exordium (0:52)
+02. Departed (6:15)
+03. Calypso - Queen of the Sea (4:17)
+04. Hidden (6:20)(   Читать дальше...   )Жанр: Heavy Psychedelic, Progressive RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F407291BE0BD009E04AF1B1E98BEF0D1427F6C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761833   (103040) от 22.11.2024
+
+Raptore - Renaissance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103040.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Ecclesia (1:07)
+• 02. Satana (4:39)
+• 03. Abaddon (3:54)
+• 04. Darklight (3:54)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E958F5A24DD56C5875A09DAD155E4A4D6A9C508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761782   (103039) от 22.11.2024
+
+Go Radio - Lucky Street (2011) [FLAC|Lossless|tracks + .cue] <Аlternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky Street (4:14)
+02. Any Other Heart (3:52)
+03. Singing with the King (3:18)
+04. Strength to Stay (3:23)(   Читать дальше...   )Жанр: Аlternative Rock, Pop RockПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D6AA53BCF1DE1A2EFB4189B90444BBFFDC725C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761864   (103038) от 22.11.2024
+
+Sunjay - I'm Just Like You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Link of Chain (3:56)
+02. No Love Today (4:56)
+03. Love You Like a Man (3:08)
+04. Mail Order Mystics (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E515D01FB854F5B9C4B2EF00A365BD140F20AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

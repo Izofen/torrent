@@ -1,22 +1,22 @@
-###  Публикация: 1568587   (210959) от 08.08.2022
+###  Публикация: 766282   (870606) от 14.03.2014
 
-Сборник - Graphic Master - Complete Bundle All in ONE [AI, ATN, CDR, GIF, SVG, JPG, LRTEMPLATE, EPS, EOT, PPTX, TTF, OTF, PNG, PSD, WOFF]
+Сборник - Брендинг 8 / Branding 8 [JPEG,PSD,PNG,EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210959.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полный графический комплект "ВСЕ В ОДНОМ" объединяет наши 6 популярных наборов украшений в одну большую упаковку. Это означает, что теперь вы можете получить более 25 000 элементов.Формат: AI, ATN, CDR, GIF, SVG, JPG, LRTEMPLATE, EPS, EOT, PPTX, TTF, OTF, PNG, PSD, WOFF
+БрендингФормат: JPEG,PSD,PNG,EPSРазрешение файлов: 3000х2100
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A93DDF47E0B97BB1B07AEB452A013D1792AF6696
+magnet:?xt=urn:btih:75761657AA72D5112842C1E2380750AEE66CF927
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,113 +24,9 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084800   (215438) от 20.12.2016
+###  Публикация: 766268   (870534) от 14.03.2014
 
-Сборник - Новый год и Рождество 2017 / New Year & Christmas 2017 [EPS, AI, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник: Новый год и Рождество.Формат: EPS, AI, JPG.Разрешение файлов: до 6500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51E475B2BD0DEC44BC5B75F09A02424A234495A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737215   (217512) от 22.12.2013
-
-Сборник: Бизнес,Cтиль и шаблоны  / Business,Style & Templates [JPEG,EPS,AI]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бизнес,Cтиль и шаблоныФормат: JPEG,EPS,AIРазрешение файлов: 3700х2300-6000х4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6408673791BF77B26BD4E0FE2D736AF4A62C41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269321   (218782) от 15.12.2018
-
-Сборники - Календари и банеры на 2019 год / New-year Baner & Calendar 2019 [AI, EPS, PDF, CDR]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календари и банеры на 2019 год. В основном на латинице. Отлично подойдет для оформления открыток и поздравлений. В каждом каталоге есть превью.Формат: AI, EPS, PDF, CDR (добавочно PSD, JPG, TIF)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DADA5B16D512559285FBC6C7E6E7C2D644B5D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425518   (219985) от 21.11.2020
-
-Сборник - WD-Free-Deals [JPG, PNG, PSD, AI, EPS, PAT, ABR, CSH, GRD, ASL, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный сборник стоковых изображений и дополнений для photoshop.Формат: JPG, PNG, PSD, AI, EPS, PAT, ABR, CSH, GRD, ASL, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3CBA966727C4F020011E33AFAD547FF1CCC6C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736990   (220331) от 21.12.2013
-
-Сборник: Типографика,Буквы и Числа / Typography,Letters & Numbers [JPEG,PNG,PSD,EPS,AI]
+Сборник - Дизайн футболок 21 / T-Shirt Factory 3 [PSD,EPS,CDR]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
@@ -142,12 +38,11 @@ https://mybot314.ru/tekegram_catalog/
 
 ###  Подробнее
 
-Сборник:Типографика,Буквы и Числа
-в разных форматахРазрешение файлов: до 6000х4000Формат: JPEG,PNG,PSD,EPS,AI
+Дизайн футболокФормат: PSD,EPS,CDR превью в JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB325440271F09A344E28E4DB91C2BC100BC5CC0
+magnet:?xt=urn:btih:2DADA6CE6A41E6AF18BBC24F619B73B8686ADCFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425013   (223578) от 19.11.2020
+###  Публикация: 1375224   (866938) от 13.04.2020
 
-Сборник - Ultimate Vector Toolbox [AI, CDR, EPS, BMP, TIF]
+Сборник - MightyDeals - Scandi Patterns Collection [PNG, PSD, AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223578.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-650+ бесплатных векторов. Высококачественные векторные изображения могут сэкономить вам массу времени при создании новых проектов, независимо от того, используете ли вы их как есть или в качестве отправной точки для ваших собственных дизайнов.Формат: AI, CDR, EPS, BMP, TIF
+Бесшовные геометрические узоры в векторе и растре. Бесплатно для личного и коммерческого использования!Разработчик: Nikita LyubimovФормат: PNG, PSD, AIРазрешение файлов: 8334 x 8334
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EA7EC61233ED3C75C8DD66641B9CA1E9BC7E962
+magnet:?xt=urn:btih:2579FDFDFF755CD94531476535EA4F14A3012FB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,9 +76,9 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 735694   (228466) от 18.12.2013
+###  Публикация: 767480   (865221) от 17.03.2014
 
-Сборник - Новый год и Рождество 2014-3 / New Year & Christmas 2014-3 [JPEG,PNG,PSD,EPS,AI]
+Сборник - Цветы, Цветочные фоны и открытки / Flowers, Floral backgrounds & cards [JPEG,EPS,AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
@@ -195,11 +90,11 @@ https://mybot314.ru/tekegram_catalog/
 
 ###  Подробнее
 
-Сборник: Новый год и РождествоФормат: JPEG,PNG,PSD,EPS,AIРазрешение файлов: до 7100
+Цветы, Цветочные фоны и открыткиРазрешение файлов: 1400х900-8500х6700Формат: JPEG,EPS,AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA79728B394D3B9AE81D3B9BD45EB8043CAA80A6
+magnet:?xt=urn:btih:8DAF10978124C3570DF54C1EEE00BCCA235FA976
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833609   (246076) от 01.11.2025
+###  Публикация: 767295   (865134) от 17.03.2014
 
-Сборник - Nerd or Die - Synthwave Stream Pack [PSD, PNG, WEBM]
+Сборник - Сертификаты, дипломы 4 / Certificates & diplomas 4 [PSD,EPS,AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246076.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Неоновые огни и темы 80-х. Synthwave предлагает множество цветовых вариантов, мощную ретро-тему и полностью анимированные компоненты наложения.Формат: PSD, PNG, WEBM
+Сертификаты, дипломыРазрешение файлов: 2500x3500Формат: JPEG,PSD,EPS,AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37D2CC223D12F6F3DFDA5CC765587F9B9D3C7745
+magnet:?xt=urn:btih:882FFD4507C7937F50A23A9635A75B93C88B6229
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,25 +128,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835067   (250610) от 04.11.2025
+###  Публикация: 767590   (863381) от 18.03.2014
 
-Сборники - Creative Market - Watercolor Autumn & Winter Bundle - 959235 [PNG, JPG, AI, EPS]
+Сборник - Дизайн футболок 22 / T-Shirt Factory 4 [PSD,EPS,CDR]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250610.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Эти уникальные элементы осенне-зимней тематики нарисованы от руки и имеют красивую акварельную текстуру. Эти дизайны идеально подойдут для поздравительных открыток, наклеек, печатных материалов и многого другого!Формат: PNG, JPG, AI, EPS
+Дизайн футболок
+на постере самая добрая картинка  :gi:Формат: PSD,EPS,CDR превью в JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03A44AC044192CFFA0CCDE790429F39B3F77F78B
+magnet:?xt=urn:btih:AF91FBC2673FBA6C357A56E607FBCBCD60CE390C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835712   (251679) от 07.11.2025
+###  Публикация: 767836   (863304) от 18.03.2014
 
-Сборники - Creative Market - Rority Collection - 14655460 [AI, EPS, FIG, PNG, SVG]
+Сборник - Дизайн футболок 24 / T-Shirt Factory 6 [PSD,EPS,CDR]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251679.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-180 уникальных и модных иллюстраций. Отличная коллекция для дизайна финансовых презентаций, веб-сайтов и приложений. Быстрая и простая настройка, лёгкая смена цветов помогут вам адаптировать иллюстрации к вашим творческим проектам и задачам.Формат: AI, EPS, FIG, PNG, SVG
+Дизайн футболокФормат: PSD,EPS,CDR превью в JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F70899BDC22147CF8E2B1D920C561FBF2F15313A
+magnet:?xt=urn:btih:DEFA9664B11AE895C2F6E34796D60686967B7A46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,27 +181,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193114   (262186) от 20.12.2017
+###  Публикация: 767731   (863303) от 18.03.2014
 
-Клипарт - Creative Market - Sushi Bar Scene Generator | 80% OFF - 2099604 [JPG, PSD, AI, EPS, OTF, TTF]
+Сборник - Дизайн футболок 23 / T-Shirt Factory 5 [PSD,EPS,CDR]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262186.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Sushi Bar - это сценарий и макет генератора, который заставит ваш веб-сайт или печатную графику выглядеть потрясающе всего за несколько минут работы. Вам просто нужно перетащить оригинальные объекты HQ, переставить их по своему усмотрению, заменить смарт-объекты на макеты своей графикой.
-
-385+ отдельных объектов - все пункты были предназначены для того, чтобы помочь (   Читать дальше...   )Формат: JPG, PSD, AI, EPS, OTF, TTFРазрешение файлов: 3000x2000-8000x4500
+Дизайн футболокФормат: PSD,EPS,CDR превью в JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:955FF7A573D2B4C5D4EEBD770DB4392AA3FE14AA
+magnet:?xt=urn:btih:D1F11D42DFAE2487C7A9105254251CD9536C5CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,25 +207,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339914   (264567) от 21.11.2019
+###  Публикация: 769544   (854158) от 23.03.2014
 
-Creative Market - Cute Characters - vector clip art - 4197356 [PNG, JPG, EPS]
+Сборник - Свадьба 5 / Wedding 5 [JPG,EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264567.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Представляем милых персонажей - клипарты, рисунки и элементы. Вы можете использовать его для - подарочных карт, бирок, ярлыков, наклеек, приглашений, изображений заголовков, презентаций шрифтов, идеально подходящих для поделок, печатных бумажных изделий и многого другого. Все элементы нарисованы на 100% вручную.Формат: PNG, JPG, EPSРазрешение файлов: 507x525-8334x8334
+Свадебная тематикаРазрешение файлов: 3300х5000-8000х5300Формат: JPG,EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BD060300F0C988A1E98D9E3C784F0465FBFC0A8
+magnet:?xt=urn:btih:CDE66388D88DC82CAF652F5051A544AE916DAF33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,25 +233,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338834   (267974) от 17.11.2019
+###  Публикация: 769742   (853970) от 23.03.2014
 
-Квартальная календарная сетка 2020 [PNG, EPS, CDR]
+Сборник лучших PSD для web-дизайна [PSD, PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267974.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Векторная и растровая календарная сетка.Формат: PNG, EPS, CDR
+Предлагаем вашему вниманию уникальный продукт – полномасштабный сборник готовых файлов PSD, которые станут вашим надежным помощником в разработке дизайна сайтов и при выполнении многих других задач, связанных с web и графикой.
+Когда создавался сборник, хотелось получить удобный инструмент, с помощью которого вы бы могли быстро находить необходимый исходник для работы. Сайты по многим причинам не устраивали: нужен интернет, файлы надо постоянно скачивать, много откровенно плохих по качеству psd и т.д.
+Все эти файлы авторы собирали для себя, под свой вкус и профессиональную оценку. Да, это дружная команда web-дизайнеров, которая решила поделиться с вами личным архивом, в котором содержаться работы лучших ребят в миреРазрешение файлов: от 290*230 до 4000*2000Формат: PSD, PNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3C73C2A288492B8338E8311294B596CD3C48EAC
+magnet:?xt=urn:btih:97C1CC1135EB29A37CB4120D9EBE3DD32566A1A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,25 +261,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188669   (273017) от 03.12.2017
+###  Публикация: 770181   (852216) от 24.03.2014
 
-Сборники - Creative Market - Autumn Patterns & Illustrations - 1833220 [JPG, AI, PNG, PSD]
+Сборник - Музыка / Music [AI,EPS,JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273017.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Осень здесь, и эта причудливая коллекция приходит вовремя, чтобы добавить элегантный и очарованный осеннее свечение в ваших проектах. Рисованной иллюстрации и соответствующие модели идеально подходят для свадебных приглашений, канцелярских принадлежностей, карты, брендинга и многое другое.Формат: JPG, AI, PNG, PSDРазрешение файлов: 193x141-25473x5808
+Сборник на музыкальную темуРазрешение файлов: 2400х1600-9000х6000Формат: AI,EPS,JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1BA69160C6A23EF8F02AA11CFB35747C5D972B9
+magnet:?xt=urn:btih:666F8AF5E75BAA038E8FC8F24488ADB0ABD1CF27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,28 +287,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187315   (280007) от 28.11.2017
+###  Публикация: 770302   (850765) от 25.03.2014
 
-Клипарт - Creative Market - Rose Pack + 570 Ultra HD Elements - 1663274 [PNG, PSD, EPS, JPG]
+Сборник - Пасха 2014-2 / Easter 2014-2 [JPEG,EPS,AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280007.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник роз для
-- Конструкторов шрифтов
-- веб-дизайнера
-- графических дизайнеров(   Читать дальше...   )Формат: PNG, PSD, EPS, JPGРазрешение файлов: 161x1000-8000x5500
+ПасхаФормат: JPEG,EPS,AIРазрешение файлов: 5000x3700
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5B0DFCC74B077EC1327BD434FCBD64364CB853A
+magnet:?xt=urn:btih:F931F56495FBF8A4E27F618979CC97887CBA3C70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,25 +313,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186647   (283723) от 26.11.2017
+###  Публикация: 1499363   (849175) от 01.10.2021
 
-Клипарт - Creative Market - Rococo. Vol. 2 - 1973760 [AI, EPS, PNG]
+Сборник - 4000 Wedding Templates Bundle for Photoshop [PSD, ABR, TTF, FON, ASL, OTF, PFM]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283723.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция роскошных векторных файлов «Rococo. Том. 2» включает золотистые бесшовные границы, рамки, виньетки и другие украшающий декор для ваших проектов. Набор с элементами в викторианском стиле может быть использован для приглашений, поздравительных открыток, сертификатов, благодарственных писем, веб-дизайна, цифровых записок, DIY и других проектов.Формат: AI, EPS, PNGРазрешение файлов: 603x530-4089x2204
+Набор свадебных шаблонов для Photoshop.Формат: PSD, ABR, TTF, FON, ASL, OTF, PFM
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55D9A1955207EE5687D53228BDAD83E66B1277D6
+magnet:?xt=urn:btih:114D0D7CEFFD9B407D540AFE51D608115515FD6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,25 +339,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 846392   (301601) от 02.12.2014
+###  Публикация: 1379114   (842380) от 27.04.2020
 
-Сборник - Новый Год 2015-3 / New Year 2015-3 [JPEG,PNG,PSD,AI,EPS]
+Сборник - Creative Market - The Icon Bundle 4000 - 618315 [AI, PNG, PSD, EPS, SVG]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301601.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Готовимся к встрече  :newyear2: )Формат: JPEG,PNG,PSD,AI,EPS,ASL,ATN, и даже AEP
+Всем привет. Это мой новый большой набор иконок. В этом наборе вы не увидите, 500 значков стрелок или 300 значков сетки. Только разные и сложные иконки, только хардкор.Формат: AI, PNG, PSD, EPS, SVGРазрешение файлов: 16x16-512x512
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABCA5E41C89927F230AF0BB4B158BA92BAD84D97
+magnet:?xt=urn:btih:6C8BF9C595104B439DD3A3031E7A08EEEB56377F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,25 +365,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332910   (309116) от 22.10.2019
+###  Публикация: 1500732   (840832) от 06.10.2021
 
-Creative Fabrica - The Mega Christmas Bundle - 1200+ Graphics All in 1 Cute Bundle [PNG, JPG, EPS]
+Сборник - GraphicRiver, Envato Elements - Сборник шаблонов от Envato Elements [PSD, IDML, INDD, INX, AI, EPS, INDT]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309116.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот комплект включает 1200 графических тем на Рождество.Формат: PNG, JPG, EPSРазрешение файлов: 1800x1800
+Большой сборник шаблонов от Envato Elements и GraphicRiver.Формат: PSD, IDML, INDD, INX, AI, EPS, INDT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DD54683F9702FF20AB63A3EEF90F1007825D460
+magnet:?xt=urn:btih:86E1D07A5D6DCAC546A62A74D4464F1C2CCBD6FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -498,25 +391,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 840335   (334511) от 12.11.2014
+###  Публикация: 773716   (832482) от 04.04.2014
 
-Сборник - Элементы дизайна купюр / Money Design Elements [PSD,EPS]
+Сборник - Супергерои / Superheroes [JPEG,EPS,AI,CDR,PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супергерои, не совсем супер и совсем не героиФормат: JPEG,EPS,AI,CDR,PSDРазрешение файлов: ~4000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D69A4D4BE0BFDF62C6B334830144EF1729AF0B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502348   (827876) от 14.10.2021
+
+Сборник - Creative Market - 16300 in 1 - GRAPHIC GIANT BUNDLE - 2281951 [OTF, WOFF, WOFF2, TTF, PNG, AI, EPS, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827876.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту сборку входит около 16300 наименований. Это элементы акварели, элементы маркера, иллюстрации, объекты, узоры, текстуры и шрифты.Формат: OTF, WOFF, WOFF2, TTF, PNG, AI, EPS, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BABE80B98987AEC81455B413555A9D0F16CAC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 777080   (813954) от 14.04.2014
+
+Сборник - Книги / Books [JPEG,PNG,PSD,EPS,AI]
 
 >>След.
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334511.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Элементы дизайна купюрФормат: PSD,ASL,ATN,EPS
+Книги
+книга открытая,закрытая,толстая,тонкая,лежачая,стоячая и даже волшебная  :romashka:Формат: JPEG,PNG,PSD,EPS,AIРазрешение файлов: 1800х2400-7600х6700
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C86F095973C39A6F29449D4E5E4F6D00F11D3FB2
+magnet:?xt=urn:btih:DA682174DE6D7875BA7580023745E5338DB7B05E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -524,25 +470,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330483   (336374) от 12.10.2019
+###  Публикация: 1384931   (800791) от 22.05.2020
 
-Waving Flags Bundle [PNG, AI, SVG]
+Сборники - Creative Fabrica - The Valentine's Scrapbook Bundle [AI, EPS, PNG, PSD, SVG, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336374.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник векторного и растрового клипарта флагов.Формат: PNG, AI, SVGРазрешение файлов: 785x959-1359x738
+Наступает самый романтичный день в году, и чтобы подготовить вас к нему, мы хотели бы представить The Scrapbook Bundle от Valentine. Этот прекрасный набор включает романтические бумаги и узоры, наборы клипартов и наборы сердечных элементов, идеально подходящие для всех ваших поздравительных проектов.Формат: AI, EPS, PNG, PSD, SVG, JPGРазрешение файлов: 960x960-6000x6000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ACC2EFDBD58952658F226A52BE8A28E8311BD25
+magnet:?xt=urn:btih:803900B30401BAAC7D4A29B4BCBCC14AFBD1B253
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,25 +496,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 840191   (336709) от 11.11.2014
+###  Публикация: 1506484   (799888) от 31.10.2021
 
-Сборник - Абстрактные фоны и рамки / Abstract Backrounds & Frames [AI,EPS,JPG]
+Сборник - 2022 Wall Calendar A4 Printable Vector Templates [EPS, SVG, PDF, JPG, PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336709.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абстрактные фоны и рамкиФормат: AI,EPS,JPG
+Шаблон на календарь 2022 года.Формат: EPS, SVG, PDF, JPG, PNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1FD4B7EBB9DC5D9A4D3AF0F30B251FC09138DF7
+magnet:?xt=urn:btih:EBA6A5A1D95ADEAD40F34AB5CBA99BE832A239FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,25 +522,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327409   (373996) от 25.09.2019
+###  Публикация: 1509327   (794624) от 12.11.2021
 
-VideoHive, GraphicRiver, AudioJungle - Envato Bundle 2012 - 50 Premium Items Collection (Re-Up) [AEP, PSD, MOV, MP3, WAV, ATN, JPG]
+Сборник - Creative Fabrica - Spectacular Collection Big Bundle [PNG, DXF, EPS, SVG, PSD, AI, OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373996.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-этот сборник поможет веб-дизайнерам и графическим дизайнерам создать свои проекты в, Photoshop, After Effects, Background, Flyers, Facebook Covers и т. дФормат: AEP, PSD, MOV, MP3, WAV, ATN, JPG
+Spectacular Collection Big Bundle с невероятным выбором из 500 шрифтов и 1300+ мандал, монограмм и цитат в формате SVG. Этот пакет оценивается в 10063 доллара.Формат: PNG, DXF, EPS, SVG, PSD, AI, OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02E3A65E65CA6AC9B54725E8027305E3EBBEF4BD
+magnet:?xt=urn:btih:A2CCBF841BD4227875C3E533965F85C9BFE92B00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,25 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326971   (380628) от 22.09.2019
+###  Публикация: 1510080   (791924) от 15.11.2021
 
-Creative Fabrica - 1500 Graphic Mega Halloween Bundle [PNG, JPG, EPS]
+Сборник - Cute Animals & Patterns Big Bundle - 183 Premium Graphics [PNG, JPG, EPS, SVG]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380628.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта сборка содержит в себе около 1500 предметов. Это клипарт на тему хэллоуин векторные элементы, иллюстрации, значки, шаблоны и многое другое.Формат: PNG, JPG, EPSРазрешение файлов: 1800x1800-1801x1801
+Сборник детского клипарта.Формат: PNG, JPG, EPS, SVGРазрешение файлов: 800x800-6668x6667
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D68A9271B682028BEAE8C8CA6474CE4010D2841E
+magnet:?xt=urn:btih:C4513F73C2191362FA700ABB29213F18C0922364
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,25 +574,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326967   (380629) от 22.09.2019
+###  Публикация: 1388189   (790016) от 04.06.2020
 
-Creative Fabrica - 5000 in 1 - Black Lines Mega Bundle [PNG, JPG, EPS]
+Сборник - Design Bundles - Spa & Relaxation Scene Creator - 32123 [JPG, PNG, PSD, EPS, AI, PDF]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380629.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет Black Line MEGA содержит более 5000 изображений черных линий. Идеально подходит для Пасхи, Рождества, Хэллоуина, Дня Благодарения, Дня святого Валентина, дня Святого Патрика, День знаний, лесных животных, супергероев, еды, волшебных существ, монстров, русалок, принцесс и принцев, многих популярных направлений и многого другого. Отлично подходит для раскрасок (   Читать дальше...   )Формат: PNG, JPG, EPSРазрешение файлов: 1800x1800
+Пакет с элементами Spa & Relaxation, фонами и мандалами.
+Все изображения с прозрачным фоном, преобразованные в смарт-объекты, с прозрачной тенью на отдельном слое (вид сверху).
+Это все, что вам нужно для создания красивых презентаций, заголовков, листовок, баннеров, макетов, отлично подходит для блогов и веб-сайтов.
+Представьте ваши проекты интересным и привлекательным (   Читать дальше...   )Формат: JPG, PNG, PSD, EPS, AI, PDFРазрешение файлов: 468x432-3000x2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:407C57C523569361744AEBF8FE9E3F758FA7F8B3
+magnet:?xt=urn:btih:48DB940540E848696B77D015ADC792BB18EBC7B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,25 +603,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 719227   (385713) от 05.11.2013
+###  Публикация: 1388111   (789996) от 04.06.2020
 
-Сборник - Inky’s Almost Black Friday Bundle [ESP,AI,CDR,JPEG]
+Сборник - Сборник бесплатных игровых 2d элементов [JPG, PNG, GIF, EPS, AI, FLA, FBX, PSD, UNITYPACKAGE]
 
 >>Материалы для мультимедиа и дизайна
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385713.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В составе сборника:Формат: ESP,AI,CDR,ATN,PAT,JPEG
+Огромная сборка бесплатных 2d элементов для геймдева.Формат: JPG, PNG, GIF, EPS, AI, FLA, FBX, PSD, UNITYPACKAGE
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:685ACF3DFB158297B2086AF6547AE60756709009
+magnet:?xt=urn:btih:02E28E0DF4BF9BC069E96186F62FADBE3010F62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512176   (787320) от 24.11.2021
+
+Сборник - Envato Elements – Halloween  Graphic Templates 2021 [PSD, AI, EPS, JPG, SVG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник шаблонов от Envato Elements на тему хэллоуин.Формат: PSD, AI, EPS, JPG, SVG, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90D5E9C77052BBF34FE67EF1965670CB61299A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390124   (783592) от 13.06.2020
+
+Сборник - Creative Market - Cartoon Characters & Items Bundle - 1875315 [PNG, JPG, EPS, AI, PSD, CSH]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая коллекция мультипликационных персонажей, иконок, талисманов, 3D-рендеров, PSD-файлов, символов, объектов и т. д. Включая различные предметы для праздников, таких как Хэллоуин, День Благодарения и Рождество. Все эти файлы сделаны в последние годы, некоторые старые, а некоторые новые.Формат: PNG, JPG, EPS, AI, PSD, CSHРазрешение файлов: 652x1741-1973x1704
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D2D9DCA58BAAB4C8CB653C77341DB293E40E3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

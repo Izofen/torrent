@@ -1,19 +1,44 @@
-###  Публикация: 490515   (248685) от 07.05.2012
+###  Публикация: 1400913   (714872) от 07.08.2020
 
-Дедвуд / Deadwood (2005) (Сезон-2) [H.264/720p-LQ] BDRip
+Topaz Sharpen AI 2.1.3 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sharpen AI - это первое программное обеспечение для повышения резкости и уменьшения вибрации, которое может определить разницу между реальными деталями и шумом. Создавайте четкие изображения даже при съемке с рук, ночью или с малой глубиной резкости.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2109A4B2A4B1465365C9B5CCF8FDA883D8A97E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400953   (714871) от 07.08.2020
+
+Уэльс: дикая земля / Wales: The Land of the Wild (2019) BDRemux [H.264/1080i] (серии 1-4 из 4)
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248685.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_714871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1876 год. Городок Дедвуд в Южной Дакоте — настоящая выгребная яма, в которой собирается преступный сброд со всей Америки. Преступления и коррупция настолько прочно вошли в жизнь обитателей Дедвуда, что на них практически не обращают внимания. Убийства привлекают меньше внимания, чем танцы девочек в местном салуне.
-В этот, далекий от цивилизации, городишко и приезжают (   Читать дальше...   )Производство: США, CBS Paramount Network Television, Home Box Office (HBO), Paramount Network Television Productions, Red Board Productions, Roscoe ProductionsЖанр: Драма, Криминал, Вестерн, ИсторияРежиссер: Эдвард Бьянчи, Даниэль Минахан, Дэвис Гуггенхайм, Грегг Финберг, Марк Тинкер, Стив Шилл, Алан Тейлор, Майкл Алмерейда, Тимоти Ван ПаттенАктеры: Тимоти Олифант, Иэн МакШейн, Молли Паркер, Брэд Дуриф, У. Эрл Браун, Джон Хоукс, Паула Малкомсон, Дэйтон Калли, Леон Риппи, Уильям Сэндерсон ...Перевод: Одноголосый закадровый, профессиональныйОзвучка / Автор перевода: Юрий СербинЯзык субтитров: АнглийскиеПродолжительность: 55:00 мин. серия
+Уэльс - земля гор и изрезанных берегов. Здесь сочные луга граничат с древними лесами. Животные здесь всегда рядом. Это дом для 50 тысяч видов - великолепных и удивительных. Каждый сезон приносит свои испытания: поиск пары, забота о семье или просто выживание. Более года съемок в экстремальных условиях, сквозь бури и засуху... Добро пожаловать на дикий запад Британии!Производство: Великобритания, Plimsoll ProductionsЖанр: Документальный, природа, флора, фаунаРежиссер: Энн Галлахер, Эдриан СеймурПеревод: Дублированный (SDI Media)Субтитры: АнглийскиеПродолжительность: 4 x ~00:48:00
 
 ## Скачать торент
 ```bash
@@ -25,29 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 493897   (248689) от 08.05.2012
+###  Публикация: 1400935   (714870) от 07.08.2020
 
-[Wallpapers] Nature Desktop Wallpapers Pack 14
+Гуннар Хайнзон | Европа: конец игры. Чьи дети будут править миром? (2020) [EPUB]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248689.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Desktop Wallpapers Pack 14
-Название: Nature Desktop Wallpapers Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: По возможности
+Книга Гуннара Хайнзона впервые была издана в 2003 году и сразу стала бестселлером, выдержав множество переизданий в разных странах мира, а ее автор был признан «Карлом Марксом XXI века» и основателем нового направления в социологии. Но только сегодня мы можем в полной мере оценить этот труд, потому что предсказания, сделанные автором после трагедии 11 сентября 2001 (   Читать дальше...   )Жанр: Политология, Социология, ПублицистикаПеревод: М. СиренкоФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03C8A2F05394AFC74A84644AFAA8A3FEF5A254BF
+magnet:?xt=urn:btih:F6552F49FAE58C21F4C91F01721B51BB6CD24DBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 493942   (248693) от 08.05.2012
+###  Публикация: 1400762   (714869) от 07.08.2020
 
-[Wallpapers] Sexy Girls Pack Wallpapers (09.05.12)
+PassMark PerformanceTest 10.0 Build 1008 [Multi]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248693.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1920
+PassMark PerformanceTest - набор тестов, позволяющих оценить общую производительность вашего ПК по сравнению с другими компьютерами. В программу входят двадцать семь стандартных тестов в семи группах, плюс еще пять для пользовательских тестов. Среди стандартных можно отметить тесты процессоров, 2D и 3D графики, дисковых накопителей, памяти, CD/DVD-приводов и многих (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:175C06F8FEC088BE034D6F4A01F3C83C32A2C2DB
+magnet:?xt=urn:btih:70F3B90AF9B2AEF9BE6CD19BC36A9E755FE7DE0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,108 +102,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 493832   (248694) от 08.05.2012
+###  Публикация: 1400425   (714868) от 07.08.2020
 
-[Wallpapers] Sexy Girls Pack Wallpapers (08.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 2760x1840
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A253B99F51912032361E530FB7E4824F62B39A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493834   (248696) от 08.05.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (08.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98B514A994974CDD2C29ABCF135DE20CB94536A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493835   (248698) от 08.05.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (08.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х960 - 3200х2134
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DF29EA308BD4B7838A9DBC97DF3FD4A172E9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493661   (248700) от 08.05.2012
-
-Al Cohn - Standards Of Excellence & Nonpareil (1998) [APE|Lossless]<Bop, Mainstream Jazz>
+В WhatsApp добавили функцию распознавания фейковых сообщений
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248700.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_714868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Russian Lullaby
-02. When Your Lover Has Gone
-03. O Grande Amor
-04. You Say You Care
-05. I Want To Be Happy
-06. Embraceable You
-07. I Remember You
-08. When Day Is Done
-09. Take Four
-10. Unless It`s You(   Читать дальше...   )1998Жанр: Bop, Mainstream JazzПродолжительность: 01:18:00
+В WhatsApp появилась возможность проверять достоверность информации в сообщениях. Увеличительное стекло справа от сообщения запускает функцию поиска соответствий среди новостных порталов, блогов и других источников в Google.Сообщения, которые многократно пересылались и не были созданы контактом, от которого оно пришло, помечаются двойной стрелкой. При нажатии на (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -194,78 +128,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 492555   (248702) от 08.05.2012
+###  Публикация: 208458   (714859) от 09.06.2010
 
-[Wallpapers] Gilrs Wallpaper Collection (06.05.12)
+Изгой / Cast Away (2000) BDRip [H.264]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248702.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_714859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B98BDB82D6FE386BCCA8FFBD8D870EEFCC38DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493905   (248708) от 08.05.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 17
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248708.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 17
-Название: Nature Desktop Wallpapers Pack 17
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: По возможности
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF730874A80E36B9987CE01B7DCFCCD79AC423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493798   (248710) от 08.05.2012
-
-Google признали виновным в нарушении авторских прав Oracle
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248710.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Коллегия присяжных в Сан-Франциско 7 мая признала Google виновным в нарушении авторских прав Oracle при использовании языка программирования Java. Об этом сообщает Agence France-Presse.В общей сложности присяжные должны были установить наличие или отсутствие нарушений со стороны Google по четырем спорным пунктам. Коллегия смогла принять решения лишь по трем из них, и нашла вину Google только в одном случае: по мнению присяжных, корпорация нарушила авторские права Oracle на девять строчек кода на языке Java, использовав их в операционной системе для Android.При этом, как отмечается, присяжные не смогли вынести решение по ключевому пункту иска. Коллегии не удалось придти к единому мнению по поводу того, лежат ли действия Google в рамках закона, позволяющего заимствование стороннего кода при создании собственного материала.Как отмечает BBC News, решение присяжных дает Oracle право на компенсацию в размере от 200 долларов до 150 тысяч долларов. Между тем, при подаче судебного иска компания-истец требовала компенсации (   Читать дальше...   )
+Герой этой картины, Чак Нолан, — сотрудник всемирно известной службы доставки «Федерал Экспресс». Чак — скрупулезный практик и неисправимый педант. Жизнь Нолана, высокопоставленного инспектора международных отделений «ФедЕкс» расписана по минутам. И этих драгоценных минут катастрофически не хватает ни на личную жизнь, ни на любимую женщину…
+
+Однако, безжалостная судьба заставила Нолана иначе взглянуть на отпущенное ему время… Самолет, на котором путешествует Чак, падает в океан. Инженер, единственный, кому посчастливилось остаться в живых, попадает на необитаемый остров. Здесь Нолану предстоит провести мучительно долгие годы в жестокой битве за выживание…Жанр: Драма, ПриключенияРежиссер: Роберт Земекис.Актеры: Том Хэнкс, Пол Санчез, Лари Уайт, Леонид Ситер, Дэвид Аллен Брукс, Валентина Ананьина, Семен Сурадиков,  Питер Фон Берг, Дмитрий С. Будрин и др.Язык субтитров: 1. Русские (2 вида) 2. АнглийскиеПродолжительность: 02:23:46
 
 ## Скачать торент
 ```bash
@@ -277,298 +156,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 493539   (248711) от 08.05.2012
+###  Публикация: 208595   (714847) от 09.06.2010
 
-VA - Клубные Новинки Vol.74 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+Господин Никто / Mr. Nobody (2009) DVDRip
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248711.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_714847.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Joris Voorn – Spank the Maid (Original Mix)
-02. Evave feat. Aelyn - Hand To Hand (Anjey Olaf Remix)
-03. Beat Service feat. Ben Hague - Why Me (Original Mix)
-04. Karanda - Cloud Nine (Original Mix)
-05. Bartlett Bros. - Sweet Child (Fabio Xb Rework)
-06. Protoculture - Cobalt (Original Mix)
-07. Beto Dias, Felipe Wrechiski, Deep Nation - Price To Pay (G-Low Mix)
-08. Mike Newman - Violence Groove (Original Club Mix)
-09. Avicii feat. Salem Al Fakir - Silhouettes (Original Mix)
-10. Kat Graham - Put Your Graffiti On Me (Moto Blanco Club Mix)2012Жанр: Club, DanceПродолжительность: 04:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495E045C8CE4253C8BE7132FF757B665CCBC343F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493398   (248712) от 08.05.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 13
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248712.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 13
-Название: Nature Desktop Wallpapers Pack 13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: По возможности
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB5DB8319B2C35FD2190FC8F54B4DB7C19ABB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493187   (248716) от 08.05.2012
-
-VA - Русские Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Gurov - Стань Для Меня (Aplex Remix)
-02. Dazzle Dreams - Що За Сила Мене Тягне
-03. Anton Pavlovsky feat. Basilio Baio - Крылатые Качели
-04. Земфира - Дождь
-05. НеАнгелы - Твоя (DJ Jedy Club Remix)
-06. Денис Майданов - Колька
-07. Юлия Морозова - Миллионы
-08. Dino MC 47 - Среда Обитания
-09. Алсу - Доченьки Мои
-10. Дрей Сонгз - Nothing2012Жанр: PopПродолжительность: 03:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25832DF06FACA3E5489EC2DBCAC4369D37CA527A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493903   (248717) от 08.05.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 16
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248717.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 16
-Название: Nature Desktop Wallpapers Pack 16
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: По возможности
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1130AD04C8FEF461133B0776BB41344B545CE10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493826   (248719) от 08.05.2012
-
-[Wallpapers] Mixed Wallpapers (08.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5CD08A3D4B24DF3C538F5B69279426296B39F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493822   (248720) от 08.05.2012
-
-[Wallpapers] Best HD Wallpapers Pack (08.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EF000181267F432A868A1EC76A9216D499BB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493821   (248721) от 08.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (08.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A418000FD874C17139C9B80712F700274DE8DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493936   (248724) от 08.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (09.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46060F1300AE2CB9A8B7E705BE701ED3DADDEE39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493490   (248729) от 08.05.2012
-
-Марго Ланаган | Лакомые кусочки [2011] [FB2][TXT
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странная, причудливая история, основанная на старинной германской легенде, известной нам по сказке братьев Гримм «Белоснежка и Краснозорька».
-
- Когда становится по-настоящему плохо — в человеческую судьбу вторгаются загадочные силы…
-
- Молодая женщина, ставшая жертвой насильников, переносится в мир фейри Лонгфилд — мир, где предстоит расти ее дочерям Бранзе и Эдде.
-
- Однако кроме миров людей и фейри существуют и миры иные.
-
- Из одного приходит Зло — из другого Добро…2011Формат: FB2,ТХТ.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F383665E4189E016F3A496061BAB0A92D566E7FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493782   (248731) от 08.05.2012
-
-Jim Allchin - Overclocked (2011) [APE|Lossless]<Blues, Blues Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overclocked (3:05)
-02. Willow Tree (4:09)
-03. Back in the Swamp (3:44)
-04. Don't tell Me What To Do (3:19)
-05. One For The Money (3:57)
-06. Fall (4:14)
-07. Dr J (3:13)
-08. Mr Unknown (4:51)
-09. Flirt (3:40)
-10. Perfect Game (5:40)(   Читать дальше...   )2011Жанр: Blues, Blues Rock, SoulПродолжительность: 00:51:06
+Проснувшийся немощным стариком Немо Никто оказывается последним смертным в гротескном будущем. Все люди уже давно бессмертны и с удовольствием наблюдают за телешоу, где главная звезда — дряхлый и безумный старик Немо, доживающий свои последние дни. Накануне конца к нему приходит журналист, и Немо рассказывает ему свою историю перескакивая из одной жизни в другую, (   Читать дальше...   )Производство: Бельгия, Германия, Канада, Франция, Великобритания, Люксембург / Pan EuropéenneЖанр: Фантастика, Мелодрама, Фэнтези, ДрамаРежиссер: Жако ван ДормельАктеры: Джаред Лето, Сара Полли, Дайан Крюгер, Лин Дэн Пэм, Рис Иванс, Наташа Литтл, Тоби Регбо, Джуно Темпл, Клер Стоун, Томас БирнПеревод: Профессиональный (многоголосный, закадровый) |Лицензия|Продолжительность: 02:13:23
 
 ## Скачать торент
 ```bash
@@ -580,25 +182,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 493497   (248733) от 08.05.2012
+###  Публикация: 1532281   (714842) от 19.02.2022
 
-[Wallpapers]Nature Landcapes Full HD Wallpapers 4
+VA - Oriental Deep House Gems 1 (2019) [AAC|~315 Kbps] <Deep House>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248733.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714842.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+01. Project Blue Sun - Ad Astra Per Aspera (Original Mix) (5:10)
+02. Serdar Ayyildiz - El Besito (Original Mix) (5:07)
+03. Nacho Sotomayor - Nirvana Song (Dreamers inc & ThroDef remix) (6:13)
+04. Omar Gharbi - Pecado De Amor (Original Mix) (5:58)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:13:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AC03D13B2A6EB86FEB068A7B368FA08754E5C61
+magnet:?xt=urn:btih:1E552145A4217C0179C6609DD9FD9800CB482939
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,34 +211,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 493371   (248738) от 08.05.2012
+###  Публикация: 1532322   (714841) от 19.02.2022
 
-Ahmad Jamal Trio - Complete Recordings feat. Ray Crawford & Israel Crosby (1951-56) (2006) [MP3|320 кб/с]<Jazz / Piano>
+VA - Coffee Chill Time, Vol. 5 (2019) [AAC|~314 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248738.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1
-
-01. New Rumba
-02. A Foggy Day
-03. All Of You
-04. It Ain'T Necessarily So
-05. Medley
-06. Get A Kick Out Of You
-07. Jeff
-08. Darn That Dream(   Читать дальше...   )2006Жанр: Jazz / PianoПродолжительность: 01:16:34
+01. Brazil Beat - O Barquinho (Original Mix) (2:34)
+02. Francesca Gramegna - What Is Love (Original Mix) (3:38)
+03. Gabrielle Chiararo - Holding Back the Years (Original Mix) (4:23)
+04. Luna A. Whibbe - Minutos (Original Mix) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:14:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1812A039348292C7E28783D0AE72D26C8DC9BA05
+magnet:?xt=urn:btih:8A5D161E9DEEDBB9BFF879CAA7682886864E45DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,123 +240,485 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 492819   (248742) от 08.05.2012
+###  Публикация: 1532158   (714840) от 19.02.2022
 
-[Wallpapers] Wallpapers Sexy Girls Pack (07.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9815A27E49783965E435FC117CE90B98FE54CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493892   (248743) от 08.05.2012
-
-[Wallpapers] Weapon Wallpapers №4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248743.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Weapon Wallpapers №4
-Название: Weapon Wallpapers №4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х960 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: По возможности
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9480FFC1515BFED233202F888AB23264FD17D578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493802   (248744) от 08.05.2012
-
-Avi Lebo Double Trombone Quintet & Slide Hampton - Shades of Brass (1996) [FLAC|Lossless]<Post-Bop, Acoustic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Today's Nights
-02. 24E
-03. Let's Play
-04. Everything Happens To Me
-05. Our Delight
-06. To Wisdom The Prize
-07. Wait
-08. I'm Gonna Laugh You Out Of My Life1996Жанр: Post-Bop, Acoustic JazzПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493516   (248756) от 08.05.2012
-
-Stargate - Beyond Space And Time (2012) [MP3|320 кб/с]<Progressive/Symphonic Power Metal>
+Sleepwulf - Sunbeams Curl (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248756.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714840.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Wonders Of Nature 02:13
-02. Save The World 05:26
-03. Sands Of Time 06:40
-04. Nothing's Forever 07:38
-05. Nightspell 03:44
-06. The Power Within 08:03
-07. The Dark Rift 00:51
-08. Age Of Aquarius 06:22
-09. Ground Zero 08:10
-10. Hysteria 07:25(   Читать дальше...   )Жанр: Progressive/Symphonic Power MetalПродолжительность: 00:59:14
+01. Satan Is King
+02. Green Man Dead
+03. Sex Magic Manifestation
+04. Stoned Ape(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:37:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:326F529E51BF2C1BCE60A79B836CC136B435C827
+magnet:?xt=urn:btih:AAF700E11B5ECFC025ACF8D95DBF8EDDDBD966BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532443   (714839) от 19.02.2022
+
+Shapov - 'New Dimensions' Exclusive Mix (2022-02-14) [MP3|~245 Kbps (V0)] <Progressive House, Big Room>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_714839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shapov - Inside The Rave (Intro Edit)
+02. Shapov - ID w/Route 94 ft. Jess Glynne - My Love (Acappella)
+03. Fabrication - Hot Foot
+04. Swedish House Mafia - It Gets Better w/Swedish House Mafia - It Gets Better (Stockholm Version)(   Читать дальше...   )Жанр: Progressive House, Big RoomПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532317   (714838) от 19.02.2022
+
+Marga Sol - Oriental Gems (2021) [AAC|~333 Kbps] <Deep House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be Mine (5:04)
+02. Awakening (4:20)
+03. Children (6:42)
+04. Golden Sunrise (4:53)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1447FEEAA7233562163234B296EA854E3B6097DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532318   (714837) от 19.02.2022
+
+VA - Coffee Chill Time, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marie Therese - White Air (4:06)
+02. DJ MNX, Sifat - Buddha Paradise (5:13)
+03. Michael e - Shadows & Light (6:09)
+04. Euphonic Traveller - Montmartre (7:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC936B02F796572E25CB5D8906A06158FDAB48C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531995   (714836) от 19.02.2022
+
+Николай Москвин | Лето летающих (2022) [MP3, Animserg]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта повесть о мальчишках, бумажных змеях и о приключениях, которые с ними происходят. Здесь рассказывается о детстве будущего лётчика-конструктора, которое протекает в дореволюционное время; о том, как в мальчике просыпается «чувство воздуха», о том, как от змеев он стремится к воздушному полёту. Действие повести происходит в годы зарождения отечественной авиации, (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 03:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FC44E224DD1EF1EDD4F88DB051E37AE7C9134B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532282   (714835) от 19.02.2022
+
+VA - Oriental Deep House Gems 2 (2020) [AAC|~329 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phanoman - Le Balat (Original Mix) (4:33)
+02. Project Blue Sun - Mysterious Girl (Original Mix) (5:14)
+03. Nick Alexiou - Around My Dreams (Original Retouch Mix) (4:32)
+04. Aamir Kangda - Come in My Arms (Instumental Version) (4:21)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D637D881C71CF70BF5A141A1E5A7E76C29DD32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532183   (714834) от 19.02.2022
+
+Boguslaw Balcerak's Crylord - Human Heredity (2022) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Power Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_714834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Just A Wind
+02. Thunderbolt
+03. Death Is Rising
+04. Set My Heart On Fire(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532327   (714833) от 19.02.2022
+
+VA - Golden Girls (Indie Soft Voices) (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jane Maximova - Novel (4:09)
+02. Marga Sol - It's You (3:50)
+03. Leo de la Rosa, Maneela - First Affair (Down Tempo Version) (4:55)
+04. Five Seasons - Before You Sleep (5:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F87CC5669E8C4A6E31C22D458A5C7121C1B4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532286   (714832) от 19.02.2022
+
+Mystery - Live Life Loud (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Revolution
+02. To My Knees
+03. Lust Control
+04. All We Need Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314AAAA1137CDC8089F448C22407C4C86934F932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532449   (714831) от 19.02.2022
+
+Сто к одному (19.02.2022) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0BB237BE123A3BB7CF12684AC1401E92C48CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532332   (714830) от 19.02.2022
+
+VA - Coffee Chill Time, Vol. 7 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_714830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Sea of Fate (Original Mix) (5:23)
+02. Lisa Maroni - Rio Sunset (6:22)
+03. Eivissarts - Solaris (Original Mix) (5:05)
+04. Michael e - For Laurant (Original Mix) (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532160   (714829) от 19.02.2022
+
+Manic Sinners - King Of The Badlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drifters Union
+02. King Of The Badlands
+03. Anastasia
+04. Ball And Chain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305B3F9AF95634E150072D864EA7B52DC32F1841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532175   (714828) от 19.02.2022
+
+Immolation - Acts Of God (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abandoned
+02. An Act Of God
+03. The Age Of No Light
+04. Noose Of Thorns(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452F75AC584DED2AA9D66BA11B20D43BD1CEC598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286234   (714827) от 01.03.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 01.03.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Triplo Max  -  Shadow
+02.  Lil Peep & XXXTentacion  -  Falling Down
+03.  Rita Ora  -  Let You Love Me
+04.  Denis First & Reznikov feat. Bright Sparks  -  Shameless(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F9C397C1CA06FFFC56C8A9BCE08FD7B203DC10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285613   (714825) от 01.03.2019
+
+Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, Roots Reggae>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Brown in Town (04:28)
+02. Mr. Brown Dub (04:11)
+03. Trendsetter (04:18)
+04. Trendsetting Dub (04:17)(   Читать дальше...   )Жанр: Dub, Roots ReggaeПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1E758CF8FAE5E5A3A493688965088F17847B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286214   (714823) от 01.03.2019
+
+VA - Первый день весны (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ AKO - Вот и весна (Fleymix) (1:40)
+02. Таисия Повалий - Сердце - дом для любви (3:09)
+03. Леонид Нерушенко - Я не забуду (3:30)
+04. ТУ-134 - Храните свою любовь (3:15)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746E6E6EE516CCF30D51A0EB059717F9617237F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286046   (714822) от 01.03.2019
+
+LogViewPlus 2.3.2 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Log Viewer Plus - мощная программа, которая предназначена для просмотра и анализа лог файлов приложений или системы. Она предоставляет ряд инструментов предназначенных для работы с лог файлами, и удобный пользовательский интерфейс с поддержкой тем оформления.
+
+Log Viewer Plus значительно облегчает просмотр записей лог-файла. В программе есть функция фильтрации информации (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F65D5D13F4555C0AE794B823C77B6351200947
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,23 +1,31 @@
-###  Публикация: 1718281   (58652) от 24.04.2024
+###  Публикация: 598879   (999463) от 06.01.2013
 
-OneCommander Pro 3.77.0.0 + Portable [Multi/Ru]
+M.PRAVDA - Live in Motion 095 (05.05.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58652.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
-Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+1. Karanda - Cloud Nine (Juventa Remix)
+2. Arnej - We Unite (Club Mix)
+3. Super8 - Alba (Maor Levi remix)
+4. Beat Service feat. Ben Hague - Why Me (Dub mix)
+5. Bartlett Bros - Sweet Child (Lele Troniq Remix)
+6. Andy Tau - Passport (Store n'Forward Remix)
+7. Emma Hewitt - Miss You Paradise (Shogun Remix)
+8. Shogun - Amplify
+9. Broning - Reinspired
+10. Tritonal - RetakeЖанр: Progressive Trance, TranceПродолжительность: 00:59:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1450DFB0392735C4AEA0F2C884EC80EC04A8BA1F
+magnet:?xt=urn:btih:58776CB98DE71CD58D33EC430CB84CF11806DC35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +33,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718352   (58653) от 24.04.2024
+###  Публикация: 598882   (999462) от 06.01.2013
 
-Wise Disk Cleaner 11.1.1.826 + Portable [Multi/Ru]
+M.PRAVDA - Live in Motion 094 (28.04.2012) Best of April  [MP3|320 кб/с]<Progressive Trance, Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58653.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
+1. Paul van Dyk and Arty - The Ocean
+2. Cosmic Gate and Jes - Flying Blind (Extended mix)
+3. Moonbeam feat. Avis Vox - Disappearance (Aerofeel5 Remix)
+4. Orjan Nilsen - Amsterdam
+5. Lele Troniq - Under the Spotlight
+6. Markus Schulz & Dennis Sheperd - Go!
+7. Protoculture - Cobalt
+8. Second Way - Around the Earth
+9. Suncatcher and Mihai M pres Starshifters - Driveby
+10. Solarstone and Clare Stagg - The Spell (Pulser club Dub)Жанр: Progressive Trance, TranceПродолжительность: 01:03:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EA0E1485642FD1565EF479FF38E432FEDC5CB1E
+magnet:?xt=urn:btih:2499A230723BC7064FEB4DCDB934B7FD4D7E4C8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +68,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718347   (58655) от 24.04.2024
+###  Публикация: 599406   (999461) от 06.01.2013
 
-Glary Utilities Pro 6.9.0.13 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Agressor - Medieval Rites (1999) [WavPack|Lossless]<Death / Thrash Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58655.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Glary Utilities - комплексный набор инструментов для эффективного увеличения производительности компьютера, а также повышения стабильности и защиты системы в целом. С помощью утилиты можно проводить очистку файлов от различного мусора, как например некорректные записи системного реестра и временные файлы Интернета, анализировать использование дискового пространства (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Medieval Rites (06:21)
+02. Bloodshed (03:13)
+03. The Woodguy Vs. The Black Beast (01:44)
+04. The Sorcerer (04:07)
+05. (I Am The) Spirit Of Evil (02:12)
+06. Wondering Soul (04:22)
+07. Tye-Melane Melda (01:13)
+08. God From The Sky (03:17)
+09. Welcome Home (King Diamond) (04:20)
+10. On Dolinde (01:22)(   Читать дальше...   )Жанр: Death / Thrash MetalПродолжительность: 00:41:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CBADF2E8369EC480625DBB349A2B9B17441D933
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718326   (58659) от 24.04.2024
+###  Публикация: 599541   (999459) от 06.01.2013
 
-IObit Driver Booster Pro 11.4.0.60 Portable by 7997 [Multi/Ru]
+Журнал | Большой спорт №12 [декабрь 2012] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58659.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+«Большой спорт» – самое популярное ежемесячное спортивное издание России. Согласно исследованию TNS Gallup Media, полугодовая общефедеральная аудитории журнала составляет 691 000 человек. По этому показателю журнал значительно превосходит ведущие премиальные издания России мужской, автомобильной и спортивной тематик, в том числе – Esquire, GQ, Автопилот и PROспорт.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA2D8BC8DB4C05B7C645A29D3E27856C8286B416
+magnet:?xt=urn:btih:8D2A228672A509398B4956E0158F905E4E37D456
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +129,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718323   (58663) от 24.04.2024
+###  Публикация: 599168   (999458) от 06.01.2013
 
-Audacity 3.5.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Axehammer - Lord of the Realm (1987) /Sentinel Steel Reissue, 1998/[WavPack|Lossless]<Heavy Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58663.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Audacity - свободный, простой в использовании звуковой редактор для Windows, Mac OS X, GNU/Linux и других операционных систем. Audacity можно использовать для записи звука, оцифровки аналоговых записей (кассет, грампластинок), редактирования файлов в форматах Ogg Vorbis, MP3 и WAV, физического редактирования нескольких файлов (вырезание, склейка, сведение), изменения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Princess [04:24]
+02. Lord Of The Realm [03:46]
+03. Sands Of Time [03:29]
+04. Break Down The Walls [04:37]
+05. Axehammer [05:34]
+06. (Radio Commercial) [01:06]
+07. Wings Of Fire [02:52]
+08. Sword And Shield [04:03]
+09. Axehammer '84 [05:17]Жанр: Heavy MetalПродолжительность: 00:35:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E0D8B5D941100F0291B7E4E5BB6CE65AA088857
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,25 +163,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718341   (58667) от 24.04.2024
+###  Публикация: 599225   (999457) от 06.01.2013
 
-Wise Care 365 Pro 6.6.7.637 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Blaze Of Sorrow - Echi (2012) [WavPack|Lossless]<Atmospheric Black Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58667.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. All'Ignoto [06:43]
+02. Empatia [08:27]
+03. In Memoria [05:10]
+04. Il Soffio Del Sole [08:18]
+05. Alberi [03:25]
+06. Echi [06:35]
+07. Ma Il Vento Ricordo Il Mio Nome [07:40]
+08. Aspettando Il Tempo [06:14]Жанр: Atmospheric Black MetalПродолжительность: 52:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF1CC003E51EEDB634EE9DC6258DA4027DC4487C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,25 +196,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718339   (58668) от 24.04.2024
+###  Публикация: 598620   (999456) от 06.01.2013
 
-HWiNFO 8.01 Build 5425 Beta Portable [Multi/Ru]
+M.PRAVDA - Live in Motion 100 Юбилейный Выпуск (09.06.2012) National Sound Exclusive [MP3|320 кб/с]<Progressive Trance, Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58668.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+1. Platinum Monkeys - I Remember
+2. Platinum Monkeys feat. Ange - Why
+3. M.Pravda - Hocus Pocus (John Dubs Remix)
+4. Platinum Monkeys - Return (Igor Voevodin Remix)
+5. John Dubs - No Ice (Original Mix)
+6. A.Galchenko - She Autumn (Original)
+7. Max Fishler - Ghost Planet (Original)
+8. Danny Ocean - Next To You (Original)
+9. M.Pravda - Hocus Pocus (Radio Edit)
+10. Souldanny - Lost Connection (Original)(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:00:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BCA97DD91803FAED4B195937007F88A869B3E6C
+magnet:?xt=urn:btih:6E3C60DE22C72F3FADFB340EE606F9603815CDD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,25 +231,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718388   (58678) от 24.04.2024
+###  Публикация: 598763   (999455) от 06.01.2013
 
-NetLimiter 5.3.10.0 (x64) RePack by KpoJIuK [Multi/Ru]
+Attacker - The second coming (1988) [MP3|320 kbps]<Trash Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58678.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Lords Of Thunder [02:57]
+ 02. Zero Hour [03:23]
+ 03. Captivities Of Babylon [03:25]
+ 04. Octragon [01:55]
+ 05. The Madness [03:38]
+ 06. Desecration [04:12]
+ 07. Emanon [03:30]
+ 08. Revelations Of Evil [05:28]
+ 09. Lords Of Thunder (Demo) [03:13]
+ 10. Zero Hour (Demo) [03:45](   Читать дальше...   )Жанр: Trash MetalПродолжительность: 00:39:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6A5A4C91E1C8FEE7866A5626327F9BBB25A3B2D
+magnet:?xt=urn:btih:7B1FAE95356CA31E0B767D7C63C55E15BEF05834
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,25 +266,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718345   (58682) от 24.04.2024
+###  Публикация: 599177   (999454) от 06.01.2013
 
-IObit Driver Booster Pro 11.4.0.60 Portable by FC Portables [Multi/Ru]
+Avian - Ashes and Madness (2009) [WavPack|Lossless]<Power / Heavy Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58682.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский, другие
+01. Ashes And Madness [07:31]
+02. The Lost And Forsaken [05:08]
+03. Into The Other Side [04:38]
+04. Esoteric Lies [05:16]
+05. Fall From Grace (Instrumental) [01:10]
+06. Beyond The Hallowed Gates [04:59]
+07. Thundersoul [05:02]
+08. All The King's Horses [05:10]
+09. Never Fade From Me [05:24]
+10. Time And Space Part Ii:  Unlock The Mystery [10:14]Жанр: Power / Heavy MetalПродолжительность: 00:54:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AF45A67BFE89FB56D43E214B0DF007D01C4E5AA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,25 +301,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718225   (58686) от 24.04.2024
+###  Публикация: 599663   (999453) от 06.01.2013
 
-ISO Workshop Pro 12.8  [En]
+VA - Force Carriers (2012) [MP3|320 кб/с]<Techno>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58686.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-ISO Workshop - удобный и простой в использовании инструмент для работы с образами дисков, с помощью которого можно осуществлять резервное копирование данных с оптических носителей, создавать точные копии дисков, преобразовывать образы в ISO или BIN формат, а также записывать готовые проекты на CD/DVD или Blu-Ray диски.Язык интерфейса: Английский
+01. Pavel Ambiont - While She Sleeps (parts 1 & 2) (09:42)
+02. S4DS - Space Trip (alexei sfourds rmx) (04:00)
+03. S4DS - Space Trip (pavel ambiont rmx) (04:51)
+04. Pavel Ambiont - Ufobeats (05:12)
+05. Nieviadomy Artyst - Effervescence (04:55)
+06. Nieviadomy Artyst - Tephra (forest version) (06:24)
+07. Nieviadomy Artyst - Tephra (04:41)
+08. Pavel Ambiont - Solar Pulse (05:42)
+09. Alexei Sfourds - To All Astronauts (03:58)
+10. Alexei Sfourds - Inspiration (04:15)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:04:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76DC08CF18C060E2C3B11A7CC621E9485F021395
+magnet:?xt=urn:btih:8711C2DCB167E8ABC7EB38D19F21613D1F55ACF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +336,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718403   (58688) от 24.04.2024
+###  Публикация: 599189   (999452) от 06.01.2013
 
-Music Collection 3.6.4.4 + Portable [Multi/Ru]
+All I Could Bleed - Burying the Past (2011) [WavPack|Lossless]<Modern Melodic Death Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58688.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Music Collection - неплохая программа для создания на компьютере собственной музыкальной коллекции и ее удобного управления. Вся информация об имеющихся композициях может быть отредактирована и изменена. При этом она вводится либо в ручном режиме, либо загружается из интернета, что значительно экономит время и предотвращает от возможных ошибок. Удачно реализован (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Eclipse [01:12]
+02. Private Hell [04:22]
+03. Burying The Past [04:33]
+04. Plague [05:04]
+05. Under The Moon [05:50]
+06. Into The Black Clouds [04:10]
+07. Follow Me [03:46]
+08. Valhalla [06:52]
+09. Farewell [01:29]Жанр: Modern Melodic Death MetalПродолжительность: 00:37:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:925964A1A788AA3AB3125F71A3EA202934420F7A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,25 +370,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718317   (58706) от 24.04.2024
+###  Публикация: 598737   (999450) от 06.01.2013
 
-Internet Download Manager 6.42 Build 8 RePack by elchupacabra [Multi/Ru]
+Nature Wallpapers (03.01.13) [Wallpapers]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58706.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:645918AC6B960D6161E25BCDBD9B3DC438CCC25D
+magnet:?xt=urn:btih:50D5D229F4BD9E08DC93AB1EE0B5886DB08D3C69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,25 +396,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718416   (58716) от 24.04.2024
+###  Публикация: 599431   (999449) от 06.01.2013
 
-Adguard 7.17.1 (7.17.4709.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
+Фотография - Фотограф Damon Loble
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58716.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Фотография - Фотограф Damon LobleРазрешение файлов: ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:529AAE4E68612235246F2E2EA57F0AE4044C68DC
+magnet:?xt=urn:btih:C3A6A8FEBB25165B408A8E766B7385ABD341C3F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +422,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718401   (58720) от 24.04.2024
+###  Публикация: 599383   (999448) от 06.01.2013
 
-Adobe Photoshop 2024 25.7.0.504 Light (x64) Portable by 7997 [Multi/Ru]
+[Wallpapers] A selection of beautiful girls Pack 15
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58720.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Photoshop 2024 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Разрешение файлов: 1600х1200 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E304AFC33960592B3435B5F5A62EE07A62CAFB3
+magnet:?xt=urn:btih:7C51AC39822BD89B5A5666D56DACD00F1CC44621
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,25 +448,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718331   (58725) от 24.04.2024
+###  Публикация: 599381   (999447) от 06.01.2013
 
-Windows 10 Manager 3.9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+[Wallpapers] Floral wallpaper (06.01.13)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58725.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 10 Manager — утилита все-в-одном для Microsoft Windows 10, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 10, помогает сделать вашу систему быстрее, устранить неисправности системы, повысить стабильность и безопасность, персонализировать вашу копию Windows 10, она может удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+[Wallpapers] Floral wallpaper (06.01.13)
+Название: Floral wallpaper (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CFA3EFADF01BD1254760D41EB4F7595BD5CFA29
+magnet:?xt=urn:btih:17CF5B3AABB7FBAD23B564318DB3A099F48C9FE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,25 +478,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718329   (58727) от 24.04.2024
+###  Публикация: 599548   (999446) от 06.01.2013
 
-Psiphon 3 build 182 (23.04.2024) Portable [Multi/Ru]
+Журнал | Письма здоровья. Лечебник №1 [январь-февраль 2013] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58727.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+На страницах журнала много простых, доступных в применении рецептов и методов лечения. Все рецепты проверены опытом исцелившихся людей.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D11F97ECA483BA0809AA589610666BBBB7967B8
+magnet:?xt=urn:btih:45F960BC08BCEC41158E8FCFA0D7AB90B9D04950
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,25 +504,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718411   (58728) от 24.04.2024
+###  Публикация: 598768   (999445) от 06.01.2013
 
-IObit Driver Booster Pro 11.4.0.60 RePack (& Portable) by elchupacabra [Multi/Ru]
+Khepri - Inner Division (2013) [MP3|320 kbps]<Progressive Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58728.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+01. Broken [03:08]
+ 02. Tainted Eyes [02:38]
+ 03. Live or Die [04:55]
+ 04. Black Light [04:02]
+ 05. Will You Still Be Here [03:52]
+ 06. Find Me There [04:43]
+ 07. You Still See [03:29]
+ 08. No Hope [03:51]
+ 09. Ashes of the Dark [03:29]
+ 10. The End of All [04:46](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1164FA0CA864CA21B02878B8D6B60BDCA31374C3
+magnet:?xt=urn:btih:33A4F1AC896BF8DE7F0991337BCCF17B41ACE617
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,25 +539,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666803   (58735) от 24.04.2024
+###  Публикация: 599104   (999443) от 06.01.2013
 
-Гриффины / Family Guy (2023) WEBRip [H.264/720p-LQ] (сезон 22, серии 1-15 из 20) OMSKBIRD (обновляемая) [AD]
+Butterfly - Favorite Colors Episode 065 (05.01.2013) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
 
 >>Архив торрентов
->>Архив Мультфильмов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58735.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФерлайном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящя и терпеливая жена Лойс, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / 20th Century Fox Television, Film Roman Productions, Fuzzy Door Productions, Hands Down EntertainmeЖанр: КомедияРежиссер: Джон ХолмквистАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Дэнни Смит, Патрик Варбертон, Джон Винер, Алек Салкин, Ральф ГарменПеревод: Многоголосый закадровый (OMSKBIRD 18+)Субтитры: АнглийскиеПродолжительность: ~00:21:00 серияРеклама: Релиз содержит рекламные аудио вставки
+01. Ryan Teague -  Prelude VI (Intro Original Mix)
+02. Matt Eray -  Downtown Lights (Original Mix)
+03. Second Way -  Vladivostok 7520 (Original Mix)
+04. Erick Strong feat. Anthya -  Out Of My Mind (Original Mix)
+05. Avi -  Mainstage (Original Mix)
+06. Alex M.O.R.P.H. feat. Shannon Hurley -  Monday Morning Madness (Original Mix)
+07. Broning vs Sean Truby & Solis -  Rokit (Original Mix)
+08. 4 Strings -  Out To Nowhere (Original Mix)
+09. Arys -  Barocco (Audiko Remix)
+10. Alter Future & Namek -  Winter Feeling (Felix Pot Remix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB7BE5C17AC6543B0CFA0FBCD95CE7D6288F4383
+magnet:?xt=urn:btih:F01225E4806FE5C64A8CD65F7C46BE60D7ECF042
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,25 +574,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717688   (58737) от 24.04.2024
+###  Публикация: 599434   (999442) от 06.01.2013
 
-Microsoft Activation Scripts (MAS) 2.6 Portable [En]
+Фотография - Фотограф Miru Kim
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58737.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Активатор Windows и Office с использованием методов активации HWID/Ohook/KMS38/Online KMS с упором на открытый исходный код и меньшее количество обнаружений антивируса.Язык интерфейса: Английский
+Фотография - Фотограф Miru KimРазрешение файлов: ~  500x750 ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFA862285E15AADC1BCBB75DE14E5ECAA6C0B677
+magnet:?xt=urn:btih:85A470669EB19D86A475178D588175088FF8B62A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,25 +600,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718408   (58740) от 24.04.2024
+###  Публикация: 599430   (999440) от 06.01.2013
 
-Adobe Photoshop 2024 25.7.0.504 Full (x64) Portable by 7997 [Multi/Ru]
+Фотография - Фотограф Alva Bernadine
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58740.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Photoshop 2024 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Фотография - Фотограф Alva BernadineРазрешение файлов: ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D130A8C3113D08CD94442D25EEED691E1B566003
+magnet:?xt=urn:btih:ACB147142AF580B2C3AD304A656CD46CEDAF3A38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,26 +626,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675655   (58745) от 24.04.2024
+###  Публикация: 599384   (999439) от 06.01.2013
 
-Гриффины / Family Guy (2023) WEBRip [H.264/1080p-LQ] (сезон 22, серии 1-15 из 20) OMSKBIRD (обновляемая) [AD]
+[Wallpapers] Compilation of air (06.01.13)
 
 >>Архив торрентов
->>Архив Мультфильмов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58745.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФерлайном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящя и терпеливая жена Лойс, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / 20th Century Fox Television, Film Roman Productions, Fuzzy Door Productions, Hands Down EntertainmeЖанр: КомедияРежиссер: Джон ХолмквистАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Дэнни Смит, Патрик Варбертон, Джон Винер, Алек Салкин, Ральф ГарменПеревод: Многоголосый закадровый (OMSKBIRD)
-ненормативная лексикаПродолжительность: ~00:21:00 серияРеклама: Релиз содержит рекламные аудио вставки
+[Wallpapers] Compilation of air (06.01.13)
+Название: Compilation of air (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF848159441E2168F34C34579076229EC7CDA956
+magnet:?xt=urn:btih:45BBA010F9EEF22C211B9B5E31F1E1CD839A21D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,25 +656,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718179   (58749) от 23.04.2024
+###  Публикация: 599435   (999438) от 06.01.2013
 
-Audacity 3.5.0 + Portable [Multi/Ru]
+Фотография - Фотограф Zuna Potočná
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58749.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Audacity - свободный, простой в использовании звуковой редактор для Windows, Mac OS X, GNU/Linux и других операционных систем. Audacity можно использовать для записи звука, оцифровки аналоговых записей (кассет, грампластинок), редактирования файлов в форматах Ogg Vorbis, MP3 и WAV, физического редактирования нескольких файлов (вырезание, склейка, сведение), изменения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Фотография - Фотограф Zuna PotočnáРазрешение файлов: ~  500x750 ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20283D631DDC10E94E245FA015668FF40574E843
+magnet:?xt=urn:btih:B54717D6A97BAC9B9865CBDD2D6AB53FAB189A98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,25 +682,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718184   (58751) от 23.04.2024
+###  Публикация: 599293   (999437) от 06.01.2013
 
-HDCleaner 2.070 + Portable [Multi/Ru]
+Битва цивилизаций с Игорем Прокопенко. Выпуск №9.  Письма из космоса (2013.01.05) SATRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58751.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows. Данный набор эффективных средств для очистки ПК и создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой программы. Очищаете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+«Битва цивилизаций» – так называется новый проект известного журналиста Игоря Прокопенко.
+Закрытая до сих пор информация из секретных архивов станет доступна только зрителям РЕН ТВ.
+15 уникальных документальных расследований: неопровержимые факты, шокирующие открытия, громкие сенсации.
+РЕН ТВ откроет все тайны.В выпуске: Рисунки на полях. Они появляются на протяжении десятков лет. Что это? Причуды природы? Проделки шутников? Послания братьев по разуму?Жанр: ТелепередачаПродолжительность: ~ 00:47:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51F6C1EED988A8C973971452C40F7F985511A3A2
+magnet:?xt=urn:btih:75747958411CEF3028DC2A1E616ECD46C6F3B46E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,25 +711,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718208   (58752) от 23.04.2024
+###  Публикация: 599671   (999435) от 06.01.2013
 
-Skype 8.118.0.205 RePack (& Portable) by KpoJIuK [Multi/Ru]
+[Wallpapers] A selection of beautiful girls Pack 17
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58752.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999435.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Разрешение файлов: 1920x1080 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:307E655603F913C6C710C81420513340E3786A15
+magnet:?xt=urn:btih:470C7EEC4492FF76F64627DFAFF18649FA0347BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,26 +737,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718149   (58753) от 23.04.2024
+###  Публикация: 599386   (999432) от 06.01.2013
 
-Q-Dir 11.61 + Portable [Multi/Ru]
+[Wallpapers] Compilation of anime Pack 6
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58753.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999432.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+[Wallpapers] Compilation of anime Pack 6
+Название: Compilation of anime Pack 6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1E8A56C1F09EFAC601DB75C08C6ADDDA1906BA7
+magnet:?xt=urn:btih:707989E3C14D64CFD51743484D3FA589045A52CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,25 +767,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718133   (58754) от 23.04.2024
+###  Публикация: 599428   (999431) от 06.01.2013
 
-Zoner Photo Studio X 19.2403.2.536 RePack by KpoJIuK [Ru/En]
+Фотография - Фотограф Anna Bodnar
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58754.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Фотография - Фотограф Anna BodnarРазрешение файлов: ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61B57B7E362C88E80600A7488DC5C3CA5BCA7A54
+magnet:?xt=urn:btih:9D74910BDFB314D0396031F0F1EBAFC15AD8ADE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

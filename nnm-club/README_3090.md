@@ -1,64 +1,22 @@
-###  Публикация: 476580   (98466) от 02.04.2012
+###  Публикация: 1362704   (948320) от 24.02.2020
 
-Begging For Incest - Orgasmic Selfmutilation (2012) [MP3|320 кб/с]<Brutal Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulverize
- 02. As Long as You Swallow
- 03. Orgasmic Selfmutilation
- 04. A Cruel Streak
- 05. Bashed Beyond Recognition
- 06. Gutted Like a Pig
- 07. I've Got an Abhorrent Fetish
- 08. Diarrhea Dreams2012Жанр: Brutal DeathПродолжительность: 00:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FA38556A2B7DAE36FF5911591B2C35628C3152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476381   (98468) от 02.04.2012
-
-VA - Русские Новинки 9 (2012) [MP3|256 kbps]<Pop>
+Wise Program Uninstaller 2.3.7.141 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98468.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Елка - Знаки вопроса
-002 Глюкоза - Кошка
-003 Юрий Шатунов - Это лето
-004 Балаган Лимитед - Гуси-лебеди
-005 Валерия и Александр Буйнов - Сердце
-006 Григорий Лепс - Водопадом (new version)
-007 Наталья Подольская Интуиция
-008 Алексей Воробьев - За твою любовь (Hitretz and Sergei Karpov Remix)
-009 Юлия Савичева - Юлия
-010 Мистер Кредо и Олеся Слукина - Тебя я помню...(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:58:51
+Утилита для удаления установленных в системе программ. Позволяет воспользоваться для удаления как стандартными средствами системы, так и собственными инструментами. Имеется инструмент удаления записей об уже деинсталлированных программах, возможность быстрого доступа к записи выбранной программы в реестре, а также поиск подробностей о приложении в Google.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0715220438BE501A9675DFBBD13BABCF43FA4ED
+magnet:?xt=urn:btih:F1C5839930FADA28D4D1656D342EE641F04E05CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -66,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476894   (98470) от 02.04.2012
+###  Публикация: 1362680   (948319) от 24.02.2020
 
-Всемирный путешественник - 1 / Globe Trekker - 1 (2005-2010) HDTV [1080i]
+Аффинити Конар | Mischling. Чужекровка (2017) [PDF, FB2, EPUB, MOBI]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98470.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Всемирный Путешественник" ("Globe Trekker") - это сериал о туристических приключениях, снятый британской студией Pilot Productions.
-Первоначально основывался на путеводителях "Lonely Planet" ("Уединенные уголки планеты"). Выходит с 1994 года, в настоящее время транслируется больше чем в сорока странах. В каждом эпизоде имеется свой ведущий (или несколько), которые путешествуют, каждый со своей съемочной командой, по выбранной стране - часто по сравнительно экзотическим её уголкам - и знакомят нас с видами, звуками и культурными достопримечательностями, которые эта страна предлагает. Кроме обычных эпизодов, есть несколько спецвыпусков, которые в общем виде раскрывают такие аспекты путешествия, как пляжный отдых, дайвинг, шопинг, знакомство с местной кухней, а так же посещение исторических реконструкций или фестивалей.
-Сериал часто предлагает отход от популярных туристических троп в погоне за получением более аутентичного взгляда на местную культуру.
-Ведущие часто принимают (   Читать дальше...   )Жанр: ДокументальныйТелекомпания: Travel Channel HDПеревод: Двуголосый закадровый, профессиональныйФормат: TSПродолжительность: 07:30:00(1серия ~00:44:20)
+Впервые на русском – один из самых ярких романов 2016 года, «Книга года» по версии New York Times. По историческому размаху и лиричности «Чужекровку» сравнивали с романом Энтони Дорра «Весь невидимый нам свет», а по психологической напряженности – с «Комнатой» Эммы Донохью.
+
+Итак, познакомьтесь с сёстрами-близнецами Перль и Стасей.
+(   Читать дальше...   )Жанр: Историческая литература, Современная зарубежная литератураПеревод: Елена ПетроваФормат: PDF, FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3680E452B1C780BC15482CD09D80838DD772E054
+magnet:?xt=urn:btih:0DDEE4AE8AC7B0B3AEFE5C7779A5429903444673
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -95,510 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476891   (98471) от 02.04.2012
+###  Публикация: 1362574   (948318) от 24.02.2020
 
-VA - Дискотека Бездна Original Шансон vol. 3 (2012) [MP3|128-256 kbps]<Шансон>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Григорий Лепс - Водопадом
-002. Нэлли Мотяева - Под Крылом Ветра
-003. Михаил Шуфутинский - Как Же Быть С Любовью
-004. Александр Буйнов - Москва, Бизнес-Ланч
-005. Олег Газманов - Одинокие Женщины
-006. Елена Ваенга - Я Тебя Поцеловала
-007. Анатолий Полотно - Счастья Вам
-008. Лера Массква - Про Тебя
-009. Нелли Мотяева - Шоколад
-010. Таисия Повалий - Я Помолюсь За Тебя(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 12:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4735EFD19D3C7BCC5AB53EE37CCECE7A4F2A83AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476490   (98472) от 02.04.2012
-
-Che Pazzo Band - Jean-Baptiste (2011) [MP3|320 кб/с]<jazz, swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bellevile
-02. Vendredi 13
-03. Troublant Bolero
-04. Minor Swing
-05. Manoir de Mes Reves
-06. Cavalerie
-07. Oiseaux des Iles
-08. Tears
-09. Zinedine Tzigane (Bonus Track - LES DOIGTS DE L'HOMME cover)Жанр: jazz, swing, manouche, button accordeonПродолжительность: 00:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60AD1DCFBC625788F0DC6987BED30A62CF89109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476968   (98474) от 02.04.2012
-
-Джонатан Кэрролл | Цикл "Рондуа" [2002-2009] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный цикл мастера магического реализма, достойного продолжателя традиций, как своего знаменитого однофамильца, так и Ричарда Баха; впрочем, Кэрролл не любит, когда его сравнивают с Воннегутом или Дугласом Адамсом, предпочитая сравнения с Гессе, Маркесом и прочими, по его выражению, авторами «сказок для взрослых».2002-2009Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9710AEF87F6AD6C688424506FB65F4DB2190081D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476999   (98475) от 02.04.2012
-
-Журнал | Автоцентр №14 [апрель 2012] [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98475.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Автоцентр" - еженедельный журнал полностью посвящен миру автомобилей. Основные рубрики: Автосалон, Автополигон, Концепции, Авторынок, Автобизнес, События и выставки, Практические технические и юридические советы, Спорт и другое.апрель 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2EA1B76122CB61C861BAC6EE793BA94B503E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477661   (98477) от 03.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (04.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE600900D61CBCD8B061F9E2A392F109107F3196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477116   (98478) от 03.04.2012
-
-VA - Танцевальный клубный поп хит vol.1 (2012) [MP3|256 kbps]<Pop | Club | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98478.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A - Lika & Korol Lir - Любовь подставила (DJ Pomeha mix)
-002. A. Klimik - Blizhe
-003. Adrian Milena - Move Your Body (Original Mix)
-004. Alex Mica - Dalinda (Radio Edit)
-005. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
-006. A-Lika & Korol Lir Ft. DJ Pomeha - Любовь Подставила (Original Radio Mix)
-007. Anton Neumark & Crime-A - Maria (Neumark Edit)
-008. Anton Neumark & Re-Zone - Time (DJ Winn, Anton Neumark's Re-Remix)
-009. Anton Neumark vs Phunk Investigation, Aeronautics - Underground (Electrica Salsa Mash Up)
-010. Aqua - Come N' Get It(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 06:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFE5B3AA03947F403650CB52E702FB1472A2B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477646   (98480) от 03.04.2012
-
-VA - Граммофон Рекордс (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98480.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ВИА Гра - Диско
-002 Dj Vengerov Feat. Слава - Одиночество-Сука (Extended Mix)
-003 Dj Masterhouse Feat. Dj Lady Nalan - Танцуй !
-004 Аня Шаркунова - Я Знаю Ее В Лицо
-005 Никита - Прости
-006 Иракли & Даша Суворова - Нелюбовь
-007 Яжевика - Город Тает
-008 Lilu - Слёзы Или Дождь
-009 Vanyashiz Feat. Diezz - Поверь Мне
-010 Sound Hackers Ft. Masta – Я Так Хочу (Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213711A2CF5C6FF3F5B4470AA3906D88B48D3170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477701   (98481) от 03.04.2012
-
-Журнал | Академия домашней кухни №2 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто любит дом. В издании не только готовые рецепты блюд, но и разные кулинарные истории, советы по организации кухонного пространства, выбору посуды, кухонного оборудования, мебели и т.д., а также письма с вашими предложениями, рецептами, с вашим полезным опытом.март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88CC9956DD010F4FE5DFEB8AF2849ED7DF587CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477672   (98482) от 03.04.2012
-
-New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthem Of Hate (3:44)
-02. Flames For Hades (4:18)
-03. Brainless (5:27)
-04. The Not Self (4:36)
-05. Unsolved Aggressions (4:11)
-06. Life Not Death (4:53)
-07. Searching The Loss (4:20)
-08. Crawling Erect (3:15)
-09. Infecting The Lie (3:32)
-10. Watcher (4:34)(   Читать дальше...   )2012Жанр: Progressive Power MetalПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7BB0A88F2706F522FEC9126FFA7E866F725A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477392   (98483) от 03.04.2012
-
-VA - Мега Ватт от Радио Энергия (2012) [MP3|256 kbps]<Club | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Molla & Marquis - Self Control (Radio Edit)
-02. Tommy Vee, Nicola Fasano, Steve Forest & Luca Guerrieri Feat. Mat Twice - Tell Me Waf
-03. Example - Changed The Way You Kiss Me (Mike Candys Remix)
-04. Armin Van Buuren Pres. Gaia - Stellar (Original Mix Edit)
-05. Scooter Feat. Vicky Leandros - C'est Bleu
-06. Lady Gaga - Marry The Night (David Jost Twin Remix)
-07. Basto! - Again And Again (Bassanova And Moradzo Remix)
-08. Dj Smash & Chinkong - Lifemission (Radio Edit)
-09. Dj Rynno And Sylvia - Feel In Love (Radio Edit)
-10. Alexandra Stan - Crazy (Nir Ozer Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB65284B810A5697469B4B5282DD1C29CEBBFC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476579   (98484) от 03.04.2012
-
-Monigo - Coprometidos Con La Causa ''Shit & Honor!'' (2011) [MP3|320 кб/с]<Grindcore / Goregrind / Death'Roll>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Nota Maron
- 02. Fecal Deluxe Party
- 03. El Modelo Shitman
- 04. Lord Of The Gas
- 05. Las Tías Buenas No Cagan
- 06. Cagando En Arguelles
- 07. Coprovoyeur
- 08. Vejado Por Gordas Deprvadas
- 09. Salcedo's Adventure
- 10. Coprosicion Incedente(   Читать дальше...   )2011Жанр: Grindcore / Goregrind / Death'RollПродолжительность: 00:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477167   (98485) от 03.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (02.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477185   (98486) от 03.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (03.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7830E2EF543B8211CCD304D47D76A9481B57D7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477180   (98491) от 03.04.2012
-
-Illuminatus - Glasnost (2011) [MP3|320 кб/с]<Alternative Metal | Progressive | Post-Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glasnost
- 02. Murdocracy
- 03. Division
- 04. ReconnectЖанр: Alternative Metal | Progressive | Post-MetalПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477468   (98492) от 03.04.2012
-
-Журнал | Stuff №4 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналапрель 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCAE6C4F589118D7023F024E376C8B496451595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477305   (98495) от 03.04.2012
-
-[Wallpapers] Desktop Wallpapers Pack 34
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98495.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 34 
-Название:  Desktop Wallpapers Pack 34 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1418х1065 - 4968х1572
-Расширение (тип) файлов: jpgСкриншоты::tongue:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477683   (98496) от 03.04.2012
-
-Журнал | Дача и дачники №3 [апрель 2012] [PDF]
+Журнал | Paris Capitale №2 (февраль 2020) [PDF][Fr]
 
 >>Журналы
->>Домоводство (журналы)
+>>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98496.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В журнале вы найдете советы опытных садоводов, цветоводов и огородников. А также большая часть издания посвящена развлекательным разделам. Два десятка сканвордов, грустные и смешные дачные байки, интересные истории из жизни дачников – после напряженного трудового дня есть с чем расслабиться. Оторваться от журнала в минуты отдыха просто невозможно: ведь большую его часть написали простые люди – дачники, которые умеют хорошо работать и хорошо отдыхать на своем любимом участке.апрель 2012Формат: PDF
+Paris Capitale - это не только зеркало города нашей жизни, но и, прежде всего, часть его души, которую мы находим в течение многих месяцев в плотном редакционном содержании, которое предшествует культурным новостям и участвует во Влиянии Парижа.Жанр: Женский журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3913C6405DE1910A55FD84BFC56FFEB260B5B765
+magnet:?xt=urn:btih:3A0A27511A09651EBB92925B21E10A2EDFC93B61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,25 +79,193 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477662   (98497) от 03.04.2012
+###  Публикация: 1362637   (948317) от 24.02.2020
 
-[Wallpapers] Wallpapers Sexy Girls Pack (04.04.12)
+Frank Lozano - The Album (2018) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948317.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Fotonovela 5:56
+2 Las Manos Quietas 5:08
+3 Vuela Vuela (Classic Mix) 4:17
+4 I Wanna Fly 3:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751D43C883C1EB9AC65515BF47168BD033EFA183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362575   (948316) от 24.02.2020
+
+Журнал | Vogue Japan №10 (октябрь 2019) [PDF][Jp]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7456B429915ECAF6E751B1D5A5B575E5D1857308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362576   (948315) от 24.02.2020
+
+Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948315.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:03| 01. Revenge
+|01:17| 02. Peyotl
+|00:48| 03. Apple Bikini
+|03:12| 04. Rape Part 1(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803CCEF48A563603C206C085A4320D222D70AACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362556   (948314) от 24.02.2020
+
+Ласло Краснахоркаи | Меланхолия сопротивления (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антиутопия выдающегося венгерского прозаика, лауреата Международной Букеровской премии 2015 года Ласло Краснахоркаи написана в 1989 году. Странный цирк, гвоздь программы которого – чучело исполинского кита, прибывает в маленький городок. С этого момента хаос врывается в жизнь обывателей и одно за другим происходят мистические события, дающие повод для размышлений (   Читать дальше...   )Жанр: Cовременная зарубежная прозаПродолжительность: 14:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5250ECA7EF978FBA7975C348E238D5A253451F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362577   (948313) от 24.02.2020
+
+Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [FLAC|Lossless|CD|tracks + cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948313.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:03| 01. Revenge
+|01:17| 02. Peyotl
+|00:48| 03. Apple Bikini
+|03:12| 04. Rape Part 1(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FF1B17202D524551BBAC56D9B40B6D6F180400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362545   (948312) от 24.02.2020
+
+Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948312.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:08| 01. Mortal
+|03:15| 02. Ecce Eric
+|04:12| 03. The Interrogation Scene
+|03:44| 04. Christine's Introduction(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DBE38861C41240D2E667EC150F66772745A6F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362621   (948311) от 24.02.2020
+
+RegScanner 2.45 Portable [Ru/En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98497.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Небольшая программа, которая позволяет сканировать реестр Windows, находить нужные значения реестра, соответствующие указанным критериям поиска, и отображать их в одном списке. RegScanner в дополнение к стандартным параметрам может работать с REG_SZ, REG_DWORD и т.д., поддерживает юникод, может различать регистр букв, а также имеет ряд других полезных улучшений.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAA409F92BB64958BF4C5B35D19CC7B722D34821
+magnet:?xt=urn:btih:D0348C06529EA0BE95DE30E4829ED910A960ED6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,34 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477501   (98499) от 03.04.2012
+###  Публикация: 1362547   (948310) от 24.02.2020
 
-VA - Весенняя танцевальная вечеринка (2012) [MP3|160-256 кб/с]<Pop>
+Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98499.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Аника Далински - От Заката До Рассвета (3:15)
-2. Шахзода - Нереально без тебя (DJ Kirill Clash radio remix) (3:27)
-3. Джиган (Geegun) feat. Жанна Фриске - Ты Рядом (3:27)
-4. Milena & Denis Murzin - До Утра (Filipp Aniskin Remix) (3:22)
-5. Leyla - Ночной DJ (3:45)
-6. Глюкоза - Кошка (3:23)
-7. Mixi - Между Мной И Тобой (Dj Andy Wait Remix) (4:02)
-8. Слава - Люди любят (3:11)
-9. Нимфа - Доминикана (3:30)
-10. Глюк`oza - Хочу мужчину (DFM mix) (3:15)2012Жанр: PopПродолжительность: 06:47:06
+|03:08| 01. Mortal
+|03:15| 02. Ecce Eric
+|04:12| 03. The Interrogation Scene
+|03:44| 04. Christine's Introduction(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F6E3F346F64A5DBA6DF89EE3BAE5276AFEEAFFD
+magnet:?xt=urn:btih:6E0E0B33ABD0640DAE1E5B4BEF1A12447833F721
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,34 +302,191 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476231   (98501) от 03.04.2012
+###  Публикация: 1362380   (948309) от 24.02.2020
 
-VA - Logic Energy (1997-2012) [MP3|320 кб/с]<Progressive house, Electro, Techno, Dubstep, Drum&bass, Electronic>
+Mp3tag 3.00b + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mp3tag предоставляет пользователям мощный и простой в использовании инструмент для быстрого редактирования тегов в различных популярных аудио файлах. Позволяет осуществлять правки в ID3-тегах, в комментариях MP3 и Ogg файлах, производить замену специальных символов или слов. Из других возможностей программы можно выделить функции импорта/экспорта информации, пользовательские (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C80E297CA1FA3C2E83A24473B95F0EC08CC510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362751   (948308) от 24.02.2020
+
+Геннадий Мамлин | О белом шахматном короле (1970) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948308.jpg" />
+</div>
+
+
+###  Подробнее
+
+О белом шахматном короле, его первом министре и трёх зверях, которые так и остались неизвестными.
+Пьеса-сказка.Жанр: Детская литература. ИнсценировкаВ ролях: Анатолий Щукин, Наталья(?) Глебова-Мерейнес, Ирина Потоцкая, Зинаида Нарышкина, Зинаида БокареваПродолжительность: 00:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E58840415DAC66FB116BE4D3EB77E5BFD3E397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362553   (948307) от 24.02.2020
+
+Paul Haslinger - Exit Ghost (2020) [MP3|320 кб/с]<Electronic, Contemporary Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948307.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:45| 01. The Faltering Sky
+|03:14| 02. Intrinsic
+|03:28| 03. Room 3
+|01:58| 04. Exit Ghost(   Читать дальше...   )Жанр: Electronic, Contemporary Instrumental, AmbientПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EC90E5876BDC4DBD6BA470565D8349F36B4E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362554   (948306) от 24.02.2020
+
+Paul Haslinger - Exit Ghost (2020) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Contemporary Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948306.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:45| 01. The Faltering Sky
+|03:14| 02. Intrinsic
+|03:28| 03. Room 3
+|01:58| 04. Exit Ghost(   Читать дальше...   )Жанр: Electronic, Contemporary Instrumental, AmbientПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AB0676DCE48632C0486039DEC1C4880A161AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362784   (948305) от 24.02.2020
+
+Жак Ле Гофф | Рождение Европы (2007) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известнейший французский медиевист рассматривает Средние века, прежде всего, с точки зрения складывания европейской идентичности. Именно в эту эпоху, которая заслуживает самого пристального к себе отношения, сформировались основные черты знакомой нам Европы. Само понятие "Европа" встречается уже в документах VII века, а первая попытка ее объединения восходит (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5414B68F4BE496BEF3393F6276BAF4E311DD2D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362501   (948304) от 24.02.2020
+
+Марк Хэддон | Загадочное ночное убийство собаки (2020) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятнадцатилетний Кристофер Бун – аутист. Он талантливый математик и очень умный парень, вот только его цепкая память и живой ум совсем не помогают ему в жизни. Пока однажды – если быть точными, в семь минут первого ночи – его не застают на заднем дворе соседей. Рядом лежит обезображенный пес. Теперь Кристофер – подозреваемый! Сможет ли мальчик провести расследование (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: Анастасия КуклейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BC36496A30DB5FC043D05305718F774BDFE019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362273   (948303) от 24.02.2020
+
+John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98501.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marcel Woods - Champagne Dreams ( Original Mix )
-02. David Forbes - Safety ( Original Mix )
-03. Toper & Andrian - Laziness ( Original Mix )
-04. Octane & DLR feat TST - Red Tape ( Original Mix )
-05. Cliff Coenraad - Modulate ( Original Mix )
-06. Pfirter - The Dub Track ( Len Faki Remix )
-07. Tommy Trash - Cascade ( Original Mix )
-08. Broken Note - War In The Making ( Original Mix )
-09. Schelmanoff - Roof Wanted ( Original Mix )
-10. Utopia - Scan Me ( Original Mix )(   Читать дальше...   )1997-2012Жанр: Progressive house, Electro, Techno, Dubstep, Drum&bass, ElectronicПродолжительность: 01:30:37
+|02:37| 01. Wake the Girls
+|04:02| 02. Train North
+|02:31| 03. Skagway, Alaska
+|01:25| 04. Snowy Climb(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:378AD882309B3DE5C8BF21E390989F44C591707E
+magnet:?xt=urn:btih:56640D7EBFCDBBD055340E8E22F1A9D4EE40672C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,34 +494,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477623   (98503) от 03.04.2012
+###  Публикация: 750921   (948302) от 29.01.2014
 
-VA - CLUBная эйфория (2012) [MP3|128-192 kbps]<Pop | Club | Dance>
+М. Бонч-Бруевич | Потеря нами Галиции в 1915 г. Часть I, Через Карпаты в Венгрию зимою 1915 года (1920) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98503.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Contraband - Rocknrolla (Original Mix)
-02 Azari & Iii - Reckless (With Your Love)
-03 Bara Brost - Madame Mila
-04 Blue Foundation - Bonfires (Dubstep)
-05 Boris Brejcha - My Love
-06 Duck Sauce - Big Bad Wolf
-07 Maceo Plex - Ain't That Love
-08 Spektre - Get Together (Original Mix)
-09 Whitenoize - The Underground (Tjr Remix)
-10 Ticon - The Programmer (Spektre Remix)(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 10:27:32
+В своем труде автор подробно анализирует стремление русского командования достигнуть разгрома австрийцев наступлением через Карпаты в Венгрию во время Первой мировой войны. Автор полагает, что поражение русских армий Юго-Западного фронта в 1915 году и потеря нами Галиции, занятой, благодаря блестящим успехам тех же армий в 1914 году, явилось логическим последствием (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
+magnet:?xt=urn:btih:E6EFAAD1DA4FCBE7BCF41ACFA2362ECB55F3E9F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -737,25 +520,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477660   (98504) от 03.04.2012
+###  Публикация: 751020   (948293) от 29.01.2014
 
-[Wallpapers] Computer Desktop Wallpapers Collection (04.04.12)
+Э. Успенский | Любимая девочка дяди Фёдора (2000) [FB2]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98504.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В Простоквашино лето пришло. Дядя Федор купался в речке, ловил рыбу. Кот Матроскин продавал открытки в киоске, а Шарик «со своим фоторужьем по всем интересным местам носился». В Простоквашино из Америки приехала девочка Катя Семина. Здесь живет ее дядя. Удивительная девочка! Читает Брема, много знает про рыб и зверей, любит ходить на рыбалку, а главное считает, что (   Читать дальше...   )Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:854AD789E2035878F2D2C41AF4129E8C81A345C6
+magnet:?xt=urn:btih:21E36AE3C9C59C9C16340630847224FDEEEAB4D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -763,34 +546,165 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477001   (98508) от 03.04.2012
+###  Публикация: 982375   (948282) от 03.02.2016
 
-Distorted - Voices from Within (2008) [WavPack|Lossless]<Gothic Metal,Melodic Death,with Middle Eastern influences>
+LensFlare Studio 5.1 [En]
 
->>Архив торрентов
->>Архив Музыки
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98508.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One Last Breath 05:36
-02. What Remains 03:45
-03. Voices From Within 05:28
-04. Fading 03:49
-05. A Soft Whisper 04:14
-06. Reveal My Path 03:41
-07. Escaping the Mind-Grid 06:03
-08. Obscure 03:24
-09. Theom 01:22
-10. Consistent Duality 05:22(   Читать дальше...   )Жанр: Gothic Metal,Melodic Death,with Middle Eastern influencesПродолжительность: 00:52:53
+LensFlare Studio послужит основным инструментом для фотографов.
+Добавить красивые вспышки и световые эффекты для ваших фотографий.
+С более чем 100 эффектами, вы можете выбрать из бликов, полос, свечение, боке и многое другое.
+LensFlare Studio - инструмент, который должен иметь любой фотограф или дизайнер.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 февраля 2016Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6C88C28CF495E7C528704D80A13C230B5B08F02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982195   (948281) от 03.02.2016
+
+Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [MP3|320 кб/с] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rawkfist
+02. Fire It Up
+03. Phenomenon
+04. This Is A Call(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D68B3338F82A8648D8687244A0B2EE609B8ABC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982153   (948280) от 03.02.2016
+
+VA - Top 250 Tracks in the CAR Vol.2 (2015) [MP3|320 кб/с] <Club, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948280.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 3rd Planet - Sevas (Original Mix)
+002 Aaliyah - If Your Girl Only Knew (Liva K Edit)
+003 Ad Brown - From Within (Sebastian Weikum Summer Style Remix)
+004 Ad Brown Feat. Painted Face - Undreamt (Original Mix)(   Читать дальше...   )Жанр: Club, Deep House, Electro HouseПродолжительность: 24:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE80D0090AE8724C598F72F3B6A5DB2967B4315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982362   (948277) от 03.02.2016
+
+Руслан Исаев | Лечение алкоголизма. Руководство к трезвости (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного врача-нарколога Руслана Николаевича Исаева предназначена для всех, кому небезразлична судьба пьющего близкого человека. Прочитав книгу, вы разработаете четкий план, будете знать каждый свой последующий шаг, избежите "подводных камней" и в конечном итоге поможете своему близкому обрести трезвую жизнь.Жанр: Популярная и нетрадиционная медицина. АлкоголизмФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622ECF097947F13134761A5FCD6EAA22B1991AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858626   (948273) от 11.01.2015
+
+Горькая луна / Bitter Moon (1992) BDRemux [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случайная встреча ранним весенним утром в парижском автобусе на всю оставшуюся жизнь определила судьбу Оскара и Мими.
+Их не интересовали романтичность и возвышенная любовь - они хотели исследовать свою страсть. И они исследовали друг друга и себя до полного саморазрушения.Производство: Франция, Великобритания, США / Columbia Pictures CorporationЖанр: Триллер, Драма, МелодрамаРежиссер: Роман ПоланскиАктеры: Питер Койот, Эмманюэль Сенье, Хью Грант, Кристин Скотт Томас, Виктор Банерджи, Софи Патель, Патрик Альбенк, Смиля Михайлович, Лео Экманн, Люка ВелланиПеревод: Дублированный, Многоголосый закадровый, Двуголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7688DF858A0803870018A484D1928B045FED13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982356   (948272) от 03.02.2016
+
+Александр Верещагин | В Китае (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948272.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1900 году Александр Верещагин получил назначение на Дальний Восток, а в 1901-1902 годах совершил несколько поездок по китайским провинциям, посетил Харбин, Порт-Артур, Мукден, Пекин. По материалам этих путешествий и была написана книга «В Китае». Не только страсть к путешествию влекла Верещагина, он стремился «пожить с китайцами и поближе познакомиться с ними». (   Читать дальше...   )Жанр: ПутешествияПродолжительность: 04:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0405BF65F43FB2270F3261C71A9E5D9995E82CB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

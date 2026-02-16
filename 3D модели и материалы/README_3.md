@@ -1,22 +1,23 @@
-###  Публикация: 1822590   (100968) от 07.10.2025
+###  Публикация: 1351175   (1002385) от 09.01.2020
 
-3D print - Magori Miniatures - July 2025 [STL]
+3D модели - Daz 3D - Teen Raven 8 Pro Bundle - 64045 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100968.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Июльский набор моделек от студии Magori Miniatures.Формат: STL
+Комплект Teen Raven 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E747480B0FC955F1CED6122A3201B1C951A5E854
+magnet:?xt=urn:btih:319EF7181F35FAA95CFE3F5495B98B4DDD339E38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822469   (101070) от 06.10.2025
+###  Публикация: 1351172   (1002357) от 09.01.2020
 
-3D print - SW3D - October 2025 Models [STL]
+3D модели - Unreal Engine - Character Interaction [UASSET]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101070.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Последние модельки от студии StarWars3DModels. Да пребудет с вами Сила.Формат: STL
+Шаблон включает в себя систему перемещения персонажа, взаимодействия персонажа с различными объектами, использования различного огнестрельного оружия, сбора и изготовления различных предметов, использования средств передвижения, создания различного ИИ противника и т. Д.Формат: UASSET
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D17A6465B56579B6CB3A0A861E32CBF513FF9F7C
+magnet:?xt=urn:btih:8F5046C843E13CA4FE72B819F506391FC231B451
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +51,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822776   (101605) от 08.10.2025
+###  Публикация: 1351165   (1002347) от 09.01.2020
 
-3D print - The Dragon Trappers Lodge - Stoican Halloween [STL, LYS]
+3D модели - 3DDD - PRO – 45 HQ Beds 3D-Models [Corona|V-Ray|*.max, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101605.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Более 60 моделей в этом жутком, пугающем и весёлом наборе! Получите в свои руки жутких монстров, уморительных костюмированных персонажей и слегка жуткие разбросанные объекты!Формат: STL, LYS
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 48 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A2FE13AC37766CCFAB06BFDEFB7EB78F43C9E74
+magnet:?xt=urn:btih:2FDBDF6F9DDDFEFCC5BD66FEA7F69E588982EE7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822975   (104431) от 09.10.2025
+###  Публикация: 1488223   (1002252) от 10.08.2021
 
-3D print - Ghamak - Celestial Sagittarii [STL, LYS]
+3D модели - Daz 3D - 50 HDRIs - Movie Maker Iray - Metropolis Day - 66897 [DUF, HDR]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104431.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы стоим на страже между высокими башнями и на скалах. Любой, кто пройдёт под нашими сводами, обречён на смерть.Формат: STL, LYS
+Iray HDRI для DAZ 3D из категории Resources.Формат: DUF, HDR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFC16EC932B73C4D5CD7B66FF4F2A7A843857F21
+magnet:?xt=urn:btih:A35E26AD387BC3F2D0F6BE7579EB30B0CBF2508C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +104,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822946   (104465) от 09.10.2025
+###  Публикация: 1488272   (1002243) от 10.08.2021
 
-3D print - The Dragon Trappers Lodge - Riders of The Hellstorm September 2025 [STL, LYS]
+3D модели - Daz 3D - Cleopatra's Egyptian Bundle - 80789 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104465.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Trapper Tier отправляется в дикие пустоши вместе с Riders of the Hellstorm! В этом адском путешествии по открытым пустошам вас ждут демоны, дьяволы, машины, громоподобный рок-н-ролл и всё необходимое для настоящего грандиозного приключения! Мы даже включаем в комплект наш огромный наземный корабль Wurmbait III в качестве напоминания о прошлом!Формат: STL, LYS
+Cleopatra's Egyptian для DAZ 3D из категории People
+Для Genesis 8 .Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54C9116DF15C9188E8C559ADFBEAA47D9B60618C
+magnet:?xt=urn:btih:F9C42CBB22CF51EC94C507AE3812BBF397599042
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +131,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823063   (112370) от 09.10.2025
+###  Публикация: 1351501   (1002147) от 10.01.2020
 
-3D модели - CGTrader - Kamaz 63501 Mustang 2016 3D model [FBX, OBJ, MTL, MAX]
+3D модели - Daz 3D - Tristan 8 Pro Bundle - 66153 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112370.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-КАМАЗ-63501 — четырёхосный седельный тягач повышенной проходимости. Основные элементы подготовлены к сглаживанию TurboSmooth (2-я итерация). Проработаны элементы кузова и колёса. Интерьер условный.Формат: FBX, OBJ, MTL, MAX
+Комплект Tristan 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:850F245C3E2BDD69C9EDA972D9D9F721B64DD709
+magnet:?xt=urn:btih:22712AB8B358CCAD99A45E4CB52EC6359E5231F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,27 +158,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823176   (117544) от 10.10.2025
+###  Публикация: 1351494   (1002145) от 10.01.2020
 
-3D print - MyMiniFactory - PRIMAL Collectibles - Wasteland Collection - February Bundle - 55890 [STL, LYS]
+3D модели - Daz 3D - Silas 8 Pro Bundle - 63941 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117544.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тщательно проработанные, эти миниатюры идеально подойдут для ваших кампаний, открывая путь в тёмные фэнтезийные миры, где ярко светит солнце, а опасность таится в каждой тени. Эта коллекция — настоящая дань уважения вашим любимым наборам D&D.
-
-Это идеальная коллекция для любителей настольных RPG, художников-миниатюристов и любителей 3D-печати. ​​Давайте (   Читать дальше...   )Формат: STL, LYS
+Комплект Silas 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DCD596CAFE8BFA4474E706DC363FEDE843039FE
+magnet:?xt=urn:btih:58DC88A92E6BC6F7E575B514FC81491FD0DCD1EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -182,25 +185,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823110   (117639) от 10.10.2025
+###  Публикация: 1351490   (1002143) от 10.01.2020
 
-3D print - MyMiniFactory - Immaterium God Miniatures - Heirs of the Dark Iron Foundry Vol. 3 - 390511 [STL, LYS]
+3D модели - Daz 3D - Rynne 8 Pro Bundle - 66075 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117639.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Июльский набор миниатюр от студии Immaterium God Miniatures 2024 года.Формат: STL, LYS
+Комплект Rynne 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:871CDD5136169D1EAF9E7DF6762E63FFBD96E978
+magnet:?xt=urn:btih:74019DED95FE14A32C75D4A566CA61CD8EE3A70C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,28 +212,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695150   (120592) от 28.01.2024
+###  Публикация: 1488396   (1001933) от 11.08.2021
 
-3D модели - Unreal Engine Marketplace Bundle (Part IX 2023) [UASSET]
+3D модели - Evermotion - Archmodels vol. 218 [V-Ray|*.max, C4D, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120592.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение сборки к вашему вниманию, Part IX
-
-В данном наборе содержится огромное количество дополнительных ассетов для Unreal Engine v.4.xx - 5.xx
-В состав сборки входят такие ассеты, как: материалы, саунд-эффекты, блюпринты, визуальные эффекты, оружие, окружающая среда и многое другое.(   Читать дальше...   )Формат: UASSET
+Archmodels vol. 218 включает 66 профессиональных высокодетализированных 3D-моделей для архитектурной визуализации. Эта коллекция включает высококачественные промышленные модели освещения, электрооборудования, пожарной сигнализации, кондиционирования воздуха, камер видеонаблюдения - подходящие для визуализации парковок, гаражей, промышленных зон, общедоступных коридоров (   Читать дальше...   )Формат: V-Ray|*.max, C4D, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:286F728E368DB4EB12A508671E05EB5EAA56556B
+magnet:?xt=urn:btih:A4DDF21BEE570E9647AA9F89E706BD2288CB597B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,25 +238,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823244   (121531) от 10.10.2025
+###  Публикация: 1351686   (1001864) от 11.01.2020
 
-3D модели - Superhive - Interior Models Vol 04 | Kpack | Asset Browser [BLEND]
+3D модели - Daz 3D - Yuzuru 8 Pro Bundle - 64605 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121531.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы всегда хотели изучить архитектурную визуализацию, но модели интерьеров были слишком дорогими? Или на их импорт в блендер, установку правильного масштаба и выполнение дополнительных действий каждый раз уходило лишнее время? Вы продвинутый пользователь Blender и ищете большую библиотеку моделей по доступной цене?  Тогда этот пакет для вас! Уважайте своё время, выведите (   Читать дальше...   )Формат: BLEND
+Комплект Yuzuru 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DBA62A18920FAE1E3B8564E9F96962A09623F6E
+magnet:?xt=urn:btih:42FF0E7FB8AE22BBE746E4C468B3959DE4CF38F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,28 +265,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691692   (123201) от 13.01.2024
+###  Публикация: 1351675   (1001858) от 11.01.2020
 
-3D модели - Unreal Engine Marketplace Bundle (Part VIII 2023) [UASSET]
+3D модели - ArtStation - CityKit: Sci-Fi Edition Part 4 [OBJ, ZPR]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123201.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С этого пака будет все больше и больше материала для UE 5.xx
-
-В данном наборе содержится огромное количество дополнительных ассетов для Unreal Engine v.4.xx - 5.xx
-В состав сборки входят такие ассеты, как: материалы, саунд-эффекты, блюпринты, визуальные эффекты, оружие, окружающая среда и многое другое.(   Читать дальше...   )Формат: UASSET
+Часть 4 популярной серии Citykit, это пакеты kitbash для быстрого создания научно-фантастических городов, которые помогут вам с вашими иллюстрациями.Формат: OBJ, ZPR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C104403A482DA21298AADF84BE37ABEC6ADC8FA8
+magnet:?xt=urn:btih:CA9F1F88BB3D49B7181BD1776D0B8864DC419AAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,25 +291,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823321   (124492) от 11.10.2025
+###  Публикация: 1351676   (1001852) от 11.01.2020
 
-3D print - VoidRealm Minis - Rise of the Eldertubbies [STL]
+3D модели - ArtStation - CityKit: Sci-Fi Edition Part 3 [OBJ, ZPR]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124492.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда рассвет освещает горизонт и эхо пения разносится по лесу, из тени выходят Старые Пузырьки. Эти таинственные существа, придуманные в тёмных уголках воображения иллюстратора Джарса , теперь скрупулезно воплощены в реальность студией VoidRealm Minis в их первом совместном проекте.Формат: STL
+Пакет Kitbash для быстрого создания научно-фантастического города, который поможет вам с вашими иллюстрациямиФормат: OBJ, ZPR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:593B0E1B2980E5B42608DE99ACB83C07D12F8094
+magnet:?xt=urn:btih:8E4C992E54464FCECBCB7C379863299A6659FF0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,28 +317,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687410   (125648) от 26.12.2023
+###  Публикация: 1488648   (1001701) от 12.08.2021
 
-3D модели - Unreal Engine Marketplace Bundle (Part VII 2023) [UASSET]
+3D модели - Etsy - Grim Forest Baba Hecuba's Coven FULL Set - 924233344 [STL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125648.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение сборки к вашему вниманию)
-
-В данном наборе содержится огромное количество дополнительных ассетов для Unreal Engine v.4.xx - 5.xx
-В состав сборки входят такие ассеты, как: материалы, саунд-эффекты, блюпринты, визуальные эффекты, оружие, окружающая среда и многое другое.(   Читать дальше...   )Формат: UASSET
+Баба Яга Дом и ведьмы | Набор из 20+ предметов.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C74699318863E012EA6AE0B1C0DBA197DD709BDF
+magnet:?xt=urn:btih:8E4067E1627B780A56F539A657A38ED3F0E46C94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,28 +343,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683399   (128522) от 11.12.2023
+###  Публикация: 1351845   (1001557) от 12.01.2020
 
-3D модели - Unreal Engine Marketplace Bundle (Part VI 2023) [UASSET]
+3D модели - 3dbrute - Sell Tv Stand 2019 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128522.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляю очередное продолжение сборки к вашему вниманию)
-
-В данном наборе содержится огромное количество дополнительных ассетов для Unreal Engine v.4.xx - 5.xx
-В состав сборки входят такие ассеты, как: материалы, саунд-эффекты, блюпринты, визуальные эффекты, оружие, окружающая среда и многое другое.(   Читать дальше...   )Формат: UASSET
+Коллекция 3д моделей Тумбы под телевизор из 100штФормат: V-Ray|*.max
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D877C51E13D202EA481792EF6B862ACFF34907B
+magnet:?xt=urn:btih:EDC79E1DB759DDA1D6D8801F4B037EE5B4294527
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,28 +369,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681781   (131251) от 07.12.2023
+###  Публикация: 1488822   (1001411) от 13.08.2021
 
-Текстуры - Surface Mimic - Surface Mimic Archive (High Resolution) [PSD]
+3D модели - TurboSquid - Mercedes-Benz GLB 2020 AMG - 1446192 [V-Ray|*.max, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131251.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Surface Mimic Sells 3D surface scans for digital artists in the Visual Effects and Video Game industries. Our surface scans are high resolution displacement, normal, and color diffuse .psd images
-
-Resolutions: 1024×1024 – 4096×4096
-Each material is sourced at its best resolution available from the site.(   Читать дальше...   )Формат: PSD
+3d модель автомобиля марки Mercedes-BenzФормат: V-Ray|*.max, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1556C63217E17F486DF5016B405418195D665A87
+magnet:?xt=urn:btih:EBED837B54AB4D4938EA9D6876E3F02E69800A55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,28 +395,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681648   (132226) от 04.12.2023
+###  Публикация: 1488835   (1001410) от 13.08.2021
 
-3D модели - Unreal Engine Marketplace Bundle (Part V 2023) [UASSET]
+3D модели - Hum3D - Renault Premium Lander Fire Truck 2011 [FBX, MAX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132226.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С каждым набором становится все больше и больше интересного материала по 5.хх версии))
-
-В данном наборе содержится огромное количество дополнительных ассетов для Unreal Engine v.4.xx - 5.xx
-В состав сборки входят такие ассеты, как: материалы, саунд-эффекты, блюпринты, визуальные эффекты, оружие, окружающая среда и многое другое.(   Читать дальше...   )Формат: UASSET
+3d модель автомобиля марки Renault.Формат: FBX, MAX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F955DC5154C6C2AF07E00341184D6EB121A5507B
+magnet:?xt=urn:btih:9D2EBFF609DCBF5E87C9457A87D64D10BA4AA669
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,44 +421,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680973   (132232) от 04.12.2023
+###  Публикация: 600341   (998461) от 09.01.2013
 
-3D модели - Unreal Engine Marketplace Bundle (Part IV 2023) [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132232.jpg" />
-</div>
-
-
-###  Подробнее
-
-С данной сборки было принято решение бандлы именовать не датами, а просто номерами. Я считаю что так будет удобнее для всех.
-
-Очередная подборка бандлов ассетов для движка Unreal Engine.
-В данном наборе содержится огромное количество дополнительных ассетов для Unreal Engine v.4.xx - 5.xx(   Читать дальше...   )Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FACBB09A596F6A0032229899B19B2CF5AEC048E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594391   (133323) от 26.12.2012
-
-3d модели - 3DDD Диваны [V-Ray|*.max]
+3d модели - 3DDD Посуда [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133323.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998461.jpg" />
 </div>
 
 
@@ -479,11 +437,11 @@ https://mybot314.ru/tekegram_catalog/
 
 Сборник моделей с сайта 3ddd.ru, загруженные пользователями оного!
 
-Данный же сборник содержит 531 модель диванов!
+Данный же сборник содержит 64 модели настольной посуды (ложки/вилки/тарелки/стаканы/вазочки и т.д.)!
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EB9B97F2FE94715A2A9D5BEE873E2F329F557DE
+magnet:?xt=urn:btih:C330EFCF0A1253EBC99C2A68A3A42A15C1668774
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,15 +449,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594208   (133804) от 25.12.2012
+###  Публикация: 600301   (998448) от 09.01.2013
 
-3d модели - 3DDD Рамки [V-Ray|*.max]
+3d модели - 3DDD Сборник декора [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133804.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998448.jpg" />
 </div>
 
 
@@ -507,11 +465,11 @@ https://mybot314.ru/tekegram_catalog/
 
 Сборник моделей с сайта 3ddd.ru, загруженные пользователями оного!
 
-Данный же сборник содержит 79 моделей рамок для картин/зеркал!
+Данный же сборник содержит 67 моделей на тему "Декор", прекрасно подходящих для вставки на пустующие поверхности, такие как журнальный столик, тумбы, полки/стелажи и прочее!
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C58D6B01DAE609B48F2C02A39CC17FAB1D349C2D
+magnet:?xt=urn:btih:365EE4361BFC9FF390D7C7C8D5C4AF79475A7D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,56 +477,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680225   (134409) от 28.11.2023
+###  Публикация: 607612   (994355) от 23.01.2013
 
-3D модели - Unreal Engine Marketplace Bundle (5 January 2023) [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная подборка бандлов ассетов для движка Unreal Engine.
-В данном наборе содержится огромное количество дополнительных ассетов для Unreal Engine v.4.xx - 5.xx
-В состав сборки входят такие ассеты, как: материалы, саунд-эффекты, блюпринты, визуальные эффекты, оружие, окружающая среда и многое другое.
-(   Читать дальше...   )Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D645564AEDB8BA22E96147E4AA1F8DF9F0E474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591603   (136061) от 20.12.2012
-
-3d модели - 3DDD Кальяны [V-Ray|*.max]
+3d модели - CGmodels vol.1 [V-Ray|*.max]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136061.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник моделей с сайта 3ddd.ru, загруженные пользователями оного!
+Фабрика, по производству элитной мебели - Ashaghi Interiors - выпускает широкий ассортимент высококачественной мебели для любителей классической мебели вот уже на протяжении более века!
+Мебель выполнена в лучших традициях классических стилей, Барокко и Рококо.
 
-Данный же сборник содержит 50 моделей кальянов!
+В данный же сборник вошла мебель из следующих серий : Alsace, Deutzia, Eddy, Empire, Honoree, Shere, Sonny.
+Каждая серия состоит как минимум из следующих предметов: кровать, зеркало + комод, тумба, кресло/пуф.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD0AA3D85A036BFA5B4F5B85BD62783F015A5C76
+magnet:?xt=urn:btih:C3C438DC32F7FA93FAA36E980426700C7B8010D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,27 +507,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 591617   (136066) от 20.12.2012
+###  Публикация: 1353359   (992391) от 17.01.2020
 
-3d модели - 3DDD Парфюм [V-Ray|*.max]
+3D модели - Blender Cloud - Julien Kaspar - Rain [BLEND]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136066.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник моделей с сайта 3ddd.ru, загруженные пользователями оного!
-
-Данный же сборник содержит 23 модели духов и дезодарантов!
+3D модель девушки Rain для Blender 2.8.Формат: BLEND
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F895321A12E72EB4AC8E84997328B046080433C7
+magnet:?xt=urn:btih:2BAC42BB3D4B66E3691DC1A83152FFF0267334AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,27 +533,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 591463   (136334) от 19.12.2012
+###  Публикация: 1353194   (992329) от 17.01.2020
 
-3d модели - 3DDD Новый Год [V-Ray|*.max]
+3D модели - Evermotion - Archmodels vol. 203 [V-Ray|*.max, C4D, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136334.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник моделей с сайта 3ddd.ru, загруженные пользователи оного!
-
-Данный же сборник содержит 52 модели на тему Новый Год.
+Archmodels vol. 203 включает в себя 60 профессиональных, очень подробных 3d моделей для архитектурных визуализаций. Эта коллекция поставляется с высококачественными моделями городских зданий. Текстуры и материалы присутствуют. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max, C4D, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5DA6B268179CB47BEB08099318B045CE633E007
+magnet:?xt=urn:btih:0FA4614726D1D06F51119E3CE1B2BF51A6641783
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,27 +559,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 591467   (136340) от 19.12.2012
+###  Публикация: 1353694   (990418) от 19.01.2020
 
-3d модели - 3DDD Детские игрушки [V-Ray|*.max]
+3D модели - 3DDD - PRO models January 1 2020 [Corona|V-Ray|*.max, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136340.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник моделей с сайта 3ddd.ru, загруженные пользователи оного!
-
-Данный же сборник содержит 40 моделей детских игрушек.
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 98 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF89497BACA40F63EEE6E4DBC7DE634152D9BCBA
+magnet:?xt=urn:btih:A304B157118A59073C744C78C36063D3EF7D41F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +586,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825418   (136751) от 17.10.2025
+###  Публикация: 1354109   (989685) от 20.01.2020
 
-3D модели - CGTrader - 1 - 200 OLD MEDIEVAL HOUSES BUILDINGS PACK 4K GameReady 3D Model Collection - 4091234 [FBX, BLEND]
+3D модели - Railroad Tank Wagon [3DS, C4D, FBX, LWO, MAX, OBJ, WRL]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136751.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-200 средневековых зданий в одном наборе. Они с интерьером и готовы для интеграции в игры. Первоначально создано в Blender 3.1Формат: FBX, BLEND
+3d модель вагона для перевоза мазутаФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, WRL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:524D299303B0131E76DB7DE1BDFE15BA0BC56B32
+magnet:?xt=urn:btih:156D4ED74F3894FD1854D80DFCCEF06086688482
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,25 +612,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825123   (136820) от 16.10.2025
+###  Публикация: 1353970   (989593) от 20.01.2020
 
-3D print - Cults3D - Chuya Factory - Cantarella - Wuthering Waves [STL]
+3D модели - Evermotion - Archmodels vol. 152 [Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, RFA, IES]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136820.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мистическая, элегантная и убийственно прекрасная — Cantarella представлена ​​в виде потрясающей фигурки, которую можно напечатать на 3D-принтере. Её струящееся платье, богато украшенный зонтик и основание в форме океана делают эту фигурку мечтой коллекционера для поклонников фэнтези и аниме.Формат: STL
+Очередной сборник 3d моделей от Evermotion!
+Впервые сборник предоставляется бесплатно. В данный сборник вошли 76 моделей освещения от компании LUG в стиле модерн.Формат: Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, RFA, IES
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1097532DBBCC5B3109A34DE68C0DF0A8478BBD78
+magnet:?xt=urn:btih:A6C5E6D53F40CEB335A972AF6C91A2714A309675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162097   (989233) от 04.01.2010
+
+DAZ3D - Модели Коллекция 3D моделей и текстур  для Poser
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+С ростом мощности обычных персональных компьютеров на базе Wintel и стремительно продолжающейся эволюцией графических ускорителей для 3D графики все больше людей считают для себя посильным начать самостоятельно создавать уже не просто 2D графику в векторных или растровых редакторах, а обогащать свои работы красочной и оригинальной 3D графикой. Так же интерес к 3D графике в целом и к анимации как к одному из её частных направлений связан с появлением качественных и простых в работе цифровых видео камер. Все что угодно теперь можно запечатлеть, перенести в компьютер и до неузнаваемости преобразить в редакторе нелинейного видео монтажа, тесно интегрировав это с качественной 3D – анимацией. Программа Curious Labs Poser будет полезна в работе нескольким обширным группам пользователей. С одной стороны это 2D художники рисующие от руки, которым необходимо быстро и сравнительно просто изготавливать изображения реалистичных фигур людей или каких либо простых предметов для последующей отрисовки их от руки в качестве основы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354242   (988804) от 21.01.2020
+
+3D материалы - Megascans Displacements- All 52 Maps 4K [JPG, EXR]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка из 52-х 3D материалов со всеми картами и самом высоком разрешении.Формат: JPG, EXRРазрешение файлов: 8192x8192
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E030D361F0F09B782F504EAEF8BE62730836077
 ```
 
 https://mybot314.ru/tekegram_catalog/

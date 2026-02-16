@@ -1,25 +1,25 @@
-###  Публикация: 1437110   (1042242) от 04.01.2021
+###  Публикация: 1806287   (11602) от 13.07.2025
 
-VA - Relaxing 2021 [FLAC|Lossless|WEB-DL|tracks] <Classical>
+VA - 100 Classics For Relaxation - A Glorious Sunrise (2008) CD, Compilation [FLAC|Lossless|tracks + .cue] <Classical, Contemporary, Romantic>
 
 >>Классика
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042242.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11602.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Claude Debussy, Arturo Benedetti Michelangeli. Preludes Book 1, L. 117 8. La fille aux cheveux de lin (2:50)
-002. Frederic Chopin, Maria Joao Pires. Nocturne No. 1 in B-Flat Minor, Op. 9, No. 1 (5:36)
-003. Frederic Chopin, Maria Joao Pires. Nocturne No. 2 in E-Flat, Op. 9, No. 2 (4:29)
-004. Claude Debussy, Alexis Weissenberg. Suite bergamasque, L. 75 III. Clair (   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:04:35
+01. Eric Hammerstein: London Promenade Orchestra & Chorus / Flower Duet    [0:04:03.25]
+02. Edward Elgar / Chanson de Matin    [0:03:04.00]
+03. London Promenade Orchestra / Waltz in a Flat Major, Op. 39, No. 5    [0:01:26.48]
+04. Frédéric Chopin / Etude In A Minor, Op. 25, No. 11 ("Winter Wind")    [0:03:29.44](   Читать дальше...   )Жанр: Classical, Contemporary, RomanticПродолжительность: 01:09:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43CF3FA0A6501D28C0AFCABF86AE822688AB87DB
+magnet:?xt=urn:btih:F4605ECDE9CA7B2C05A691FC5507FAA25CB4EDD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436995   (1042249) от 04.01.2021
+###  Публикация: 1806539   (11498) от 14.07.2025
 
-J. S. Bach ‎ - Organ Works (Lionel Rogg) (1998) [FLAC|Lossless|image + .cue] <Classical, Baroque>
+Frederick Delius - A Village Romeo and Juliet (1971) [FLAC|Lossless|WEB-DL|tracks] <Classical, Opera>
 
 >>Классика
->>Камерная (Lossless)
+>>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042249.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Toccata And Fugue, BWV 565
-1 Toccata. Adagio 2:29
-2 Fugue 5:49
-3 Chorale "Wachet Auf, Ruft Uns Die Stimme", BWV 645 4:29(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:09:11
+Часть 1. Scene I. September. A piece of land on a hill:
+01. (Allegro ma non troppo, con vigore) - Straight on, my plough, straight on! (orche - [03:22]
+02. 'Tis such a shame to let good land lie waste (Marti, Manz) - [01:55]
+03. Come, Vrenchen, come! (Sali, Vrenchen) - [01:52](   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 02:16:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91C27F9AAEFD528E94A9AC658FC63FA2C11EE001
+magnet:?xt=urn:btih:8198154ACB5F53E4C68AFC91D101C966544843C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437006   (1042771) от 02.01.2021
+###  Публикация: 55867   (10948) от 20.07.2025
 
-Schubert - Symphony No. 8 'Unfinished' & Symphony No. 5 (1985) [FLAC|Lossless|tracks + .cue] <Classical>
+Поль Мориа / Paul Mauriat
 
 >>Классика
->>Оркестровая (Lossless)
+>>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042771.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Symphony no. 8 in B minor, D 759 "Unfinished":
-01. I. Allegro moderato (15:51)
-02. II. Andante con moto (13:42)
-Symphony no. 5 in B-flat major, D 485:(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:14
+Mauriat Paul - After the love is gone.mp3
+Mauriat Paul - Alla Figaro.mp3
+Mauriat Paul - All life long.mp3
+Mauriat Paul - Alouette.mp3(   Читать дальше...   )Жанр: Инструментал
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:354208CB9BFB3CA36947D1EC36D9EB85EC6B3DD9
+magnet:?xt=urn:btih:8223965956A10BE5AB5BEEE652DEBF974E0C82DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,57 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608162   (1043455) от 01.02.2023
+###  Публикация: 1812496   (7717) от 15.08.2025
 
-VA - Classical Music: Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan-Olav Wedin - Piano Concerto No. 21 in C Major, K. 467 II. Andante Elvira Madigan (6:55)
-02. Freddy Kampf - Piano Sonata No. 8 in C Minor, Op. 13 Pathétique II. Adagio cantabile (6:02)
-03. Roland Pöntinen - Suite Bergamasque, L. 75 III. Clair de lune (5:36)
-04. Freddy Kempf - Gaspard de la nuit, M. 55 I. Ondine. Lent (6:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968CA961C75393D4B71F8A484F4DEB95BC3A0739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605988   (1044431) от 22.01.2023
-
-Hélène Grimaud - Hélène Grimaud plays Rachmaninoff and Shostakovich (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+VA - Autumn Instrumental (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044431.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Rachmaninoff Vocalise, Op. 34 No. 14 (Arr. for Violin and Piano) (with Lisa Batiashvili) (5:38)
-2. Cello Sonata in G Minor, Op. 19 Rachmaninoff Cello Sonata in G Minor, Op. 19 - III. Andante (with Jan Vogler) (5:21)
-3. Piano Sonata No. 2 in B Flat Minor, Op. 36 Rachmaninoff Piano Sonata No. 2 in B Flat Minor, Op. 36 - I. Allegro agitato (9:50)
-4. Piano Sonata (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:08
+01. Goland - Call Me (2:14)
+02. Aurélien Pontier - An die Musik, D. 547 (Arr. Pontier for Piano) (2:30)
+03. Paavo Järvi - Pavane, Op. 50 (5:39)
+04. David Fray - Goldberg Variations, BWV 988 Aria (5:12)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:07:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DDDDC6461395FB3D215BF544F3F26917BE236F0
+magnet:?xt=urn:btih:EECECABCEABAB3AB8E2AEC5258A8EE51E9522849
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604639   (1044936) от 17.01.2023
+###  Публикация: 1817169   (3731) от 08.09.2025
 
-VA - Handel's Young Messiah (1990) [FLAC|Lossless|tracks + .cue] <Classical Crossover, Gospel, Pop>
+VA - Classical Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
+>>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044936.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Overture
-02. And the Glory of the Lord
-03. Matthew Ward - Comfort Ye My People
-04. First Call - Every Valley Shall Be Exalted(   Читать дальше...   )Жанр: Classical Crossover, Gospel, PopПродолжительность: 01:04:57
+01. Sergey Bryukhno - 3 Gymnopédies No. 1, Lent et douloureux (2:53)
+02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+03. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+04. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:07:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAFA919DCA435502C3AD643E88FE9503E245532A
+magnet:?xt=urn:btih:0D8D84F46934AC8239430E06A59EE316688CEBC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +143,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598576   (1046421) от 01.01.2023
+###  Публикация: 1819070   (1786) от 20.09.2025
 
-Megumi Yoshida, Bach - Organ Works Vol. 1. (2016) [OGG Vorbis|480 Kbps] <Classical, Baroque>
+VA - Classical Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
->>Полные собрания сочинений
+>>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046421.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fuga in G BWV578
-02. Ach Gott, vom Himmel sieh darein BWV741
-03. Herr Jesu Christ, dich zu uns wend BWV709
-04. Fantasie et Fuga in G BWV542 - Fantasie(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:15:46
+01. Sir Simon Rattle - Short Ride in a Fast Machine Fanfare for Orchestra (4:26)
+02. Mariss Jansons - Symphony No. 10 in E Minor, Op. 93 II. Allegro (4:19)
+03. Paavo Järvi - Symphonic Dances from West Side Story IV. Mambo (2:25)
+04. Sir Simon Rattle - The Firebird, KC. 10, Tab. I Dance of Kashchei's retinue under Firebird's spell (4:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:13:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A9723A91285C13EE7F0C6BE80B62B827E44F118
+magnet:?xt=urn:btih:62A5710C5233E65BAD700E0A94D32BB4EB0E9E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820337   (526) от 27.09.2025
+
+VA - Best Piano Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:28)
+02. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight II. Allegretto (2:10)
+03. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight III. Presto agitato (8:07)
+04. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD8033DEFFA9A48761FC36BB90E7CA1CAFCC98D
 ```
 
 https://mybot314.ru/tekegram_catalog/

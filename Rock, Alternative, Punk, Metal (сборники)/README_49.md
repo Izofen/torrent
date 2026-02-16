@@ -1,25 +1,25 @@
-###  Публикация: 1843780   (1049778) от 23.12.2025
+###  Публикация: 1815956   (4665) от 02.09.2025
 
-The Black Keys - Compilation (2002-2025) [MP3|320 Kbps] <Garage rock, Blues rock, Indie rock>
+Graham Bonnet - Voice Of Rock - Compilation (1969-2025) [MP3|320 Kbps] <Hard rock, Heavy metal, AOR, Blues rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049778.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Man Will Do Wrong (& The Arcs) ❂ Electrophonic Chronic 2023
-02. Ain't Nothing Like You (Hoochie Coo) (& Jim Jones & Mos Def) ❂ Blakroc 2009
-03. Behind The Eyes (& The Arcs) ❂ Electrophonic Chronic 2023
-04. Can't Find My Mind (& The Cramps) ❂ OST He Put The Bomp ! In The Bomp 2007(   Читать дальше...   )Жанр: Garage rock, Blues rock, Indie rockПродолжительность: 08:02:37
+01. C'est La Vie (& EZoo) (Feeding The Beast | 2017)
+02. Jet To Jet (& Alcatrazz) (No Parole From Rock 'n' Roll | 1983)
+03. Goodnight & Goodbye (& Impellitteri) (Stand In Line | 1988)
+04. Let The Wild Run Free (& Forcefield) (IV. Let The Wild Run Free | 1990)(   Читать дальше...   )Жанр: Hard rock, Heavy metal, AOR, Blues rockПродолжительность: 09:47:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C260EEFC530264BABFB276673CF0E5D9FD25E1D4
+magnet:?xt=urn:btih:C216243E6E9C738ECA269F2B2D431B81D7F1A78D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844923   (1050368) от 29.12.2025
+###  Публикация: 1781660   (4606) от 03.09.2025
 
-Erik Gronwall - Voice Of Rock - Compilation (2009-2025) [MP3|320 Kbps] <Hard rock, Glam rock, Pop rock>
+Helloween - Compilation (1985-2025) [MP3|320 Kbps] <Power metal, Speed metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050368.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Into The Great Unknown (& H.e.a.t) ❂ Into The Great Unknown 2017
-02. Higher (Winner Of Idol) ❂ The Idol Years 2009
-03. Livin' On A Prayer (& Bon Jovi) ❂ Eriksplanations Vol. 2 2025
-04. Fearless (& New Horizon) ❂ Gate Of The Gods 2022(   Читать дальше...   )Жанр: Hard rock, Glam rock, Pop rockПродолжительность: 05:36:13
+01. Follow The Sign (Keeper Of The Seven Keys-Part I | 1987)
+02. Light The Universe (& Candice Night) (Keeper Of The Seven Keys-The Legacy | 2005)
+03. A Little Is A Little Too Much (Giants & Monsters | 2025)
+04. Live Now ! (Straight Out Of Hell | 2013)(   Читать дальше...   )Жанр: Power metal, Speed metalПродолжительность: 09:05:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:557528C8813E3A6238C025E4518E6D0F639AAD91
+magnet:?xt=urn:btih:EFDD5F9B6A27563FC9FDCDC83234BABC14A48972
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845711   (1050927) от 06.01.2026
+###  Публикация: 1805256   (3617) от 09.09.2025
 
-VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|320 Kbps] <Rock>
+Glenn Hughes - Voice Of Rock - Compilation (1970-2025) [MP3|320 Kbps] <Hard rock, Blues rock, Progressive rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050927.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ария - Гордиев узел (5:15)
-02. Radio Tapok - Фрау чёрная смерть (3:37)
-03. Casual, Глобалис - Не жалей ни о чём (3:57)
-04. ГУДТАЙМС & Найк Борзов - Инопланетный гость (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 05:27:32
+01. A Whiter Shade Of Pale (& Procol Harum & Marc Bonilla) (American Matador | 1993)
+02. Alive & Kicking (Influences & Connections. Volume One Mr. Big | 2003)
+03. Back In The USSR (& Molly Hatchet) (Abbey Road-A Tribute To The Beatles | 2009)
+04. Bad Reputation (& The Bobaloos) (The Bobaloos | 1983)(   Читать дальше...   )Жанр: Hard rock, Blues rock, Progressive rockПродолжительность: 24:03:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78ABCA902B1740F0736926121E1FD004281EB72B
+magnet:?xt=urn:btih:C7873335E4BF5590C05F39825702420E63119CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847645   (1052261) от 13.01.2026
+###  Публикация: 1800679   (2666) от 15.09.2025
 
-VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
+Ten Years After - Live compilation (2025) [MP3|320 Kbps] <Hard Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052261.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Møxes - Because You Stayed
-02 - Wicked Wenches - Wild Over You
-03 - Møxes - No Pillow But Your Name
-04 - Wicked Wenches - Still Alone Tonight(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 01:02:29
+01. Help Me [16:07]
+02. I May Be Wrong, But I Won't Be Wrong Always [10:32]
+03. I'm Going Home [11:58]
+04. King Of The Blues [04:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:53:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A6E9834E148C796F881A095DD71CF1184F7ACB1
+magnet:?xt=urn:btih:E25736848BD68424745CAC8B6689DE4D184B3E11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848219   (1052783) от 16.01.2026
+###  Публикация: 1819564   (1270) от 23.09.2025
 
-VA - No name compilation part 43 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
+Sammy Hagar - Voice Of Rock - Compilation (1973-2025) [MP3|320 Kbps] <Hard rock, Glam metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052783.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Møxes - Carry Me Through the Night
-02 - Wicked Wenches - Love Won’t Be Rushed
-03 - Møxes - Shadows of Goodbye (1 Versions)
-04 - Wicked Wenches - Burn to Feel(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 00:58:27
+01. Mas Tequila (& The Waboritas) {Red Voodoo}1999
+02. Something Going Wrong (& Chickenfoot) {Chickenfoot III}2011
+03. Halfway To Memphis (& The Waboritas) {Not 4 Sale}2002
+04. Heroes (& David Bowie & The Circle) {Lockdown 2020}2021(   Читать дальше...   )Жанр: Hard rock, Glam metalПродолжительность: 08:35:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59C374FAFA8FB917394C54944160C9146BDA6089
+magnet:?xt=urn:btih:756CCAFD9317E53AE7AF3A372FD0E0612EE8A111
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848913   (1053202) от 19.01.2026
+###  Публикация: 1819646   (1190) от 24.09.2025
 
-VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
+Пикник - Premium Playlist (2004-2024) [MP3|320 Kbps] <Psychedelic Rock, Post-Punk, Gothic Rock, Folk Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053202.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[4:32] . 001-Би-2 - Я двигаюсь дальше
-[4:21] . 002-7б - Тост
-[3:00] . 003-Ночные снайперы - Дом стеной
-[3:13] . 004-Серьга - Батарейки сели(   Читать дальше...   )Жанр: rockПродолжительность: 9:13:27
+01. Aianostre (Королевство кривых, 2004).mp3
+02. А зовут его. Оторви и Брось (Один на один, 2024).mp3
+03. А может быть и не было меня (Чужой, 2004).mp3
+04. Азбука Морзе (Чужестранец, 2014) (2).mp3(   Читать дальше...   )Жанр: Psychedelic Rock, Post-Punk, Gothic Rock, Folk RockПродолжительность: 06:43:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2BF763C56CEA043F952F4ED880BA486857483E8
+magnet:?xt=urn:btih:ED775E2EC36B60ABB3DC2B1FD0A29359E13B0107
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850791   (1054605) от 
+###  Публикация: 1819576   (1139) от 24.09.2025
 
-VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
+Arcade Fire - Premium Playlist (2005-2025) [MP3|320 Kbps] <Indie Rock, Art Rock, Baroque Pop>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054605.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[3:44]. 001-7Б - По дорогам ветра
-[3:29]. 002-Сурганова и Оркестр - Коктейль
-[4:01]. 003-Вис Виталис - Рыбы в холодной воде
-[3:11]. 004-Инкогнито - Крутим диски(   Читать дальше...   )Жанр: rockПродолжительность: 11:10:35
+01. Afterlife.mp3
+02. Age of Anxiety I.mp3
+03. Age of Anxiety II (Rabbit Hole).mp3
+04. Awful Sound (Oh Eurydice).mp3(   Читать дальше...   )Жанр: Indie Rock, Art Rock, Baroque PopПродолжительность: 03:12:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:089EC6BD2CE8097B5DAAFCD29B09374067741A2D
+magnet:?xt=urn:btih:6D0472AD95415FF87A81A1ED8D6DDC5240FF3B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852274   (1055853) от 
+###  Публикация: 1819848   (986) от 25.09.2025
 
-VA - Road Trip Rock Rhythms (2024) [MP3|320 Kbps] <Rock, Punk, Alternative, Progressive>
+Van Halen - Compilation (1978-2012) [MP3|320 Kbps] <Hard rock, Arena rock, Glam metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055853.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Crying Heart - Remedy  - (04:17)
- 002. Glass Sky - Collateral  - (03:53)
- 003. The Curtain - Night Wilds  - (01:09)
- 004. Interrobang - Switchfoot  - (03:48)(   Читать дальше...   )Жанр: Rock, Punk, Alternative, ProgressiveПродолжительность: 12:16:26
+01. Eruption. instrumental {Van Halen}1978
+02. Humans Being {Balance}1995
+03. Hear About It Later {Fair Warning}1981
+04. Jump {1984}1984(   Читать дальше...   )Жанр: Hard rock, Arena rock, Glam metalПродолжительность: 05:07:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F220B701219B022E8BBA4A93E032D64A9BE3035A
+magnet:?xt=urn:btih:3CBD1353FD73F5E86A3D57FD016F1EEA0BE7DC92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851948   (1055857) от 
+###  Публикация: 1766009   (128) от 29.09.2025
 
-Muse - Compilation (1999-2025) [MP3|320 Kbps] <Alternative, Space rock, Electronic rock>
+AC🗲DC - Compilation (1975-2020) [MP3|320 Kbps] <Hard rock, Blues rock, Rock & Roll, Heavy metal>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055857.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ashamed ❂ Sunburn EP 2000
-02. Break It To Me (& Sam De Jong) ❂ Simulation Theory 2018
-03. Butterflies & Hurricanes. mix (Additional Guitars) ❂ Butterflies & Hurricanes EP 2004
-04. Can't Take My Eyes Off You (& Frankie Valli) ❂ Dead Star-In Your World EP 2002(   Читать дальше...   )Жанр: Alternative, Space rock, Electronic rockПродолжительность: 07:47:48
+01. T.N.T. {Live} 1992
+02. Two's Up {Blow Up Your Video} 1988
+03. Play Ball {Rock Or Bust} 2014
+04. Anything Goes {Black Ice} 2008(   Читать дальше...   )Жанр: Hard rock, Blues rock, Rock & Roll, Heavy metalПродолжительность: 05:28:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37828C6E3511B7561F2D7EA1F085B9F5B3F10D4F
+magnet:?xt=urn:btih:56CABD328E99C9D70AAACBFAFD00CC887641CA8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852965   (1056283) от 
+###  Публикация: 1760875   (108) от 29.09.2025
 
-Агата Кристи & Братья Самойловы - Compilation (1988-2025) [MP3|320 Kbps] <Alternative, Gothic rock, Art rock>
+3 Doors Down - Compilation (2000-2016) [MP3|320 Kbps] <Hard rock, Alternative, Post grunge>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056283.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Эвтаназия ❂ Резня в Асбесте 2015
-02. 1_1 ❂ Живые, Но Мёртвые 2013
-03. Барон и За Рекой ❂ Маленький Фриц 1990
-04. Бриллиантовые Дороги (& Могилевский А) ❂ Иллюминатор. Песни на стихи Ильи Кормильцева 2017(   Читать дальше...   )Жанр: Alternative, Gothic rock, Art rockПродолжительность: 09:57:22
+01. Away From The Sun {Away From The Sun} 2002
+02. Back To Me {Time Of My Life} 2011
+03. Be Like That {The Better Life} 2000
+04. Be Somebody {Seventeen Days} 2005(   Читать дальше...   )Жанр: Hard rock, Alternative, Post grungeПродолжительность: 02:29:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:839FC7DD2EF737138A94DA2A45EBD393A730BBC1
+magnet:?xt=urn:btih:C75AE6C264886297A5A5B4F8E2689F80949FA68A
 ```
 
 https://mybot314.ru/tekegram_catalog/

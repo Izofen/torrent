@@ -1,25 +1,25 @@
-###  Публикация: 1793510   (67500) от 24.04.2025
+###  Публикация: 1356387   (979117) от 30.01.2020
 
-Ancient Bards - Artifex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+Хоккей. Кубок вызова 2020. Москва (Россия). Матч Звезд МХЛ (2020) WEB-DL [H.264/720p-LQ]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67500.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luminance and Abyss (3:08)
-02. My Prima Nox (5:40)
-03. The Vessel (5:58)
-04. The Empire of Black Death (5:10)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:03:00
+11 января 2020 года, в рамках «Недели Звезд Хоккея 2020» состоялся 11-й в истории Кубок вызова Молодёжной хоккейной лиги, в Москве.
+В составы сборных Восточной и Западной конференций вошли представители всех 34 команд МХЛ.
+11 января 2020, суббота. 14:00 МСК
+Кубок вызова 2020. Матч Звезд МХЛ(   Читать дальше...   )Телекомпания: Матч! Страна HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:28:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:330396B94D573BA6C73445625CFEC30ED53CBC6F
+magnet:?xt=urn:btih:3696B9828C761EB967799EC64DD329CC45BF984E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,80 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793359   (67501) от 24.04.2025
+###  Публикация: 1356520   (979116) от 30.01.2020
 
-Растровый клипарт - STCrafts - Creative Fabrica - Iridescent Pattern Tumbler Wrap [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обертка для стаканов с радужным рисунком.Формат: PNGРазрешение файлов: 2790 x 2460
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE762FCB6F5A2F1EB1D9B87AF3F5B52001A909F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793490   (67502) от 24.04.2025
-
-Primal Fear - Far Away (2025) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away (4:18)Жанр: Heavy MetalПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F39DDD0ABFCF2839E7585E32C918D1790A0F15C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793453   (67503) от 24.04.2025
-
-VA - TOP 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+izanagi - projections (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Future Garage, Drill n Bass, Ambient>
 
 >>Electronic
->>House
+>>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67503.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. MATA - Slowdown (Extended Mix) (05:40)
-02. Jacoob - Estilo Estelar (Extended Mix) (06:37)
-03. Jacoob - Epifania (Extended Mix) (05:52)
-04. Jacoob - Fiction (Extended Mix) (05:38)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:05:10
+01. incarnate (05:31)
+ 02. hymn (05:29)
+ 03. horde (04:20)
+ 04. anaheim (05:41)(   Читать дальше...   )Жанр: IDM, Future Garage, Drill n Bass, AmbientПродолжительность: 00:27:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B305D9C12AC05F5B082FCA698F30E200CCF5F4B4
+magnet:?xt=urn:btih:664AE76275E13B2E36D4915CAD0F2C47EFB9A966
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,284 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793339   (67504) от 24.04.2025
+###  Публикация: 1356489   (979115) от 30.01.2020
 
-Текстуры - Jason Santos - Behance - Just Gradients 2 - 191710931 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные градиентные текстуры.Формат: PNGРазрешение файлов: 4000 x 5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF3F432EFE0883844F05561C2365A6889C7B582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793219   (67505) от 24.04.2025
-
-Marc Bolan / T. Rex - Archived records 1967, 1972 (1991) Compilation, Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classic Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67505.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Debora
-A2 Mystic Lady
-A3 Rock On
-A4 Spaceball Ricochet(   Читать дальше...   )Жанр: Classic Rock, GlamПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87504053DF098095672B8E3DCE58F715D5140216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792871   (67506) от 24.04.2025
-
-Fear Factory - Genexus (2015) [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67506.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Autonomous Combat System
-A2 Anodized
-A3 Dielectric
-B1 Soul Hacker(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD3AF15189B6011AC2F226597EA9F9FCF051BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793388   (67507) от 24.04.2025
-
-VA - Infinite Deep Vibes (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Jeff - Electric Loom (04:00)
-02. Solid Dream - Wondering (03:59)
-03. Soul of Rome - Catch the Stillness (04:00)
-04. Steven Mercier - Once Upon a Time (02:42)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0447F57F8FC006CEAD3CD3CB175827C4E2A76929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793518   (67508) от 24.04.2025
-
-Cosmic Cathedral - Deep Water (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heart of Life (13:35)
-02. Time to Fly (6:54)
-03. I Won't Make It (3:55)
-04. Walking in Daylight (8:56)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CF93FDD660B5D740CA33B697E47C69CDC48A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793318   (67509) от 24.04.2025
-
-The Fleetwoods - Mr. Blue (1959) Expanded Edition, 2025, CAPITOL CATALOG MKT (C92)[FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confidential [00:02:21]
-02. The Three Caballeros [00:02:23]
-03. Raindrops, Teardrops [00:02:32]
-04. You Mean Everything To Me [00:02:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57308115841D5E6395C71269A4F7ACB1E861938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793461   (67510) от 24.04.2025
-
-НХЛ. Кубок Стэнли 2025 (Плей офф. 1-й раунд, 2-й матч) Монреаль Канадиенс - Вашингтон Кэпиталз (23.04.2025) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67510.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 апреля 2025, четверг. 02:00 МСК, 1/8 финала. 2-й матч. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Джейк Бренк (Детройт Лейк, США); Линейный: Мэтт Макферсон (Энтигониш, Канада); Линейный: Жюльен Фурнье (Гатино, Канада)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0DBB1BA9CA2FC83CD7F6C40A987649C47127E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793045   (67511) от 24.04.2025
-
-Trail Of Tears - Studio Albums (8 releases) (1998-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Symphonic/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trail of Tears — норвежская метал-группа. Сформирована в 1994 году под названием Natt, в 1997 переименована в Trail of Tears и оставалась активной до распада в 2013 году. Группа была возрождена в конце 2020 года.1998 - Disclosure In Red
-2000 - Profoundemonium
-2002 - A New Dimension of Might
-2005 - Free Fall Into FearЖанр: Extreme Symphonic/Gothic MetalПродолжительность: 06:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60212CBAA7B09970029C76032C55A4B114CA5A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792894   (67512) от 24.04.2025
-
-Manowar - Fighting the World (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67512.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fighting The World
-A2 Blow Your Speakers
-A3 Carry On
-A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9B5AA898420277A2B4579211FEC26788455A87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793437   (67513) от 24.04.2025
-
-Epic Death - The Seer (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
+Serenity - The Last Knight (2020) [MP3|320 Kbps] <Progressive Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67513.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Freya's Fire
-02. The Berserker's Axe
-03. Warrior
-04. Odin the Seer(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:50:25
+01. The Last Knight
+02. Invictus
+03. Set the World on Fire
+04. Keeper of the Knights(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8113C0CA04F5B7537AC0BA0FDCC44A0C72BBC898
+magnet:?xt=urn:btih:06A6254B1E45A4EA088C49E7CE59550BA7A76493
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,199 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793463   (67514) от 24.04.2025
+###  Публикация: 1356348   (979114) от 30.01.2020
 
-Verheerer - Urgewalt (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Onwards (00:37)
-02 - Urgewalt (05:00)
-03 - Hail Mary (08:03)
-04 - Grabenwurm (05:50)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5076ECB4921FFA317A78CC37A84F8F6DEBDE9A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793478   (67515) от 24.04.2025
-
-Dawn of Solace - Affliction Vortex (2025) [WavPack|32/192|image + .cue|Vinyl-Rip]<Melodic Doom, Death Metal, Gothic, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67515.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Inception
-A2 - Murder
-A3 - Fortress
-A4 - Into The Light(   Читать дальше...   )Жанр: Melodic Doom, Death Metal, Gothic, Doom MetalПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46DCDC5F4236174B175A743E7D6AAEAADDB6D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793051   (67516) от 24.04.2025
-
-Akrea (ex-Inner Aggression) - Studio Albums (4 releases) (2007-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Akrea - немецкая метал-группа из Эрдинга, Бавария, образована в 2004 году как "Inner Aggression". В 2008 сменила название на "Akrea". Расформирована в 2014 году.2007 - Beginning Of An Inner War (as Inner Aggression)
-2009 - Lebenslinie
-2010 - Lugenkabinett
-2013 - Stadt Der Toten TraumeЖанр: Melodic Death MetalПродолжительность: 03:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BBA07F5A4AD0760273008CDCF46532150F29BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793305   (67517) от 24.04.2025
-
-Cougar Synth - 2013 (2014) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Inside (4:11)
-02. Retrace (3:54)
-03. Timeline (3:06)
-04. Afterglow (4:22)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 01:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00DD9CD93779C2E330E97DE35EC9DA68814BFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793406   (67518) от 24.04.2025
-
-Yasuhiro Kohno - Princess Sayaka (1995) ASCAP Record [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Leaves [16:42]
-02. Misty [9:12]
-03. In a Sentimental Mood [9:27]
-04. Softly, as in a Morning Sunrise [6:51](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05FE7E70EFFF8EF1661F29C38AD31C467C8DAA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793477   (67519) от 24.04.2025
-
-Хэм и маршрутка / Ham and the Jitney Bus (1915) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фарс-комедия. Классическая парочка бродяг - Малыш и Здоровяк, находят кошелек с деньгами. И разумно решают не впустую их потратить, а замутить бизнес! Они покупают авто (примерно 1492 года выпуска. Ага.) и начинают таксовать. Не, ну, а чо? Хороший план...Производство: США / Kalem CompanyЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: Ллойд Хэмилтон, Бад ДунканПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95E1BF1CA964A14EA6B2838E2A00F4FA8D41C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793509   (67520) от 24.04.2025
-
-VA - Beach Relax Home (To Get Lost in the Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dance>
+Gabriel & Dresden - Remedy (2020) Anjunabeats [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Pop-Trance, Deep House, Downtempo>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67520.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Lovin' Beats - You Don't Know Me(03:20)
-02 Ltj Xperience - Moon Beat(05:12)
-03 ZEB, Sabo Feat. Mariella - Rise Again (Massivan remix)(04:17)
-04 Christian Lisi - Ghost Chill(03:05)(   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 01:40:48
+01. No One's To Blame (3:52)
+ 02. Remember (4:46)
+ 03. Falling Forward (5:25)
+ 04. All I've Got (5:14)(   Читать дальше...   )Жанр: Progressive House, Pop-Trance, Deep House, DowntempoПродолжительность: 01:28:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C354F77A107974AE6EDAD02611BA3DC533DCC647
+magnet:?xt=urn:btih:4E86CAD8CA89457138467C956678484C01B9FF2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,28 +114,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793511   (67521) от 24.04.2025
+###  Публикация: 1356425   (979113) от 30.01.2020
 
-Возвращение - Возвращение (2024) [MP3|320 Kbps] <Авторская песня>
+Хоккей. Матч всех звёзд НХЛ 2020. Суперскиллз (2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67521.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Перед грозой [00:04:44]
-02 - Сибирский тракт [00:05:57]
-03 - Ангара [00:04:43]
-04 - Февраль [00:03:27](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:46:01
+В Сент-Луисе состоялся Мастер-шоу в рамках звездного уик-энда Матча звезд НХЛ.
+Суперскиллз Матча всех звёзд НХЛ – конкурсы, проводимые в ночь перед Матчем всех звёзд НХЛ. Первый раз был проведён в 1990 году в Питтсбурге на 41-м Матче всех звёзд НХЛ. Суперскиллз включает в себя следующие конкурсы: на скорость, женский матч 3 на 3, на точность броска, конкурс вратарей, (   Читать дальше...   )Телекомпания: Setanta HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:31:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38CE6C96886FDACA69893B5FB8E2B2A809EDF8AA
+magnet:?xt=urn:btih:99D055FC807045448BA7586CD9A8CEF58BE22DAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,25 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793459   (67522) от 24.04.2025
+###  Публикация: 1356148   (979112) от 30.01.2020
 
-Оглянись во гневе / Look Back in Anger (1959) BDRip [H.264] [MVO]
+VA - Lunar Nights Chapter. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67522.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм основан на одноимённой пьесе Джона Осборна... Портер любит свою жену Элисон, но не может удержаться, чтобы постоянно не задевать её в разговоре. Элисон терпит сколько может, но потом, чтобы не сойти с ума, оставляет Портера, поддавшись уговорам своей лучшей подруги Хелены. Оставшись один, Портер берётся за Хелену. Элисон была беременна, но не говорила об этом (   Читать дальше...   )Производство: Великобритания / Woodfall Film ProductionsЖанр: драмаРежиссер: Тони РичардсонАктеры: Ричард Бёртон, Клер Блум, Мэри Юр, Эдит Эванс, Гари Рэймонд, Глен Байем Шоу, Филлис Нильсон-Терри, Дональд Плезенс, Джейн Экклс, С.П КапурПеревод: профессиональный многоголосый (Творческая группа Союза работников дубляжа)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:39:30
+01. Drogtech - Before The Storm (Extended Mix) 06:04
+02. Dimensional Mind Transmission - Awarness Of The Eternal (Panda On The Bamboo Tree Remix) 10:41
+03. Jedidiah - Landscapes Of The Imagination 09:09
+04. Shaya - White Flower 06:50(   Читать дальше...   )Жанр: Psychill, Psybient, DowntempoПродолжительность: 01:54:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CA307394F59175D7D0516753FCA25D9B6F983A4
+magnet:?xt=urn:btih:3C38452909BEF915770E78783B15E64543CB9F4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +170,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793474   (67523) от 24.04.2025
+###  Публикация: 1356342   (979111) от 30.01.2020
 
-Растровый клипарт - Creative Fabrica - Designworld - Summer Path Clipart [PNG]
+VA - Distant Mountains Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67523.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с летними тропинками.Формат: PNGРазрешение файлов: 3600 x 3600
+01. Mirage Of Deep - The Mountain (432Hz) (Original Mix)
+02. Peter Pearson - Autumn Whispers (Original Mix)
+03. Michael E - Cirrus (Original Mix)
+04. La Estación Del Mar - A Flute in the Mood (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:34:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CBB55C1BB4B89BDB9716DCECBC9CC5B7F6CDAF7
+magnet:?xt=urn:btih:E43E233A6AE4E08ADB3ACA629631A3F8A240D907
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,28 +199,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793521   (67524) от 24.04.2025
+###  Публикация: 1356325   (979110) от 30.01.2020
 
-Machine Head - Unatøned (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Metal, Thrash Metal, Alternative Metal>
+Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Other Styles
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67524.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. LANDSCAPE ØF THØRNS (0:31)
-02. ATØMIC REVELATIØNS (3:42)
-03. UNBØUND (3:57)
-04. ØUTSIDER (3:57)(   Читать дальше...   )Жанр: Groove Metal, Thrash Metal, Alternative MetalПродолжительность: 00:41:47
+01. The Bends (01:36)
+02. Voyage to the Bottom of the C (Main Title) (02:43)
+03. Norah's Theme (02:23)
+04. Sprung a Leak (01:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28220CA46E7828440212BAA2FF0DED1DC47813B0
+magnet:?xt=urn:btih:898B309CE66D50197EA32AADBA7B2BC634BE2008
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,25 +228,480 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793295   (67525) от 24.04.2025
+###  Публикация: 1356333   (979109) от 30.01.2020
 
-Серебряный дождь (1937) WEBRip [H.264/720p]
+Марв Вульфман | Бэтмен. Рыцарь Аркхема (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман из межавторского цикла «Вселенная Бэтмена».
+
+Новый рыцарь в городе! В Готэме царит хаос. Преступные организации переживают кризис после смерти Джокера. Но Пугало угрожает распылить над городом особый токсин, который погубит тысячи его жителей, и собирается объединить суперзлодеев, чтобы уничтожить Бэтмена раз и навсегда. Бэтмен пытается остановить безумца. (   Читать дальше...   )Жанр: Фантастика, Фэнтези, МистикаПеревод: Алексей ИоновФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA6AA7974EC6B9E18668259BD84C0BA8DF84C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741670   (979095) от 06.01.2014
+
+И. И. Гостев | Математика и оборона страны (1930) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий труд является естественным продолжением ряда работ подобного рода, в которых автор принимал непосредственное участие. Как на первый опыт увязки военного дела с курсом математики следует указать на «Комплексный математический задачник» Беркут, Гостев и другие под редакцией Попперек Г. А. (изд. «Военный вестник» 1926 г.). Затем в 1928 г. Наркомпрос сборник «Повышенная школа и оборона страны» в котором автор также принимал посильное участие. Наконец настоящая книга написана автором по предложению Наркомпроса и представляет первый опыт создания методического руководства по военизации уроков математики в школе повышенного типа. Руководство с успехом может быть дано на руки и учащимся, так как это облегчит труд преподавателя, сократит время на уяснение многих понятий и ускорит проработку многих задач.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12783E59D70F37971BCEE70F91DB0908A3D3991E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973709   (979066) от 09.01.2016
+
+В. П. Бутромеев, В. В. Бутромеев (ред.) | Афоризмы долголетия. Как прожить сто лет (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошее здоровье и деятельное долголетие всегда были целью жизни любого здравомыслящего человека. Философы и мудрецы, а потом врачи и психологи попытались ответить на вопрос: «Как прожить сто лет» вот уже несколько тысяч лет. В девятнадцатом веке даже существовала такая наука — «Макробиотика» — наука о долголетии. Многие из ее открытий стали нормами жизни цивилизованного (   Читать дальше...   )Жанр: Философия, Сборник афоризмовФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902D40C39F0C17229946D15849462E108EDB4EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972719   (979065) от 09.01.2016
+
+Дивный старец Серафим (2008) DVDRip
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Серафим Саровский тягчайшим подвигом взыскал благодать Святаго Духа, стяжанию которой научал как главной цели жизни христианской. После многих лет пустынничества, столпничества, затворничества и молчальничества, старец стал принимать всех притекавших к нему. Он имел поразительную силу воли, обширную память и исключительный, светлый ум. Если к этому прибавить, (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Генадий ЧеботарёвПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB033789F73C2D66F915A0A2105DD9C60AA8105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973589   (979064) от 09.01.2016
+
+Сказочная Русь. Люди ХА. Сезон №7. Серия №22 (178) (2015.12.25) SATRip
+
+>>Юмор (ТВ)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм выполнен очень качественно, Мы покажем политиков и медийщиков, которые предстанут в виде сказочных персонажей. Рубрика будет абсолютно без цензуры, - приоткрыл завесу Зеленский.Телекомпания: 1+1Жанр: анимационный сериал, политикаРежиссер: Владимир ЗеленскийПродолжительность: ~ 00:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861EB9955D22BECCA1D9D70A41DAE257F2474615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973748   (979063) от 09.01.2016
+
+И. Сергеева | Лучшие уроки. Пейзаж (2014) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наслаждение природой, стремление найти в ней созвучие своим чувствам, всегда было источником творчества для любого художника, именно поэтому пейзаж является одним из самых любимых и распространенных жанров живописи, сюжеты которого чрезвычайно разнообразны – от традиционных элементов природы до сложных городских сцен. Авторы этой книги – известные художники, разработали (   Читать дальше...   )Жанр: Рисование и живопись для начинающихФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C5A329E7B14E3C166E85C75B5D51A7EBAE4E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973353   (979062) от 09.01.2016
+
+Оптина пустынь (2015) HDTVRip  [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оптина пустынь - мужской монастырь, расположенный в Калужской области. Пустынями в старину называли места уединенных монашеских поселений. А Оптина - от имени разбойника Опта, который раскаялся и принял постриг с именем Макарий. Так из предводителей разбойников он стал отцом иноков и основателем новой обители.
+Оптина пустынь - это, прежде всего, её старцы. Их всего (   Читать дальше...   )Телекомпания: 1Канал HDЖанр: ДокументальныйРежиссер: Георгий АнановЯзык субтитров: РусскийПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98D0F33F043E101136C4A58CF7DCE3E2EE380BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973816   (979061) от 09.01.2016
+
+SSDReporter 1.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979061.jpg" />
+</div>
+
+
+###  Подробнее
+
+SSDReporter – приложение, которое мониторит состояние ваших внутренних SSD дисков.
+В связи с тем, что у SSD дисков время жизни ограничено количеством циклов операций записи, очень важно следить за здоровьем ваших дисков.
+
+Приложение может предупредить вас о ухудшении здоровья вашего диска по электронной почте или уведомлением на рабочем столе или когда состояние (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 октября 2015Разработчик: Albert MayerПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96D9B5F1CB230D9872C12F1F138E2C52A7EA08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973842   (979060) от 09.01.2016
+
+SlimBrowser 7.00 Build 135 + Portable [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Браузер на основе движка Trident, обладающий большим количеством полезных возможностей. В частности в SlimBrowser встроен настраиваемый блокиратор всплывающих окон, инструмент автозаполнения форм, менеджер паролей, присутствует возможность «на лету» исправлять ошибки в скриптах. Имеются опции контроля за загружаемым контентом: графикой, анимацией, звуками и т.д.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734D39ADCDC3441F4340C066D071482CCB217D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973800   (979059) от 09.01.2016
+
+Проекты - RocketStock - Memory Frames [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB908046C0A14484968264174AEB7121D9C4E476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973569   (979058) от 09.01.2016
+
+VA - Зимний Отборный Хит (2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979058.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Профилактика Feat. Ser Twister - Будет Жарко 03:31
+002. Little Mix - Black Magic 03:33
+003. Олег Винник - Я Не Устану 03:30
+004. Rudimental - Never Let You Go 03:56(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1C0BBF7871189D2DE59814662B36A302DE9806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973890   (979057) от 09.01.2016
+
+Бесконечно белый медведь / Infinitely Polar Bear (2014) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэмерон пытается вернуть свою жену Мэгги. Ради этого он пробует взять на себя полную ответственность за их двух молодых дочерей, которые отнюдь не стараются облегчить ему задачу.Производство: США / Bad Robot, KGB MediaЖанр: Драма, КомедияРежиссер: Майя ФорбсАктеры: Зои Салдана, Марк Руффало, Кейр Дуллеа, Уоллес Володарски, Имоджин Володарски, Эшли Ауфдерейде, Мэри О’Рурк, Брианн Брози, Адам В. Майэрсон, Уильям Ксифарас, Джорджия ЛиманПеревод: Многоголосый закадровыйПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8259EC668CBC1E3C8825574337718D40EC35EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973863   (979056) от 09.01.2016
+
+Девять жизней Рождества / The Nine Lives of Christmas (2014) HDTVRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979056.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как бездомный кот поселяется в доме Закари, начинаются рождественские приключения двух молодых людей, которые в силу обстоятельств думают, что не готовы влюбиться...Производство: СШАЖанр: Комедия, мелодрама, семейныйРежиссер: Марк ДжинАктеры: Брэндон Рут, Кимберли Састад, Стефани Беннетт, Челси Хоббс, Шон Тайсон, Далиас Блейк, Грегори Харрисон, Тоня Ли Альберс, Элисон Арая, Дженнифер ЧжонПеревод: Любительский одноголосый (mi24)Субтитры: ОтсутствуютПродолжительность: 01:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13082EB8B328AE41933159E396A588A5E8ACFF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973576   (979055) от 09.01.2016
+
+45 лет / 45 Years  (2015) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт и Джефф Меркеры готовятся отметить 45-летнюю годовщину свадьбы. Они так давно вместе и так близки друг другу, что кажется, будто прожили одну жизнь на двоих. Но оказалось, что это не так. Кейт не знала, что за несколько лет до встречи с ней у Джеффа была другая любимая. Во время их путешествия в Швейцарских Альпах она погибла, сорвавшись со скалы. И вот теперь, (   Читать дальше...   )Производство: Великобритания, The BureauЖанр: драма, мелодрамаРежиссер: Эндрю ХэйАктеры: Шарлотта Рэмплинг, Том Кортни, Джеральдин Джеймс, Долли Уэллс, Ричард Каннингэм, Ханна Чалмерс, Руфус Райт, Мишель Финч, Дэвид Сибли, Сэм Александр, Макс РаддПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05EB8EFFA524906CCF99DCEFD5FC7A89087A084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973744   (979054) от 09.01.2016
+
+Парни из Джерси / Jersey Boys (2014) BDRip [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм является биографией группы The Four Seasons. Он рассказывает об их развитии, о пережитых личных столкновениях и трудных временах, и окончательном триумфе группы друзей, чья музыка стала символом целого поколения.Производство: США / Four Seasons Partnership, GK Films, Malpaso Productions, RatPac Entertainment, RatPac-Dune Entertainment, Warner Bros. PicturesЖанр: Драма, биография, музыкаРежиссер: Клинт ИствудАктеры: Джон Ллойд Янг, Эрих Берген, Майкл Ломенда, Винсент Пьяцца, Кристофер Уокен, Стив Ширрипа, Кэтрин Нардуччи, Лу Волп, Джонни Канниццаро, Майкл Патрик МакГиллПеревод: Профессиональный многоголосый, закадровыйЯзык субтитров: АнглийскийПродолжительность: 02:14:17Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D1C32EF82DCC6D0D00CD3B9E87B9312B142E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973711   (979053) от 09.01.2016
+
+CorelCAD 2016 (16.0.0.1079) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программный пакет CorelCAD — это мощное и доступное решение для САПР, предлагающее высокоточный инструментарий для создания на компьютере двухмерных чертежей и трёхмерных моделей. CorelCAD поддерживает весь стандартный функционал решений для САПР и обеспечивает расширенную совместимость с форматом файлов .DWG. CorelCAD — отличное решение для реализации проектов любой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2015Разработчик: CorelПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59ED760DEAB6482018729C49D70FB2CA64285238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973239   (979052) от 09.01.2016
+
+Avril Lavigne - The Best Damn Thing (2007) [FLAC|Lossless|image + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Girlfriend (03:38)
+02 I Can Do Better (03:18)
+03 Runaway (03:49)
+04 The Best Damn Thing (03:11)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C920904509A8CB38128333464FA59565B0E07F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973582   (979051) от 09.01.2016
+
+Котики, вперёд! (2012-2015) WEB-DL [H.264/720p] (32 серий + бонусы)
 
 >>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+>>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67525.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О приключениях игрушек перед подготовкой новогодней елки.Производство: СССР / МосфильмЖанр: кукольный, короткометражный, детскийРежиссер: Вячеслав ЛевандовскийСубтитры: отсутствуютПродолжительность: 00:13:04
+Главные персонажи мультфильма — малыши Катя и Котя и их родители. Катя — непоседа, которая старается всё делать не по правилам, а Котя, как старший брат, более ответственный и серьёзный, но при этом любит поспорить. Все споры малышам помогают разрешать их добрые родители, а в волшебной коробке с игрушками, где даже самые смелые фантазии становятся реальностью, маленькие (   Читать дальше...   )Производство: Россия / студия "Toonbox"Жанр: Мультсериал, Детский, Обучающий, ПознавательныйРежиссер: Владимир ПономарёвАктеры: Слава Кагарманов, Алиса Ландер, Олег Щербинин, Юлия Яблонская, Джейкоб Клеман, Люси Джексон, Grace Gonglewski, Buck Schrirner, Chloe BernardeteПродолжительность: Серия по ~ 00:05:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47CF154552C61C232B775E36FE594991B108B102
+magnet:?xt=urn:btih:C14E177927D16BEAEAD1A2E3BE11BF1CB0D261C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

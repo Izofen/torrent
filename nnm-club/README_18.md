@@ -1,25 +1,22 @@
-###  Публикация: 1820359   (502) от 27.09.2025
+###  Публикация: 1852863   (1056562) от 12.02.2026
 
-VA - 60 minutes. Old School Dance Music vol.26 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Piano House, Latin House, Progressive House>
+В.М. Фомичев | Сборник задач по криптологии (2019) [PDF]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_502.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01-Supafly vs Fishbowl - Let's Get Down (Warren Clarke Main Mix)
-02-Aaron Smith Feat. Luvli - Dancin (PHNTM Groovy Dub Mix)
-03-Dr. Kucho! feat. Jodie - Belmondo Rulez 2.0 (It's All About You) (Bob Sinclar club mix)
-04-Casanovy - I Need Your Lovin (Milk & Sugar Rmx)(   Читать дальше...   )Жанр: Club House, Piano House, Latin House, Progressive HouseПродолжительность: 01:01:09
+Сборник содержит типовые задачи по криптологии, опирающиеся на базовые знания из дискретной математики, теории сложности алгоритмов и теории вероятностей. Выборочно даны ответы на вопросы, поставленные в задачах, в некоторых случаях - с комментариями, указывающими на способ решения задачи. Материалы сборника предназначены для использования при проведении семинарских (   Читать дальше...   )Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5B668ED6481C7B0CDA1B532D8B6A4FDE5DE43B6
+magnet:?xt=urn:btih:C55D1D2381B3D1D88D1D2D94749BB583A42CFD5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820321   (503) от 27.09.2025
+###  Публикация: 1852862   (1056561) от 12.02.2026
 
-Книжная серия | В библиотеку школьника [4 книги] (1955-1958) [PDF]
+А.В. Помазанов | Защита информации от утечки по техническим каналам. Учебное пособие (2024) [PDF]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_503.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия книг "В библиотеку школьника" представляет собой коллекцию хрестоматийных произведений о Великой Отечественной Войне, включённых в программы начальной и средней школы, а также рекомендованных для внеклассного чтения, и нацелена на гармоничное развитие личности школьника в соответствии с образовательными стандартами.Жанр: военная проза, разведкаИздательство: ДОСААФФормат: PDFКачество: OCR
+Изложены принципы построения устройств и методы защиты информации от утечки по техническим каналам. Приводятся классификация технических каналов утечки информации и современные технические средства защиты информации. Рассматривается место и роль современных комплексов радиомониторинга в системах технической защиты информации.Жанр: Компьютерная литература, КриптографияИздательство: Издательство Южного федерального университетаФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1260A2B8013772BD4087C547FB936477D2D8D5ED
+magnet:?xt=urn:btih:E25ED0B38B6491749EE8C220AC75B0A7CD2A425E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820464   (504) от 27.09.2025
+###  Публикация: 1852861   (1056560) от 12.02.2026
 
-Следствие вели... (27.09.2025) WEBRip [H.264/1080p]
+Г.А. Емельянов | Цифровая безопасность личности (2025) [PDF]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_504.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«СЭР». 1991 год. В Волгограде один за другим гибнут подростки. Кто превратил крышу в место кровавых расправ — маньяк, сумасшедший или поклонник Сатаны? Какую роль в этом деле сыграли работник ЖЭКа и советское радушие? И при чем тут старый холодильник и роман о Дракуле?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:07
+Данное издание представляет сборник практических советов по цифровой (кибер), финансовой и, частично, информационной безопасности физического лица (личности), персональных электронных устройств (как мобильных, так и стационарных), обеспечения безопасности, приватности, конфиденциальности и анонимности пользователя, а также сохранности данных в целостности и доступности.Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71322010CD20D46548FB179730D8662B23ACB171
+magnet:?xt=urn:btih:D32A203EC168BF9CB4E5752923A83121356A51AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +76,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820427   (505) от 27.09.2025
+###  Публикация: 1852860   (1056559) от 12.02.2026
 
-Неизвестный солдат (1984) DVDRip [H.264] (серии 1-3 из 3)
+Dominik Tornow | Think Distributed Systems (2025) [PDF] [EN]
 
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_505.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не попав в институт, Сергей Крашенинников приезжает к деду в небольшой городок и начинает работать в дорожной строительной бригаде. В ходе работ строители обнаруживают солдатскую могилу. Сергею поручают выяснить личность погибшего. Он начинает поиск...Производство: СССР / ТО "Экран"Жанр: Киноповесть, драма, экранизацияРежиссер: Григорий Аронов, Вадим ЗобинАктеры: Василий Фунтиков, Николай Гринько, Людмила Новосёлова, Роберт Спиричев, Юрий Оськин, Иван Шабалтас, Игорь Класс, Павел Белозёров, Артур Богатов, Эрнст Романов и дугиеСубтитры: отсутствуютПродолжительность: ~ 01:09:00 серия
+Reason confidently about distributed systems.
+
+Distributed systems are complex—but they’re also everywhere in modern software. A fuzzy understanding of how distributed systems work is no longer an option. Think Distributed Systems helps you develop clear and dependable mental models of distributed systems, so you can reason about complex problems with confidence. (   Читать дальше...   )Жанр: Client-Server Networking Systems,  Computer Systems Analysis & Design, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:631102059ABB2BBA6F88D6134EE298BFE9FC7E43
+magnet:?xt=urn:btih:8FB09F2BEF6C83DC18C8027AE9F2BDA8E13D4DDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,26 +104,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820380   (506) от 27.09.2025
+###  Публикация: 1852858   (1056558) от 12.02.2026
 
-Сергей Писарев | Приключения Семена Поташова (1961) [PDF]
+Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Компьютерная литература
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_506.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Занимательная повесть о жизни русского Севера в начале XVIII века является захватывающей историей о жизни на русском Севере того времени.
-Повесть повествует о молодости помора Семена Поташова, который едва не попал в монахи Соловецкого монастыря, участвовал в походе с Петром I по "государевой дороге", был на строительстве Санкт-Петербурга, отыскал свою (   Читать дальше...   )Жанр: приключения, детская литература, историяИздательство: ДетгизФормат: PDFКачество: Обработанный скан (600 dpi) + OCR
+Just the Docker you need to know in 22 bite-sized lessons!
+
+In Learn Docker in a Month of Lunches, Docker expert Elton Stoneman guides through everything you need to know about Docker in 22 short lessons you can complete on your lunch break. This freshly-revised bestseller has been updated for modern tools and the latest versions of Linux, Windows, or Mac, with new (   Читать дальше...   )Жанр: Software Design & Engineering, Cloud Computing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4139DFD15D2CE4A42DB0F44EBF4EE5B39DA781EB
+magnet:?xt=urn:btih:E53E5479E5F8C5FDFC1F342F01207F70588226FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,26 +132,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820230   (507) от 27.09.2025
+###  Публикация: 1852857   (1056557) от 12.02.2026
 
-Игорь Лахов | Б.Г. (Книга 4). Коды доступа (2025) [MP3, Андрей Кузнецов]
+Chris Zetter | Build a Database Server. Learn how real databases work by following this practical guide to building your own (2025) [PDF, EPUB] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_507.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Финальная книга приключений Макса и Такса в Российской Империи!
-Пора найти ответы на все вопросы. Но кто знал, что от этого их меньше не станет.Жанр: Фантастика, фэнтези, попаданцыИздательство: АРДИСПродолжительность: 11:40:46
+Learn how real databases work by following this practical guide to building your own in a programming language of your choice.
+Build a language from scratch- Create an interpreter that can parse, type check and run SQL queries. Start with running simple queries and build up to more complex ones.
+Learn SQL (the fun way) - Gain a deeper understanding of SQL. Cover (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2F629BC6CCC9ABB52DABA6C818DF9C859CEA578
+magnet:?xt=urn:btih:5461CF17A782182A57708A11FD0C66B8F7C4497F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,25 +160,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820277   (508) от 27.09.2025
+###  Публикация: 1852856   (1056556) от 12.02.2026
 
-Виктор Молотов, Алексей Аржанов | Придворный Медик (Том 1) (2025) [MP3, Сергей Кальницкий]
+Adarsh Divakaran | Deep Dive Python. Techniques and Best Practices for Developers (2025) [PDF] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_508.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В прошлой жизни я был гениальным диагностом. В этой меня зовут Павел Булгаков. Я очнулся в этом мире с перерезанным горлом. Семью предшественника убили. Устроился помощником Лекаря в Больницу Его Величества, но наёмники достают меня и здесь. Они хотят закончить начатое... А в клинике каждый первый играет в свои игры. И втягивает в них меня. Хотелось просто лечить (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 09:09:18
+Take your programming skills to the next level by expanding real-world Python applications in open-source code. This book is an essential guide for experienced developers looking to enhance their Python proficiency.
+
+Using code examples from popular open-source projects you’ll master Python concepts and see how they are applied in production-level code. By understanding (   Читать дальше...   )Жанр: Object-Oriented Design, Python Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Apress MediaФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A8D6DDDFDD3725A5B48C25CB7888EE650EF9E16
+magnet:?xt=urn:btih:562B6FEFA631BBF532163046E69905E69FE4CDF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,25 +188,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820484   (509) от 27.09.2025
+###  Публикация: 1852855   (1056555) от 12.02.2026
 
-Дикая Вена / Wild Vienna (2024) HDTVRip [H.264/720p] [VO]
+Hillel Wayne | Logic for Programmers (2025) [PDF, EPUB] [EN]
 
->>Документалистика и Телепередачи
->>Живая природа
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_509.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вена - один из самых биологически активных городов мира; дикая природа процветает во дворцах, церквях и садах города, а остров на Дунае служит как для борьбы с наводнениями, так и для отдыха.Производство: Австрия | Terra Mater Studios, NDR Naturfilm, DoclightsЖанр: документальный, природаРежиссер: Мартин МесарошПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 00:52:30
+Logic is the most important branch of math to software engineering. Knowing logic opens up a vast world of development techniques, from everyday tricks of the trade to exotic tools for cracking impossible tasks.
+This book teaches the basics of logic and nine special logic-powered techniques: property testing, decision tables, constraint solving, and more. Over 40 (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F9B82E9457C5149AF399231639AC5134DF9D0C8
+magnet:?xt=urn:btih:9037D6999B60FCDDCA7F8F6B6C37BF2619BBF2BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -211,26 +215,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820355   (510) от 27.09.2025
+###  Публикация: 1852854   (1056554) от 12.02.2026
 
-Иосиф Ликстанов | Зелен камень (1949) [PDF]
+Florent Poux | 3D Data Science with Python. Building Accurate Digital Environments with 3D Point Cloud Workflows. 1st Edition (2025) [PDF, EPUB] [EN]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_510.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Зелен камень" Иосифа Ликстанова — это повесть, действие которой происходит на Урале после войны, и она повествует о поисках ценного минерала уралита, необходимого для скоростных плавок.
-Действие романа происходит после войны. Под руководством умных, увлеченных делом инженеров организуются поиски уралита. Люди терпят всевозможные лишения, преодолевают физические (   Читать дальше...   )Жанр: приключения, детектив, геология, горнорудное делоИздательство: ДетгизФормат: PDFКачество: OCR
+Our physical world is grounded in three dimensions. To create technology that can reason about and interact with it, our data must be 3D too. This practical guide offers data scientists, engineers, and researchers a hands-on approach to working with 3D data using Python. From 3D reconstruction to 3D deep learning techniques, you'll learn how to extract valuable insights (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Computer SoftwareЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5EFEDF29E4E066720FADFD7CBF991A941C8FA7F
+magnet:?xt=urn:btih:140D70FDE5FB6C281043128AB4031C66AE29FC00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +241,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820226   (511) от 27.09.2025
+###  Публикация: 1853341   (1056553) от 12.02.2026
 
-Игорь Лахов | Б.Г. (Книга 2). Чистильщик (2024) [MP3, Андрей Кузнецов]
+Хищник: Планета смерти / Predator: Badlands (2025) UHD BDRip [H.265/1080p] [HDR10, Dolby Vision Profile 7.6, 10-bit]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_511.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первые шаги сделаны. Барон Гольц потихонечку обживается в Российской Империи с помощью семьи Достоевских и, естественно, неутомимого Такса. Но проблем меньше не становится. Значит, что? Значит, опять фиг знает что! Недоверчивая СБ, новые-старые враги, а также долбанутые друзья и сослуживцы спать спокойно не дают. Отоспимся на том свете, а пока в бой!Жанр: Фантастика, фэнтези, попаданцыИздательство: АРДИСПродолжительность: 09:12:11
+В глазах воинственного отца молодой хищник Дек — полное ничтожество и позор клана. Отец приказывает старшему сыну убить его, но тот ценой собственной жизни спасает брата и отправляет его на населённую агрессивными тварями планету Генна. Там Дек встречает располовиненную девушку-андроида Тию, некогда прибывшую сюда в составе экспедиции с Земли, и, чтобы доказать отцу (   Читать дальше...   )Производство: США, Австралия, Новая Зеландия, Канада, Германия / 20th Century Studios, TSG Entertainment, Deutsche FilmakademieЖанр: фантастика, боевикРежиссер: Дэн ТрахтенбергАктеры: Эль Фаннинг, Димитриус Коломатанги, Рави Нарайан, Майкл Хомик, Стефан Грубе, Рубен Де Йонг, Камерон Браун, Элисон Райт, Мэтт Даффер, Росс ДафферПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:47:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:761B3F054E3A294000C4338DB87EE87B2841CE34
+magnet:?xt=urn:btih:8D62B9EB56331D5A7D853A5E9276AD0FA641D43E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,27 +267,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820328   (512) от 27.09.2025
+###  Публикация: 1852853   (1056552) от 12.02.2026
 
-Петр Капица | Они штурмовали Зимний (1957) [PDF]
+Малькольм Макдональд | Грокаем безопасность веб-приложений (2025) [PDF]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_512.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие повести охватывает период от февраля 1917 года - к октябрю. Героями ее являются молодые рабочие «Путиловца» - Вася Кокорев, Дема Рыкунов;
-девушка с Выборгской стороны - Катя Алешина; моряки с «Авроры», кронштадтские матросы.
-В повести рассказывается о том, как партия большевиков накапливала силы для завершения революции, о встречах с В. И. Лениным, расстреле (   Читать дальше...   )Жанр: революция, детская литератураИздательство: ДетгизФормат: PDFКачество: OCR
+Безопасность приложений — приоритетная задача для веб-разработчиков. Вы работаете над интерфейсом фронтенд-фреймворка? Разрабатываете серверную часть? В любом случае вам придется разбираться с угрозами и уязвимостями и понимать, как закрыть, дырки через которые хотят пролезть черные хакеры.
+Здесь вы найдете все, что нужно практикующему разработчику для защиты приложений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:278A940A2300711DFC7E8C2472EA3CDE441CFB05
+magnet:?xt=urn:btih:9F70911515AFC9D06812E1E010020046C3971335
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,26 +294,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820248   (513) от 27.09.2025
+###  Публикация: 1852852   (1056551) от 12.02.2026
 
-Кирилл Клеванский | Матабар (Книга 3) (2025) [MP3, Сергей Уделов]
+Йоаким Сунднес | Python. Системный анализ данных, расчеты и моделирование (2025) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_513.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ардан Эгобар постепенно обживается в новой для себя обстановке. Позади остался проклятый дом на пятой улице Бальеро вместе с перестрелкой на складе номер шесть, грабежом поезда, сотрудничеством со второй канцелярией и, что даже страшнее – экзаменами первого семестра.
-Что впереди? Кажется – лишь еще больше проблем. Демонологи, заговоры, свидание с Тесс и кто знает, (   Читать дальше...   )Жанр: ФэнтезиИздательство: ЛитРесПродолжительность: 23:19:30
+Перед вами подробное руководство по применению в научных целях Python - современного и наиболее востребованного языка программирования. Его преимущество заключается в том, что это так называемый язык высокого уровня с простым и интуитивно понятным синтаксисом. Однако несмотря на то, что Python хорошо подходит в качестве языка для начинающих, он также активно применяется (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1990A4B0F1332786711C8E2E8B1D583E5FA240B
+magnet:?xt=urn:btih:74DF7B2333A18A11D6582A17B2A45DFE8548321D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,27 +320,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820364   (514) от 27.09.2025
+###  Публикация: 1852851   (1056550) от 12.02.2026
 
-Главная дорога (27.09.2025) WEBRip [H.264/720p]
+Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Programming for Humans. 3rd Edition (2025) [PDF, EPUB] [EN]
 
->>Документалистика и Телепередачи
->>За рулем
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_514.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сон за рулем и смертельное столкновение, сомнительная популярность блогера в «форме», невидимый пешеход посреди ночной дороги и камнепад против Никиты Кологривого.
- Ремонт дороги под камерой и поток штрафов для водителей: какие препятствия нельзя объезжать и чем рукотворная яма отличается от природной.
- Щит для стекла: антидождь — защита ветрового стекла или средство (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+Your Python code may run correctly, but what if you need it to run faster? This practical book shows you how to locate performance bottlenecks and significantly speed up your code in high-data-volume programs. By explaining the fundamental theory behind design choices, this expanded edition of High Performance Python helps experienced Python programmers gain a deeper (   Читать дальше...   )Жанр: Computer Performance Optimization, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1FDB45F11CAF38285812AD0B4268FE85C70E68F
+magnet:?xt=urn:btih:1C95BD1500740C3DF127BCBD18AC632C3EE40240
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,25 +346,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820501   (515) от 27.09.2025
+###  Публикация: 1852850   (1056549) от 12.02.2026
 
-Дмитрий Ромов | Союз-77 (Книга 1). Теория заговора (2025) [MP3, Алексей Бояджи]
+Laurence Moroney | AI and ML for Coders in PyTorch. A Coder's Guide to Generative AI and Machine Learning (2025) [PDF, EPUB] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_515.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не ожидал я что когда-то ещё попаду в такой водоворот событий. С первых же дней новой молодости всё завертелось в таком темпе, что даже и вздохнуть некогда. Приключения, опасности, Ангола, КГБ, МВД…. Я отдал всю жизнь разведке и ушёл на заслуженный отдых. Меня ждали дача, таблетки, шахматы и другие радости "золотого возраста". И всё так бы и случилось, (   Читать дальше...   )Жанр: Фэнтези, попаданцы, приключенияИздательство: ЛитРесПродолжительность: 12:58:14
+Eager to learn AI and machine learning but unsure where to start? Laurence Moroney's hands-on, code-first guide demystifies complex AI concepts without relying on advanced mathematics. Designed for programmers, it focuses on practical applications using PyTorch, helping you build real-world models without feeling overwhelmed.
+From computer vision and natural language (   Читать дальше...   )Жанр: Generative AI, Microsoft Programming, Python ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0F086508541115D49CC3920DF2EA8E631418B80
+magnet:?xt=urn:btih:C690ABDA5B4AB21DF9CC72837C4D3E05D432BD3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +373,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820373   (516) от 27.09.2025
+###  Публикация: 1852849   (1056548) от 12.02.2026
 
-Сергей Писарев | Василий Корчмин - разведчик земли ижорской (1965) [PDF]
+Alireza Parandeh | Building Generative AI Services with FastAPI. A Practical Approach to Developing Context-Rich Generative AI Applications. 1st Edition (2025) [PDF, EPUB] [EN]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_516.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основу повести легли необычайные приключения Василия Корчмина.
-Повесть рассказывает о действительных исторических событиях.
-Петр Первый поручил поручику Преображенского полка Василию Корчмину дело очень важное
-и опасное - разведку неприятельских крепостей Ниеншанц и Нотебург, стоявших на реке Неве.(   Читать дальше...   )Жанр: приключения, история, война со шведамиИздательство: Детская литератураФормат: PDFКачество: OCR
+Ready to build production-grade applications with generative AI? This practical guide takes you through designing and deploying AI services using the FastAPI web framework. Learn how to integrate models that process text, images, audio, and video while seamlessly interacting with databases, filesystems, websites, and APIs. Whether you're a web developer, data scientist, (   Читать дальше...   )Жанр: Web Services, Generative AI, Software DevelopmentЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DF35B8B78BADF9C57AE0B979C5A29244B6263A0
+magnet:?xt=urn:btih:81DBB6003DA9A422AE3FE31039A465578E97BAE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,25 +399,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820482   (517) от 27.09.2025
+###  Публикация: 1852848   (1056547) от 12.02.2026
 
-Юрий Юрьев | Экстрасенс. За всё надо платить (2025) [MP3, Тимофей Романов]
+Bartosz Konieczny | Data Engineering Design Patterns. Recipes for Solving the Most Common Data Engineering Problems. 1st Edition (2025) [PDF, EPUB] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_517.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прожив много лет, я так и не узнал, что же это был за старик, который наделил меня таким необычным даром. Еще в детстве побывав неизвестно где, я вдруг обнаружил, что могу читать мысли людей, угадывать номера в лотерее спортлото, лечить болезни… Многие могут подумать, что это здорово. Но вы задумывались, например, как будет чувствовать себя твоя девушка, если узнает, (   Читать дальше...   )Жанр: фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 09:07:10
+Data projects are an intrinsic part of an organization's technical ecosystem, but data engineers in many companies continue to work on problems that others have already solved. This hands-on guide shows you how to provide valuable data by focusing on various aspects of data engineering, including data ingestion, data quality, idempotency, and more.
+
+Author Bartosz (   Читать дальше...   )Жанр: Data Warehousing, Data Processing, Data Modeling & DesignЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35C5ED1F16B1740571702EEF4A6BBC598CF7D715
+magnet:?xt=urn:btih:4F246461EB2E1CA02248C98133CED1064D6C79B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,28 +427,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820352   (518) от 27.09.2025
+###  Публикация: 1852847   (1056546) от 12.02.2026
 
-Gypsy's Kiss - Piece By Piece (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Antonio Di Cecco, Leonida Gianfagna | Explainable AI with Python. Second Edition (2025) [PDF, EPUB] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_518.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. War Of The World 05:07
-02. Yes Yes Yes 05:45
-03. Spirit Of Lost Years 04:13
-04. One Way Street 04:16(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:26
+This comprehensive book on Explainable Artificial Intelligence has been updated and expanded to reflect the latest advancements in the field of XAI, enriching the existing literature with new research, case studies, and practical techniques.
+
+The Second Edition expands on its predecessor by addressing advancements in AI, including large language models and multimodal (   Читать дальше...   )Жанр: Python Programming, Probability & Statistics, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: SpringerФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98E808D8B5014D35A4CB9C700679948798D1B202
+magnet:?xt=urn:btih:FC3BD67FFD617AC2E6B7D43DFF8222C1BB1E89B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,28 +455,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820506   (519) от 27.09.2025
+###  Публикация: 1852846   (1056545) от 12.02.2026
 
-Сергей Харченко | РОС: Не злите драконов! (Книга 1). Возрождение Дракона (2024) [MP3, Сергей Кузин]
+Matt Frisbie | Building Browser Extensions. Create Modern Extensions for Chrome, Safari, Firefox, and Edge. Second Edition (2025) [PDF, EPUB] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_519.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Раньше я был в шаге от звания Верховного мага. Но был предан и низвержен.
-Сейчас — сирота, погрязший в долгах, почти потерявший фамильный бизнес и отбивающийся от жестоких убийц.
-Да, это не самый идеальный старт.
-Но я отомщу за каждого погибшего члена семьи и не дам врагам ни единого шанса.(   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 11:22:30
+This book is the definitive guide to building modern browser extensions, covering everything from fundamental concepts to advanced techniques.
+
+Developing a browser extension is more like building a mobile app than a traditional website. Extensions operate within a unique environment with their own security model, lifecycle, and APIs. This book demystifies the process, (   Читать дальше...   )Жанр: Software Design & Engineering, Software Development, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF208B1D07BE90338C5479F300B9A9B2562952CD
+magnet:?xt=urn:btih:34FD1754784DDF44951DD205F9A8DBF2D14A70FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,26 +483,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820322   (520) от 27.09.2025
+###  Публикация: 1852844   (1056544) от 12.02.2026
 
-Всеволод Вишневский | Война (1956) [PDF]
+Satej Kumar Sahu | Building Secure PHP Applications. A Comprehensive Guide to Protecting Your Web Applications from Threats. First Edition (2024) [PDF, EPUB] [EN]
 
->>Художественная литература
->>Приключенческая проза
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_520.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Описываемый в романе временной период охватывает 1912-1917 годы существования Российской империи.
-Каждая глава включает в себя год жизни страны: с 1912-го по 1917-й: проводы новобранца из рабочей среды в армию; заводской цех, в котором изготовляют оружие, балансы доходов заводчика и картины человеческого страдания; ложное обвинение рабочего в краже и его самоубийство; (   Читать дальше...   )Жанр: Военная проза, Первая мировая война, революция, драмаИздательство: ВоениздатФормат: PDFКачество: OCR
+Learn how to protect PHP applications from potential vulnerabilities and attacks. As cyberattacks and data breaches continue to rise, it's crucial for developers and organizations to prioritize security in their PHP applications. The book offers an all-encompassing guide to securing PHP applications, covering topics ranging from PHP core security to web security, (   Читать дальше...   )Жанр: Computer Network Security, Computer Programming Languages, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80011197F609855C8EF330908CCEA0573E6BCFA7
+magnet:?xt=urn:btih:909CB76401B6201065CAE69F74E8D0AFCC72AA31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,27 +509,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820394   (521) от 27.09.2025
+###  Публикация: 1852843   (1056543) от 12.02.2026
 
-Николай Якутский | Искатели алмазов (1962) [PDF]
+Shailendra Kadre, Shailesh Kadre, Subhendu Dey | Mastering Text Analytics. A Hands-on Guide to NLP Using Python. First Edition (2025) [PDF] [EN]
 
->>Художественная литература
->>Приключенческая проза
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_521.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повесть Николая Якутского «Искатели алмазов» воссоздает историю одного из самых поразительных и выдающихся открытий советских геологов.
-В повести дана обобщенная картина трудных и долгих поисков, завершившихся открытием якутских алмазоносных месторождений.
-На фоне «охоты» геологов за алмазами писатель показывает несколько поколений ученых, преемственность славных (   Читать дальше...   )Жанр: Геология, приключенияИздательство: Советская РоссияФормат: PDFКачество: OCR
+This book is a comprehensive guide to mastering Natural Language Processing (NLP), a rapidly growing field in AI-powered text and data analytics. It equips you with tools and techniques to extract valuable insights from both structured and unstructured data, enabling you to uncover insights beyond the reach of traditional data analysis methods and stay competitive (   Читать дальше...   )Жанр: Python Programming, Probability & Statistics, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1175D12EA09B597DFB43C9B6D41250540560265C
+magnet:?xt=urn:btih:E9EEC98A823DDC77B5E1AC92D54F56F007E37245
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,25 +535,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820476   (522) от 27.09.2025
+###  Публикация: 1853343   (1056542) от 12.02.2026
 
-Эдмонд Гамильтон | Звёздные короли (Книги 1-4 + бонус) (2025) [MP3, Егор Партин]
+MediaHuman YouTube Downloader 3.9.18 (1202) (x64) [Multi/Ru]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_522.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фантастико-романтический триллер 1947 года, одна из первых «космических опер». Герой серии, Джон Гордон, совершает путешествие во времени из XX века в далёкое будущее, где принимает активное и успешное участие в межзвёздных баталиях между демократическим миром Империи и злобными тираниями. Наградой ему служит любовь очаровательной принцессы Лианны.Жанр: Фантастика, приключенияИздательство: АзбукаПродолжительность: 19:32:21
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:039DD0F916A124BA9C9A1630017FE952F605E82B
+magnet:?xt=urn:btih:693C8DFAA89FDA221DC9F06475438F2E439D285E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,25 +561,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820382   (523) от 27.09.2025
+###  Публикация: 1852842   (1056541) от 12.02.2026
 
-Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
+Юрий Чернов | Искусство Agile-тестирования (2024) [PDF]
 
->>Win Игры
->>Strategy (RTS/TBS/Grand)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_523.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+Книга посвящена тестированию программного обеспечения в рамках технологии Agile. Рассматриваются основные аспекты Agile-тестирования: методология, организация, процессы, категории и техники тестирования, инфраструктура, тестовое обеспечение, контроль качества данных. Отдельные главы посвящены психологии Agile-тестирования и особенностям работы тестировщика в Agile-команде. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA707B903BEDCC2DCF2D793AF88D36A59AD3F21F
+magnet:?xt=urn:btih:0814CC565100BDB8FC61A269A18F49638EB443A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,25 +587,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820217   (524) от 27.09.2025
+###  Публикация: 1852841   (1056540) от 12.02.2026
 
-Пресеты - Creative Market - Morning in Prague - 698405 [LRTEMPLATE]
+В.Ю. Арьков | Частотный анализ числовых и текстовых данных. Учебное пособие (2023) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_524.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обязательно используйте эти пресеты для RAW-файлов. Вы всё равно можете использовать их для JPG-снимков, но изначально эти настройки созданы для RAW-формата.Формат: LRTEMPLATE
+Данная работа посвящена применению современных методов и технологий больших данных в курсе бизнес-аналитике и статистики. Анализ частоты появления различных значений — один из способов первоначальной обработки данных. Чаще всего его относят к описательной статистике или аналитике. Подсчет частот имеет отношение распределению. Поэтому для успешного восприятия материала (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2A79208901B3C1F016EF72410110578EEEF5FF5
+magnet:?xt=urn:btih:397B1A32562627BFA2B658F331F8C14F14A25931
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,25 +613,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820360   (525) от 27.09.2025
+###  Публикация: 1852840   (1056539) от 12.02.2026
 
-Абрам Палей | Остров Таусена (1948) [PDF]
+Валерий Рябинин | База про нейросети (2025) [PDF]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_525.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Внимание журналиста Гущина привлекает заметка в газете "Ильинская звезда". В ней говорится об удивительной утке, почти полностью лишенной оперения, якобы подстреленной и принесенной в редакцию местным охотником. Что это? Причудливая игра природы или очередная мистификация? Журналист сообщает о заметке своему другу Юрию Цветкову — ученику и ассистенту академика (   Читать дальше...   )Жанр: фантастика, приключения, биология, медицинаИздательство: ДетгизФормат: PDFКачество: OCR
+Эта книга для всех, кто хочет понимать происходящее и не остаться в стороне от главной технологической трансформации нашего времени. Простым и доступным языком мы расскажем, как устроены нейронные сети, почему они стали такими мощными именно сейчас и как вы можете использовать их уже сегодня — в работе, учебе и повседневной жизни. Никаких сложных формул и программирования (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: СамиздатФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8656F69B92AF12E83840A70F40C5F96AD9A1EB7
+magnet:?xt=urn:btih:8EF16A6FFF4C633DD6E22235FD2775DF38391F8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,28 +639,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820337   (526) от 27.09.2025
+###  Публикация: 1852839   (1056538) от 12.02.2026
 
-VA - Best Piano Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+Сергей Тарасевич | Искусственный интеллект. Основное (2024) [PDF]
 
->>Классика
->>Фортепиано (Lossless)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_526.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:28)
-02. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight II. Allegretto (2:10)
-03. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight III. Presto agitato (8:07)
-04. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:15:10
+Книга для начинающих пользователей искусственного интеллекта.
+Цель книги - быстро дать начальные знания об искусственном интеллекте, захватывающей и перспективной теме и знания для начала использования его в работе и жизни. Книга написана простым и понятным языком.
+В книге используются актуальные на сегодняшний день термины в программировании и науке. В дальнейшем, (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: СамиздатФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CD8033DEFFA9A48761FC36BB90E7CA1CAFCC98D
+magnet:?xt=urn:btih:73D91E78FFE1139E5BCA7561B2B2A0044C43F472
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,25 +667,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820391   (527) от 27.09.2025
+###  Публикация: 1852838   (1056537) от 12.02.2026
 
-Михаил Прудников | Дальний билет (1983) [PDF]
+Д.Ю. Петров, Е. Окорокова | Японский язык. 16 уроков. Базовый курс (2024) [PDF]
 
->>Художественная литература
->>Приключенческая проза
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_527.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О трудной и почетной службе чекистов в годы Великой Отечественной войны рассказывает автор в своей повести. Герои ее - разные по характеру и привычкам люди, но их объединяет одно общее чувство беззаветной любви к Родине, высокой ответственности за выполнение воинского и гражданского долга.Жанр: военные приключения, разведкаИздательство: ВоениздатФормат: PDFКачество: OCR
+Это серия самоучителей от знаменитого полиглота и синхронного переводчика Дмитрия Петрова. Он уверен: чтобы заговорить на иностранном языке, совсем не обязательно посвящать его изучению десятилетия. Гораздо важнее освоить базовые алгоритмы плюс минимально необходимый для общения запас слов.
+И все это вполне возможно сделать за 16 уроков, что сам Дмитрий Петров много (   Читать дальше...   )Жанр: Языки, самоучителиИздательство: ЭксмоФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A3A97C5E8A89187310EFEA9267A706AEE2004AB
+magnet:?xt=urn:btih:441A193D0DDF22722F1B5967F8EA311816DFE166
 ```
 
 https://mybot314.ru/tekegram_catalog/

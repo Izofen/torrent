@@ -1,25 +1,25 @@
-###  Публикация: 1091137   (943235) от 09.01.2017
+###  Публикация: 1764076   (102777) от 05.12.2024
 
-VA - Pure Trance Moments Winter (2016) [MP3|320 Kbps] <Dance, Club, Electro>
+The Weekend Blues Band - Misunderstood (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943235.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Andy Moor & Michele C - We Can Be Free (Alex Ender Extended Mix) 6:28
-002. Craft Integrated & Naian - Parsec (Extended Mix) 7:43
-003. Alex Wright & Falcon - Hawkeye (Extended Mix) 7:18
-004. Johnny Yono - M87 (Extended Mix) 5:36(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 11:15:09
+01. Cosmic Lounge Blues (3:40)
+02. Guilty of Love (3:48)
+03. Misunderstood (4:01)
+04. Too Nice to Rock (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51820B892C8F87983E724CC7D49DB0A7A5A28EDC
+magnet:?xt=urn:btih:676ED28EDB957093FA4049B87B78B6557111E92E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,287 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091435   (943237) от 09.01.2017
+###  Публикация: 1764118   (102776) от 05.12.2024
 
-Duke Jordan - Double Jordan (1979) 2CD, 1997, SteepleChase[APE|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+Page 99 - 99.3 FM (2024) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Westcoast, Yacht Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Did You Mean That (3:57)
+02. Healing Waters (4:53)
+03. Fool (3:56)
+04. In My Imagination (3:31)(   Читать дальше...   )Жанр: AOR, Westcoast, Yacht RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6634A8A2A13622A4B2A099C7AE64CFE1841FF427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764094   (102775) от 05.12.2024
+
+VA - Future Sounds. EDM 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - My Focus Is You (03:52)
+02. TEKTRONIC - Romdom (03:00)
+03. MaxRiven - Loveparade (02:24)
+04. JLUIS - Paradise (03:06)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FD422BACFD464E63E7621D2D427A62D78BD24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764142   (102774) от 05.12.2024
+
+Intronaut - Studio Albums (7 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Post-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intronaut — американская прогрессив-метал-группа из города Лос-Анджелес, штат Калифорния.
+Их стиль можно охарактеризовать как прогрессив-метал с элементами психоделии, дэт-метала, джаза, индийских, африканских и афро-латинских ритмов.2006 - Null (EP)
+2006 - Void
+2008 - Prehistoricisms
+2010 - Valley Of Smoke(   Читать дальше...   )Жанр: Progressive/Post-MetalПродолжительность: 05:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24516BABB9C0A37BD1719C80AFEAA642EC8848D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764124   (102773) от 05.12.2024
+
+Fans Of The Dark - Video (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet Me On The Corner (3:51)
+02. Let's Go Rent A Video (4:31)
+03. The Neon Phantom (3:51)
+04. Christine (5:52)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C8257F2CB83B4D40A781A28A9DC3EE889587A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764098   (102772) от 05.12.2024
+
+Radioactive - Reset (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sentimental (4:33)
+02. Shame On You, Shame On Me (5:02)
+03. Gaia (5:03)
+04. When The Lights Go Down (4:08)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAC8749F6EAB7716B2E8640E0A68593CD7E2878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763992   (102771) от 05.12.2024
+
+На необитаемом острове / Auf einsamer Insel (1913) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драма в рыбацком поселке. Ну, все эти известные дела - красотка любит хорошего, но бедного. Ее любит богатый, но нехороший. Этот нехороший задумывает против хорошего недоброе... Все знакомо.Производство: Германия / Eiko FilmЖанр: короткометражный, драма, немое киноРежиссер: Йозеф ДельмонтАктеры: Фред Зауэр, Миа Кордес, Йозеф ДельмонтПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED7D6FC82A4F6FEA7883CE8C3454CCCF91AA504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764120   (102770) от 05.12.2024
+
+VA - Gaming Music 2024: EDM For Players (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaxRiven - Loveparade (02:24)
+02. Lorenz Koin - Adrenaline (02:05)
+03. JLUIS & Teknova - Fast Love (02:26)
+04. Gash & Cee-Mon - Feels Like Home (02:00)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C5D865190480C534E30F6649D6A4DA02E34E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763955   (102769) от 05.12.2024
+
+Maleficium Arungquilta - Касание сквозь стекло (2011) [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ангелы Не Дышат
+2. Мразь
+3. Я Стала Морем
+4. Шелковый Рассвет(   Читать дальше...   )Жанр: Dark Metal, Gothic Metal, Symphonic MetalПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEE15684E37F3813DEDB651D02FEF24BAB9CB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763872   (102768) от 05.12.2024
+
+Maleficium Arungquilta - Транс для сестры (2013) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Лицемер
+3. Нибиру
+4. Снег(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD91B7FCF9B05B8788495D10CE3037F8010CCFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764083   (102767) от 05.12.2024
+
+Smooth Jazz All Stars - Smooth Jazz Renditions of Lady Gaga (Instrumental) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943237.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01.Change A Pace [05:47]
-02.I Thought You'd Call Today [05:43]
-03.Double Scotch [07:07](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:47:46
+01. Bloody Mary (Instrumental) (3:31)
+02. Hold My Hand (Instrumental) (3:33)
+03. Always Remember Us This Way (Instrumental) (3:29)
+04. Shallow (Instrumental) (4:16)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AB6FDA0F32D5D68FB9B0842D5CC186D1D82DBDD
+magnet:?xt=urn:btih:97CC14D1F5DBBFF04662491492B757A227EBEDE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +315,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091377   (943239) от 09.01.2017
+###  Публикация: 1764059   (102766) от 05.12.2024
 
-VA - Old True Trance (2017) [MP3|320 Kbps] <Trance>
+Greg Koch - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943239.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Acid Blow - Tears On The Pylon (Original Mix)  5:34
-02.  Alex van Love - Sky (Original Mix)  5:38
-03.  Andrew Modens - Progress (Original Mix)  4:34
-04.  Andrey Dobarin - Rush Hour (Original Mix)  5:52(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:32
+01. Can't Lose What You Never Had (feat. Jimmy Hall + Memphis Horns) (4:32)
+02. Can't Be Satisfied (feat Larry McCray) (3:54)
+03. The Stumble (3:53)
+04. Stormy Monday (9:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBA958AFA836F9CDAD6EEEEFA3047996CBF86AF2
+magnet:?xt=urn:btih:10C2AF6379CAFF0F6910653ED50546DFBBC1A3D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,27 +344,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090696   (943240) от 09.01.2017
+###  Публикация: 1764187   (102765) от 05.12.2024
 
-Лыжные гонки. Кубок мира. Тур де Ски 2017. Оберстдорф (Германия). Мужчины. Скиатлон 10 км + 10 км (03.01.2017) IPTV [H.264/1080p-LQ]
+The Effect - The Effect (2024) [FLAC|Lossless|image + .cue] <Melodic Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943240.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-03 января 2017. 17:15 МСК
-6-й Этап Кубка Мира по лыжным гонкам 2016-2017. Тур де Ски. Оберстдорф (Германия):
-Мужчины. Скиатлон 10 км + 10 кмТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 00:52:47
+01. Toxic Envy (4:02)
+02. Unwanted (3:22)
+03. Tind (3:50)
+04. World Between Us (4:11)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:43:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:596690F0A68EB74F17EA86800399683188C9492B
+magnet:?xt=urn:btih:0F4116AC9E1120B632BFDB24CB7DA62E4B85F614
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,27 +373,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090685   (943241) от 09.01.2017
+###  Публикация: 1764056   (102764) от 05.12.2024
 
-Лыжные гонки. Кубок мира. Тур де Ски 2017. Оберстдорф (Германия). Мужчины. Скиатлон 10 км + 10 км (03.01.2017) HDTVRip [H.264/1080p-LQ][RU,EN]
+Август Стриндберг | Пляска смерти (2005) [MP3, Михаил Янушкевич, Александра Николаева, Владимир Яворский]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943241.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-03 января 2017. 17:15 МСК
-6-й Этап Кубка Мира по лыжным гонкам 2016-2017. Тур де Ски. Оберстдорф (Германия):
-Мужчины. Скиатлон 10 км + 10 кмТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский,  АнглийскийПродолжительность: 00:47:59
+"Ад - это другие," - изрек когда-то Жан-Поль Сартр. "Ад - это мы сами", - следовало бы провозгласить после знакомства с пьесой Стриндберга "Пляска смерти", созданной им в 1901 году. Механизм рождения ненависти, его безжалостная цикличность, способность безвозвратно втягивать человека-жертву в свой круговорот исследуются драматургом на (   Читать дальше...   )Жанр: Аудиоспектакль, драмаИздательство: Нигде не купишьПродолжительность: 01:35:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7877E34C14ED9959B6C2A6353C90EC26C2D91C2
+magnet:?xt=urn:btih:E56C8AF4A8CC38127534D8DB85EF125F46BB3F85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,27 +399,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091449   (943242) от 09.01.2017
+###  Публикация: 1764103   (102763) от 05.12.2024
 
-Биатлон. Кубок Мира 2016/2017. 4-й Этап. Оберхоф (Германия). Женщины. Масс-старт 12,5 км (08.01.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943242.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-08 января 2017 года, воскресенье. 16:40 МСК
-Кубок Мира 2016/2017. 4-й Этап. Оберхоф (Германия)
-Женщины. Масс-старт 12,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 00:50:45
+01. Pierpaolo Cricenti & Kekko DMC - Love Don't Let Me Go (Aux In Re-Edit Mix) (07:39)
+02. KARMIN SHIFF, JULIANA PASINI & Kryz Santana - Ole Ola (I'm From Brazil) (New York Brazil Mix) (03:09)
+03. B.A. Lance - Summer (A Tribute To Calvin Harris) (Radio Mix) (03:38)
+04. Mikee Introna - Get It All (03:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:59:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7CE2D19432B7A5B57BC0D76E45F40A976DD1DB9
+magnet:?xt=urn:btih:E11E30A29AC34C36B222BA0A8669C35B2210B73D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +428,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090334   (943243) от 09.01.2017
+###  Публикация: 1764123   (102762) от 05.12.2024
 
-Лыжные гонки. Кубок мира. Тур де Ски 2017. Валь-Мюстаир (Швейцария). Мужчины. Масс-старт 10 км, классический стиль (01.01.2017) HDTVRip [H.264/1080p-LQ][RU,EN]
+Mel Torme & The Marty Paich Dek-Tette - In Concert Tokyo (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943243.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 января 2017, воскресенье. 15:00 МСК
-5-й Этап Кубка Мира по лыжным гонкам 2016-2017. Тур де Ски. Валь-Мюстаир (Швейцария):
-
-Мужчины. Масс-старт 10 км, классический стильТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский,  АнглийскийПродолжительность: 00:40:52
+01. It Don't Mean a Thing (If It Ain't Got That Swing) (Instrumental) [3:30]
+02. Sweet Georgia Brown [3:56]
+03. Just in Time [3:12]
+04. When the Sun Comes Out [4:11](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73CF11781C518FB238D060435BF2E51920A3A2F8
+magnet:?xt=urn:btih:7E76C4A15E3EE16FE8D82239B6F5616F3E11389A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,27 +457,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091138   (943244) от 09.01.2017
+###  Публикация: 1764035   (102761) от 05.12.2024
 
-Лыжные гонки. Кубок мира. Тур де Ски 2017. Оберстдорф (Германия). Мужчины. Гонка преследования 15 км, свободный стиль (04.01.2017) HDTVRip [H.264/1080p-LQ][RU,EN]
+Pestilent Hex - Sorceries of Sanguine & Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Black Metal, Melodic Black Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943244.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-04 января 2017. 14:45 МСК
-5-й Этап Кубка Мира по лыжным гонкам 2016-2017. Тур де Ски. Оберстдорф (Германия):
-Мужчины. Гонка преследования 15 км, свободный стильТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский,  АнглийскийПродолжительность: 00:54:39
+01 - Nocturne [1:54]
+02 - Sciomancy and Sortilege [7:31]
+03 - Through Mirrors Beyond [6:25]
+04 - Of Hexcraft and Laws Three-fold [6:57](   Читать дальше...   )Жанр: Symphonic Black Metal, Melodic Black MetalПродолжительность: 00:45:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4786FD1D170A36797EDDA3A743101A1DF9E00EF9
+magnet:?xt=urn:btih:3CD87B08C88DCB07BB8DFD9BFA4FC0CA1E7E61C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,25 +486,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983357   (943245) от 06.02.2016
+###  Публикация: 1764068   (102760) от 05.12.2024
 
-Шаблоны - Визитки - Business Card Bundle [PSD]
+Peter MacInnis - Late Night Blues Vibe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943245.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Визитные карточки для Вашего творчества.Формат: PSDРазрешение файлов: 1125x675 / 300dpi
+01. Do You Remember How to Dance? (3:31)
+02. Something to Sell (3:31)
+03. HollyHood Tay - Focusing on Me (2:32)
+04. Gotta Slow It Down (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04762403EF1B72E143459FDDE8F50941E0EDEA94
+magnet:?xt=urn:btih:44A770F92C69FAE46257A38C3F685960F95E3CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,28 +515,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 982222   (943246) от 06.02.2016
+###  Публикация: 1764064   (102759) от 05.12.2024
 
-Дмитрий Михнов | Успешный трейдинг + Записи Мастер Группы (2015) PCRec [H.264/720p]
+Mikey Junior - Traveling North (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943246.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-План курса:
-Этап 1 = Теория
-Этап 2 = Отработка теории на практике, цель заработать 25% за месяц
-Этап 3 = Отработка практики докупки(   Читать дальше...   )Жанр: ТрейдингПродолжительность: 21:13:06
+01. Old Enough to Know (3:57)
+02. Taboo Love (4:45)
+03. You Hurt Me (3:35)
+04. Crazy over You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:774D98F6C80E59ECD338ABF551193608E81CE2D6
+magnet:?xt=urn:btih:12BF8EC7981603EDB786F053E7D7EF704E36E6BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,27 +544,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091151   (943247) от 09.01.2017
+###  Публикация: 1764066   (102758) от 05.12.2024
 
-Лыжные гонки. Кубок мира. Тур де Ски 2017. Оберстдорф (Германия). Мужчины. Гонка преследования 15 км, свободный стиль (04.01.2017) WEB-DL [H.264/720p-LQ]
+Olivier Mas - One Man Swamp Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943247.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-04 января 2017. 14:45 МСК
-5-й Этап Кубка Мира по лыжным гонкам 2016-2017. Тур де Ски. Оберстдорф (Германия):
-Мужчины. Гонка преследования 15 км, свободный стильТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 00:44:48
+01. No Fun (2:59)
+02. Six Strings Down (3:14)
+03. I'm a Man (3:17)
+04. Hey, Hey (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57D87219CD707E56EEDEE87B8436D8A84D5462E8
+magnet:?xt=urn:btih:0AD0A66A48EC7B806B2D4D3AC543BB0DC7BCF3D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,27 +573,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091123   (943248) от 09.01.2017
+###  Публикация: 1764054   (102757) от 05.12.2024
 
-Лыжные гонки. Кубок мира. Тур де Ски 2017. Оберстдорф (Германия). Женщины. Гонка преследования 10 км, свободный стиль (04.01.2017) HDTVRip [H.264/1080p-LQ][RU,EN]
+Chocolate George - House of Make Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943248.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-04 января 2017. 13:30 МСК
-5-й Этап Кубка Мира по лыжным гонкам 2016-2017. Тур де Ски. Оберстдорф (Германия):
-Женщины. Гонка преследования 10 км, свободный стильТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский,  АнглийскийПродолжительность: 00:46:03
+01. Ain't No Sign (3:22)
+02. Detroit Crank (3:14)
+03. Bloomer Pudding (3:20)
+04. House of Make Believe (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E26A50C28ACA9B4FD0DF31AEEF5A3D271A4EAAA
+magnet:?xt=urn:btih:5CF32B08FADBB669939382A6E9FE3D3D50788152
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +602,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983359   (943249) от 06.02.2016
+###  Публикация: 1764062   (102756) от 05.12.2024
 
-Deepin OS 15.1 [amd64] 1xDVD
+Innes Sibun - The Preacher (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>3
->>След.
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943249.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Linux Deepin (ранее Hiweed Linux) — дистрибутив Linux, основанный на Debian (ранее на Ubuntu) с собственным окружением рабочего стола DDE — Deepin Desktop Environment, с оконным менеджером Gala (форк Mutter) и рядом приложений домашней разработки, среди которых музыкальный проигрыватель — аудиоплеер Deepin, видеоплеер — DMovie, система обмена сообщениями - DTalk, (   Читать дальше...   )
+01. Incantation (4:38)
+02. The Preacher (5:44)
+03. I Found Your Letter (6:43)
+04. Time Is Tight (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45E5E3345B704DF4B85733C65FDF9D4381F9F8AA
+magnet:?xt=urn:btih:7ADF260A7BD9DC270F3B4396F517D3DFBA04ECEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,27 +631,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091132   (943250) от 09.01.2017
+###  Публикация: 1764072   (102755) от 05.12.2024
 
-Лыжные гонки. Кубок мира. Тур де Ски 2017. Оберстдорф (Германия). Женщины. Гонка преследования 10 км, свободный стиль (04.01.2017) WEB-DL [H.264/720p-LQ]
+Soultide - Waves of the Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943250.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-04 января 2017. 13:30 МСК
-6-й Этап Кубка Мира по лыжным гонкам 2016-2017. Тур де Ски. Оберстдорф (Германия):
-Женщины. Гонка преследования 10 км, свободный стильТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 00:37:13
+01. Soul in the City (4:01)
+02. Moonlight in My Eyes (2:58)
+03. Twilight Groove (2:02)
+04. Midnight Reverie (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD8A9C02925614DD4A405C3027552F10138223F7
+magnet:?xt=urn:btih:972C4E00295FE7FE7EE25C5395916DE8D7E10626
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,25 +660,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983363   (943251) от 06.02.2016
+###  Публикация: 1764063   (102754) от 05.12.2024
 
-Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En] (1.0061a) Repack R.G. Механики
+Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Win Старые Игры
->>RPG
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943251.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сотни лет Ривеллон был образцовым королевством. Но в год Волка из глубин времён вернулось древнее зло. Вернулось, чтобы собрать долги с потомков героев, некогда заточивших его в могущественном Клинке лжи. Жители Ривеллона ещё не знают, какая угроза нависла над ними. Война с орками, неурожай, чума - всё это они воспринимают как стечение обстоятельств. Однако случайных (   Читать дальше...   )Тип издания: RepackРазработчик: Larian StudiosЖанр: RPG (Rogue, Action), IsometricЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+01. Blues All over You (2:45)
+02. Dance the Blues Away (2:31)
+03. I Am the Blues (3:38)
+04. Love Story (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C15DCAB2EB7D3A4E2731F42DF83F1BB0E9B03D7
+magnet:?xt=urn:btih:287C33BDAD2538EE93DFBF899EA453294D6D0940
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,25 +689,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983403   (943252) от 06.02.2016
+###  Публикация: 1764162   (102753) от 05.12.2024
 
-Dr.Web Security Space 11.0.1.2030 [Multi/Ru]
+Athena XIX - Everflow Pt 1: Frames of Humanity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943252.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dr.Web Security Space предлагает комплексное противодействие интернет-угрозам. Включает антивирус, антишпион, антируткит, превентивную защиту, антиспам, облачный веб-антивирус и родительский контроль в сочетании с дополнительной защитой от сетевых атак, благодаря встроенному фаерволу Dr.Web Firewall.Язык интерфейса: Русский, Английский и другие
+01. Frames of Humanity (04:06)
+ 02. Legacy of the World (03:55)
+ 03. The Day We Obscured the Sun (04:20)
+ 04. The Seed (04:41)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:54:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E027D68E18A89A67CB70A3836212DF0A18E2062
+magnet:?xt=urn:btih:2DDF309E5FC518597403BA22195DCCEA8424B2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,265 +718,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983619   (943253) от 06.02.2016
+###  Публикация: 1764052   (102752) от 05.12.2024
 
-Градиенты - 30000 Gradient Swatches Adobe Illustrator [AI]
+Anna Black - Jammin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943253.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мега пакет градиентов для Adobe Illustrator, на все случаи жизни.
-В раздаче присутствует превью ко всем 20 пакетам (.PDF, JPG)Формат: AI
+01. Fire It Up (4:02)
+02. Blues Man (6:55)
+03. Drinkin' Daddy (6:17)
+04. Bird (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FD2908BD27B89F43BD1F1416C679268B1A692D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983614   (943254) от 06.02.2016
-
-Стив Джобс / Steve Jobs (2015) BDRemux [H.264/1080p] [Line]
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Стив Джобс» - биографическая лента об одном из пионеров эры IT-технологий. Картина разделена на три условные части, каждая из которых рассказывает о важном для Джобса периоде, связанном с выпуском ключевых продуктов его компании. В 1984 году Стив вместе с командой разработчиков презентовал Макинтош. 1988 год - Apple теряла долю на рынке, испытывала сложности (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Драма, биографияРежиссер: Дэнни БойлАктеры: Майкл Фассбендер, Сет Роген, Джефф Дэниелс, Кейт Уинслет, Майкл Стулбарг, Кэтрин Уотерстон, Перла Аней-Жардине, Рипли Собо, Макензи Мосс, Сара Снук.Перевод: Дублированный (Чистый звук)Язык субтитров: АнглийскийПродолжительность: 02:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B6D67C08EB51C8924A649C0190CA12456E49F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983326   (943255) от 06.02.2016
-
-Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506) Repack R.G. Механики
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - слуга света, гроза всех некромантов и темных магов. Ваша цель - борьба со злом в любых его проявлениях. Проблема в том, что во время битвы с одним из величайших некромантов вызванный им демон утащил вас в свою вселенную. Но и это еще не все - страшное заклятие соединило невидимыми оковами вашу душу и сознание рыцаря смерти.Тип издания: RepackРазработчик: Larian StudiosЖанр: RPG (Hack-and-slash), IsometricЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590B4803CD511D42F8580E656214F6393A575730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983575   (943256) от 06.02.2016
-
-Россия 88 (2009) BDRip [H.264/1080p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банда скинхэдов «Россия 88» снимает агитационные ролики для того, чтобы выкладывать их в интернет. Попутно камера фиксирует жизнь банды — к ней привыкают и перестают обращать на нее внимание. Главарь банды — Штык обнаруживает, что его сестра встречается с кавказцем. Семейная драма перерастает в трагедию. И камера сопровождает героев до самой развязки. Сюжет схож (   Читать дальше...   )Производство: Россия / 2Plan2Жанр: драмаРежиссер: Павел БардинАктеры: Петр Федоров, Михаил Поляков, Марина Орел, Николай Мачульский, Михаил Павлик, Вера Строкова, Александр Макаров, Петр Баранчеев, Андрей Мерзликин, Кирилл КагановичПеревод: Не требуется (Русский, Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09BCCBCF3C66A90C106AE79E22A66CD858FB4AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659254   (943257) от 06.02.2016
-
-В поле зрения / Подозреваемый / Person of Interest (2011-2013) HDTVRip [H.264/720p] (Сезон 1-2, серии 1-45 из 45) LostFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет вертится вокруг главного героя — хитроумного миллиардера, который изобрел способ вычислять людей, намеревающихся совершить какое-либо преступление.Жанр: Драма, ТриллерРежиссер: Ричард Дж. ЛьюисАктеры: Джеймс Кэвизел, Майкл Эмерсон, Тараджи П. Хенсон, Кевин Чэпмен, Элизабет Марвел, Сьюзэн Миснер, Энрико Колантони, Роберт Джон Бёрк, Майкл Келли, Бреннан БраунПеревод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: 45 х ~00:43:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983505   (943258) от 06.02.2016
-
-VLC Media Player 2.2.2 Final RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943258.jpg" />
-</div>
-
-
-###  Подробнее
-
-VLC Media Player - представляет собой мощный медиацентр-проигрыватель все в одном. Одной из особенностей является возможность проигрывания практически любого типа потокового видео. Умеет также конвертировать и захватывать видео. Есть возможность установки видео в качестве обоев рабочего стола. Может быть использован в качестве сервера для трансляции потока по протоколам (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFB9E91327D8305E262E5CADE0F5A8C2CC9FBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983274   (943259) от 06.02.2016
-
-Синистер 2 / Sinister 2 (2015) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сиквел рассказывает о молодом шерифе, решившем продолжить расследование серии таинственных убийств, описанных в первой части фильма, из-за которых в своё время потерял жизнь друг шерифа, Элиссон Освальф. Расследование приводит шерифа к ферме, где он знакомится с дружелюбной семьей — близнецами Заком, Диланом и их матерью Кортни. Семьей, сбежавшей от издевательств (   Читать дальше...   )Производство: США / IM Global, Alliance Films, Automatik Entertainment, Blumhouse ProductionsЖанр: УжасыРежиссер: Киран Фой / Ciarán FoyАктеры: Джеймс Рэнсон, Шаннин Соссамон, Роберт Дэниэл Слоун, Дартаниан Слоун, Лиа Коко, Тейт Эллингтон, Джон Бизли, Лукас Джейд Зуманн, Джейден Клейн, Лайла ХейлиПеревод: ДублированныйОзвучка / Автор перевода: НТВ+Продолжительность: 01:33:02Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD5A5A2887056095DF461650486BCF5B053504C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983483   (943260) от 06.02.2016
-
-Владимир Ильин | Напряжение (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943260.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом мире слово способно начать войну. Оно же остановит кровопролитие, будет гарантом мира и крепкого союза. Таковы правила: слишком много силы в крови одаренных, чтобы лжецам позволили существовать. Однако ложь все равно будет жить, свивая гнездо в сердцах самых честных и благородных, обволакивая страшные преступления красивыми словами, превращая подлость в великий (   Читать дальше...   )Жанр: Научная фантастика, Боевая фантастика, Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFA4CB6157B2758452C2733871A9176446329EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982444   (943261) от 06.02.2016
-
-VA-Коллекция клипов в авто (ZAP) (2DIN) (1980-2016) HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипы собирались и конвертировались специально в авто, на 2DIN автомагнитолу.
-Представлены практически все жанры.Коллекция легко редактируется выделением ненужного и кнопочкой DEL001 2 Brothers - Dreams
-002 2 Unlimited - Let The Beat
-003 2 Unlimited-No Limit
-004 2CELLOS - They Don't Care About Us(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 50:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCADBF0F686666BA89BA7FEA5A0C00F291D3BABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983631   (943262) от 06.02.2016
-
-Стили - 15000 Photoshop Layer Styles [ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мега пакет стилей для Photoshop, на все случаи жизни.
-В раздаче присутствует превью ко всем 12 пакетам (.PDF, JPG)Формат: ASL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7AEE54E1091D40D2C356A421A91468EFE74737A
+magnet:?xt=urn:btih:8161CEE4BAA906432056DE4AE7010808A3701B86
 ```
 
 https://mybot314.ru/tekegram_catalog/

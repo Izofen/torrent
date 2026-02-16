@@ -1,24 +1,22 @@
-###  Публикация: 1762064   (103025) от 23.11.2024
+###  Публикация: 983920   (942132) от 07.02.2016
 
-Э.К.С. Уэйд, Д.Г. Филлипс | Конституционное право (1950) [PDF]
+Обои - Сборник обоев. Морские пейзажи. Часть 5. 1920x1080 - 100 шт [JPG]
 
->>Разное (категория книг)
->>Публицистика
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103025.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одним из проявлений прогрессирующего разложения капиталистического строя, обострения всех его внутренних антагонистических противоречий является отказ правящих кругов империалистических государств от буржуазно-демократических методов управления и переход к методам открытого насилия, к установлению военно-полицейского режима.
-
-В период империализма процесс разложения (   Читать дальше...   )Жанр: История, политология, социология, правоведение, публицистикаИздательство: Иностранная литератураФормат: PDFКачество: Необработанный скан
+Новая подборка качественных обоев на тему морских пейзажей для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0195A4DE83FDD2BF80B9D71D68E211C47AB19414
+magnet:?xt=urn:btih:F6777035C348CFF4A6BF78045B7C3787982F2308
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,161 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761903   (103026) от 23.11.2024
+###  Публикация: 983832   (942131) от 07.02.2016
 
-Ice Cube - Man Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rollin' At Twilight [2:58]
-02 - It's My Ego [3:47]
-03 - So Sensitive [2:49]
-04 - She’s Sanctified [4:18](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C4BCD023602DFBCFE5F74E2A40562EBD25843D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762110   (103027) от 23.11.2024
-
-Военная тайна с Игорем Прокопенко (23.11.2024) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103027.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7810AD565CEFF3E9956BD1A473D6171FA694DF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762099   (103028) от 23.11.2024
-
-Дважды рожденный / Двойчы народжаны (1934) WEBRip [H.264/720p] [BLR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Досрочно освобождённый крестьянин Григорий Лопух, который был осужден за конокрадство, направляется в родное село, чтобы начать новую, честную жизнь. Зайдя в одну из деревень, он узнает о том, что в родных краях, как и по всей стране, единоличные хозяйства уступили место колхозам. Это сообщение не радует Лопуха: он всё ещё мечтает о "вольной жизни" единоличника... (   Читать дальше...   )Производство: СССР / БелгоскиноЖанр: драма, историяРежиссер: Эдуард АршанскийАктеры: Владимир Крылович, Борис Бабочкин, Татьяна Гурецкая, Леонид КмитЯзык озвучки: белорусскийСубтитры: отсутствуютПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7E6E321EBD080A4C01F15C6A10BAF7AB18D747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762134   (103029) от 23.11.2024
-
-Hirsh Gardner - Third Time's A Charm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Luver's Lullaby (03:39)
- 02 - Reach Out for Love (04:04)
- 03 - Faith In Your Heart (03:17)
- 04 - Angel In The Sky (04:46)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2C8AC7D8F1BA32AA6D7BB8148A8E4E6AC72414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762037   (103030) от 23.11.2024
-
-В.М. Чхиквадзе | Государство, демократия, законность [Ленинские идеи и современность] (1967) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103030.jpg" />
-</div>
-
-
-###  Подробнее
-
-При написании настоящей книги автор отчетливо представлял сложность всестороннего освещения ленинского наследия по вопросам государства и права. Поэтому он не ставил перед собой задачу рассмотреть все аспекты ленинского учения. Цель книги более скромная. Она заключается в попытке подвести некоторые итоги развития советской правовой мысли на основе ленинских идей (   Читать дальше...   )Жанр: История, политология, социология, правоведение, публицистикаИздательство: ЮриздатФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9302250E98AEBD70BF3A56776028172C6B776B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762024   (103031) от 23.11.2024
-
-Журнал | Делаем сами №22 (571) (ноябрь 2024) [PDF]
+Журнал | Загадки истории №5 (Февраль 2016) [PDF]
 
 >>Журналы
->>Домоводство (журналы)
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103031.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6117C9F5449EA914AFCFCB7BF8AB9E197580FBC
+magnet:?xt=urn:btih:5B1B0237948952483F3AF03E9A8C17CB3AFD9B93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,25 +50,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761941   (103032) от 23.11.2024
+###  Публикация: 983944   (942130) от 07.02.2016
 
-Light Image Resizer 7.1.2.63[Multi/Ru]
+Джозеф Хеллер | Вообрази себе картину (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман `Вообрази себе картину...` (1988) описывает путешествие во времени - от Аристотеля до наших дней, окрашенное стойким убеждением автора: нет оснований говорить, будто человечество за прошедшее время сильно усовершенствовалось в моральном и интеллектуальном отношении.Жанр: Историко-литературно-социально-культурологическийПродолжительность: 11:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3624C4B0869925C91B5BFED2B34F9A3A95EC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983976   (942129) от 07.02.2016
+
+Журнал | Миллион Меню №47 (январь 2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот и закончились наши любимые праздники - Новый год и Рождество. После Крещения Господня, или Святого Богоявления,
+накануне которого православные верующие соблюдают строгий пост, начинается мясоед. В эти дни — с 20 января по 13 марта — разрешается включать в меню по средам и пятницам рыбу, в остальные дни - скоромную пищу. В прежние времена на Руси в это время традиционно (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87FF17D2717D1E98633BE3CE27343B90A87AB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983675   (942128) от 07.02.2016
+
+SlimBrowser 7.00 Build 137 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103032.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Браузер на основе движка Trident, обладающий большим количеством полезных возможностей. В частности в SlimBrowser встроен настраиваемый блокиратор всплывающих окон, инструмент автозаполнения форм, менеджер паролей, присутствует возможность «на лету» исправлять ошибки в скриптах. Имеются опции контроля за загружаемым контентом: графикой, анимацией, звуками и т.д.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C6C698DE9D82BDAFBF314B653FF24CB5F213A10
+magnet:?xt=urn:btih:6A627DBECE0424F402EABC86CF82F4B906D23B75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,28 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761866   (103033) от 22.11.2024
+###  Публикация: 984074   (942127) от 07.02.2016
 
-The Pineapple Thief - Last To Run (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
+Газета | Сезон у дачи. Спецвыпуск №2 (100) (Январь 2016) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103033.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. All Because Of Me (3:04)
-02. Last To Run (6:43)
-03. Election Day (4:15)
-04. The World To Me (4:08)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:21:41
+Журнал о садоводстве, огородничестве, цветоводстве. Очень много интересной и полезной информации. В спецвыпусках журнала "Сезон у дачи" обсуждаются самые востребованные темы среди читателей журнала, вопросы по которым они задают авторам журнала.Жанр: Дача, сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25BAFB30DD6300E380F70AE8AE12CE0A37CFD245
+magnet:?xt=urn:btih:D6C0A596CCE3858F53719D86CACB99EAE04092C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -243,27 +155,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761869   (103034) от 22.11.2024
+###  Публикация: 983554   (942126) от 07.02.2016
 
-Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover>
+Газета | Великие открытия №2 (февраль 2016) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103034.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Power Trip — американская трэш-метал-группа из Далласа, основанная в 2008 году.2013 - Manifest Decimation
-2017 - Nightmare Logic
-2018 - Opening Fire - 2008-2014Жанр: Thrash Metal/CrossoverПродолжительность: 01:47:44
+Очередной номер журнала «Великие открытия» посвящен теме «Самые удивительные путешествия».
+Вы окунетесь в мир приключений и чудес, неизведанных тайн и поразительных открытий. Герои материалов этого номера
+поведут вас по тернистым тропам, преодоленным ими самими. Смельчаки совершали свои путешествия разными, подчас самыми рискованными способами. Но каждый их них это (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D3FD0D0A40BF95866EAA684491E2190A4677C50
+magnet:?xt=urn:btih:6AF04E786C806A6B739129A3FB88936F1D5E7151
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,28 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761834   (103035) от 22.11.2024
+###  Публикация: 984066   (942125) от 07.02.2016
 
-Kingcrown - Nova Atlantis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+Особая статья. Маски сняты, господа  (07.02.2016) SATRip
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103035.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Magic Stone (3:29)
-02. Nova Atlantis (5:21)
-03. Real Or Fantasy (4:17)
-04. Guardian Angels (4:06)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:41
+Сегодня мы обсуждаем документальный фильм французского режиссера Поля Морейра "Украина. Маски революции", который зрители всех стран Европы смогли увидеть, несмотря на то, что власти Украины требовали запретить его показ. Автор провел специальное расследование о событиях на киевском Майдане в 2014 году и трагедии в Доме профсоюзов в Одессе. Морейра пришел (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаПродолжительность: 00:38:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66CF2A616A5C460DDA90C6F65374C2F55B9A1B14
+magnet:?xt=urn:btih:35F73E139261575C47381713AE4A9BF70AAC5438
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,28 +209,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761770   (103036) от 22.11.2024
+###  Публикация: 984052   (942124) от 07.02.2016
 
-VA - Nothing But... Trancetopia Vol. 21 (2024) [MP3|320 Kbps] <Trance>
+VA - Imminent Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Future Garage, Chillwave, Bass, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken. - Everything (03:53)
+ 02. Twisted Psykie - This Place Is My Sanctuary (06:53)
+ 03.Тип издания: WEB, Compilation |Жанр: Downtempo, Future Garage, Chillwave, Bass, Ambient |Продолжительность: 02:21:59 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BD5A6D7D04756D61711206FE3F66E01C339F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983906   (942123) от 07.02.2016
+
+Обои - Микс обоев. Часть 8. 1920x1080 - 150 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая подборка качественных обоев для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053E2E8CCDFFAC5DFA19B40FF102B7B06DCE9540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983810   (942122) от 07.02.2016
+
+Ultravox - Systems Of Romance (1978) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
 
 >>Electronic
->>Trance
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103036.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris Rebirth - Darkness (Original Mix) [7:44]
-02. Pete.M - Hydrogen (Original Mix) [7:18]
-03. GutterGizmo - Laune (Extended Mix) [7:02]
-04. Kvaii - Iridescent (POINoir Intro Remix) [4:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:34
+01 - Slow Motion
+02 - Can't Stay Long
+03 - Someone Else's Clothes
+04 - Blue Light(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:36:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E623F5D8FB2553C4044CCD96D7E4358F5E083DD
+magnet:?xt=urn:btih:C11DB69E99A07E643CA466578A359009AF3438D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,86 +292,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761828   (103037) от 22.11.2024
+###  Публикация: 984008   (942121) от 07.02.2016
 
-Joan Armatrading - How Did This Happen And What Does It Now Mean (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop, Blues, Singer-Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103037.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. 25 Kisses (3:05)
-• 02. Someone Else (3:15)
-• 03. Irresistible (3:18)
-• 04. I'm Not Moving (3:37)(   Читать дальше...   )Жанр: Rock, Pop, Blues, Singer-SongwriterПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C65F129D7F36BD526E115F6CEF5A9587FFAEBD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761864   (103038) от 22.11.2024
-
-Sunjay - I'm Just Like You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Link of Chain (3:56)
-02. No Love Today (4:56)
-03. Love You Like a Man (3:08)
-04. Mail Order Mystics (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E515D01FB854F5B9C4B2EF00A365BD140F20AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761782   (103039) от 22.11.2024
-
-Go Radio - Lucky Street (2011) [FLAC|Lossless|tracks + .cue] <Аlternative Rock, Pop Rock>
+The Cult - Hidden City (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103039.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lucky Street (4:14)
-02. Any Other Heart (3:52)
-03. Singing with the King (3:18)
-04. Strength to Stay (3:23)(   Читать дальше...   )Жанр: Аlternative Rock, Pop RockПродолжительность: 00:53:08
+01. Dark Energy (4:28)
+02. No Love Lost (3:14)
+03. Dance The Night (4:16)
+04. In Blood (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32D6AA53BCF1DE1A2EFB4189B90444BBFFDC725C
+magnet:?xt=urn:btih:5D359264E3DC126F087CF0CF15F49BCE3EC857A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,28 +321,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761833   (103040) от 22.11.2024
+###  Публикация: 983853   (942120) от 07.02.2016
 
-Raptore - Renaissance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
+Joyce Jonathan - Une Place Pour Moi (2016) [MP3|320 кб/с] <French Pop>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103040.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-• 01. Ecclesia (1:07)
-• 02. Satana (4:39)
-• 03. Abaddon (3:54)
-• 04. Darklight (3:54)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:33:19
+01. Je tiens les renes (03:27)
+02. Le bonheur (03:23)
+03. Les filles d'aujourd'hui (04:23)
+04. Je plonge (03:50)(   Читать дальше...   )Жанр: French PopПродолжительность: 00:40:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E958F5A24DD56C5875A09DAD155E4A4D6A9C508
+magnet:?xt=urn:btih:0BDF19658A110408C8203995CBE6711C571BB826
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,28 +350,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761646   (103041) от 22.11.2024
+###  Публикация: 981903   (942119) от 07.02.2016
 
-Mind Control - This Present Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Progressive Rock>
+Brett - On Account of Your Love (2015) Japanese Edition (EP) [FLAC|Lossless|tracks + .cue] <Synthpop, Indietronic>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103041.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Exordium (0:52)
-02. Departed (6:15)
-03. Calypso - Queen of the Sea (4:17)
-04. Hidden (6:20)(   Читать дальше...   )Жанр: Heavy Psychedelic, Progressive RockПродолжительность: 00:45:00
+01. Street Cleaning
+02. On Account of Your Love
+03. Favours
+04. Cost(   Читать дальше...   )Жанр: Synthpop, IndietronicПродолжительность: 00:34:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F407291BE0BD009E04AF1B1E98BEF0D1427F6C03
+magnet:?xt=urn:btih:C4FEB5DDE5BC0AFBFB5E099B2978D314E4A1A405
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,28 +379,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761660   (103042) от 22.11.2024
+###  Публикация: 983912   (942118) от 07.02.2016
 
-Silent Winter - Utopia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
+Обои - Сборник обоев. Животные и птицы. Часть 6. 1920x1080 - 100 шт [JPG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103042.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We Burn The Future (4:43)
-02. Hellstorm (4:33)
-03. Hands Held High (6:45)
-04. Reign Of The Tyrants (4:53)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:47:34
+Новая подборка качественных обоев на тему животных и птиц  для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3C8C3F56B28E5ED17EC40596D9E3D82C7CCB799
+magnet:?xt=urn:btih:B7ED9F68B9D3854E548DB125BB62BFAD62672EC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,28 +405,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761858   (103043) от 22.11.2024
+###  Публикация: 983772   (942117) от 07.02.2016
 
-Staples Jr. Singers - Searching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Soul>
+Ученые добились квантовой запутанности макроскопических объектов при комнатной температуре
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103043.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Staples Jr. Singers feat. Annie Brown Caldwell - Living In This World Alone (3:01)
-02. Lost In A World Of Sin (4:02)
-03. You Got To Believe (3:09)
-04. Walk Around Heaven (3:35)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:30:42
+В области квантовой физики получение квантовой запутанности частиц, более сложных, более больших и более тяжелых, нежели фотоны света, сопряжено со многими трудностями и это достигается в большинстве случаев при температурах, близких к температуре абсолютного нуля, в присутствии сильнейших магнитных полей. Однако, ученые из Чикагского университета и Национальной (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A085D25F39B907203629C6428CC6B1062DA6F9C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,28 +431,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761867   (103044) от 22.11.2024
+###  Публикация: 983943   (942116) от 07.02.2016
 
-The San Pedro Allstars feat. Reed Turchi, Austin White, Marlon Patton & Eric Burns - Stress 'N' Grits (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+Image2icon - Make your own icons 2.4 [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103044.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ayahuasca Old Fashioned (3:55)
-02. Stress 'N' Grits (3:30)
-03. Going Down South (5:07)
-04. Ima Bore (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:43
+Image2icon - приложение для создания  и персонализация иконок из ваших изображений
+
+Устали от ваших стандартных иконок Mac?
+Хотите, персонализировать свои файлы или папки?(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21.01.2016Разработчик: Shiny Frog di Matteo Rattotti & C. S.N.C. All rights reserved.Поддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0416F38D80B70AD10194CB11C1DC3EA974C3D6E6
+magnet:?xt=urn:btih:62C36AECA3332AD2CCCEB3A236A1FE371DC63152
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,28 +460,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761871   (103045) от 22.11.2024
+###  Публикация: 983762   (942115) от 07.02.2016
 
-Wako - Evig liv, perfekt orden (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Я. Туровский | Техническая электродинамика (1974) [DJVU]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103045.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Folk (1:41)
-02. Drifting (5:36)
-03. Homemade (4:40)
-04. Amerika (4:11)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:38:00
+В книге рассматриваются вопросы применения теории и методов электродинамики для электромагнитных расчетов конструктивных элементов электрических машин, трансформаторов, электрических аппаратов и других электроэнергетических устройств. Особое внимание уделяется типовым методам, приводящим к упрощению задачи.
+     Книга предназначена для инженеров, научных работников и (   Читать дальше...   )Жанр: ЭлектродинамикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B9C0C6DBC747C586D22F25C9A1133620353F7E0
+magnet:?xt=urn:btih:588EA793A0DCC004313D82759C905F426577BF21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,28 +487,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761714   (103046) от 21.11.2024
+###  Публикация: 983823   (942114) от 07.02.2016
 
-Marco Grompi & Michele Fortis - WINTERFLOWERS (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Don't Sleep 3.83 Portable [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103046.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. AIMLESS BLUES (4:30)
-02. MICHELE FORTIS & Marco Grompi - LITTLE FLOWER (7:08)
-03. TO FILL MY SOUL (4:52)
-04. LEVEL CROSSING (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:52
+Портативная бесплатная утилита, которая временно может отключить настройки электропитания. Можно выбрать, что именно отключать - хранитель экрана, режим гибернации, блокировку рабочего стола. Также программа позволяет отсчитывать время, которое предоставляется компьютеру для работы без настроек питания, а после сможет выключить, заблокировать компьютер или отправить (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6F2C98EA45BCC79A231A550C753BF1AD6CB8DC3
+magnet:?xt=urn:btih:C404D080270AF32940CCFFBF67B41687854833CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,28 +513,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761600   (103047) от 21.11.2024
+###  Публикация: 983861   (942113) от 07.02.2016
 
-Accuser - Rebirthless (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Die Krupps - V-Metal Machine Music (2015) 2CD [FLAC|Lossless|image + .cue] <Industrial Metal, EBM>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103047.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Violent Vanity
-2. Ghost Of Disease
-3. Rebirthless
-4. Painted Cruelty(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:33
+01. Die Verdammten
+02. Kaltes Herz
+03. Battle Extreme
+04. Fly Martyrs Fly(   Читать дальше...   )Жанр: Industrial Metal, EBMПродолжительность: 01:20:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:458A97D6EA5FC17FFF5E6B84BCB71151FA053052
+magnet:?xt=urn:btih:B98B90FB51581FC0924EDE3157092949401A4492
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,28 +542,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761595   (103048) от 21.11.2024
+###  Публикация: 282211   (942100) от 16.01.2011
 
-Juan Raul Rosero - Everything is Possible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+VA - Dance 2011 (2010) [MP3|192-320 kbps]<House>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103048.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. This is Sparta (2:16)
-02. The Triathlon Anthem (3:15)
-03. Now or Never (3:06)
-04. Resilience Warrior (2:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:20
+01. Fedde Le Grand feat. Mitch Crown - Rockinґ High (Benny Benassi Remix)
+02. Kaiserdisco - Jaana (Original)
+03. Greg Parys - Why Donґt We Just Fuck (D.Flush Remix)
+04. Alex M. - I Believe (Alex M. Vs. Mvd ElectroClub Mix)
+05. Liviu Hodor Feat. Tara - Happy For You (Deepcentral Remix)
+06. Chris Bernhardt - Miami Nights (Club Mix)
+07. Max Farenthide - Happy People (Bernasconi & Farenthide Club Mix)
+08. Pulsedriver - Lookout Weekend (Extended Mix)
+09. Samantha Vs. Sabrina - Call Me (Nigel Neptune Mix)
+10. Moff Feat. Leilani - Weekend Is Over (Edington RMX)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:32:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9DDC0DD71B609B6221C27DB8B91B54F9C85113A
+magnet:?xt=urn:btih:6AE9055A17D7F582307EB06744397B4EB62C47C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,25 +577,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761512   (103049) от 21.11.2024
+###  Публикация: 175117   (942080) от 13.02.2010
 
-Живая лестница / De levende ladder (1913) WEBRip [H.264/720p]
+Племянник или Русский бизнес 2 (2002) DVDRip
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103049.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Романтическая драма с голландской дивой раннего кинематографа: Энни Бос. Энни влюбляется в циркового клоуна, но родители запрещают ей быть с ним. Жених - клоун! Разве такого мужа они желали дочери? Завидной партией клоуна не назовешь. Но у цирковых есть и неоспоримые достоинства - они традиционно очень сплоченные, сильные, ловкие и решительные люди. И они докажут (   Читать дальше...   )Производство: Нидерланды / N.V. Maatschappij voor Artistieke CinematografieЖанр: короткометражный, мелодрама, драма, немое киноРежиссер: Мауриц Бингер, Louis H. ChrispijnАктеры: Энни Бос, Алекс Бенно, Koba Kinsbergen, Barend Barendse, Луис БоувмеестерПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:24:52
+Левчик владелец интернет-кафе, за финансовые махинации угодил за решетку. Его сокамерники — авторитет Жук и рецидивист Колян быстро смекнули, что у Левчика на воле остались немалые бабки.Но они не могли знать, что криминально нажитые деньги прикарманила родная тётка Левчика, народная целительница Мария Непорочная.Жанр: КомедияРежиссер: Михаил КокшеновАктеры: Владимир Екимов,Алексей Булдаков,Наталья Крачковская,Михаил Кокшенов,Анна ПтицынаПродолжительность: 01:21:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3719F260D10127E65FC18A664AF44EF9A858196C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,28 +603,104 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761479   (103050) от 21.11.2024
+###  Публикация: 1363579   (942072) от 28.02.2020
 
-Sylvaine - Silent Chamber, Noisy Heart (2014) Remasteredб 2024, Eisenwald [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doomgaze, Shoegaze, Atmospheric Black Metal>
+Герой (2019) BDRip [720p] ATV
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103050.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sylvan (Remastered) [00:02:47]
-02. It Rains in My Heart (Remastered) [00:06:02]
-03. Silent Chamber, Noisy Heart (Remastered) [00:06:32]
-04. Тоска (Remastered) [00:04:18](   Читать дальше...   )Жанр: Doomgaze, Shoegaze, Atmospheric Black MetalПродолжительность: 00:59:24
+15 лет назад Андрей под руководством своего отца, полковника Родина, прошел обучение в секретной спецшколе, где из подростков готовили агентов Службы внешней разведки. Когда экспериментальный проект закрыли, Андрей «сжёг мосты», остался в Европе и старался не вспоминать о прошлом. Но однажды ему звонит отец, которого все считали погибшим. Тот сообщает, что на Андрея (   Читать дальше...   )Производство: Россия / Телеканал «РОССИЯ 1», Карго ФильмЖанр: Триллер, комедия, боевик, криминалРежиссер: Карен ОганесянАктеры: Александр Петров, Владимир Машков, Светлана Ходченкова, Ян Алабушев, Константин Лавроненко, Марина Петренко, Анастасия Тодореску, Тобиас АспелинПеревод: Не требуется, русский (GER Transfer, Лицензия)Субтитры: Русские (харсаб, на иностранную речь)Продолжительность: 02:00:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75D94064AD9272009297A550BDB51F77DCDA9D20
+magnet:?xt=urn:btih:982B5A592100B6DBEE4C9EE51B25C268286F124E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363388   (942071) от 28.02.2020
+
+UnHackMe 11.50 Build 950 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942071.jpg" />
+</div>
+
+
+###  Подробнее
+
+UnHackMe – самый эффективный убийца любых вредоносных программ. Это антируткит и антишпион в целом, который позволяет обнаруживать и удалять руткиты, перенаправления поиска в браузере, программы скрытия вредоносных следов, потенциально-нежелательные приложения и рекламное ПО, шпионские программы.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1961DEB7C4D24D0E166B92EED12DD9A6D51D84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363306   (942070) от 28.02.2020
+
+Илья Балахнин | Тетрадь «Формула Прибыли». Главные цифры вашего бизнеса (2020) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский метод анализа 17-ти ключевых показателей, которые влияют на создание компанией прибыли.
+Российский бизнес очень часто верит в некое чудодейственное решение. Конференции и тренинги вроде «Как разорить конкурентов, не работая ни дня» пользуются активным спросом. На таких тренингах учат визуализировать корпоративную цель. Но позже оказывается, что флипчартов (   Читать дальше...   )Жанр: Бизнес-стратегии, эффективность бизнесаФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC70C257AA09E8F4DBA149701DEAC3852A73F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363597   (942069) от 28.02.2020
+
+Рождество на двоих / Last Christmas (2019) BDRemux [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт работает в магазине рождественских товаров, злоупотребляет выпивкой и давно бросила переживать из-за собственной жизни. Но всё меняется после знакомства с милым и очаровательным Томом.Производство: США, Великобритания / Calamity Films, Feigco Entertainment, Perfect World PicturesЖанр: Драма, мелодрама, комедияРежиссер: Пол ФигАктеры: Эмилия Кларк, Генри Голдинг, Мишель Йео, Эмма Томпсон, Ребекка Рут, Лидия Леонард, Пэтти ЛюПон, Мэдисон Инголдсби, Борис Исакович, Люси МиллерПеревод: Дублированный | iTunesСубтитры: Русские (Forced, full), английскиеПродолжительность: 01:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFA168D9DF278DC8BD331B93A62A4C732707861
 ```
 
 https://mybot314.ru/tekegram_catalog/

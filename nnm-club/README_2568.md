@@ -1,132 +1,22 @@
-###  Публикация: 1792381   (67578) от 20.04.2025
+###  Публикация: 973583   (978930) от 09.01.2016
 
-Niviane - Queen Of Phantoms (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Queen of Phantoms
-02 – 12 BC Legions
-03 – 12 BC Germania
-04 – Beacon In The Darkness(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D03FF0ADFF642220D9E0681F88A27EA64E311D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792674   (67579) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pink Black Checkered Heart Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Розово-чёрные клетчатые узоры с сердечками. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5FCD7FF3E5BA8E1211277C70D606EA6708B9C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792664   (67580) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Blue Marimekko Flowers Seamless Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные синие цветочные узоры.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4928BB59750826ABB86AF365E0E132381F9973B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792290   (67581) от 20.04.2025
-
-Johnny Raducanu - Confessions (1979) Seria Jazz – Nr. 16 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Contemporary Jazz, Smooth Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67581.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Omagiu Lui Duke Ellington
-A2 Reminiscente
-A3 Doinind
-A4 Vechi Tezaur(   Читать дальше...   )Жанр: Contemporary Jazz, Smooth Jazz, FusionПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A82F42508E6A224E452B99625171292E306C95F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792796   (67582) от 20.04.2025
-
-Холостяк и муж / Ungkarl og Aegtemand (1915) WEBRip [H.264/720p]
+Моли о смерти / Pray for Death (1985) HDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67582.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бакалейщик Мейер прекрасно проводит время, пока его жена отдыхает на морском курорте. Он не смог с ней поехать, потому что перегружен работой. Когда миссис Мейер возвращается домой без предупреждения, чтобы ухаживать за своим бедным, перегруженным работой мужем, она находит дом пустым, так как Мейер уехал на вечеринку...Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: А.В. СандбергАктеры: Аньес Андерсен, Питер Йоргенсен, Agnes Lorentzen, Ингеборг Олсен, Лауриц Олсен, Паула Рафф, Оскар Стриболт, Holger SyndergaardПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:08:09
+Мастер-ниндзя (тщательно скрывающий свое умение) поселяется в Америке, чтобы спокойно воспитывать детей вместе со своей женой, наполовину американкой. Однако его дом, семья и честь подвергается опасности со стороны местных ганстеров. Приходится перевоплощаться в незнающего жалости ниндзя и расправляться с врагами…Производство: США, TransWorld Entertainment (TWE), Pray FilmsЖанр: БоевикРежиссер: Гордон ХесслерАктеры: Сё Косуги, Джеймс Бут, Донна Кай Бенц, Норман Бёртон, Кейн Косуги, Шейн Косуги, Мэттью Фэйзон, Парли Баэр, Роберт Ито, Майкл Константин, Алан Амиел, Вуди Уотсон, Чарльз Грюбер, Ник ХэглерПеревод: Профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый) Л.ВолодарскийСубтитры: ОтсутствуютПродолжительность: 01:34:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C831666FA9B1DD7B160A2665E6D07CC130331ADE
+magnet:?xt=urn:btih:7214D09293465B9E7B0F4ED184B9C2FF14AAA8B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792614   (67583) от 20.04.2025
+###  Публикация: 1356172   (978912) от 30.01.2020
 
-Davido - 5ive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&B>
+Elysium - Live... & Beyond (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance, Psychill>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67583.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Five By Alhanislam [00:01:11]
-02. Anything [00:03:02]
-03. Be There Still [00:03:15]
-04. CFMF [00:03:09](   Читать дальше...   )Жанр: R&BПродолжительность: 00:49:09
+01. Interpretation Of Dreams (Live Version) 11:12
+02. Elysium (Live Version) 10:03
+03. Trancelestial Psychobabas (Live Version) 11:39
+04. Keep It Cool (Live Version) 07:24(   Читать дальше...   )Жанр: Goa Trance, Psychedelic Trance, PsychillПродолжительность: 05:12:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:353A6F42205C9858F7072790361FFC7014D7E823
+magnet:?xt=urn:btih:E2124B43FC0997C871B1DE61C857212BB81E8F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792601   (67584) от 20.04.2025
+###  Публикация: 1356158   (978910) от 30.01.2020
 
-Dark Flood - Studio Albums (4 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+Median Project - Constellation (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67584.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dark Flood - метал-группа из Оулу, Финляндия, основанная как Flood в 1996 году, и сменившая название на Dark Flood в 1998 году.2004 - Still Liberty
-2006 - The Dead Lines
-2014 - Inverno
-2023 - Illusion of LightЖанр: Progressive Melodic Death MetalПродолжительность: 03:09:29
+1. Antidote 09:07
+2. Mission Adept 08:07
+3. It is not Possible 07:58
+4. Infinite Space 08:49(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:17:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC5A7D27403ED9FF7C71CB5DF320904DD8C74C66
+magnet:?xt=urn:btih:5E06C63026197A6C67A2A94F11F02FE7CB807B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,27 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792143   (67585) от 20.04.2025
+###  Публикация: 1356479   (978909) от 30.01.2020
 
-Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Gothic Metal, Progressive Rock>
+Журнал | Все загадки мира. Другое измерение. Спецвыпуск №1 (14) Аномальные зоны (2020) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67585.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dies Irae - группа, играющая атмосферный метал/пост-рок из Леона, Гуанахуато, Мексика. Основанная в 1994 году, изначально исполняла мрачный, мелодичный дэт-метал. Распалась в 2002 году, воссоединилась в 2009 году.1998 - Ethereal
-2001 - Naive
-2011 - Secret Veils of PassionЖанр: Melodic Death/Gothic Metal, Progressive RockПродолжительность: 03:00:05
+Журнал для людей, которым нравится узнавать новое, расширять кругозор, быть в курсе научно-популярных событий. Удивительные явления, невероятные гипотезы, сенсации и мнения экспертов. А также интересные: открытия, феномены, версии. Авторитетное и увлекательное изложение познавательных фактов.Жанр: популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6914DC144D1DBC0D4C40FEA2FB8C1CF3D0DB173
+magnet:?xt=urn:btih:B6699CE6794250318B1CA46D63682A4FB62E2F8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,28 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792745   (67586) от 20.04.2025
+###  Публикация: 166227   (978908) от 13.01.2010
 
-Melvins - Thunderball (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Grunge, Rock, Sludge Metal>
+Журнал | Техника - молодежи [2009] [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67586.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. King of Rome (3:09)
-02. Vomit of Clarity (2:04)
-03. Short Hair With A Wig (11:05)
-04. Victory of the Pyramids (9:36)(   Читать дальше...   )Жанр: Grunge, Rock, Sludge MetalПродолжительность: 00:34:03
+"Техника молодежи" - сенсации науки и техники, открытия, изобретения, патенты. История техники, футурология, фантастика, оружие, боевая техника. Компьютеры, самоделки и моделизм. Смелые проекты и гипотезы. Антология таинственных случаев. Загадки забытых цивилизаций.Жанр: Научно-популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E130273F7ED25A552B43B68596F7E5764A5AD53
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -249,28 +134,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792765   (67587) от 20.04.2025
+###  Публикация: 1356465   (978906) от 30.01.2020
 
-Футбол. Фонбет Кубок России 2024/25. Путь регионов 1/2 финала. Локомотив (Москва) - Ахмат (Грозный) (15.04.2025) IPTVRip [H.264]
+Сергей Зверев | Матадоры войны (2020) [MP3, Андрей Зверев]
 
->>Спорт и активный отдых
->>Футбол
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67587.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Последняя возможность спасти сезон — взять Кубок России. Если кто забыл, «Локомотив» является самым титулованным клубом турнира — у него девять побед. Если Галактионов подберёт правильные слова для мотивации, кто знает, может быть, коллекция пополнится ещё одним трофеем.
-Стадион: РЖД Арена (Москва)
-Температура: +17, влажность: 33 %, ветер: 1 м/с
-Тренеры: Михаил Галактионов, (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 02:12:30
+Сержанта-контрактника Владимира Локиса преследует навязчивое воспоминание, избавиться от которого он не может: когда-то давно, в ходе антитеррористической операции, он не сумел спасти девушку, и она погибла у него на глазах… Похоже, что этот кошмар повторяется. Группа исламских террористов захватила детский дом на побережье Испании и грозится взорвать его вместе (   Читать дальше...   )Жанр: БоевикПродолжительность: 05:09:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16AFED7CCB3B037C9D9F3C21CE19B495105C53DA
+magnet:?xt=urn:btih:5B775080ECFDA750AAF027BFA8475FFE8A20DC3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,28 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792767   (67588) от 20.04.2025
+###  Публикация: 1356343   (978905) от 30.01.2020
 
-Tunde Adebimpe - Thee Black Boltz (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+Pale Moon 28.8.2 + Portable [Ru/En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67588.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thee Black Boltz [00:00:36]
-02. Magnetic [00:02:30]
-03. Ate The Moon [00:04:01]
-04. Pinstack [00:03:07](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:21
+Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с тысячами расширений Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:743EE92A21E50DC7E6053EFB0DCD8BD8D2795A15
+magnet:?xt=urn:btih:2B2FB76234CC741D60C75F8317A0723DEC7EBD51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,28 +186,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792193   (67589) от 20.04.2025
+###  Публикация: 1356433   (978904) от 30.01.2020
 
-Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
+Мой друг зонтик (1982) WEBRip [H.264/1080p-LQ] [PR]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67589.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Eye For An Eye
-A2. No Hope = No Fear
-A3. Bleed
-A4. Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:25
+Мультфильм о том, что значит настоящая дружба.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Юрий ПрытковАктеры: Клара Румянова, Тамара Дмитриева, Мария Виноградова, Галина ИвановаСубтитры: ОтсутствуютПродолжительность: 00:10:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A853388902A5C0C43F250DEBC588A3E5FB7CE9F
+magnet:?xt=urn:btih:13CCB4DF3926DF0BDDE616FD29E2B01F4FAD8BE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,28 +212,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792387   (67590) от 20.04.2025
+###  Публикация: 1356450   (978903) от 30.01.2020
 
-Rwake - The Return Of Magik (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Metal>
+Брэд Мельтцер | Трюкач (2020) [FB2]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67590.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – You Swore We’d Always Be Together
-02 – The Return of Magik
-03 – With Stardust Flowers
-04 – Distant Constellations and the Psychedelic Incarceration(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:53:53
+Самолет рухнул. Мисс Нола Браун мертва. Военный танатопрактик Джим «Зиг» Зигаровски хорошо знал ее, ведь много лет назад она спасла жизнь его единственной дочери. Теперь он должен отблагодарить ее – отдать последние почести. Вот только шокированный Зиг понимает: это не Нола! А значит, она жива…
+
+Единственное, чего не предусмотрел Зиг: эта женщина – просто проклятье. (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:371A45AF2AAA8456C6ACBEADAEAF326DB7AF1025
+magnet:?xt=urn:btih:350C5D54F0B80852F2964FB5BAF409B171089ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,28 +240,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792175   (67591) от 20.04.2025
+###  Публикация: 1356487   (978902) от 30.01.2020
 
-Samael - Worship Him (1991) Reissue, 2016, Osmose Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+Amberian Dawn - Looking for You (2020) [MP3|320 Kbps] <Symphonic Power Metal>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67591.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Sleep Of Death
-A2 Worship Him
-A3 Knowledge Of The Ancient Kingdom
-A4 Morbid Metal(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:21
+01. United
+02. Eternal Fire Burning
+03. Looking for You
+04. Two Blades(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0094FA69D411F9E55B3C6A44B1FD1631BCDD9C8
+magnet:?xt=urn:btih:A01F46529BEA982FB079D5842666F1B103B18FF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,28 +269,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792136   (67592) от 20.04.2025
+###  Публикация: 1356493   (978901) от 30.01.2020
 
-Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+Lordi - Killection (2020) [MP3|320 Kbps] <Heavy Metal>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67592.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Industrialist
-02. Recharger
-03. New Messiah
-04. God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:48:50
+1. Radio SCG 10
+2. Horror for Hire
+3. Shake the Baby Silent
+4. Like a Bee to the Honey(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E899E575915247F93E38BDBEB725253CF4F971EB
+magnet:?xt=urn:btih:718CE113577F449852F9194EF8C545CA5A9F5E62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,25 +298,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792789   (67593) от 20.04.2025
+###  Публикация: 1356480   (978900) от 30.01.2020
 
-Своя игра (20.04.2025) WEBRip [H.264/1080p]
+Сергей Зверев | Путь отчаянных (2019) [MP3, supersan]
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67593.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Дмитрий Махров, Александр Бадриан, Нина АстафьеваЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:05
+Транспортный самолет ВВС России «Руслан» доставлял гуманитарную помощь в Эфиопию. Но до Аддис-Абебы он не долетел: над Суданом его прижала к земле и посадила пара истребителей «МиГ-21» без опознавательных знаков. Самолеты принадлежали группе арабских экстремистов, возглавляемой… бывшим офицером морской пехоты США. Психически ненормальный, он мечтает повторить американскую (   Читать дальше...   )Жанр: БоевикПродолжительность: 05:52:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52D3DCAFD306C70B23B018DCFF5B162F3025A5BB
+magnet:?xt=urn:btih:C60A71C28616E56893A33A86A59FD2F6C02CDC1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,25 +324,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792708   (67594) от 20.04.2025
+###  Публикация: 1356490   (978899) от 30.01.2020
 
-Военная тайна с Игорем Прокопенко (19.04.2025) WEBRip [H.264]
+Нуки (Слот) - Волки смотрят в лес (2020) [MP3|320 Kbps] <Alternative Metal>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67594.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:52
+01. Холодно
+02. Пищевая цепочка
+03. 451
+04. Пожары(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D138249351224FCB08FF5E15D2F732AF704630AB
+magnet:?xt=urn:btih:41A860F182E7339630F06349149BC040B22BEC30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,28 +353,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792711   (67595) от 20.04.2025
+###  Публикация: 1356477   (978898) от 30.01.2020
 
-Saori Yano - Best (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+Райдер Уиндем | Цикл " Звездные войны. Войны клонов. Секретные задания" [4 книги] (2009 - 2011) [FB2, TXT]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978898.jpg" />
+</div>
+
+
+###  Подробнее
+
+На далекой планете пропадает генерал-джедай, оставив своего юного ученика с отрядом новичков-клонов самостоятельно завершать опасное секретное задание.
+Загнанная в ловушку среди бескрайних просторов Дикого Космоса на далекой окраине галактики, эта неопытная команда вынуждена искать помощи в мире контрабандистов и преступников, одновременно скрываясь от посланного (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастика, КосмоопераФормат: FB2, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B369244FE5120CF5C8300BE3D27A2E10D8297A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939184   (978897) от 30.01.2020
+
+Spyro Gyra - Fast Forward (1993) GRP Records [FLAC|image+.cue]<Smooth, Jazz-Pop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67595.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Donna Lee [1:55]
-02. Suna to Skirt [6:56]
-03. Crazy He Calls Me [7:56]
-04. Rizlla [5:33](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:11:38
+01.Bright Lights [05:23]
+02.Para Ti Latino [04:17]
+03.Alexandra [04:43]
+04.Ocean Parkway [04:34](   Читать дальше...   )Жанр: Smooth, Jazz-PopПродолжительность: 00:48:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDD0E3ACD4295D43439576FFB701197C01755694
+magnet:?xt=urn:btih:B667AFB675C3115B1C04D5C52B0EEBC09B71EFB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,28 +409,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792395   (67596) от 20.04.2025
+###  Публикация: 1356440   (978896) от 30.01.2020
 
-Ори!Зона! - 20 лет спустя (2025) [MP3|320 Kbps] <Chanson>
+Оксана Рябинина | Праздничный стол. Вкусные блюда, которые всегда удаются (2016) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга создана по материалам популярного кулинарного сайта «Миллион меню». Все рецепты уже проверены тысячами хозяек!
+Здесь вы найдете то, что соответствует именно вашему представлению о празднике. Начав листать ее, вы сразу почувствуете атмосферу торжества и восхитительный аромат блюд, приготовленных с любовью. Потрясающие рецепты на все случаи жизни: разнообразные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35035FADCE034C7605578C77F84A3F48184C1AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356309   (978895) от 30.01.2020
+
+Алексей Глухов (Лёша Закон) - Держись, заграница.. (2015) [MP3|320 Kbps] <Авторская песня, Rock, Acoustic>
 
 >>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67596.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Суета [00:03:00]
-02 - Оглянись [00:03:12]
-03 - Мой друг [00:02:44]
-04 - Я живу, и горю лишь тобой [00:02:57](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:30:59
+1	От героев былых времен	2:38
+2	Погляди на небо	1:45
+3	Письмо	2:36
+4	Лесом, полями	2:31(   Читать дальше...   )Жанр: Авторская песня, Rock, AcousticПродолжительность: 00:52:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAB489702C4C195C28558BF1DA2B002E2B44468B
+magnet:?xt=urn:btih:C6E8926D3084320E8C963DBE6144718883577D18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,25 +465,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792662   (67597) от 20.04.2025
+###  Публикация: 1356265   (978894) от 30.01.2020
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Cosmic Peacock Feathers Digital Papers [PNG]
+Loaris Trojan Remover 3.1.11.1400 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67597.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Павлиньи перья на цифровой бумаге.Формат: PNGРазрешение файлов: 3600 x 3600
+Loaris Trojan Remover - средство удаления вредоносного ПО, среди которых есть троянские программы, интернет-черви, рекламные и шпионские программы. Утилита предназначена для удаления угроз с Вашего компьютера, когда постоянная антивирусная защита не в состоянии обнаружить или полностью удалить их. Очень часто антивирусные решения хороши в обнаружении вредоносных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F5998AB6E7A978FD298B851E13E4F32908A2BA5
+magnet:?xt=urn:btih:71182FA2033F041E654DD74BCE672FBC2C9AD806
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,25 +491,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792667   (67598) от 20.04.2025
+###  Публикация: 1356418   (978893) от 30.01.2020
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Rainbow Seamless Pattern [JPEG]
+Рейчел Кейн | Мёртвое озеро (Книга 1) (2019) [MP3, Марго Завизион]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67598.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшовные узоры с радугой. Сгенерировано ИИ.Формат: JPEGРазрешение файлов: 3600 x 3600
+Прямо сейчас, пока вы читаете этот текст, сотни серийных убийц разгуливают на свободе. А что, если один из них – ваш муж? Что бы сделали вы, узнав, что в течение многих лет спите в одной постели с монстром?
+Джина Роял была хорошей женой и любящей матерью. У нее был уютный дом на Среднем Западе и двое замечательных детей. Был у Джины и муж Мэл – обаятельный и успешный. (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПродолжительность: 14:10:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57D21D26E6193C76EECF9A3DB4B6F3487C4E7BA1
+magnet:?xt=urn:btih:7DCA9F76037D42385C391E3C8FE0F851ED8ACFEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,28 +518,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792493   (67599) от 20.04.2025
+###  Публикация: 1356491   (978892) от 30.01.2020
 
-Quartz - Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
+Alphaxone, ProtoU, Onasander - Shadows Of Forgotten Legends (2020) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dark Ambient>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Electronic
+>>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67599.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Insomnia [00:04:05]
-02. Come Hell Or High Water [00:03:59]
-03. Give It All You've Got [00:03:54]
-04. Burn In Hell [00:03:51](   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 00:49:03
+01. Beneath The Dark Night (05:51)
+ 02. Below The Thunders Of The Upper Deep (05:51)
+ 03. Future Ghost (06:40)
+ 04. Uninvaded Sleep (06:39)(   Читать дальше...   )Жанр: Dark AmbientПродолжительность: 01:01:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AE7E25BB36F2F6991BDCA0C879DA4A507B4A9B5
+magnet:?xt=urn:btih:DF13C7ABB8BB46361572B6384A58527A90EE3F70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,27 +547,89 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792754   (67600) от 20.04.2025
+###  Публикация: 1356406   (978891) от 30.01.2020
 
-Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+Savage - I Love You (2020) Maxi-Single [MP3|320 Kbps] <Italo-Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Love You (Radio Version) [3:17]
+ 02 - I Love You (Extended Version) [5:00]
+ 03 - I Love You (Club Mix) [3:32]
+ 04 - I Love You (Rain Dub) [3:05](   Читать дальше...   )Жанр: Italo-Disco, HouseПродолжительность: 00:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34C6C8F45ED62179F44664AFA76B1C388011609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356502   (978890) от 30.01.2020
+
+Opera 66.0 Build 3515.60 Stable RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F310DB93567067B86510DB5CB3008227348631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742624   (978883) от 06.01.2014
+
+Electric Light Orchestra - Discovery (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Prog Rock, Symphonic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67600.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Visionatica - симфо-метал-группа из Франконии, Германия. Образована в 2016 году.2016 - Force Of Luna
-2019 - Enigma Fire
-2025 - Harrowing InsightЖанр: Symphonic MetalПродолжительность: 01:54:50
+Сторона 1
+1. Shine A Little Love  4:40
+2. Confusion  3:42
+3. Need Her Love  5:08
+4. The Diary Of Horace Wimp  4:16
+Сторона 2
+1. Last Train To London  4:30
+2. Midnight Blue  4:18
+3. On The Run  3:58
+4. Wishing  4:10(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:38:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE1C729837506B00DA89B1728316D74ED3E3F1F8
+magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,25 +637,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792680   (67601) от 20.04.2025
+###  Публикация: 615126   (978881) от 07.02.2013
 
-Растровый клипарт - Designworld - Creative Fabrica - Pastel Mermaid Tail Digital Paper [PNG]
+Sepia - Goodbye Tristesse (2007) [FLAC|Lossless]<Gothic Metal / Gothic Rock>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67601.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага в пастельных тонах.Формат: PNGРазрешение файлов: 3600 x 3600
+01. Ich Lebe 04:25
+02. Keine Worte 03:48
+03. Kalt 03:59
+04. Moloc 04:23
+05. Himmel 03:58
+06. Goodbye Tristesse 04:22
+07. Königin 04:23
+08. Paradies 03:47
+09. Melancholie 02:58
+10. Allein 04:09(   Читать дальше...   )Жанр: Gothic Metal / Gothic RockПродолжительность: 00:48:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DB592979286274AEBE3E19B95C4A1228E1F98DA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,25 +672,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792660   (67602) от 20.04.2025
+###  Публикация: 742217   (978876) от 06.01.2014
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Green Olives & Cherries Digital Papers [JPG]
+Дэн против / Dan Vs. (2011) WEB-DL [H.264/720p-LQ] (Сезон 1,  серии 1-22 из 22)
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Мультфильмы
+>>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67602.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров из зелёных оливок и вишни сгенерированных искусственным интеллектом.Формат: JPGРазрешение файлов: 3600 x 3600
+Никто и ничто не способно остановить бесстрашного Дэна. Главный герой уверен в том, что весь мир объединился против него. Каждый день его ожидают множество серьезных, а иногда бессмысленных испытаний, в которые Дэн всегда втягивает своего друга Криса и его жену Элис.Жанр: Приключения, Комедия, МультсериалРежиссер: Мэтт Дэннер, Стефани Арнетт, Брайан ШислиПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 22x ~00:22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E8BE4765F9A356B784D6EDCEFDEB5A55BA9F5BC
+magnet:?xt=urn:btih:6E56D4380996F7FC136B51003C4C697DED0A3D83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,25 +698,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792690   (67603) от 20.04.2025
+###  Публикация: 612038   (978873) от 07.02.2013
 
-Растровый клипарт - STCrafts - Creative Fabrica - Teal Plaid Fabric Mug Wrap Sublimation Design [PNG]
+VA - Drum and Bass Pro V.6 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67603.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сублимационный дизайн в виде обёрточной бумаги для кружек с рисунком бирюзовой клетчатой ткани.Формат: PNGРазрешение файлов: 2925 x 1425
+01. Ultima C - Cry Another Day (Original Mix)
+02. Scott Allen - Every Time (Original Mix)
+03. John B - Love Again feat. Jillian Ann (Original Mix)
+04. Skyweep - Need To Feel Loved (ft. Durrant & UnClubbed) (Original Mix)
+05. Seven Lions - Days To Come (Dead Battery DnB Remix)
+06. SynthForce - Hear You Calling (Original Mix)
+07. Phil Tangent - Hindsight (Original Mix)
+08. Bcee & Bladerunner - Fatal Attraction (Original Mix)
+09. Primal Therapy - Screamshot (Original Mix)
+10. Subformat feat. Charli Brix - More (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:42:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18B5CDA6248F425691999DAA1FBD806CA597672A
+magnet:?xt=urn:btih:BD067DA4063AD48FBD0A1DD05D812E1EC95C266F
 ```
 
 https://mybot314.ru/tekegram_catalog/

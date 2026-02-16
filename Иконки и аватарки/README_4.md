@@ -1,22 +1,22 @@
-###  Публикация: 401063   (635158) от 13.06.2015
+###  Публикация: 586292   (228972) от 08.12.2012
 
-[Аватарки] (анимированные) 650 шт.
+Иконки - UFO Png by KSV
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635158.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_228972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка анимированных аватар на любой вкусРазрешение файлов: 90x60 - 100x100
+UFO Png by KSVРазрешение файлов: ~ 256х256
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D044973A3C457D1453A1E0C900BE6B000AA15B8
+magnet:?xt=urn:btih:49CAC15EE62F4FBDB3182006B7ABDFE4958A4F98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228158   (639133) от 30.05.2018
+###  Публикация: 1424885   (224949) от 18.11.2020
 
-Иконки - IKONS [AI, ESP, PSD, PNG]
+Иконки - Amazing Vector Icons [AI, EPS, PSD, PNG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639133.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иконки разного формата на разную тематику 100% бесплатно!
-Автор: Piotr Adam KwiatkowskiФормат: SVG, AI, ESP, PSD, CSH, PNGРазрешение файлов: 32 x 32 -128 x 128
+Прекрасные иконки бесценны для дизайнеров. Иконки, которые обеспечивают не только фантастический дизайн, но и универсальность, еще лучше. Иконки - безмерно полезная часть набора инструментов любого дизайнера.Формат: AI, EPS, PSD, PNGРазрешение файлов: 16x16-512x512
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44E1A0DC0E81EBC1F56E537A26A3D237C2D0599A
+magnet:?xt=urn:btih:7E11F77ED47AD3A31E977C06CBF8FE32629D2140
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,26 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292541   (642696) от 31.03.2019
+###  Публикация: 1424914   (224931) от 18.11.2020
 
-Иконки - Pixel Surplus - Free Valentine icon set [AI, EPS]
+Иконки - Gorgeous Vector Sketch Icons [AI, EPS, PNG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642696.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки в векторе на тему "День святого Валентина", в 4-х вариациях.
-Автор: Tezar Tantular ( Bali, Indonesia )Формат: AI, EPS
+Вы хотите отличаться? Попробуйте использовать нарисованные от руки значки на своем веб-сайте или в приложении, чтобы выделиться и привлечь внимание. Поскольку все значки векторизованы, вы можете настроить их под свои нужды.Формат: AI, EPS, PNGРазрешение файлов: 77x232-242x150
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF4EF488C07C63534961330B97C5221F20353B23
+magnet:?xt=urn:btih:86087B0A2307384F92A1CEFCB041AAB6823349F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,26 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292111   (648387) от 28.03.2019
+###  Публикация: 1425005   (223308) от 19.11.2020
 
-Иконки - MightyDeals - 200 Shopping and E-Commerce Icons [AI, EPS]
+Иконки - Glyph, Symbols and Minimalist Icon [PSD, CSH, PNG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648387.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки в векторе, в 4-х вариациях.
-Автор: Tezar Tantular ( Bali, Indonesia )Формат: AI, EPS
+Иконки - довольно важная необходимость в наборе инструментов дизайнера. Полезно для навигации по веб-сайтам, пользовательских интерфейсов и различных других приложений.Формат: PSD, CSH, PNGРазрешение файлов: 5x3-930x1264
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6706C5B5A360A0CB3928405288DA36928C408A16
+magnet:?xt=urn:btih:28ECB49894D7E4CA284C062A6E18BBBD2BEFF42F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,26 +102,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291888   (650137) от 27.03.2019
+###  Публикация: 1831049   (212547) от 28.10.2025
 
-Иконки - 1001FreeDownloads - Lynny Icons - Full [PNG, AI, EPS]
+Иконки - UI8 - Shinobi 3D Pack: Classic Ninja Gear [FIG, PNG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650137.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_212547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-100% Бесплатные иконки векторе и растре. (Бесплатно для личного и коммерческого использования со ссылкой на  1001FreeDownloads.com)
-Автор: 1001FreeDownloads TeamФормат: PNG, AI, EPSРазрешение файлов: 8 x 22 - 44 x 46
+Набор 3D-инструментов ниндзя в стиле фетра, разработанный для современных интерфейсов и визуальных проектов. Каждый элемент в наборе Shinobi 3D Pack отражает аутентичную эстетику ниндзя с мягкими фетровыми текстурами, сбалансированным освещением и чёткой детализацией, создавая первоклассный вид.
+Все ресурсы представлены в форматах PNG и Figma высокого разрешения (   Читать дальше...   )Формат: FIG, PNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:491EE1A2E41E90D575A7D09A8E11F3704682973E
+magnet:?xt=urn:btih:74A03CA1DA0D47C40042AB5603DCE08C44931C91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,26 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291895   (650246) от 27.03.2019
+###  Публикация: 1831583   (212136) от 28.10.2025
 
-Иконки - Behance - Line icon set [AI]
+Иконки - UI8 - Icoonia - 2.700+ Vector Icon | Line Style [FIG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650246.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_212136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки в векторе.
-Автор: Olexiy Levchuk ( Lviv, Ukraine )Формат: AI
+Icoonia Line Vector Icon — это полный пакет из 2700+ готовых к использованию и масштабируемых векторных иконок. Каждая иконка создана вручную с учетом того же визуально последовательного, высококачественного стиля дизайна.Формат: FIG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7180037A3CF4E4B07D70940F18CE75C213FD03FB
+magnet:?xt=urn:btih:DAA99FDC5301C55EF42E308FE09AC9008CDF29E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,25 +155,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 516637   (651157) от 29.06.2012
+###  Публикация: 1829508   (202037) от 25.10.2025
 
-[Графика] Mix SHT icons pack by KSV
+Иконки - UI8 - Icoonia Pro | 10.000 Ultimate Vector Icons [FIG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651157.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mix SHT icons pack by KSV
+Всё началось с того, что мы, дизайнеры, с трудом подбирали подходящие иконки для UI-проектов. Мы были разочарованы, потому что было сложно найти иконки, которые бы выглядели единообразно и охватывали множество категорий. Поэтому мы решили создать собственную библиотеку иконок под названием Icoonia, чтобы упростить себе работу.
+
+Icoonia поможет вам лучше визуализировать (   Читать дальше...   )Формат: FIG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD54C8416A06687F62338C89361ECC4C4CD1EA88
+magnet:?xt=urn:btih:FA28F0CD007869A3777C74B40DD0B993F9ECA18A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,26 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291691   (652093) от 26.03.2019
+###  Публикация: 1633194   (198558) от 13.05.2023
 
-Иконки - Graphic Google - 400 Free Flat Icons For Web and Graphic Designers [AI]
+Иконки - 3D Icon Fast Food Collections [PNG, OBJ]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652093.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки в векторе.
-Автор: Ess Kay (California City, CA, USA)Формат: AI
+20 3D иконок на тему фастфуда.Формат: PNG, OBJРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6820B822B96754005F3A44C54EF06170742C9EE
+magnet:?xt=urn:btih:FA089D472FFC161AD30742A29D0E1B3C01E9D9A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,26 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291875   (652255) от 26.03.2019
+###  Публикация: 1633193   (198544) от 13.05.2023
 
-Иконки - Dreamstale - Free Download 220 Flat Vector Icons [PNG, AI, EPS]
+Иконки - Fruit 3D Icon [PNG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652255.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки векторе и растре. Материал раздается с официальной документацией.
-Автор: DreamstaleФормат: PNG, AI, EPSРазрешение файлов: 48 x 48 - 128 x 128
+Набор 3D иконок фруктов, овощей и мороженого.Формат: PNGРазрешение файлов: 2500x2500-3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCC4CA3CA0A9BD00C4078800567CA78DADEC420E
+magnet:?xt=urn:btih:534AB97C0722BF1DA5DA6FFD3B2A0529DA0551F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,25 +235,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 516259   (652839) от 28.06.2012
+###  Публикация: 1633199   (198542) от 13.05.2023
 
-Иконки - 3D Анимированные иконки для RocketDock
+Иконки - 3D Food Icons [FIG, PNG, PSD, BLEND]
 
->>След.
+>>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652839.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Анимированные 3D иконки для программы RocketDock. 75 штук. Всё делал сам, так что, личностям с обострённым эстетическим вкусом, скачивать категорически не рекомендуется. ;) Как уже сказал выше, иконки делал сам, соответственно-эксклюзив для NNM! :)Разрешение файлов: 11776x256
+30 3D иконок с разными продуктами.Формат: FIG, PNG, PSD, BLENDРазрешение файлов: 2500x2500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F877EF0B4B253FF914398E17A3040DFA2321E1DD
+magnet:?xt=urn:btih:58F72C66F364905081DFEC6FD4B5048ED11FF277
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,26 +261,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225747   (657556) от 18.05.2018
+###  Публикация: 1633208   (198497) от 14.05.2023
 
-Иконки - Creative Market - 1340 Indoors Line Icons - 2037465 [AI, CDR, EPS, JPG]
+Иконки - 3D Christmas Concept [PSD, PNG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657556.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иконки чёрно-белые контурные в векторе и не только.
-Автор: IconBunny.Формат: AI, CDR, EPS, JPG, PNG, SVG, CMXРазрешение файлов: 16 x 16 - 5120 x 5120
+Набор новогодних 3D иллюстраций.Формат: PSD, PNGРазрешение файлов: 4000x2500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3EC24477C21F71BD6085DEC9BE47765D31889DA
+magnet:?xt=urn:btih:B45C504F97EEE056989C4E8BCA044EE6754F1B19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,26 +287,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225760   (658499) от 17.05.2018
+###  Публикация: 1633205   (198482) от 13.05.2023
 
-Иконки - Creative Market - 1800 Minimal Icons - 849317 [PSD, EPS, AI, SVG]
+Иконки - 3D Business - People [PNG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658499.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простые иконки.
-Автор:  Alexandru StoicaФормат: PSD, EPS, AI, SVG, SCETCH, PNGРазрешение файлов: 6 x 7 - 28 x 20
+Продемонстрируйте свой дизайн более эффективно с помощью этого набора 3D иконок людей для графических дизайнеров, типографий, соц.сетей, рекламы и т.д. В набор входит 158 иконок в формате png.Формат: PNGРазрешение файлов: 517x912-1304x912
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4609C978AD2C8AFC803694917EF5A733E60FD5D
+magnet:?xt=urn:btih:2415A96AF40C595D2E558BFE217EB688B7E9682D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,26 +313,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225694   (658502) от 17.05.2018
+###  Публикация: 1633211   (198428) от 14.05.2023
 
-Иконки - GraphicRiver - Social Media Icons Bundle - 13321643 [AI, EPS, PNG]
+Иконки - 3D Climate Change Icon [BLEND, PNG, GLTF, OBJ, FBX]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658502.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иконки в векторе и не только с официальной документацией.
-Автор: Brandify Studio.Формат: AI, EPS, PNGРазрешение файлов: 133 x 256 - 256 x 290
+Улучшите свое мобильное приложение, UI/UX и проекты веб-дизайна с помощью 3D-иконок «Изменение климата», добавив в свой дизайн уникальный и привлекательный элемент.Формат: BLEND, PNG, GLTF, OBJ, FBXРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03E96776A43FDF426D44D421713F412331E6D629
+magnet:?xt=urn:btih:1298967CD1C7D0D7C05ADE18945FC7C4740ACC2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,26 +339,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225709   (658587) от 17.05.2018
+###  Публикация: 1633214   (198416) от 14.05.2023
 
-Иконки - Creative Market - 370 People Line Icons - 2321735 [AI, CDR, EPS, JPG]
+Иконки - 3D Object Set [PNG, BLEND]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658587.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иконки чёрно-белые контурные в векторе и не только.
-Автор: IconBunny.Формат: AI, CDR, EPS, JPG, PNG, SVG, CMXРазрешение файлов: 16 x 16 - 5120 x 5120
+Набор иллюстраций и 3D моделей с мультяшными гаджетами.Формат: PNG, BLENDРазрешение файлов: 2000x2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DE0444FB4C11FD903EFC4CBC77CFB94DC6F3A31
+magnet:?xt=urn:btih:16BA08624E3B089859CF32EEC350EFA4407FC655
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,26 +365,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225707   (658588) от 17.05.2018
+###  Публикация: 1633622   (198316) от 16.05.2023
 
-Иконки - Creative Market - 400 Places Line Icons - 2321829 [AI, CDR, EPS, JPG]
+Иконки - Рrofеssiоn 3D Аvаtаrs [BLEND, PNG, OBJ, PSD]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658588.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иконки - чёрно-белые контурные в векторе и не только.
-Автор: IconBunny.Формат: AI, CDR, EPS, JPG, PNG, SVG, CMXРазрешение файлов: 16 x 16 - 1024 x 1024
+Аvаtаr Рrofеssiоn 3D Icon Pack - это пакет аватаров премиум-класса, который вы можете использовать для своего дизайна, анимации, веб-дизайна, дизайна UI/UX, презентаций и многого другого.Формат: BLEND, PNG, OBJ, PSDРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88D07CEAB63655C012436EBC55B1DC332DB6B19D
+magnet:?xt=urn:btih:8D1ED0F08A011709B4178774D53D5E50195AFD4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,26 +391,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291503   (668511) от 25.03.2019
+###  Публикация: 1633839   (198283) от 17.05.2023
 
-Иконки - Good Stuff Non Nonsense - Good Idea [SVG, PNG, AI, EPS]
+Иконки - 3D Cyber Security Icon [BLEND, PNG, GLTF, OBJ, FBX]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668511.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки векторе и растре, рисованные вручную. Материал раздается с официальной документацией.
-Автор: Agata Kuczminska (Tarnow, Poland)Формат: SVG, PNG, AI, EPS, PDFРазрешение файлов: 64 x 64 - 512 x 512
+Улучшите свое мобильное приложение, UI/UX и проекты веб-дизайна с помощью 3D-иконок «Значки кибербезопасности», добавив в свой дизайн уникальный и привлекательный элемент.Формат: BLEND, PNG, GLTF, OBJ, FBXРазрешение файлов: 2000x2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20066668423AEDA47EBD5EF46ACD56BF1A7D65D8
+magnet:?xt=urn:btih:5832134D157920C832C22C8C20878C182C980FB0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,26 +417,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291501   (668515) от 25.03.2019
+###  Публикация: 1634971   (198120) от 23.05.2023
 
-Иконки - Good Stuff Non Nonsense - New Year's Icons [SVG, PNG, AI, EPS]
+Иконки - 3D Gym and Fitness Icon Vol 1 [BLEND, PNG, GLTF]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668515.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки на новогоднюю тематику в векторе и растре  в 2-х вариациях с дополнениями, рисованные вручную. Материал раздается с официальной документацией.
-Автор: Agata Kuczminska (Tarnow, Poland)Формат: SVG, PNG, AI, EPS, PDF, PSD, CSHРазрешение файлов: 64 x 64 - 256 x 256
+Обновите свой проект с помощью этих 3D-иконок Gym and Fitness, созданных с любовью и страстью. Отлично подходит для ваших лендингов, приложений, презентаций и других проектов. Вы можете легко изменить цвет и текстуру блендера, чтобы они идеально соответствовали рекомендациям вашего бренда.Формат: BLEND, PNG, GLTFРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4211899F9F05ACE8425866BA65FE3F50D45F057F
+magnet:?xt=urn:btih:8B900B71BE9387C329A5FBCF8F2ACC98AE94B983
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,25 +443,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291316   (670129) от 24.03.2019
+###  Публикация: 1634975   (198116) от 23.05.2023
 
-Иконки - GraphicsFuel - 1400 Social Media Icons for Free [CDR, EPS, PNG]
+Иконки - 3D Gym and Fitness Icon Vol 2 [BLEND, PNG, GLTF]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670129.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1400 Бесплатных иконок в векторе и растре. Материал раздается с официальной документацией.Формат: CDR, EPS, PNGРазрешение файлов: 32x32 - 512x512
+Обновите свой проект с помощью этих 3D-иконок Gym and Fitness, созданных с любовью и страстью. Отлично подходит для ваших лендингов, приложений, презентаций и других проектов. Вы можете легко изменить цвет и текстуру блендера, чтобы они идеально соответствовали рекомендациям вашего бренда.Формат: BLEND, PNG, GLTFРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43D914B952F5ED91E364058D315A12B02C5B8A38
+magnet:?xt=urn:btih:DDCF26837DFE3FABA0AAC754C6675D6E9A08E768
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,26 +469,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291415   (670220) от 24.03.2019
+###  Публикация: 1634962   (198108) от 23.05.2023
 
-Иконки - Good Stuff Non Nonsense - Social Media Icons [SVG, PNG, AI, EPS]
+Иконки - Creative Market - Japanese Food - 3D Collection - 10853827 [BLEND, PNG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670220.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки в векторе и растре, рисованные вручную. Материал раздается с официальной документацией.
-Автор: Agata Kuczminska (Tarnow, Poland)Формат: SVG, PNG, AI, EPSРазрешение файлов: 64 x 64 - 256 x 256
+Представляем вам 3D-иллюстрацию японской кухни, которая поможет в вашей дизайнерской работе, такой как презентации, UX-дизайн, социальные сети, целевые страницы, веб-сайты и многое другое.Формат: BLEND, PNGРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D134A33D6A88E9BA854549E2C8053B6C5BC1B5F8
+magnet:?xt=urn:btih:422BC3499BC5B03CA8C443BB2A96D6ACF28AC229
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,26 +495,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291398   (670232) от 24.03.2019
+###  Публикация: 1634977   (198094) от 23.05.2023
 
-Иконки - GraphicsFuel - 200 Holidays & Travel Icons Pack [AI, PNG, SVG]
+Иконки - 3D Gym and Fitness Icon Vol 3 [BLEND, PNG, GLTF]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670232.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки на тему "путешествия и праздники" в векторе и растре, рисованные вручную.
-Автор: FreepikФормат: AI, PNG, SVGРазрешение файлов: 200 x 200
+Обновите свой проект с помощью этих 3D-иконок Gym and Fitness, созданных с любовью и страстью. Отлично подходит для ваших лендингов, приложений, презентаций и других проектов. Вы можете легко изменить цвет и текстуру блендера, чтобы они идеально соответствовали рекомендациям вашего бренда.Формат: BLEND, PNG, GLTFРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E20AC0D4491391DEA8361B789218094DA842B4D5
+magnet:?xt=urn:btih:7800A0EFD98CA241BDC188501B4338FCC37A23A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,26 +521,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291308   (670340) от 24.03.2019
+###  Публикация: 1634984   (198082) от 23.05.2023
 
-Иконки - Good Stuff Non Nonsense - Space Icons [SVG, PNG, AI, EPS]
+Иконки - Creative Market - 3D Building Illustration Vol.1 - 7440459 [BLEND, PNG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670340.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки на космическую тематику в векторе и растре в 5-и вариациях. Материал раздается с официальной документацией.
-Автор: Agata Kuczminska (Tarnow, Poland)Формат: SVG, PNG, AI, EPSРазрешение файлов: 64 x 64 - 512 x 512
+Обновите свой проект с помощью этих строительных 3D-иллюстраций, которые были сделаны с любовью и страстью. Отлично подходит для ваших лендингов, приложений, презентаций и других проектов. Вы можете легко изменить цвет и текстуру в blender, чтобы они идеально соответствовали рекомендациям вашего бренда.Формат: BLEND, PNGРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECEA44C2C324F5287011E1FF20F83D2755B9AAEA
+magnet:?xt=urn:btih:68B80A0F4CE44F2193071CB611591084301F7456
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,26 +547,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291497   (670341) от 24.03.2019
+###  Публикация: 1635207   (198037) от 24.05.2023
 
-Иконки - Good Stuff Non Nonsense - Cooking icons [AI, EPS]
+Иконки - 3D Electric Vehicle Icon, PNG, GLTF, OBJ, FBX]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670341.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_198037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки в векторе на тему "кулинария", рисованные вручную.
-Автор: Agata Kuczminska (Tarnow, Poland)Формат: AI, EPS
+Улучшите свое мобильное приложение, UI/UX и проекты веб-дизайна с помощью 3D-иконок «электроэлементов», добавив в свой дизайн уникальный и привлекательный элемент.Формат: BLEND, PNG, GLTF, OBJ, FBXРазрешение файлов: 3000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EDD7C340FAE02D4217EBE2AA1612338386B6AC2
+magnet:?xt=urn:btih:B2F3384480C3A7F58CDDE467F0EE4D6029A80684
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,26 +573,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291088   (672029) от 23.03.2019
+###  Публикация: 1635742   (197902) от 27.05.2023
 
-Иконки - Flaticon - Essentials [SVG, EPS, PNG, PSD]
+Иконки - 3D Banking Icons [BLEND, PNG, FIG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672029.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-380 Иконок в векторе и растре с дополнениями.
-Автор: SmashiconsФормат: PNGРазрешение файлов: 512 x 512
+UI8 – Многоугольные 3D-банковские иконки: Обновите свою работу с помощью 3D-иконок. Отлично подходит для целевых страниц, веб-сайтов, мобильных приложений и презентаций.Формат: BLEND, PNG, FIGРазрешение файлов: 2000x2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DDE2043359687C2A853C34DC4D1E3C173524BF6
+magnet:?xt=urn:btih:5DE08FC53ADB4B688637D55E824D0627197FCBF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,26 +599,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291091   (672030) от 23.03.2019
+###  Публикация: 1828035   (193598) от 23.10.2025
 
-Иконки - Designmodo - Free Icons for Illustrator and Sketch App [EPS, SVG, PNG, AI]
+Иконки - Moranauta  - 3D Illustrations Icon Pack [PNG, GLB, OBJ, FIG]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672030.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки в векторе и растре в 3-х вариациях (контурные и чёрно-белые, цветные) с дополнениями. Материал раздается с официальной документацией.
-Автор:Andrian Valeanu (Barcelona, Spain)Формат: EPS, SVG, PNG, AI, PDF, SKETCHРазрешение файлов: 60 x 60 - 180 x 180
+Набор из 20 3D-иконок Design Thinking для веб-страниц, приложений, маркетинга и презентаций.Формат: PNG, GLB, OBJ, FIGРазрешение файлов: 4000x4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6EDD51FE100F3079A66F4535002FEE4C193D2C6
+magnet:?xt=urn:btih:BF1FACFF612FAA30083CCBC517512971D5392D73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,26 +625,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291062   (672032) от 23.03.2019
+###  Публикация: 1587472   (192485) от 31.10.2022
 
-Иконки - InstantShift - Graphic Design Icon Set [PNG, SVG]
+Иконки - UI8 - HUUUGE Gradient And Gold Emoji 3D Pack [FIG, PNG, BLEND]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672032.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки в растре и векторе в 3-х вариациях (контурные, цветные, контурные цветные).
-Автор: iShift StaffФормат: PNG, SVGРазрешение файлов: 2135 x 2134
+Это набор пользовательских 3D-иконок, подходящих для любых продуктов. Этот пакет идеально дополнит дизайн вашего приложения, презентации, веб-сайта и т.д. Создавайте потрясающие, уникальные проекты с помощью крутых 3D-эмодзи, которые легко редактируются в Figma.Формат: FIG, PNG, BLENDРазрешение файлов: 2118x2724-3672x2768
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAC3D5340D0E349F9268AC4ECC1B5E52B14FE364
+magnet:?xt=urn:btih:C013A0FE6FC67172D51EF9EEAAD5CC1181F4CA1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,26 +651,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291079   (672034) от 23.03.2019
+###  Публикация: 1827454   (186354) от 21.10.2025
 
-Иконки - Designmodo - UIcons [AI, EPS, SVG, PNG]
+Иконки - UI8 - 3D Space Objects Pack - 50 High-Res Animated-Style Assets [PNG, PSD]
 
 >>Графика, Арт, Разное
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672034.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные иконки в векторе и растре в 2-х вариациях (контурные и чёрно-белые). Материал раздается с официальной документацией.
-Автор:Andrian Valeanu (Barcelona, Spain)Формат: AI, EPS, SVG, PNG, PDFРазрешение файлов: 32 x 32 - 128 x 128
+Оживите свои творческие проекты с этим пакетом 3D-объектов, посвященных космосу, включающим 50 высококачественных рендеров в стиле Pixar. От астронавтов и НЛО до планет, лун, кристаллов и причудливых инопланетных персонажей — каждый объект выполнен в игривом, красочном 3D-стиле с плавными, равномерными штрихами.
+
+Каждый файл представлен в прозрачном формате PNG (готов (   Читать дальше...   )Формат: PNG, PSD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F045C2D20161BF10DCF16A20A394F2671EDB1D2
+magnet:?xt=urn:btih:A25B9F45B8D8BAEBFC82F79CA6CD61B4A3DBF4FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

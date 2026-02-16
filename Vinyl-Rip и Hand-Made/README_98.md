@@ -1,26 +1,25 @@
-###  Публикация: 970826   (985764) от 03.01.2016
+###  Публикация: 1795038   (19564) от 02.05.2025
 
-VA - Кубинская эстрадная оркестровая музыка 60-х годов (1961) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop, Retro>
+VA - Heavy Artillery (1990) Unofficial Release [FLAC 2.0|44.1/24|image +.cue|MC-Rip] <Thrash, Heavy Metal, Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985764.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Маленький ансамбль - Оркестр Э. Лекуона
-02. Мама Инес - Оркестр Э. ГренетаЖанр: Pop, RetroПродолжительность: 00:04:41
-
-Страна-производитель: USSR
-Издатель (лейбл): Пластмасс(   Читать дальше...   )
+Side One:
+01. Breaker - Still Life
+02. Kraze - Devil In Disguise
+03. Chemikill - Deadline(   Читать дальше...   )Жанр: Thrash, Heavy Metal, Power MetalПродолжительность: 01:19:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
+magnet:?xt=urn:btih:54925EF0C8B99E906B2B5B0468B3AC5007002F2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,28 +27,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 680927   (985968) от 24.01.2020
+###  Публикация: 1553299   (19219) от 06.05.2025
 
-Planet P Project – Planet P (1983) [APE 2.0 24/192|tracks (Vinyl-Rip)]<Progressive Rock>
+W.A.S.P. - Studio Albums (16 releases) (1984-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
 
->>HD Audio и Многоканальная Музыка
+>>След.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985968.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Static [4:10]
-A2. King For A Day [3:55]
-A3. I Wont Wake Up [3:45]
-A4. Top Of The World [4:33](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:00
+W.A.S.P. — американская метал-группа, образованная в 1982 году и наряду с Ratt,
+Mötley Crüe, Quiet Riot сформировавшая лос-анджелесскую глэм-метал-сцену. Коллектив приобрёл скандальную известность в 1980-х гг. и по-прежнему сохраняет популярность, периодически выпуская альбомы и проводя гастрольные туры.1984 - W.A.S.P.
+1985 - The Last Command
+1986 - Inside The Electric Circus
+1989 - The Headless ChildrenЖанр: Heavy Metal/Hard RockПродолжительность: 15:30:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED5AB61891CAA9D775D72B75817588B02CE65779
+magnet:?xt=urn:btih:254C80D4C6A185178D3E4BD71082E099CD20673E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,34 +57,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609963   (986556) от 01.02.2013
+###  Публикация: 1795979   (19040) от 07.05.2025
 
-BONEY M. - Два альбома (1977-1978) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Pop, Disco>
+Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986556.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Nightflight To Venus [05:51]
-A2. Rasputin [06:08]
-A3. Painter Man [03:19]
-A4. He Was A Steppenwolf [06:56]
-A5. King Of The Road [02:37]
-B1. Rivers Of Babylon [04:22]
-B2. Voodoonight [03:32]
-B3. Brown Girl In The Ring [04:04]
-B4. Never Change Lovers In The Middle Of The Night [05:23]
-B5. Heart Of Gold [04:07]Жанр: Pop, DiscoПродолжительность: 00:46:19
+01 - Intro
+02 - I Rape Myself
+03 - Song About Killing
+04 - It's Our Burden To Bleed(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:14
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4149C489DF7C8DE0398E594666B43F3E53BE6E75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -92,28 +86,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 721311   (986817) от 23.01.2020
+###  Публикация: 1795892   (19039) от 07.05.2025
 
-Машина Времени - Time Machine (2007) Germany Limited Edition [WavPack 2.0 24/192|image (Vinyl-Rip)] <Rock>
+Believer - Extraction from Mortality (1989) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986817.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Полный Контакт [4:27]
-A2. Улетай [3:36]
-A3. Старый Самолёт [3:54]
-A4. То, Чего Больше Нет [4:55](   Читать дальше...   )Жанр: RockФормат: Vinyl, LP, Album, Limited EditionПродолжительность: 00:55:48
+A1 Unite
+A2 Vile Hypocrisy
+A3 D.O.S. (Desolation Of Sodom)
+A4 Tormented(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:41:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:566AC8209A8F3F4C4E24E6FF3FA2C67015900D6E
+magnet:?xt=urn:btih:F493BAABCC128DFF80E1F6AE8D47D80A016635B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -121,28 +115,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 662473   (987714) от 22.01.2020
+###  Публикация: 1795818   (19035) от 07.05.2025
 
-Guns N' Roses – 9 Альбомов (1986-2008) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock, Metal>
+Bekor Qilish - Throes of Death From the Dreamed Nihilism (2022) Released, 2023, I, Voidhanger Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Avant-Garde Black, Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987714.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-1986 - Live Like A Suicide (EP First US Pressing)
-1987 - Appetite For Destruction (First US Pressing)
-1988 - G N' R Lies (EP First US Pressing)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:59:01
+A1. Cryptic Hatred (04:34)
+A2. Self-Destructed Destruction (03:41)
+A3. Verminous Barrier (02:20)
+B1. Ocean of Malice (04:42)(   Читать дальше...   )Жанр: Avant-Garde Black, Death MetalПродолжительность: 00:27:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:993453754ABF40BD554628D4FE192E72A1E62189
+magnet:?xt=urn:btih:520683272C3DF6F488C4F90A273D58022D645F21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -150,28 +144,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 709267   (987761) от 22.01.2020
+###  Публикация: 1796254   (18829) от 09.05.2025
 
-Ария - С кем ты? (1986) Мирумир /2013/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
+Believer - Extraction From Mortality (1989) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987761.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Воля и разум [4:32]
-A2. Встань страх преодолей [4:15]
-A3. Здесь куют металл [4:42]
-A4. С кем ты? [4:42](   Читать дальше...   )Жанр: Heavy MetalФормат: Vinyl, LP, AlbumПродолжительность: 00:35:20
+01. Unite
+02. Vile Hypocrisy
+03. D.O.S. (Desolation of Sodom)
+04. Tormented(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:41:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:900CE1073B6C42AFB874206A2E8975FC574932F4
+magnet:?xt=urn:btih:64D5F7BD4EBD85DBF55843CE0665AB233E1A419C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -179,28 +173,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 718675   (987766) от 22.01.2020
+###  Публикация: 1625439   (18767) от 10.05.2025
 
-ZZ Top - Afterburner (1985) [FLAC 2.0 24/192|tracks (Vinyl-Rip)] <Blues Rock, Boogie Rock>
+Bad Boys Blue - The Fifth (1989) 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987766.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Sleeping Bag [4:07]
-A2. Stages [3:35]
-A3. Woke Up With Wood [3:50]
-A4. Rough Boy [4:52](   Читать дальше...   )Жанр: Blues Rock, Boogie RockФормат: Vinyl, LP, AlbumПродолжительность: 00:37:36
+A1 Lady In Black
+A2 Someone To Love
+A3 A Train To Nowhere
+A4 I'm Not A Fool(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:38:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20862BD072C598941E34C51F827EE8A3B26CF3AF
+magnet:?xt=urn:btih:70A59D053FAB6746FE440B9652A4A35295289007
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,28 +202,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 718660   (987822) от 22.01.2020
+###  Публикация: 1626080   (18739) от 10.05.2025
 
-ZZ Top - Eliminator (1983) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues Rock, Boogie Rock>
+Sleep Token - Studio Albums (6 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Post-Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987822.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Gimme All Your Lovin [4:03]
-A2. Got Me Under Pressure [4:03]
-A3. Sharp Dressed Man [4:18]
-A4. I Need You Tonight [6:19](   Читать дальше...   )Жанр: Blues Rock, Boogie RockФормат: Vinyl, LP, AlbumПродолжительность: 00:45:28
+Sleep Token — британская рок-группа из Лондона, Англия, образованная в 2016 году. Группа представляет собой анонимный коллектив в масках, возглавляемый фронтменом под псевдонимом Vessel.2019 - Sundowning
+2021 - This Place Will Become Your TombЖанр: Progressive Metal, Post-Metal, Indie RockПродолжительность: 04:36:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:649A4065E96CA76523E5EF416037BDAB6447A3E6
+magnet:?xt=urn:btih:3DA69DB4173949E951FB5676D6A919143CD95926
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,28 +229,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 698501   (987828) от 22.01.2020
+###  Публикация: 1636878   (18737) от 10.05.2025
 
-Chris Norman –Some Hearts Are Diamonds (1986) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop Rock>
+Nemesea - Studio Albums (5 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987828.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18737.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Some Hearts Are Diamonds [3:45]
-A2. Hunters Of The Night [4:07]
-A3. Chain Reaction [3:43]
-A4. It's A Tragedy [3:46](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:10
+Nemesea — голландская симфо-метал-группа.
+Группа была образована в 2002 году вокалисткой Мандой Опхёйс и гитаристом Хенриком Яном де Йонгом в консерватории города Гронинген.2004 - Mana
+2007 - In Control
+2011 - The Quiet Resistance
+2016 - Uprise(   Читать дальше...   )Жанр: Symphonic Metal/Alternative RockПродолжительность: 04:20:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9111109BDBD0C64D61B0893E97538FC6A70C4DFC
+magnet:?xt=urn:btih:2E76DC99622A81536F818C8E1EA7B33AF356C9FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -266,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 708517   (987882) от 22.01.2020
+###  Публикация: 1796886   (18393) от 13.05.2025
 
-James Gang - Miami (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
+Лили Иванова - Поет Лили Иванова (1968) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987882.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Cruisin' Down The Highway [3:20]
-A2. Do It [3:39]
-A3. Wildfire [3:31]
-A4. Sleepwalker [3:59](   Читать дальше...   )Жанр: Classic RockФормат: Vinyl, LP, AlbumПродолжительность: 00:32:40
+А1 Море Молодости
+А2 Трудный Танец
+А3 Венера
+А4 Без Радио Не Могу(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9376BEAE5A29C18B47CE25A6EFCFE5EABF9CD87B
+magnet:?xt=urn:btih:E1ECC3BEEAB1160D25E5A6E945F8C2727A74B07B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,25 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 692153   (987892) от 22.01.2020
+###  Публикация: 1797056   (18300) от 14.05.2025
 
-Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disco>
+Олег Анофриев - Песни Из К-ф «Коллеги» и «Артист Из Кохановки» (1963) [FLAC 1.0|88.2/24|tracks|Vinyl-Rip] <Pop, Soundtrack>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987892.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Disco, Space RockПродолжительность: 00:44:03
+01. Песня Из К-ф «Коллеги»
+(Ю. Левитин – Г. Шпаликов)
+02. Песня Из К-ф «Артист Из Кохановки»
+(О. Сандлер – О. Анофриев)(   Читать дальше...   )Жанр: Pop, SoundtrackПродолжительность: 00:04:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CD221706D5CE2DBD3A7C14822756D2C650B7812
+magnet:?xt=urn:btih:9C25E8FA7CFB40B6F550B304759B97904124627B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,34 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609730   (991978) от 27.01.2013
+###  Публикация: 1797190   (18083) от 16.05.2025
 
-Ozzy Osbourne - Down To Earth (2001)  [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Rock, Heavy Metal>
+Сергей Лемешев - Концерт. Русские песни (1956) [FLAC|Lossless|image + .cue] <Folk>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991978.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Gets Me Through [05:05]
-A2. Facing Hell [04:26]
-A3. Dreamer [04:45]
-A4. No Easy Way Out [05:06]
-A5. That I Never Had [04:23]
-A6. You Know... (Part 1) [01:07]
-B1. Junkie [04:19]
-B2. Running Out Of Time [05:06]
-B3. Black Illusion [04:21]
-B4. Alive [04:54](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:48:34
+А1 Лучинушка
+А2 Эх Ты, Ваня
+А3 У Ворот, Ворот
+А4 Не Одна Во Поле Дороженька(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F38DFD1F80C422A7348C4BA05E17948BE0E20998
+magnet:?xt=urn:btih:DCD334B6E2FD61E022688C8968F04F3540EC0A9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,34 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 608562   (992496) от 26.01.2013
+###  Публикация: 1798047   (17669) от 20.05.2025
 
-Nirvana - 5 альбомов (Японские прессы) (1996, 2007) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Grunge>
+Rodmir - Родмир (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Glam>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992496.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. About A Girl 3:40
-A2. Come As You Are 4:14
-A3. Jesus Doesn't Want Me For A Sunbeam 4:38
-A4. The Man Who Sold The World 4:21
-A5. Pennyroyal Tea 3:41
-A6. Dumb 2:53
-A7. Polly 3:16
-B1. On A Plain 3:45
-B2. Something In The Way 4:02
-B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:54:02
+A1 Тебе • To You
+A2 Инквизитор • Inquisitor
+A3 Посвящение • Dedication
+A4 Русская Рулетка • Russian Roulette(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:34:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
+magnet:?xt=urn:btih:25D23E69C54D65E0269803C37953A0DA104B129D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,32 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 607563   (993977) от 24.01.2013
+###  Публикация: 1798193   (17533) от 21.05.2025
 
-ДДТ - Актриса Весна (1992) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993977.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Дождь 5:16
-A2. В Последнюю Осень 5:02
-A3. Фома 7:02
-A4. Родина 4:44
-B1. Храм 5:23
-B2. Что Такое Осень 4:58
-B3. Ночь 5:16
-B4. Актриса Весна 5:46Жанр: RockПродолжительность: 00:43:27
+01. Rain
+02. Shining Kingdom
+03. Angel's Decay
+04. My Saviour(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:42:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EAF502A58B10900F96ACBAC8C0CE6A03C7720AB
+magnet:?xt=urn:btih:AE2468F6BBB35BE34D3D4BE5A749CDE8902495FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,32 +404,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604991   (995385) от 20.01.2013
+###  Публикация: 1810409   (17341) от 04.08.2025
 
-Кино (Виктор Цой) - 4 альбома (1990-2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+Arcana - Studio Albums (9 releases) (1996-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical Darkwave>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995385.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.- Кончится лето (5:56)
-02.- Красно-желтые дни (5:50)
-03.- Нам с тобой (4:50)
-04.- Звезда (4:30)
-05.- Кукушка (6:39)
-06.- Когда твоя девушка больна (4:22)
-07.- Муравейник (5:17)
-08.- Следи за собой (5:00)Жанр: RockПродолжительность: 00:42:23
+Arcana — шведская группа, созданная в 1994 году Петером Бьяргё.
+Творчество группы часто сравнивают с Dead Can Dance1996 - Dark Age Of Reason
+1997 - Cantar De Procella
+2000 - ...The Last Embrace
+2002 - Inner Pale SunЖанр: Neoclassical DarkwaveПродолжительность: 06:54:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB102A62C4041A392FCCDD6360768FBC5D1F4E57
+magnet:?xt=urn:btih:3F266C0245DD4BDBDD788F68303F9828FC19BCAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,34 +434,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605588   (995401) от 20.01.2013
+###  Публикация: 1810399   (17340) от 04.08.2025
 
-Кино (Виктор Цой) - Ночь (1986/1989) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+VA - Jan Sparring/Nils-Borge Gardh/Linda Hutchens/Bobby Jones & New Life - Till Gladje (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk, Country>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995401.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17340.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Видели Ночь 3:09
-A2. Фильмы 4:56
-A3. Твой Номер 3:30
-A4. Танец 4:34
-A5. Ночь 5:32
-B1. Последний Герой 2:16
-B2. Жизнь В Стеклах 3:34
-B3. Анархия 2:46
-B4. Звезды Останутся Здесь	 3:37
-B5. Игра 5:01(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:00
+A1 Linda Hutchens - Det Ar Langesen
+A2 Linda Hutchens - Harlig Ar Jorden
+A3 Linda Hutchens - Operator
+A4 Bobby Jones & New Life - Amazing Grace(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:50:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57D2EC97B2A2EB19087117CA650C5C8B9183965C
+magnet:?xt=urn:btih:631B51482C395D4E3EA54C67960B5FB85C840B7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,34 +463,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605570   (995428) от 20.01.2013
+###  Публикация: 1586285   (17002) от 25.05.2025
 
-Linkin Park - 3 альбома (2002-2007) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Alternative Rock>
+Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995428.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Wake 1:35
-A2. Given Up 3:08
-A3. Leave Out All The Rest 3:18
-A4. Bleed It Out 2:53
-A5. Shadow Of The Day 4:18
-A6. What I've Done 3:51
-B1. Hands Held High 3:51
-B2. No More Sorrow 3:40
-B3. Valentine's Day 3:16
-B4. In Between 3:17(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:00
+Onslaught — британская трэш-метал-группа из Бристоля, существовавшая с 1983 по 1991 годы и вновь собравшаяся в 2004 году.1985 - Power From Hell
+1986 - The Force
+1989 - In Search of Sanity
+2007 - Killing PeaceЖанр: Thrash MetalПродолжительность: 08:57:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:780F15C460AF0F800E2E8982F6503C4BB177CCBA
+magnet:?xt=urn:btih:3C69785BD8DAE0C1C9820C5A2B38DE7E2519DC24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,34 +492,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605263   (995432) от 20.01.2013
+###  Публикация: 1798841   (16971) от 25.05.2025
 
-Linkin Park - Hybrid Theory (2000/2001) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Alternative Rock>
+Группа «Визит» - Ночь Без Тебя (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995432.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Papercut 3:04
-A2. One Step Closer 2:35
-A3. With You 3:23
-A4. Points Of Authority 3:20
-A5. Crawling 3:28
-A6. Runaway 3:05
-B1. By Myself 3:09
-B2. In The End 3:36
-B3. A Place For My Head 3:04
-B4. Forgotten 3:13(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:46
+A1 Тяжелый Случай
+A2 Последний Миг
+A3 Пляжное Регги
+A4 Откровение(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
+magnet:?xt=urn:btih:D9F6703F0D9199ECCB8BEB909CB03E8E4B07CE31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,34 +521,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605261   (995442) от 20.01.2013
+###  Публикация: 1810758   (16921) от 06.08.2025
 
-Кино (Виктор Цой) - Это не любовь (1985/1993) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+Slaughter To Prevail - Studio Albums (4 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Deathcore, Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995442.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Это Не Любовь 3:34
-02. Весна 2:05
-03. Уходи 4:43
-04. Город 3:48
-05. Проснись (Это — любовь) 3:39
-06. Рядом Со Мной (Ты Выглядишь Так Несовременно) 3:56
-07. Я Объявляю Свой Дом 2:25
-08. Саша 3:20
-09. Верь Мне 5:39
-10. Дети Проходных Дворов 2:00(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:17
+Slaughter to Prevail — российская дэткор-группа, основанная в 2014 году в Екатеринбурге. В настоящее время группа базируется в Орландо, Флорида.2016 - Chapters Of Misery (EP)
+2017 - Misery Sermon
+2021 - Kostolom
+2025 - GrizzlyЖанр: Deathcore, Nu MetalПродолжительность: 02:50:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C2A7317D47CDAE2A85CB0157AA5A33176DD2B32
+magnet:?xt=urn:btih:318497F6114A7D202D9D796F776F4AD04A8F687E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,31 +550,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604905   (995462) от 20.01.2013
+###  Публикация: 1810902   (16753) от 07.08.2025
 
-ДДТ (DDT) - Мир Номер Ноль (2LP) (1999/2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+W.A.S.P. - First Blood..Last Cuts (1993) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995462.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-LP1:
-01. Музыкальный образ - I (Ю. Шевчук) (2:28)
-02. Одноразовая жизнь (4:57)
-03. Он (5:55)
-04. Мы (4:07)
-05. Метель (7:40)
-06. Небо на Земле (6:41)Жанр: RockПродолжительность: 01:10:13
+Side A:
+01. Animal (Fuck Like A Beast)
+02. L.O.V.E. Machine (Remix)
+03. I Wanna Be Somebody (Remix)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:54:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2960B93CD33EDA0DBCA02FE275A2050B0A0FD75B
+magnet:?xt=urn:btih:5EB70398CAD6116FC82BBE5A7E0FCB2E6F44969C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,34 +579,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605189   (995474) от 20.01.2013
+###  Публикация: 1799335   (16752) от 07.08.2025
 
-Аквариум - 4 альбома (1987-1991) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
+Shadecrown - Studio Albums (4 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995474.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Иван-чай 3:35
-A2. Великий дворник 3:23
-A3. Наблюдатель 3:02
-A4. Партизаны полной луны 3:26
-A5. Лебединая сталь 4:53
-B1. Аделаида 3:05
-B2. Золото на голубом 2:55
-B3. Дерево 3:04
-B4. Очарованный тобой 3:11
-B5. Поколение дворников 5:20Жанр: RockПродолжительность: 00:35:55
+Shadecrown - метал-группа из Финляндии, основанная в 2012 году.2016 - Agonia
+2019 - Riven
+2021 - Solitarian
+2025 - 0Жанр: Melodic Death/Doom MetalПродолжительность: 03:17:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:104337D6EF716672631DB2BEDF31C96305492E11
+magnet:?xt=urn:btih:E82230B47378BF6291E4641FF5FB1D8BA9B6F7DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,34 +608,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605460   (995507) от 20.01.2013
+###  Публикация: 1810983   (16721) от 07.08.2025
 
-Борис Гребенщиков - Русский альбом (1992) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+Ozzy Osbourne - Blizzard of Ozz (1980) Released, 2011, Sony Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995507.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Архистратиг 1:14
-A2. Никита Рязанский 2:41
-A3. Государыня 3:07
-A4. Ласточка 3:53
-A5. Волки И Вороны 8:12
-B1. Заповедная Песня 3:07
-B2. Сирин Алконост Гамаюн 4:02
-B3. Кони Беспредела 6:04
-B4. Елизавета 3:00
-B5. Бурлак 4:09(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:00
+A1 I Don't Know
+A2 Crazy Train
+A3 Goodbye To Romance
+A4 Dee(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:39:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB9234807F15B44A4C3BBE0736860F9F71F35496
+magnet:?xt=urn:btih:F39B4A6ED79763CE398388FF508A571147FAA1A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -699,32 +637,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599817   (996846) от 15.01.2013
+###  Публикация: 1550333   (16454) от 29.05.2025
 
-Ария - 3 альбома (1987-1991) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Hard Rock, Heavy Metal>
+Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996846.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Прощай, Норфолк! 5:20
-A2. Зомби 4:32
-A3. Антихрист 5:08
-A4. Не Хочешь, Не Верь Мне 4:00
-B1. Кровь За Кровь 7:43
-B2. Бесы 3:22
-B3. Всё, Что Было 5:15
-B4. Следуй За Мной! 4:40Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:59
+Slayer  — американская метал группа. Коллектив был основан в 1981 году.
+Вместе с группами Metallica, Megadeth и Anthrax, Slayer входит в «большую четвёрку трэш-метала».1983 - Show No Mercy
+1985 - Hell Awaits
+1986 - Reign in Blood
+1988 - South of HeavenЖанр: Thrash MetalПродолжительность: 11:33:30
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B376C4729165FA697E8B5322EE2C49EC2831A1F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -732,33 +667,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 603819   (996860) от 15.01.2013
+###  Публикация: 1811401   (16229) от 09.08.2025
 
-Наутилус Помпилиус (Nautilus Pompilius) - 2 альбома (1986-1988) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+Bonded - Studio Albums (2 releases) (2020-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996860.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Скованные 4:28
-A2. Князь Тишины 3:42
-A3. Взгляд С Экрана 4:34
-A4. Стриптиз 4:58
-B1. Доктор Твоего Тела 4:45
-B2. Я Хочу Быть С Тобой 4:30
-B3. Казанова 4:11
-B4. Шар Цвета Хаки 2:46
-B5. Прощальное Письмо 3:48Жанр: RockПродолжительность: 00:37:41
+Bonded - немецкая метал-группа из Дортмунда, Северный Рейн-Вестфалия, сформирована в 2018 году.2020 - Rest In Violence
+2021 - Into BlacknessЖанр: Thrash MetalПродолжительность: 01:46:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3FC04D141D1463E32E63C82F8395E070280BE24
+magnet:?xt=urn:btih:73773B32AB16A077DC84A707CF3750363C1C2149
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -766,34 +694,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 603416   (996893) от 15.01.2013
+###  Публикация: 1724128   (16201) от 09.08.2025
 
-Наутилус Помпилиус (Nautilus Pompilius) - Чужая земля (1992) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996893.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Монгольская Степь 5:10
-A2. Эти Реки 3:04
-A3. Иван Человеков 4:33
-A4. Чистый Бес 4:46
-A5. Чужая Земля 4:08
-B1. Прогулки По Воде 3:48
-B2. Бесы 5:00
-B3. Морской Змей 4:21
-B4. На Берегу Безымянной Реки 4:16
-B5. Летучая Мышь 5:05Жанр: RockПродолжительность: 00:44:11
+Wolfskull - хард-рок-группа из Северного Рейна-Вестфалии, сформированная весной 2018 года.2019 - Hexum (EP)
+2022 - Ave GoddessЖанр: Hard RockПродолжительность: 01:51:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E903C8D6A94FB68D5462FB08FA40F9A13A0AE782
+magnet:?xt=urn:btih:7DD04781FE46BD68CA7DEC272EDFF82485174D3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -801,34 +721,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 603794   (996913) от 15.01.2013
+###  Публикация: 1811355   (16200) от 09.08.2025
 
-Гражданская Оборона - Звездопад (2011) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Post-punk>
+Andreas Vollenweider - The Best Of Vol. 1 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Modern Classical, Ambient>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996913.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Песня Красноармейца 2:37
-A2. Песня О Циркаче 2:40
-A3. На Дальней Станции Сойду 4:28
-A4. Шла Война 3:09
-A5. Звездопад 2:58
-B1. Ветер Северный 2:08
-B2. Город Детства 5:07
-B3. На Всю Оставшуюся Жизнь 3:06
-B4. Слово - Товарищ 2:51
-B5. Каравелла 2:54(   Читать дальше...   )Жанр: Post-punkПродолжительность: 01:05:04
+Side A:
+A1 Behind The Gardens-Behind The Wall-Under The Tree
+A2 Pyramid-In The Wood-In The Bright Light
+A3 Skin And Skin(   Читать дальше...   )Жанр: Electronic, Modern Classical, AmbientПродолжительность: 00:43:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:600F9F1D454EA5A2F649A031DFD80B2D7DB585E6
+magnet:?xt=urn:btih:022CEA5D698CE1AB9AAF68EB1E312349BB0DC206
 ```
 
 https://mybot314.ru/tekegram_catalog/

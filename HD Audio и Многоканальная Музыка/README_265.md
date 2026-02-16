@@ -1,25 +1,25 @@
-###  Публикация: 1851860   (1055392) от 
+###  Публикация: 1820642   (210) от 28.09.2025
 
-Protector - Studio Albums (10 releases) (1987-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+Bill Barber & The Holding Cell - Southern Redemption (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055392.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Protector — метал-группа из Вольфсбурга, Нижняя Саксония, Германия, образованная в 1986 году.1987 - Misanthropy
-1988 - Golem
-1989 - Urm The Mad
-1990 - Leviathan's DesireЖанр: Thrash/Death MetalПродолжительность: 06:02:59
+01.  Blood & Gold (3:04)
+02.  Hard to Breathe (3:38)
+03.  Vitriol & Champagne (4:29)
+04.  Just like they Say (4:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08E2FCB44B10665A07D81233729FC2A48FE89BFC
+magnet:?xt=urn:btih:89884F5C3D0CC22EB6BC611DE3DF804E2128EAA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851998   (1055507) от 
+###  Публикация: 1820664   (209) от 28.09.2025
 
-Ronnie Romero - Studio Albums (4 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
+Fish Hook Smile - Fish Hook Smile (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055507.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ронни Ромеро (Ronald Romero Vasquez) — чилийский рок-вокалист и автор текстов песен, известен как участник групп Lords of Black, Sunstorm, Destinia, Elegant Weapons, Gotus, The Ferrymen, Walter Giardino Temple и Rainbow.2022 - Raised on Radio
-2023 - Raised On Heavy Radio
-2023 - Too Many Lies, Too Many Masters
-2025 - Backbone(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПродолжительность: 03:28:09
+01.  Flashback (4:41)
+02.  Chapter 13 (3:54)
+03.  Shiver (5:07)
+04.  Fields of Green (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E3C80538E4763A3B9730E440CE1CE5F0750493D
+magnet:?xt=urn:btih:10E5EC7BB4B098E1A9E936CD55BC33A1E197D639
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852182   (1055626) от 
+###  Публикация: 1571320   (155) от 29.09.2025
 
-The Seatbelts - Cowboy Bebop (2020) Original Series Soundtrack [FLAC 2.0|44.1/24|image +.cue|MC-Rip] <Soundtrack, Jazz, Anison>
+Manowar - Studio Albums (19 releases) (1982-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055626.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A
-01. Tank!
-02. Rush
-03. SPokey Dokey(   Читать дальше...   )Жанр: Soundtrack, Jazz, AnisonПродолжительность: 01:10:39
+Manowar — американская хэви-метал-группа из Оберна, штат Нью-Йорк, основана в 1980 году.
+Группа известна воинской тематикой и эстетикой своих песен, приверженностью «истинному металу» (true metal) и частым обращением к скандинавской мифологии.1982 - Battle Hymns
+1983 - Into Glory Ride
+1984 - Hail To England
+1984 - Sign Of The Hammer(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 13:52:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F725BF81796F2AE6CA4552E86CF520064ED805FD
+magnet:?xt=urn:btih:D3FB3F76D3777EE81EC6438409862EDFBF68D032
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +86,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852037   (1055737) от 
+###  Публикация: 1548439   (140) от 29.09.2025
 
-Cliff Richard - Silver (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Pop Rock>
+Motörhead (Motorhead) - Studio Albums (23 releases) (1977-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055737.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Silver's Home Tonight
-A2 Hold On
-A3 Never Say Die (Give A Little Bit More)
-A4 Front Page(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:38:34
+Motörhead — британская рок-группа, образованная в июне 1975 года басистом, певцом и автором песен Иэном Фрейзером Килмистером (1945–2015). Группу часто считают одним из первых участников NWOBHM, которая вдохнула новую жизнь в хэви-метал в конце 1970-х — начале 1980-х годов.1977 - Motörhead
+1979_1 - Overkill
+1979_2 - Bomber
+1979_3 - On ParoleЖанр: Heavy MetalПродолжительность: 17:48:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB83BB4932B80DD0E3F23B07E3054304193FBBDA
+magnet:?xt=urn:btih:82FBD1FA270076AFD781208BDAC208F7D3B74955
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +115,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852741   (1056114) от 
+###  Публикация: 1776093   (102) от 29.09.2025
 
-Obscurity - Studio Albums (10 releases) (2000-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Viking/Death Metal>
+Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Technical Death Metal, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056114.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Obscurity - немецкая метал-группа из г. Фельберт, Северный Рейн-Вестфалия, основана в 1997 году.2000 - Bergisch Land
-2003 - Thurisaz
-2007 - Schlachten & Legenden
-2009 - VararЖанр: Melodic Black/Pagan/Death MetalПродолжительность: 07:31:38
+Between the Buried and Me - прогрессив-метал группа из города Роли, штат Северная Каролина, США; сформирована в 2000 году.2002 - Between The Buried And Me
+2003 - The Silent Circus
+2005 - Alaska
+2006 - The Anatomy OfЖанр: Progressive Metal, Technical Death Metal, MetalcoreПродолжительность: 16:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0670E14020DC5CCE03A2FBC85427CB54E93D95EF
+magnet:?xt=urn:btih:1C5BD67C506E752F6A6A40F3E67D98F44042DFEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +144,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852892   (1056179) от 
+###  Публикация: 1820850   (18) от 29.09.2025
 
-Andy Williams - Andy Williams (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - Studio Albums (10 releases) (1989-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, H ...
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056179.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Unchained Melody
-A2 Do You Mind
-A3 It's All In The Game
-A4 Are You Sincere?(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:30:43
+Дарио Молло — итальянский гитарист и музыкальный продюсер, наиболее известный, тремя альбомами "The Cage", которые он записал с бывшим вокалистом Black Sabbath Тони Мартином, а также работой в группе "Voodoo Hill" с бывшим вокалистом и басистом Deep Purple Гленном Хьюзом.Crossbones
+EZoo
+The Cage
+Twilight RoadЖанр: Hard Rock, Heavy MetalПродолжительность: 09:02:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AD26A8E0BA563BAC5EB5E535C4A0068B0C83FE0
+magnet:?xt=urn:btih:0B054F92E238272EFE6871E59CE5FC71172B1EE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +173,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852899   (1056180) от 
+###  Публикация: 1820836   (12) от 29.09.2025
 
-VOLA - Studio Albums (6 releases) (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent>
+Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056180.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Vola — рок-группа из Дании, основанная в Копенгагене в 2006 году.2008 - Homesick Machinery (EP)
-2011 - Monsters (EP)
-2015 - Inmazes
-2018 - Applause of a Distant CrowdЖанр: Progressive Metal, DjentПродолжительность: 04:28:26
+Arabs In Aspic - норвежская группа, играющая прогрессивный рок, была основана в Тронхейме в 1997 году. Музыкальные корни коллектива уходят в золотую эру рока. Их звучание — это смесь громких, тяжёлых гитар и барабанов, двенадцатиструнной акустики, фанкового баса и перкуссии, пронзительных органов Hammond, мягких Fender Rhodes, меллотронов и синтезаторов 1970-х.2003 - Progeria (EP)
+2004 - Far out in Aradabia
+2011 - Strange Frame Of Mind
+2013 - Pictures in a DreamЖанр: Progressive RockПродолжительность: 05:56:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8ECF4B3A272247EEAC7B64F8307F2E64C80C47B1
+magnet:?xt=urn:btih:DBB0F5AC165EDEF8B7EB33C4C4FEFBCE893FF3D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +202,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853263   (1056365) от 
+###  Публикация: 1820868   (4) от 29.09.2025
 
-The Ocean Collective - Studio Albums (12 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Sludge/Post-Metal>
+Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056365.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Ocean - немецкая метал-группа, основанная в Берлине в 2000 году гитаристом Робином Штапсом.2003 - Fogdiver
-2004/2009 - Fluxion
-2006 - Aeolian
-2007 - PrecambrianЖанр: Progressive/Sludge/Post-MetalПродолжительность: 10:49:07
+Siege Of Power - метал-группа с участниками из США и Нидерландов, основана в 2017 году.2018 - Warning Blast
+2023 - This Is TomorrowЖанр: Death/Thrash MetalПродолжительность: 01:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E1491A1BDFA5D5117AD5D8395CDB3AE1B06899B
+magnet:?xt=urn:btih:142BFC7C3E74D99E5CE00DC454C30DCB25ABD378
 ```
 
 https://mybot314.ru/tekegram_catalog/

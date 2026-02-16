@@ -1,24 +1,49 @@
-###  Публикация: 1851813   (1055688) от 
+###  Публикация: 454964   (5077) от 31.08.2025
 
-Stephen Corda | Introduction to Aerospace Engineering with a Flight Test Perspective (Aerospace Series). 2nd Edition (2026) [PDF]
+Бернард Скляр | Цифровая связь. Теоретические основы и практическое применение (2003) [DJVU]
 
 >>Научная и техническая литература
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055688.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Comprehensive textbook integrating the fundamentals of flight testing with introductory concepts in aerospace engineering
-
-Introduction to Aerospace Engineering with a Flight Test Perspective provides a solid foundation in the fundamentals of aerospace engineering while illuminating many aspects of real-world flight, covering topics such as aerodynamics, propulsion, (   Читать дальше...   )Жанр: Aerospace Propulsion Technology, Aeronautics, Aeronautical EngineeringЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Обработанный скан
+Предлагаемую книгу стоит прочесть всем, кто интересуется цифровой связью. Это учебник, в котором математически строго описаны все преобразования, которым подвергается информация на пути от источника к адресату. Это также и справочник, в котором дано описание схем, необходимых для практической реализации соответствующих математических абстракций. И, наконец, (   Читать дальше...   )Жанр: Техническая литература (учебник)Издательство: Издательский дом “Вильямс”Формат: DJVUКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FE847E3025AA94325FBAB4C010456F64DB6FE96
+magnet:?xt=urn:btih:3996D990F4DD664B820EFB5962A7A2C679453A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364584   (2875) от 14.09.2025
+
+Ф.М. Кэррил, С.А. Бабушкин | Как работать со световым микроскопом (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все написанное в книге относится (если специально не оговаривается) к биологическим микроскопам — бинокулярным или тринокулярным — с механическими предметными столиками и со встроенными осветителями с регуляторами яркости. Микроскопы предназначены для работы с препаратами, помещенными на предметных стеклах и обычно покрытыми покровными стеклами.
+ Книга содержит минимум (   Читать дальше...   )Жанр: МикроскопияИздательство: Meiji Techno Co., LTD., Япония и Вест Медика, РоссияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECAEB3C24F8AD5DCE26595931BF209AF56FA4F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

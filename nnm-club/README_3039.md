@@ -1,27 +1,22 @@
-###  Публикация: 464669   (95897) от 08.03.2012
+###  Публикация: 1362176   (951056) от 22.02.2020
 
-[Wallpapers] Desktop Wallpapers Pack 55
+Soft4Boost Any Audio Record 6.7.3.353 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95897.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 55
-Название: Desktop Wallpapers Pack 55
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 3000х2000
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
+Бесплатная утилита, которая позволяет записывать звуковые данные с различных источников, таких как микрофон, виниловые пластинки, аудио CD, видеоигры, интернет-радиопередачи, программы типа Real Player и Skype.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14968058AAD45960B14C0A9BDA40A3BC56A30D1E
+magnet:?xt=urn:btih:C427EAAC3149160A174A59915A3FE53B7F1ADDD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -29,30 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464656   (95898) от 08.03.2012
+###  Публикация: 981546   (951054) от 01.02.2016
 
-[Wallpapers] Desktop Wallpapers Pack 53
+Журнал | Радио №1 (январь 2016) [DJVU]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95898.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 53
-Название: Desktop Wallpapers Pack 53
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
+В журнале представлены новости науки и техники, устройство и ремонт отдельных образцов видио и аудиотехники, конкретные устройства в технике измерений и источников питания. Показаны разработки радиолюбителей-конструкторов, большой объем устройств из прикладной электроники. В каждом журнале имеется специальный раздел для начинающих радиолюбителей.Жанр: Научно-популярный журналФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54DC5AE6D336A4857AA841808EA8FB436EAD4CB2
+magnet:?xt=urn:btih:E20289C1F6C3BBE95FAA1DA66439F93E8610F520
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -60,30 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464655   (95900) от 08.03.2012
+###  Публикация: 1362122   (951052) от 22.02.2020
 
-[Wallpapers] Desktop Wallpapers Pack 52
+Мамины усы - Wonderful Life (2020) [MP3|320 Kbps] <Punk Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95900.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 52
-Название: Desktop Wallpapers Pack 52
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
+1. Wonderful Life
+2. Сны алексея
+3. Песенка милиционера
+4. Бабушка умерла 3(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:26:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D539C74D1E8B4CBA3DA1E4BF52F85BB0B668425A
+magnet:?xt=urn:btih:3E4FE27D373436F44FC59A31E2A7F399860E922E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -91,30 +79,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464673   (95902) от 08.03.2012
+###  Публикация: 981498   (951051) от 01.02.2016
 
-[Wallpapers] Desktop Wallpapers Pack 56
+Конкордия Антарова | Две жизни [Книга 1 из 4] (2016) [MP3]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95902.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 56
-Название: Desktop Wallpapers Pack 56
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
+Эта книга поможет людям, вступающим на путь духовных исканий выбрать свой путь. В ней не навязываются никакие религиозные доктрины.
+Учителя, наши старшие братья, говорят нам со страниц книги: Нет чудес, есть только та или иная ступень знания. Не существует никакого насилия над сознанием человека. Только сам человек выбирает, как, с кем и когда он должен жить на земле. (   Читать дальше...   )Жанр: эзотерика, приключения, непознанное, философияПродолжительность: 22:03:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEB6EB35D5E5E3EBB3869DE4A9D6E14190B08043
+magnet:?xt=urn:btih:1F8B21EF956E2BCD856F3C7F0623DD5A40203E94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -122,34 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464178   (95903) от 08.03.2012
+###  Публикация: 1362237   (951048) от 22.02.2020
 
-DJ Kocmoc - Electro Sensation vol.21 (7.03.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+Audio Editor - Merge Split And Edit 1.4.1 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95903.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Alex Mica - Dalinda (The Perez Brothers Remix)
-2. Alex Sayz Ft. Christina Skaar - Falling (John De Sohn Remix)
-3. Anya - Fool Me (Da Brozz Remix)
-4. Chris Lake - Build Up (Tommy Trash Remix)
-5. DJ Tommy - Ale DJ Mazas So Funky Man (Sound DizturBer's 2k12 Remix)
-6. Ben DJ - Rock It (Extended Mix)
-7. Fractal System - Can You Dance II (Darth & Vader Remix)
-8. Ivan Frost - Pump Up The Volume (Taito Remix)
-9. Javi Garcia - 11324 (Hesham Watany Remix)
-10. Narcotic Thrust - I Like It 2011 (Halias & South Freak Remix)7.03.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 02:03:44
+Audio Editor - Merge, Split And Edit - программа для редактирования аудио на macOS. Этот софт позволит вам редактировать любой файл в формате WAV на вашем компьютере. Вы сможете с легкостью обрабатывать, обрезать, копировать и вставлять выбранные вами части дорожки. Простое в использование приложение позволяет без лишних усилий создавать и сохранять ваши проекты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2020Разработчик: Music Paradise, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E76FBF982E49DE75F3B6E4D82B9B6B0FAF8FA1CC
+magnet:?xt=urn:btih:582F416FB52265E891A7B2177640A7919873BB7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,31 +132,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464746   (95908) от 08.03.2012
+###  Публикация: 981651   (951045) от 01.02.2016
 
-[Wallpapers] Desktop Wallpapers Pack 57
+Терри Пратчетт | Эрик (2015) [MP3]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95908.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 57
-Название: Desktop Wallpapers Pack 57
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00С Праздником, дорогие женщины!
-
-
+И опять незадачливый волшебник Ринсвинд занимается своим любимым делом — бегом. Да, беготня ему хорошо удаётся, особенно если это не просто бег, а бег ОТ. От неимоверных опасностей, которые почему-то просто преследуют нашего волшебника, не давая ему ни на миг насладится минутами скуки и безделья.
+Только Ринсвинду удалось выбраться из страшных Подземельных Измерений, (   Читать дальше...   )Жанр: Юмористическое фентезиПродолжительность: 05:59:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A4746BBE22A32A0CB4D7440EF0E2722198B15D9
+magnet:?xt=urn:btih:2A3C74C203E326D80B753B4251573283202A6E7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,30 +159,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464848   (95909) от 08.03.2012
+###  Публикация: 1361262   (951043) от 22.02.2020
 
-[Wallpapers] Desktop Wallpapers Pack 60
+Без ошейника (1995) SATRip
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95909.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 60
-Название: Desktop Wallpapers Pack 60
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
+Семиклассник Олег влюбился в Лину, а его верный друг пес Мотя — в Линину подругу — «догиню» Геру.
+Однажды, обидевшись на хозяина, Мотя исчезает. Олег, осознав свою ошибку, устремляется на поиски своего воспитанника.Производство: Украина / Одесская к/стЖанр: СемейныйРежиссер: Радомир ВасилевскийАктеры: Артур Майн, Александр Ильин, Любовь Руднева, Наталья Бузько, Марина Дюжева, Аристарх Ливанов, Владимир Носик, Виктор Павлов, Наталья Позднякова, Валентина СалтовскаяЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C2BBAD5649234C5008A12C33041E54365469869
+magnet:?xt=urn:btih:BE542FF06265503D2BA91097889DCE0DA6DC226D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,30 +186,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464663   (95910) от 08.03.2012
+###  Публикация: 1362183   (951039) от 22.02.2020
 
-[Wallpapers] Desktop Wallpapers Pack 54
+Movavi Slideshow Maker 6 v6.3.0 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95910.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 54
-Название: Desktop Wallpapers Pack 54
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
+Movavi Slideshow Maker – это простая и удобная программа для создания слайд-шоу на русском языке. Вы сможете самостоятельно превращать фотографии из вашей коллекции в красивое видео, причем для этого вам не потребуется каких-либо специальных навыков. Загрузите изображения в программу, соедините фото анимированными переходами, добавьте подходящий саундтрек, наложите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2020Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B49DBB5AFE3DB9A93EE7F2F10988ACD61F9403A
+magnet:?xt=urn:btih:A407682500791457BE93EF4F638A05EA0259FF4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,25 +212,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 463497   (95913) от 08.03.2012
+###  Публикация: 980601   (951037) от 01.02.2016
 
-Биатлон. Чемпионат Мира 2012. Рупольдинг (Германия). Женщины. Спринт 7,5 км (2012) IPTVRip
+Бегущий в лабиринте: Испытание огнём / Maze Runner: The Scorch Trials (2015) DVD9
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95913.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Женский спринт 7,5 км на Чемпионате мира в Рупольдинге (Германия)Жанр: СпортПеревод: Двуголосый закадровый, профессиональный (Дмитрий Терехов и Сергей Курдюков)Продолжительность: 01:24:58
+Лабиринт пройден, но Томасу, Терезе, Минхо и прочим глэйдерам не приходится расслабляться. Таинственное руководство ПОРОКА — секретной организации, устроившей гонки на выживание — назначает ребятам новые, смертельно опасные испытания. На сей раз их ждет переход по раскаленной пустыне и встреча с жертвами неизлечимой болезни, которые отличаются буйным нравом и непредсказуемым (   Читать дальше...   )Производство: США / 20th Century Fox, TSG Entertainment, Temple Hill Entertainment, Gotham GroupЖанр: Фантастика, боевик, триллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Кая Скоделарио, Ки Хонг Ли, Томас Сэнгстер, Декстер Дарден, Алекс Дж. Флорес, Джейкоб Лофленд, Роза Салазар, Джанкарло Эспозито, Патришия КларксонПеревод: Дублированный  (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, датский, финский, норвежский, русский, шведский, эстонский, латышский, литовский, украинскийПродолжительность: 02:06:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBB2E0EFAE5C24483DB952049CF6295CCE495C1B
+magnet:?xt=urn:btih:1E862334EED76D44AE55B5FBD9225CCA766B594B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,25 +238,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464490   (95915) от 08.03.2012
+###  Публикация: 1361993   (951034) от 22.02.2020
 
-Иногда они возвращаются (2008) SATRip
+Monster Jam: St. Louis, Missouri, (18-19.01.2020) WEB-DL [H.264/720p-LQ]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95915.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несколько минут эти люди провели за гранью жизни и смерти. Они вернулись обратно, но уже другими. Кто-то получил необычные способности, кто-то новую профессию, кто-то необъяснимый опыт. Каждый, кто побывал за гранью жизни, так или иначе изменился. В этом фильме они рассказывают про свою жизнь.Жанр: ДокументальныйПродолжительность: 01:04:48
+Monster Jam - это серия автоспортивных соревнований, проводимых компанией Feld Entertainment. Первые соревнования в серии прошли в 1992 году и были авторизованы United States Hot Rod Association. В основном соревнования проводятся на территории США, но есть и выездная международная часть в Японии, Нидерландах и Мексике. Формат соревнований иногда отличается зависимо (   Читать дальше...   )Телекомпания: A21 NetworkЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Продолжительность: 00:39:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBF01CF92CD44837ACC6C282189AD6E688CD1513
+magnet:?xt=urn:btih:7A3E5F5BD9649E49C0E18D1BE62118ADC2870CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,30 +264,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464751   (95922) от 08.03.2012
+###  Публикация: 1362117   (951032) от 22.02.2020
 
-[Wallpapers] Desktop Wallpapers Pack 58
+KUZMIN Absolute Band - Полный Близнец (2020) Single [MP3|320 Kbps] <Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95922.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 58
-Название: Desktop Wallpapers Pack 58
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
+1. Полный БлизнецЖанр: RockПродолжительность: 00:04:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB7FA8FD74A42DEB994631B876FD0B5B76BEE5A1
+magnet:?xt=urn:btih:5DF9F4E435C6E4895793793DDEC1FE19637AC1D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,209 +290,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464674   (95925) от 08.03.2012
+###  Публикация: 981796   (951030) от 01.02.2016
 
-Журнал | Академия домашней кухни №1 [ноябрь 2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто любит дом. В издании не только готовые рецепты блюд, но и разные кулинарные истории, советы по организации кухонного пространства, выбору посуды, кухонного оборудования, мебели и т.д., а также письма с вашими предложениями, рецептами, с вашим полезным опытом.ноябрь 2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99135FF33626C75F339E5A7147960FA0B5B9E1F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464307   (95926) от 08.03.2012
-
-Биатлон. Чемпионат мира 2012. Рупольдинг (Германия). Женщины. Индивидуальная гонка 15 км (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женская индивидуальная гонка 15 км на ЧМ в ГерманииЖанр: Спорт/ БиатлонПеревод: Одноголосый закадровый, профессиональный (Губерниев)Продолжительность: 01:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8BAAEA12C20E66C6F5C340DF84A4D538673F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464878   (95929) от 08.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 64
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95929.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 64
-Название: Desktop Wallpapers Pack 64
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1680х1050 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E56A93776B579411C2FA71E72C8CAEF036E256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464853   (95931) от 08.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 27
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95931.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girl Wallpapers Pack 27
-Название: Sexy Girl Wallpapers Pack 27
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19EB4DDE9449400479ED527ECF94E4FCE818BB58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464459   (95933) от 08.03.2012
-
-[T.3.R] - Романтика 21 века (2012) [MP3|320 кб/с]<Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рождение нации (04:33)
-02. Лица (04:27)
-03. Эпитафия (04:00)
-04. Морфий (03:44)
-05. Апатия (04:10)
-06. Без тебя (04:51)
-07. Романтика (03:30)
-08. Давай? (03:34)
-09. Zuruck: 1,2 (04:33)
-10. Пустые тела (03:05)(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F6C5AF7123544B584E9B139B783090E24F8FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464586   (95940) от 08.03.2012
-
-[EN] Пропавшие / Gone (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95940.jpg" />
-</div>
-
-
-###  Подробнее
-
-В кадрах фильма мы видим таинственного незнакомца, убегающего от своры воющих собак. С ним мы встретимся позже...
-Затем мы встречаем энергичную сестру Эми ( Молли Паркер), которая подверглась на автостоянке ужасному нападению, эпизоды которого мы позже увидим из ее воспоминаний.Она лечится от последствий нападения, нанимает адвоката, а в целях самообороны занимается карате и обучается обращению с оружием. Затем она разводится со своим мужем Дэвидом Франклином ( Лочлин Манро ), который сомневается в ее способности противостоять преследованиям со стороны преступников. Дэвид идет за маленькой симпатичной дочерью Эмили ( Наташа Калис ) в школу и узнает, что она похищена...Жанр: Криминал, ДрамаРежиссер: Грант ХарвиАктеры: Молли Паркер, Лочлин Манро и Сьюзен ХогэнПеревод: ОтсутствуетПродолжительность: 01:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AF2133761AA731314CCDAF921D26EE8A48D98D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464063   (95942) от 08.03.2012
-
-VA - Best of Gothic v.2 (2010) [MP3|192-320 кб/с]<Gothic Metal>
+VA - Color Climax - Porn Music From The Library (1975) [MP3|192 кб/с] <Electronic, Adult Soundtrack>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95942.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951030.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nightwish - Romanticide (04:58)
-02. Sirenia - Spor 1 (04:19)
-03. Epica - Resign To Surrender (A New Age Dawns - Part IV) (06:19)
-04. Graveworm - Diabolical Figures (04:54)
-05. The 69 Eyes - 01 Back In Blood (04:26)
-06. Lacuna Coil - I Wont Tell You (03:49)
-07. Lacrimosa - Feuer (04:33)
-08. Aeternitas - 08.Aeternitas - Ouvertüre (03:58)
-09. Katatonia - Departer (05:27)
-10. Within Temptation - Utopia (feat Chris Jones) (03:52)(   Читать дальше...   )2010Жанр: Gothic MetalПродолжительность: 01:34:09
+01. Mike Vickers - In the Beginning (02:30)
+02. Clark Gault - Silhouette (04:36)
+03. C. Adamowic - Creme De Menthe (04:17)
+04. Keith Mansfield - Before Summer Ends (04:40)(   Читать дальше...   )Жанр: Electronic, Adult SoundtrackПродолжительность: 00:52:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28F8348657606840E09C2BA36996E74F040CD29C
+magnet:?xt=urn:btih:8ECFB2901C8E210B491CA39DFF9DB815B85D9272
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,65 +319,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464650   (95944) от 08.03.2012
+###  Публикация: 1362186   (951028) от 22.02.2020
 
-VA - Trance Maniacs Party: Melody Of Heartbeat #76 (08/03/2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95944.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix) (5:31)
- 2. Nic Chagall & Duderstadt feat. Relyk - Alone With You (6:27)
- 3. Cerf, Mitiska & Jaren - Another World (Shogun Remix) (7:34)
- 4. David Forbes feat. Antonia Lucas - Because Of You (Pulser Remix) (7:02)
- 5. Andrew Rayel - Believe (Original Mix) (7:06)
- 6. Ernesto vs. Bastian - Bonanza (Original Mix) (6:56)
- 7. Trilucid feat. Sophie Tusnelda - Bring You The Sun (D-Mad Remix) (6:18)
- 8. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) (8:49)
- 9. Karanda feat. Radmila - Coming Closer (Karanda Club Mix) (6:09)
- 10. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix) (5:11)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA7A5266967CED03ED80DE36FA422DCEC4FD735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464750   (95954) от 08.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 24
+Audio Hijack 3.6.4 [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95954.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Sexy Girl Wallpapers Pack 24 
-Название: Sexy Girl Wallpapers Pack 24
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1024х768 до 3000х2000
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
+Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
+В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2020Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:024F52F93CE3927D71A5A292B006D9978E1BF487
+magnet:?xt=urn:btih:80DF474F80BF8847FBB82A8D5944350ABA619E20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,34 +346,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464461   (95955) от 08.03.2012
+###  Публикация: 979541   (951026) от 01.02.2016
 
-VA - Clubbin 2012 Vol. 1 (2012) [MP3|~224 кб/с ]<House>
+Лучшее во мне / The Best of Me (2014) BDRip [H.264/720p]
 
->>Electronic
->>House
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95955.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Sandro Silva & Quintino - Epic (3:30)
- 2. Eric Van Kleef ft Stanford - Wanna Funk (Melvin Reese Mix) (3:24)
- 3. Mr. Jean Louis - Sensuelle (The Cube Guys Remix) (4:14)
- 4. The Cube Guys & Luciana - Jump (Club Mix) (3:59)
- 5. Sophie Ellis-Bextor - Starlight (The Cube Guys Remix) (4:29)
- 6. JoeySuki - Zomp (3:44)
- 7. Lucien Foort - Massive Passive (4:41)
- 8. Nicky Romero - Generation 303 (4:58)
- 9. Major Lazer ft The Partysquad - Original Don (3:59)
- 10. Ian Carey & Rosette ft Timbaland & Brasco - Amnesia (Firebeatz Remix) (6:00)(   Читать дальше...   )Продолжительность: 01:15:40
+История о двух бывших возлюбленных подростках. Никто из них не жил жизнью, которую они представляли и никто не может забыть страстную первую любовь, которая изменила всю жизнь. И вот обоих зовут на похороны их наставника, который когда-то дал им приют…Производство: США / DiNovi Pictures, Relativity MediaЖанр: Драма, МелодрамаРежиссер: Майкл ХоффманАктеры: Мишель Монахэн, Джеймс Марсден, Люк Брейси, Лиана Либерато, Джералд МакРэйни, Кэролайн Гудолл, Кларк Питерс, Себастьян Арселус, Джон Тенни, Шон БриджерсПеревод: Дублированный (Blu-Ray CEE)Язык субтитров: Английские, Датские, Польские, ШведскиеПродолжительность: 01:57:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:681803F08310128FB01E507FAD0C355E4936311D
+magnet:?xt=urn:btih:C8315616CA56FB3C62FEF73DCECC3C2657502EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,30 +372,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464658   (95963) от 08.03.2012
+###  Публикация: 981460   (951024) от 01.02.2016
 
-[Wallpapers] Sexy Girl Wallpapers Pack 23
+Багровый пик / Crimson Peak (2015) BDRip [H.264/1080p]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95963.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Sexy Girl Wallpapers Pack 23 
-Название: Sexy Girl Wallpapers Pack 23
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1680x1050 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
+Дурная слава преследует дом, что возвышается над городом. С приходом зимы он утопает в кровавых снегах. Говорят, дело в глине, проступающей на поверхность. Но ни единая душа не рискует ступить на ледяной склон... кроме нее. Она влюблена в таинственного незнакомца, живущего в древних стенах со своей сестрой. Багровый пик пробудился и уже не уснет.Производство: США, Канада / Legendary PicturesЖанр: ужасы, фэнтези, триллер, драма, мелодрама, детективРежиссер: Гильермо дель ТороАктеры: Миа Васиковска, Джессика Честейн, Том Хиддлстон, Чарли Ханнэм, Джим Бивер, Берн Горман, Лесли Хоуп, Даг Джонс, Джонатан Хайд, Брюс ГрэйПеревод: Профессиональный (полное дублирование) (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:58:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C104FE33B69B09221DEB39219FF7B95392A4DFD1
+magnet:?xt=urn:btih:BF65669680044B622BAD479E09C7A0E5803250F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,25 +398,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464349   (95965) от 08.03.2012
+###  Публикация: 1362052   (951022) от 22.02.2020
 
-Фотография - Локомотивы [JPG]
+VA - Молодая гвардия - New Generation (2005) [FLAC|Lossless|tracks + .cue]<Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моральный Кодекс, Олег Меньшиков и оркестр О. Лундстрема -
+- В Москве наступает полночь
+02. Александр Маршал - Снежный вальс
+03. Алёна Свиридова - Розовый фламинго(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7944A3BCF3834C8306A9C5D2ED7ADE2715FACB94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981831   (951019) от 01.02.2016
+
+Без обмана. Сухой корм (2016.02.01) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не едой, а "кормом", которым жалко кормить даже животных, называют врачи супы, картофельное пюре и лапшу быстрого приготовления. Но в наше время быстрые завтраки и обеды приобрели настолько большую популярность, что ежегодно все люди на планете съедают около 80 миллиардов их порций...Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеПродолжительность: ~ 00:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D148C913B1B1A556996285F6FBA3112A0010EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362079   (951018) от 22.02.2020
+
+Chromium 80.0.3987.116 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95965.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотки паровозов и железных дорогРазрешение файлов: 500х345-2000х858
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51421D89F83A002FCB59A9EAD63295F1EE174D51
+magnet:?xt=urn:btih:28294EC7CB3015038001B8C4984060EF450B4A2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,34 +479,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464846   (95966) от 08.03.2012
+###  Публикация: 1079615   (951016) от 22.02.2020
 
-VA - Devil In The Detail (2007) [MP3|320 Kbps]<Downtempo, Ambient, Psy Chill, Psy Dub, Breaks'n'Bass>
+Morgart - Die Schlacht (In Acht Sinfonien) (2005) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95966.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Faction - Molten (5:37)
-02. Cheju - Ergl (6:08)
-03. Nalepa - Blue (4:08)
-04. Ooah - Tuesday Again (5:53)
-05. Flowers Of Wraith - Aftermathmatics (5:51)
-06. Good Buddha - Party Reserve (Tipper Remix) (4:08)
-07. Gaudi - Analogue Criteria (4:32)
-08. Vibesquad - Kaleidoscone (5:04)
-09. Eat Static - The Third Nebula (7:27)
-10. Bigeneric - Appollonia (6:10)(   Читать дальше...   )Жанр: Downtempo, Ambient, Psy Chill, Psy Dub, Breaks'n'BassПродолжительность: 01:17:03
+01. Sinfonie 1 - Einleitung (05:01)
+02. Sinfonie 2 (03:36)
+03. Sinfonie 3 (05:13)
+04. Sinfonie 4 - Die Schlacht (02:09)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:33:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2FBA9C4851AB3A70CCAE04BD26D6CDFA445A279
+magnet:?xt=urn:btih:7704DA220424846DC1F8DEB85AD4075BC5B15A88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -737,34 +508,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 463439   (95967) от 08.03.2012
+###  Публикация: 981631   (951014) от 01.02.2016
 
-Asphyx - Deathhammer (Limited Edition) (2 CD) (2012) [FLAC|Lossless]<Death/Doom Metal>
+Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
 
->>
->>
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95967.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1:
-01. Into The Timewaste (3:41)
-02. Deathhammer (2:27)
-03. Minefield (7:28)
-04. Of Days When Blades Turned Blunt (3:22)
-05. Der Landser (6:54)
-06. Reign Of The Brute (2:59)
-07. The Flood (3:04)
-08. We Doom You To Death (6:57)
-09. Vespa Crabro (2:50)(   Читать дальше...   )2012Жанр: Death/Doom MetalПродолжительность: 01:12:43 (CD 1 - 00:47:33 / CD 2 - 00:25:10)
+01. You're My Heart, You're My Soul (3:15)
+02. You Can Win If You Want (3:53)
+03. Cheri, Cheri Lady (3:19)
+04. Brother Louie (3:44)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПеревод: ОтсутствуетПродолжительность: 01:09:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:82CB566BB26C966B78FF6C4D702F01287BAC6747
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -772,34 +537,158 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464710   (95968) от 08.03.2012
+###  Публикация: 1362078   (951011) от 22.02.2020
 
-Gabriel & Dresden - Live at Pacha, NYC (02-03-2012) [MP3|320 кб/с]<Trance>
+Beat City Tubeworks - Top Rock (2020) [MP3|320 Kbps] <Rock'n'Roll, 70's>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95968.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afrojack vs Way Out West - Replica of Mindcircus (Dave Dresden Mashup)
-02. Fedde Le Grand - Metrum
-03. Axwell & Dimitri Vegas & Like Mike vs Kings of Leon - One Look Is On Fire (Gabriel & Dresden Mashup)
-04. M83 - Midnight City (Eric Prydz Private Remix)
-05. Tydi vs Mumbai Science feat. Boston - More Than A Mumbai (Gabriel & Dresden Mashup)
-06. Moquai vs Nena - 99 Luft-mpires (Gabriel & Dresden Mashup)
-07. James Blunt - Dangerous (Deniz Koyu & Johan Wedel Remix - Gabriel & Dresden Edit)
-08. Justice & DLG vs. Gabriel & Dresden - Tracking Civilization Down (Gabriel & Dresden Mashup)
-09. Adrian Lux - Fire (Style of Eye Remix, Gabriel & Dresden re-edit)
-10. GOTYE feat. Kimbra - Somebody I Used To Know (DJ Kue Remix, Gabriel & Dresden re-edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:30
+01. Roadrunner (03:45)
+02. Succubus (02:56)
+03. Ivory Wave (03:45)
+04. Fading to Grey (04:01)(   Читать дальше...   )Жанр: Rock'n'Roll, 70'sПродолжительность: 00:34:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9685F9C55DC9B1E452D38CAB315C55B0DF16BDE
+magnet:?xt=urn:btih:64DDE6FA12E2C6B45B32D156B6FBA462EF295DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981527   (951010) от 01.02.2016
+
+Муссон / Monsoon / Tales of the KamaSutra 2: Monsoon (2001) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский офицер и его возлюбленная отправляются в путешествие на побережье Индии, где он встречает другую женщину — прекрасную Лиллу, жену местного гангстера...Производство: США, Optima Entertaiment L.L.C.Жанр: ДрамаРежиссер: Джаг Мундра/Jag MundhraАктеры: Ричард Тайсон, Хелен Броди, Даг Джеффри, Дженни МакШейн, Гульшан Гровер, Файзал Ахмед, Мурад Али, Виктор Бхалла, Ашвани Чопра, Инасио Д’Соуза и др.Перевод: Профессиональный (двухголосый, закадровый)Язык субтитров: ОтсутствуетПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A9B7D196112417152C34B9EE7965B6B1A97C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362239   (951009) от 22.02.2020
+
+Газета | Тайны и загадки №1 (2020) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная газета для широкого круга читателей.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5181469B05B104B8C84F21B2A954975800437BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981510   (951006) от 01.02.2016
+
+«Весёлые» каникулы / Get the Gringo (2012) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мексиканская полиция крадет у американского уголовника крупную сумму денег и сажает его в тюрьму. И все бы ничего, да только он эти деньги тоже в свое время украл у одного очень известного преступника, который начинает искать пропавшие деньги...Производство: США / Airborne Productions, Icon ProductionsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Адриан ГрюнбергАктеры: Мэл Гибсон, Кевин Эрнандез, Долорес Эредия, Хесус Очоа, Петер Стормаре, Дин Норрис, София Сиснига, Стефани Николь Лемелин, Боб Гантон, Скотт КоэнПеревод: Дублированный, авторский (одноголосый, закадровый) х4Язык субтитров: Русский, английскийПродолжительность: 01:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60239742E500D2EE2BFCC5518A6844AB222FDC82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362159   (951005) от 22.02.2020
+
+Андрей Сульдин | Письма погибших героев (1941-1945) (2020) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лист бумаги, сложенный треугольником. Почтовая открытка. Самодельный конверт. Иногда просто комсомольский билет, сигаретная пачка или обрывок бумаги. На них были письма с фронта, строчки дневников, обращения, записки… Все они написаны перед боем, под артиллерийским обстрелом, в окопе, за столом в землянке, на стене тюремной камеры. И не важно, чем они написаны – (   Читать дальше...   )Жанр: Военная историяФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4F7EA7BF56DCC4DBBD14B23ACA60CC72CA8366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981642   (951004) от 01.02.2016
+
+Reg Organizer 7.30 Final + Portable [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C9416FA7BAC2BBB5A0C0D54BABCB87A1022611
 ```
 
 https://mybot314.ru/tekegram_catalog/

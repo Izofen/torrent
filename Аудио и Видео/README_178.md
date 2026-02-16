@@ -1,222 +1,22 @@
-###  Публикация: 1528464   (734473) от 02.02.2022
+###  Публикация: 1301861   (583073) от 13.05.2019
 
-VA - Ibiza Live Radio 1 (2018) [AAC|~326 Kbps] <Chill Out, Downtempo, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CarolinaBlue & MisterSmallz - Free Your Mind (Original Mix) (8:04)
-02. Lenny Fontana, D-Train - When You Feel What Love Has (NYC Deeper Dubb Mix) (7:31)
-03. Miss Luna - Move with You (Original Mix) (5:52)
-04. Mathew Brabham, DJ Nasty Deluxe - In the Jungle (Marga Sol & Darles Flow Remix) (5:46)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244FD40FF04CC50A61BE066D8F9C6200D45BECCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528459   (734474) от 02.02.2022
-
-Bhakta - Snow on Venus (2003) [AAC|~345 Kbps] <Tribal, Downtempo, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Traveling Snowflake (1:39)
-02. Bhakta, Chirag - Unknown Territory (6:57)
-03. Manish, Bhakta - Snow on Venus (12:40)
-04. Nadama, Bhakta - Falling Leaf (4:55)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F14F4800BE8DE48A4A29DD4ACA6004B1CA3F773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528465   (734475) от 02.02.2022
-
-VA - Ibiza Live Radio 2 (2019) [AAC|~318 Kbps] <Chill Out, Downtempo, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Crystal Light (Original Mix) (5:48)
-02. Helly Larson, Miss Disk - Deep Dreams (Original Mix) (6:58)
-03. Darles Flow - Myth of Living (Original Mix) (6:18)
-04. Miss Luna, Q Derhino - Welcome to the Family (Original Mix) (6:33)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFCF09AFD17104F060B339B78828F6BA7FDF470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528462   (734476) от 02.02.2022
-
-Darpan & Bhakta - Temple of Glowing Sound, Vol. 1 (2006) [AAC|~341 Kbps] <Tribal, Downtempo, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blessing (1:55)
-02. Om Tara (5:06)
-03. Reflections (5:44)
-04. Jai Ma (4:12)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68889A0D6C793889DDCB33298CA10076E4C6C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528458   (734477) от 02.02.2022
-
-Bhakta - India all Over (2003) [AAC|~291 Kbps] <Tribal, Downtempo, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Namo (5:24)
-02. The Wheel (4:36)
-03. That Secret Word (4:02)
-04. Lord Shiva (4:10)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6300E381C3D8F5A0E2EB6EC755FE5030B3BC206A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528472   (734479) от 02.02.2022
-
-VA - Lo-Fi Dose to Chill: Chillout Your Mind (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo, Lo-Fi>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Holy Moly – That's a Groove (3:08)
-02. Digby Jones - Mr Big (Original Mix) (4:40)
-03. Patiotic - Acoustic Brain (1:59)
-04. Dellasollounge - Don't Go (Original Mix) (2:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Lo-FiПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4C88D93884B3A29C6B6915A4D803CB96C70476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398910   (734609) от 28.07.2020
-
-Верность  (2019) BDRip [720p] [GER Transfer] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лена — талантливая акушер-гинеколог, её муж Серёжа — артист провинциального драмтеатра. Близость и нежность у них есть, секса — нет. Лена подозревает, что Серёжа завёл роман на стороне, но она мучается молча и не выдаёт свою ревность. Вместо того чтобы выяснить отношения с мужем, Лена сама начинает изменять ему со случайными мужчинами. Она, конечно, не думала, что (   Читать дальше...   )Производство: Россия / PREMIER Studios, Droog Drooga FilmsЖанр: ДрамаРежиссер: Нигина СайфуллаеваАктеры: Александр Паль, Евгения Громова, Алексей Агранович, Марина Васильева, Павел Ворожцов, Анна Котова-Дерябина, Василий Рихтер, Анастасия Денисова, Кирилл Каганович, Михаил ТройникПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7FD24CF1630EB8765860D42CDE15CEAF310DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528426   (734925) от 01.02.2022
-
-Свалка / Trash (2014) BDRip [720p] ATV
+Ведьма / Manyeo / The Witch: Part 1. The Subversion (2018) BDRip [1080p] ATV (MVO)
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734925.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История о трех мальчиках, живущих в стране третьего мира. Они еле сводят концы с концами, копаясь в мусоре. Однажды они находят кожаную сумку, содержимое которой окунает их в ужасное приключение…Производство: Великобритания, Бразилия, Германия / O2 Filmes, PeaPie Films, Working Title FilmsЖанр: Триллер, драма, криминал, детектив, приключенияРежиссер: Стивен Долдри, Кристиан ДуурвоортАктеры: Вагнер Моура, Селтон Мелу, Мартин Шин, Руни Мара, Риксон Тевес, Жозе Дюмон, Даниел Зеттел, Эдуардо Луис, Luis Felipe da Silva Costa, Gabriel Dias da Costa SilvaПеревод: ДублированныйСубтитры: Русские, украинские, английские, португальскиеПродолжительность: 01:53:43
+Восьмилетняя девочка сбегает с некой секретной базы в лесу, после чего её, без сознания, находит фермер. 10 лет спустя она счастливо живёт в сельской местности под именем Ку Джа-юн с удочерившей её пожилой парой и ничего не помнит о своём прошлом. Экономическая ситуация для сельского хозяйства складывается неблагоприятная, да ещё приёмная мама страдает болезнью Альцгеймера, (   Читать дальше...   )Производство: Корея Южная /  Peppermint & CompanyЖанр: Боевик, Триллер, ФантастикаРежиссер: Пак Хун-джонАктеры: Да Ми Ким, Мин Су Чо, У Шик Чхве, Мин Си Го, Хи Сун Пак, Да Ын Чон, Чон У Чхве, Ми Хи О, Бён Ок Ким, Ки Ён Ли (I), Тхэ Вон КвонПеревод: Профессиональный многоголосый, любительский одноголосыйСубтитры: Русские (Forced, Full, ненормативная лексика), Английские, КитайскиеПродолжительность: 02:05:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B14354EFFE3FE9E3098328DA8396843B1C3FBD3
+magnet:?xt=urn:btih:C0F3DA4A11BBF6CC4A18143EB73427A3E1ED7F85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528258   (734967) от 01.02.2022
+###  Публикация: 1301961   (582897) от 13.05.2019
 
-VA - ReCovered Hits, Vol. 1 (2010) [AAC|~331 Kbps] <Pop>
+Снегоуборщик / Cold Pursuit (2019) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734967.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JWL - 1973 (3:57)
-02. The West Coast Sound Machine - 1000 Miles (3:58)
-03. Sensation Ltd - Ain't Nobody (3:56)
-04. All I Wanna Do - All I Wanna Do (4:36)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:07
+Мистер Коксман — примерный семьянин и уважаемый гражданин, размеренная жизнь которого заканчивается, когда наркоторговцы убивают его сына. В поисках справедливости он с ледяным хладнокровием начинает изощренно убирать бандитов одного за другим.Производство: Великобритания, Норвегия, Канада, США, Франция / Mas Films, Paradox Films, StudioCanalЖанр: Боевик, триллер, драма, криминалРежиссер: Ханс Петтер МуландАктеры: Лиам Нисон, Лора Дерн, Эмми Россам, Том Бейтман, Уильям Форсайт, Джулия Джонс, Майкл Нисон, Майкл Эклунд, Брэдли Страйкер, Уэсли МакИннесПеревод: Дублированный (iTunes)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:59:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDF62DCB018FBACAD2C6836F11DAB2AADCE98CA1
+magnet:?xt=urn:btih:162256D519987285797EC2173DB545EC30F47222
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528275   (734975) от 01.02.2022
+###  Публикация: 1041416   (582287) от 09.08.2016
 
-VA - Sexy Sax & Chill (2017) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo, Smooth Jazz>
+65daysofstatic - No Man's Sky: Music for an Infinite Universe (2016) [AAC|WEB-DL|256 Kbps]<Score>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734975.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Delectable - Woman in Love (Extended Mix) (6:51)
-02. Guru Sax - People Can't Stop Chillin (Relax Mix) (5:59)
-03. Dial J for Jazz - The Smooth Soul of Life (Guitar del Mar Mix) (5:50)
-04. Saxlounger - Mousetrap (Sax My Brass Mix) (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Smooth JazzПродолжительность: 01:17:29
+1-01 - Monolith
+1-02 - Supermoon
+1-03 - Asimov
+1-04 - Heliosphere(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:50:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EA569A8AF720E81095688376C50F23D4F24A1EC
+magnet:?xt=urn:btih:A9225B9AD72B08DE42856486C8D2AA9A64636FD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528260   (734978) от 01.02.2022
+###  Публикация: 801430   (582242) от 09.08.2016
 
-VA - ReCovered Hits, Vol. 2 (2010) [AAC|~328 Kbps] <Pop>
+VA - Алиса в стране чудес / Almost Alice (Alice in Wonderland) (2010) Deluxe Edition [AAC|WEB-DL|256 кб/с]<Soundtrack>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734978.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tango in the Night - Dreams (4:15)
-02. So Far So Good - Eagle Rock (4:13)
-03. JWL - Faith (2:37)
-04. Sensation Ltd - Funky Town (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:02
+01 - Avril Lavigne - Alice
+ 02 - The All-American Rejects - The Poison
+ 03 - Owl City - The Technicolor Phase
+ 04 - Shinedown - Her Name is Alice(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:19:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15DDBDA79FFAA3928181768183BA2129F51A6B01
+magnet:?xt=urn:btih:DF1A7F6C6843CD1B429370F5AC4A61733B9B382E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,28 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528270   (734979) от 01.02.2022
+###  Публикация: 919621   (581921) от 20.07.2015
 
-VA - ReCovered Hits, Vol. 5 (2010) [AAC|~325 Kbps] <Pop>
+Другая Бовари / Gemma Bovery (2014) HDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734979.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bogan Bingo - Sweet Home Alabama (4:25)
-02. The Tainted Love - Tainted Love (2:54)
-03. Sensation Ltd - Tear Drops (4:40)
-04. Sensation Ltd - That's the Way (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:12
+Лето. Франция. Запах круасcанов по утрам. Воздух пропитан чувственностью… Во французскую глубинку переезжает английская супружеская пара по фамилии Бовери, чья жизнь очень напоминает фабулу всемирно известного романа Гюстава Флобера. Однако очаровательная Джемма не читала классику…Производство: Франция, ВеликобританияЖанр: Драма, мелодрама, комедияРежиссер: Анн ФонтенАктеры: Фабрис Лукини, Джемма Артертон, Джейсон Флеминг, Изабель Канделье, Нильс Шнайдер, Мел Райдо, Эльза Зильберштейн, Пип Торренс, Кейси Моттет Кляйн, Эдит СкобПеревод: Дублированный (Лицензия)Субтитры: (русские вшитые,полные, отключаемые; английские (не отключаемые))Продолжительность: 01:39:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23B8681083373F377D2F292272F3D48E47A30A0E
+magnet:?xt=urn:btih:D1A4717465B3CA834E9558663213364D268357F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,28 +134,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528268   (734984) от 01.02.2022
+###  Публикация: 919916   (581694) от 20.07.2015
 
-VA - ReCovered Hits, Vol. 4 (2010) [AAC|~338 Kbps] <Pop>
+Толстяк против всех / Paul Blart: Mall Cop 2 (2015) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734984.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DREAD EFFECT - Play That Funky Music (4:17)
-02. The Sharons - Preacher Man (2:55)
-03. Manly Ferry - Pressure Down (3:45)
-04. DREAD EFFECT - Red Red Wine (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:05
+Охранник Пол отправляется в Лас-Вегас, чтобы посетить посвященную охране выставку вместе со своей дочерью Майей, прежде чем она уедет в колледж. На выставке Пол случайно узнает об ограблении и решает задержать преступников…Производство: СШАЖанр: Комедия, боевикРежиссер: Энди ФикменАктеры: Кевин Джеймс, Рейни Родригес, Нил МакДонаф, Даниэлла Алонсо, Эдуардо Верастеги, Дэвид Генри, Ширли Найт, Гари Валентайн, Ана Гастейер, Николас ТуртурроПеревод: Многоголосый закадровый (iTunes)Субтитры: Русский, Английский (Вшитые полные, отключаемые)Продолжительность: 01:34:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85A4647A3C1A08EFC3A5D5AAA2F46472EFDC460C
+magnet:?xt=urn:btih:846FBB7F607EB95388976B85C925F28BD8593440
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,28 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528256   (734985) от 01.02.2022
+###  Публикация: 919887   (581693) от 20.07.2015
 
-Simon Le Grec - 25 Years Anniversary (Unique Music) (2020) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
+Толстяк против всех / Paul Blart: Mall Cop 2 (2015) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734985.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Is It Love (Radio Mix) (4:17)
-02. About Us (Radio Mix) (4:32)
-03. Blue Planet (Radio Mix) (3:35)
-04. Feelings (Piano Mix) (5:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:51
+Охранник Пол отправляется в Лас-Вегас, чтобы посетить посвященную охране выставку вместе со своей дочерью Майей, прежде чем она уедет в колледж. На выставке Пол случайно узнает об ограблении и решает задержать преступников…Производство: СШАЖанр: Комедия, боевикРежиссер: Энди ФикменАктеры: Кевин Джеймс, Рейни Родригес, Нил МакДонаф, Даниэлла Алонсо, Эдуардо Верастеги, Дэвид Генри, Ширли Найт, Гари Валентайн, Ана Гастейер, Николас ТуртурроПеревод: Многоголосый закадровый (iTunes)Субтитры: Русский, Английский (Вшитые полные, отключаемые)Продолжительность: 01:34:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32FFCC5847B6EAF6CC549C125A2FDA71DD38BB2A
+magnet:?xt=urn:btih:3D8A385C4E1638CC64E9843D486D43A1D7C671E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,28 +186,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528285   (734987) от 01.02.2022
+###  Публикация: 919877   (581688) от 20.07.2015
 
-VA - Bar Lounge Costes, Vol. 5 (2022) [AAC|~320 Kbps] <Lounge, Chill Out, Nu Jazz>
+Толстяк против всех / Paul Blart: Mall Cop 2 (2015) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734987.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. sarosa - Elektra Glyde (Instrumental Mix) (3:49)
-02. Digby Jones, Airglo - Mello (Original Mix) (3:30)
-03. Schwarz & Funk, Storm Marrero - On the Line (Main Mix) (5:08)
-04. Marga Sol - Talk to Me (5:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, Nu JazzПродолжительность: 01:15:49
+Охранник Пол отправляется в Лас-Вегас, чтобы посетить посвященную охране выставку вместе со своей дочерью Майей, прежде чем она уедет в колледж. На выставке Пол случайно узнает об ограблении и решает задержать преступников…Производство: СШАЖанр: Комедия, боевикРежиссер: Энди ФикменАктеры: Кевин Джеймс, Рейни Родригес, Нил МакДонаф, Даниэлла Алонсо, Эдуардо Верастеги, Дэвид Генри, Ширли Найт, Гари Валентайн, Ана Гастейер, Николас ТуртурроПеревод: Многоголосый закадровый (iTunes)Субтитры: Русский, Английский  (Вшитые полные, отключаемые)Продолжительность: 01:34:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1E06BDA7DE8FEF226F7B24B5653174318C93AF8
+magnet:?xt=urn:btih:B716E059D60CD9D091669CAD213C1897F2820749
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,28 +212,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528264   (734988) от 01.02.2022
+###  Публикация: 1302406   (581241) от 15.05.2019
 
-VA - ReCovered Hits, Vol. 3 (2010) [AAC|~332 Kbps] <Pop>
+Шпион пошёл на Север / Gongjak (2018) BDRip [1080p] ATV (MVO)
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734988.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. So Far So Good - Jack and Dianne (4:05)
-02. Manly Ferry - Land Downunder (3:13)
-03. Soul Glow - Le Freak (3:33)
-04. Girls Club - Lets Get Loud (3:57)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:38
+Фильм основанный на реальных событиях, произошедших в середине девяностых годов двадцатого века, рассказывает историю агента специального назначения, действующего под кодовым именем Черная Венера. Ему предстоит внедриться в элиту Северной Кореи, для того, чтобы узнать их дальнейшие планы. Дело в том, что южнокорейской разведке стало известно о наличии у главы КНДР (   Читать дальше...   )Производство: Корея Южная / CJ E&M Film Financing & Investment Entertainment & Comics, CJ Entertainment, Moonlight FilmЖанр: Триллер, ДрамаРежиссер: Юн Джон-бинАктеры: Чжон Мин Хван, Сон Мин Ли, Чжин Ун Чо, Джи Хун Чжу, Сон Ун Пак, Хё Ри Ли, Хон Фа Ким, Со Ри Чон, Чжу Бон Ки, Ын Су КимПеревод: Профессиональный многоголосый  (HDRezka Studio)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 02:17:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35E45D111461B4DB4FD93378DC40233CD7B37CCF
+magnet:?xt=urn:btih:E8004C215AAAFDDA007B68CFDCEF41218F8AFA58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,28 +238,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528272   (734990) от 01.02.2022
+###  Публикация: 1302438   (581192) от 15.05.2019
 
-VA - Sicilian Lounge, Vol. 1 (2015) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+В объятиях лжи / Greta (2018) WEB-DL [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734990.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael e - For Laurent (4:37)
-02. Newton, Jana Tarasenko - The Right Time (4:09)
-03. Johannes Huppertz - Bitter Symphonie (4:35)
-04. Living Room - Your Love (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:12
+Одинокая девушка, недавно переехавшая на Манхэттен, случайно встречается с загадочной вдовой. Между ними завязывается дружба, и необычная знакомая окружает юную подругу вниманием и заботой. Но вскоре одна из них поймет, что оказалась в объятиях лжи…Производство: Ирландия, США / Sidney Kimmel Entertainment, Lawrence Bender Productions, Little Wave ProductionsЖанр: Триллер, драма, детективРежиссер: Нил ДжорданАктеры: Изабель Юппер, Хлоя Грейс Морец, Майка Монро, Джейн Перри, Джефф Хиллер, Паркер Сойерс, Брэндон Ли Сирс, Артур Ли, Роза Эскода, Джессика ПреддиПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:38:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D688B15188166CE40CB7BAC9447DCF3E945B99E
+magnet:?xt=urn:btih:337784788D970BDDD9E85AD63235C27633273FEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,28 +264,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528280   (734991) от 01.02.2022
+###  Публикация: 1302431   (581144) от 15.05.2019
 
-VA - Cafe Arte, Vol. 2 (Finest Chillout & Lounge Downbeat Playlist) (2019) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
+В объятиях лжи / Greta (2018) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734991.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jean Mare - Innercity Lights (City Chillout Lounge Mix) (5:36)
-02. Nightbar Jazz - Down Under City (Jazzy Bar Mix) (4:52)
-03. Friendly Breaks - Jazzy City Walk (Deep Lounge Mix) (4:44)
-04. Artenovum - Dulcimers Vibes (Chillout Mix) (4:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:37:44
+Одинокая девушка, недавно переехавшая на Манхэттен, случайно встречается с загадочной вдовой. Между ними завязывается дружба, и необычная знакомая окружает юную подругу вниманием и заботой. Но вскоре одна из них поймет, что оказалась в объятиях лжи…Производство: Ирландия, США / Sidney Kimmel Entertainment, Lawrence Bender Productions, Little Wave ProductionsЖанр: Триллер, драма, детективРежиссер: Нил ДжорданАктеры: Изабель Юппер, Хлоя Грейс Морец, Майка Монро, Джейн Перри, Джефф Хиллер, Паркер Сойерс, Брэндон Ли Сирс, Артур Ли, Роза Эскода, Джессика ПреддиПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:38:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B417455E8F4D28A5EC49F408FFA97B07C31A911
+magnet:?xt=urn:btih:F0165C04BB09EE543853218E0AA59FD36F6B541F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,28 +290,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528283   (734993) от 01.02.2022
+###  Публикация: 1302473   (580998) от 15.05.2019
 
-VA - Raylinx Music Best of 2021 (2021) [AAC|~314 Kbps] <Dubstep>
+Снегоуборщик / Cold Pursuit (2019) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734993.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. AntiAll - Hyperspace (3:09)
-02. KOSORV - Samurai (3:42)
-03. Jaskaroth - Demon Slayer (5:05)
-04. Vappordash - Darling074 (2:50)(   Читать дальше...   )Жанр: DubstepПродолжительность: 03:32:30
+Мистер Коксман — примерный семьянин и уважаемый гражданин, размеренная жизнь которого заканчивается, когда наркоторговцы убивают его сына. В поисках справедливости он с ледяным хладнокровием начинает изощренно убирать бандитов одного за другим.Производство: Великобритания, Норвегия, Канада, США, Франция / Mas Films, Paradox Films, StudioCanalЖанр: Боевик, триллер, драма, криминалРежиссер: Ханс Петтер МуландАктеры: Лиам Нисон, Лора Дерн, Эмми Россам, Том Бейтман, Уильям Форсайт, Джулия Джонс, Майкл Нисон, Майкл Эклунд, Брэдли Страйкер, Уэсли МакИннесПеревод: Дублированный (iTunes)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:59:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F795787DAB89E044650BE8A0715DB3B8BEE5B88F
+magnet:?xt=urn:btih:8A6B89CB45C1F27973246936A1C3BCBA95AF4605
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,28 +316,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528277   (734994) от 01.02.2022
+###  Публикация: 920165   (580907) от 21.07.2015
 
-VA - Cafe Arte (Finest Chillout & Lounge Downbeat Playlist) (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+Дорога на Берлин  (2015) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734994.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Richard Bonnee - Slow Motion (Atmospheric Lounge Mix) (4:00)
-02. Bernon - Into the Cloud (Electronic Vocal Chill Cut) (4:12)
-03. Oliver Schlolaut, Frank Doberitz - The Sun is Shining (Sunray Vocal Mix) (5:53)
-04. Area 42 - Part of the Heart (Low Percussion Mix) (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:05
+Действие фильма происходит в Великую Отечественную войну. Главные герои — лейтенант Огарков и рядовой Джурабаев — молодые люди, выходцы из разных союзных республик, разные по характеру и жизненным позициям, но объединенные общей целью. В основе фильма лежат их сложные отношения и поступки, продиктованные фоном страшных событий войны. Это история о человеческих взаимоотношениях, (   Читать дальше...   )Производство: РоссияЖанр: Военный, драмаРежиссер: Сергей ПоповАктеры: Юрий Борисов, Амир Абдыкалыков, Максим Демченко, Мария Карпова, Екатерина Агеева, Валерий Ненашев, Сергей Веселов, Филипп Савинков, Игорь Хрипунов, Игорь БровинПеревод: Не требуетсяПродолжительность: 01:25:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10B4CD80C2ED1B119152136B8E0FA4A5971C7E3F
+magnet:?xt=urn:btih:ADFCC5DF8C78712E33D663A28B540712E15ACB09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,28 +342,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528274   (734995) от 01.02.2022
+###  Публикация: 920132   (580861) от 21.07.2015
 
-VA - Sicilian Lounge, Vol. 3 (2022) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+Дорога на Берлин  (2015) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734995.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Room - underground Jazz (Maybe It's Love) (4:05)
-02. Chillson - Boulevard of Broken Dreams (4:05)
-03. Ingo Herrmann - Silver Man (3:05)
-04. Peter Pearson - Daydreams (4:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:19:34
+Действие фильма происходит в Великую Отечественную войну. Главные герои — лейтенант Огарков и рядовой Джурабаев — молодые люди, выходцы из разных союзных республик, разные по характеру и жизненным позициям, но объединенные общей целью. В основе фильма лежат их сложные отношения и поступки, продиктованные фоном страшных событий войны. Это история о человеческих взаимоотношениях, (   Читать дальше...   )Производство: РоссияЖанр: Военный, драмаРежиссер: Сергей ПоповАктеры: Юрий Борисов, Амир Абдыкалыков, Максим Демченко, Мария Карпова, Екатерина Агеева, Валерий Ненашев, Сергей Веселов, Филипп Савинков, Игорь Хрипунов, Игорь БровинПеревод: Не требуетсяПродолжительность: 01:25:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FED4671E8497E33D16BB1CC5FF73946A8D63054
+magnet:?xt=urn:btih:DEC71D41DB90B18EF665E6B5D1013446C86571F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,28 +368,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528273   (734996) от 01.02.2022
+###  Публикация: 1302606   (580178) от 16.05.2019
 
-VA - Sicilian Lounge, Vol. 2 (2015) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
+Вымогательство / Extortion (2017) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734996.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roberto Sol - Coracao (4:24)
-02. Ingo Herrmann - Symbiose (4:03)
-03. Naoki Kenji - Let It Flow (The Jazz Mix) (5:05)
-04. Roberto Sol - Pale (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:24:52
+Счастливая семья отправляется отдыхать на Карибы, но вскоре их путешествие прерывается трагедией. Герою придётся бежать наперегонки со временем, чтобы спасти своих жену и сына.Производство: США, Филиппины, Пуэрто Рико / Filmmuse Productions, Producer Capital FundЖанр: Боевик, триллер, драма, криминал, приключенияРежиссер: Филипп ВолкенАктеры: Эйон Бэйли, Бетани Джои Ленц, Баркхад Абди, Дэнни Гловер, Тим Гриффин, Маурицио Алеманьи, Джек Уоллес, Хорхе Кабрера, Элид Барриос, Генезис Кастро ДиасПеревод: Дублированный (iTunes)Субтитры: Русские (полные), Английские (полные, SDH)Продолжительность: 01:49:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E49284F5A3849EE6693424CD277E0076BFF1D53D
+magnet:?xt=urn:btih:B60554D5212E657C9515A96962A84FB7614349A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,28 +394,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528169   (735398) от 31.01.2022
+###  Публикация: 1302291   (580172) от 16.05.2019
 
-VA - Seduction (Chill out Dreams), Vol. 2 (2022) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+Кристофер Прист | Опрокинутый мир (2019) [M4B|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735398.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marc Hartman - The Sound Of Silence (4:22)
-02. Krystian Shek - Puerto De La Cruz (5:34)
-03. Ganga - Koalition (5:16)
-04. Pianochocolate, Alfida - Dolphin's Femme (Dancing Dolphins Spoken Edition) (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:09:03
+Гельвард после достижения возраста 650 миль решает пойти по стопам отца и стать членом одной из верховных гильдий, гильдии разведчиков будущего. Он проходит ученичество по очереди во всех других верховных гильдиях, чтобы обучиться всем необходимым навыкам, после чего ему дают задание отправиться на юг, в прошлое. Пройдя далеко на юг, Гельвард убеждается, что его (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 09:59:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2167372CA5A64D74332386841978D3DD75A4EF9
+magnet:?xt=urn:btih:EDD5FA836235CD4BC880BA4139A14061E3178493
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +420,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528170   (735405) от 31.01.2022
+###  Публикация: 1302571   (580096) от 16.05.2019
 
-VA - Seduction (Chill out Dreams), Vol. 3 (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+Однажды в Лондоне / Once Upon a Time in London (2019) WEB-DL [1080p] ATV (MVO)
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735405.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luis Hermandez - I Will Miss You (3:48)
-02. Five Seasons - Baikal (4:43)
-03. SoulAvenue - Swept Away (4:54)
-04. Peter Pearson - A Dream Before Sunrise (3:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:57:56
+Сюжет описывает жестокое правление Билли Хилла и Джека Комера и рассказывает о легендарном взлете и падении общенациональной преступной империи, которая появилась в середине пятидесятых в результате действий близнецов Край.Производство: Великобритания / Gateway FilmsЖанр: КриминалРежиссер: Саймон РамлиАктеры: Холли Эрл, Энди Беквит, Кейт Брейтуэйт, Джастин Салинджер, Терри Стоун, Лео Грегори, Доминик Китинг, Джофф Белл, Джэми ФорменПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:51:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38ADA1BE05220F7794A107D34267EE8543025724
+magnet:?xt=urn:btih:CB9E00C4EB938254769399C09E28E3C63B813203
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,28 +446,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528172   (735408) от 31.01.2022
+###  Публикация: 1041606   (579475) от 12.08.2016
 
-The Man Behind C. - Chillout Sessions (Sounds Del Mar) (2008) [AAC|~357 Kbps] <Lounge, Chill Out, Downtempo>
+Пеле: Рождение легенды / Pelé: Birth of a Legend (2016) BDRip [480p] iPod
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735408.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wherever I Go (Beautiful Mix) (5:44)
-02. Pitcard (Dreamguitar Mix) (5:06)
-03. Como Aire Cristalino (Latin Mix) (6:25)
-04. The Man Behind C., Rainfary - Reflections (6:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:30
+Биографическая драма расскажет о закулисье спорта, в частности о жизни величайшего игрока в истории футбола — Пеле. Зрители станут свидетелями непростой жизни бразильской легенды спорта. Сколько преград тому удалось преодолеть на своем пути, чтобы добиться мировой популярности? Это сейчас он демонстрирует невероятные профессиональные достижения и вдобавок ко всему (   Читать дальше...   )Производство: СШАЖанр: Драма, биография, спортРежиссер: Майкл ЦимбалистАктеры: Кевин де Паула, Леонардо Лима Карвальо, Сеу Жоржи, Мариана Нюнс, Милтон Гонсалвис, Сет Майклс, Винсент Д’Онофрио, Андре Маттос, Фил, Рафаэль ЭнрикесПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:47:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:124AD01B6C248D6B3A9AACDC6117FF4CF626416C
+magnet:?xt=urn:btih:BE70B4A6B4851A064B01817EF192FB6C76C02696
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,28 +472,210 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528177   (735411) от 31.01.2022
+###  Публикация: 1041516   (579473) от 12.08.2016
 
-The Man Behind C. - Chillout Sessions, Vol. 2 (Sounds Del Mar) (2009) [AAC|~351 Kbps] <Lounge, Chill Out, Downtempo>
+Пеле: Рождение легенды / Pelé: Birth of a Legend (2016) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735411.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Back on the Streets (Smooth Jazz Mix) (6:02)
-02. The Man Behind C., Debora Vilchez - Fluye (Del Mar Mix) (6:10)
-03. Back in Time (Bossa Chill Mix) (6:28)
-04. Pretty Stranger (On the Road Mix) (5:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:16
+Биографическая драма расскажет о закулисье спорта, в частности о жизни величайшего игрока в истории футбола — Пеле. Зрители станут свидетелями непростой жизни бразильской легенды спорта. Сколько преград тому удалось преодолеть на своем пути, чтобы добиться мировой популярности? Это сейчас он демонстрирует невероятные профессиональные достижения и вдобавок ко всему (   Читать дальше...   )Производство: СШАЖанр: Драма, биография, спортРежиссер: Майкл ЦимбалистАктеры: Кевин де Паула, Леонардо Лима Карвальо, Сеу Жоржи, Мариана Нюнс, Милтон Гонсалвис, Сет Майклс, Винсент Д’Онофрио, Андре Маттос, Фил, Рафаэль ЭнрикесПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:47:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1068AE228E69CCD178AC11B3F02FACBCF2B92F69
+magnet:?xt=urn:btih:0761B3E13EC885C43B965919FAC394652310CD3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041272   (579471) от 12.08.2016
+
+Книга джунглей / The Jungle Book (2016) BDRip [576p] iPad [Line]
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непримиримая борьба с опасным и страшным тигром Шерханом вынуждает Маугли покинуть волчью стаю и отправиться в деревню к людям. На пути мальчика ждут удивительные открытия и захватывающие приключения с пантерой Багирой, медведем Балу, питоном Каа и другими обитателями дремучих джунглей.Производство: СШАЖанр: Фэнтези, драма, приключения, семейныйРежиссер: Джон ФавроАктеры: Нил Сетхи, Билл Мюррей, Бен Кингсли, Идрис Эльба, Лупита Нионго, Скарлетт Йоханссон, Джанкарло Эспозито, Кристофер Уокен, Гарри Шендлинг, Брайтон РоузПеревод: Дублированный (LINE)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1FD4836259ADCFE25D26EBC2618967F01D3B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041270   (579422) от 12.08.2016
+
+Пеле: Рождение легенды / Pelé: Birth of a Legend (2016) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биографическая драма расскажет о закулисье спорта, в частности о жизни величайшего игрока в истории футбола — Пеле. Зрители станут свидетелями непростой жизни бразильской легенды спорта. Сколько преград тому удалось преодолеть на своем пути, чтобы добиться мировой популярности? Это сейчас он демонстрирует невероятные профессиональные достижения и вдобавок ко всему (   Читать дальше...   )Производство: СШАЖанр: Драма, биография, спортРежиссер: Майкл ЦимбалистАктеры: Кевин де Паула, Леонардо Лима Карвальо, Сеу Жоржи, Мариана Нюнс, Милтон Гонсалвис, Сет Майклс, Винсент Д’Онофрио, Андре Маттос, Фил, Рафаэль ЭнрикесПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D14D06D2B39801E3775988A21B1BABD48D01DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042189   (579377) от 12.08.2016
+
+Paul Englishby and VA - Idris Elba Presents Luther (Song & Score From Series 1, 2 & 3) (2013) [AAC|WEB-DL|256 Kbps]<Soundtrack>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Massive Attack - Paradise Circus
+02 - Paul Englishby - The First Case
+03 - Heavy, The - Big Bad Wolf
+04 - Paul Englishby - Carnage(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D1F3C16C1C0F3059EC29C65B83A3D0AECF2C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042033   (579360) от 12.08.2016
+
+Белоснежка и Охотник 2 / The Huntsman: Winter's War (2016) BDRip [720p] ATV [Extended Edition]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда любовь уходит, сердце прекрасной девы обращается в лед. И даже сотни королевств не смогут сдержать поступь ее несметного воинства. Лишь Охотник не ведает страха. Сквозь проклятый лес он идет навстречу своей судьбе.Производство: СШАЖанр: Фэнтези, боевик, драма, приключенияРежиссер: Седрик Николя-ТроянАктеры: Крис Хемсворт, Шарлиз Терон, Джессика Честейн, Эмили Блант, Ник Фрост, Роб Брайдон, Шеридан Смит, Александра Роуч, Сопе Дирису, Сэм ХэзелдайнПеревод: Дублированный (Лицензия)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 02:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE403861E951B2C7B0DF7EE5ABC611E9F6B9E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041766   (579314) от 12.08.2016
+
+Белоснежка и Охотник 2 / The Huntsman: Winter's War (2016) BDRip [1080p] ATV [Extended Edition]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда любовь уходит, сердце прекрасной девы обращается в лед. И даже сотни королевств не смогут сдержать поступь ее несметного воинства. Лишь Охотник не ведает страха. Сквозь проклятый лес он идет навстречу своей судьбе.Производство: СШАЖанр: Фэнтези, боевик, драма, приключенияРежиссер: Седрик Николя-ТроянАктеры: Крис Хемсворт, Шарлиз Терон, Джессика Честейн, Эмили Блант, Ник Фрост, Роб Брайдон, Шеридан Смит, Александра Роуч, Сопе Дирису, Сэм ХэзелдайнПеревод: Дублированный (Лицензия)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 02:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E087D003EE2A2B3DED11F519C275D0DE30881E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042283   (579246) от 12.08.2016
+
+Книга джунглей / The Jungle Book (2016) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непримиримая борьба с опасным и страшным тигром Шерханом вынуждает Маугли покинуть волчью стаю и отправиться в деревню к людям. На пути мальчика ждут удивительные открытия и захватывающие приключения с пантерой Багирой, медведем Балу, питоном Каа и другими обитателями дремучих джунглей.Производство: Великобритания, СШАЖанр: Фэнтези, драма, приключения, семейныйРежиссер: Джон ФавроАктеры: Нил Сетхи, Билл Мюррей, Бен Кингсли, Идрис Эльба, Лупита Нионго, Скарлетт Йоханссон, Джанкарло Эспозито, Кристофер Уокен, Гарри Шендлинг, Брайтон РоузПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, АнглийскиеПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA103C7CB819E909536D57BC03F4B72D585DBE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302770   (579208) от 17.05.2019
+
+Всё о Нине / All About Nina (2018) WEB-DL [1080p] ATV (MVO)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579208.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о стендап-комике Нине Гельд, чья карьера на взлёте, а вот личная жизнь представляет собой полную катастрофу. Чтобы сбежать от проблематичного бывшего и подготовиться к крайне важному прослушиванию, Нина отправляется в Лос-Анджелес, где встречает Рейфа — и он ставит её жизнь с ног на голову.Производство: США / Diablo Entertainment (II)Жанр: Драма, КомедияРежиссер: Эва ВивесАктеры: Мэри Элизабет Уинстэд, Коммон, Чейс Кроуфорд, Камрин Менхейм, Джей Мор, Минди Стерлинг, Анжелика Кебрал, Клеа ДюВалл, Бо БриджесПеревод: Профессиональный многоголосый  (HDRezka Studio)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF63043D5192B1CD3B1728C1F755C8FC93F6EBE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

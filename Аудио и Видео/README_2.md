@@ -1,25 +1,22 @@
-###  Публикация: 1525357   (129473) от 20.01.2022
+###  Публикация: 1472854   (1013927) от 27.05.2021
 
-VA - My Electronic Kitchen, Vol. 1 (2016) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+Армия мертвецов / Army of the Dead (2021) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129473.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sifat - Khwaja Ji (4:16)
-02. Naoki Kenji - Hoshi (4:49)
-03. Gordon Geco - Cruiser (3:47)
-04. Ambitus - Fear Takes Hold (Interlude) (1:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:24
+В Лас-Вегасе произошло нашествие ходячих мертвецов. В городе почти не осталось живых, что подталкивает главного героя к идее провернуть крупное ограбление. Он собирает команду наёмников и отправляется в одно из самых опасных мест на земле в надежде сорвать куш.Производство: США / The Stone QuarryЖанр: Ужасы, боевик, драмаРежиссер: Зак СнайдерАктеры: Дэйв Батиста, Элла Пёрнелл, Ана де ла Регера, Маттиас Швайгхефер, Нора Арнезедер, Хироюки Санада, Рауль Кастильо, Майкл Кэссиди, Гаррет Диллахант, Тиг Нотаро, Саманта Уин, Тео Росси, Омари Хардвик, Лион Бекуив, Сара МинникПеревод: ДублированныйСубтитры: Русские, украинские, английские, румынскиеПродолжительность: 02:28:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F763D8421AB69155DB5ED8C23F8F3D76792BEA2C
+magnet:?xt=urn:btih:68EB99319843CE8E9D6E269ADD607002D8E6675A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525365   (129477) от 20.01.2022
+###  Публикация: 1475031   (1012510) от 05.06.2021
 
-VA - Stil vor Talent 300, Pt. 1 (2021) [AAC|~326 Kbps] <Melodic House, Progressive House, Organic House>
+Василий Головачев | Очень большой лес.  Пенталогия (2021) [M4B|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129477.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sam Shure - Simmer (7:06)
-02. Brigado Crew, Ubbah - Into the Future (5:43)
-03. Skala - Voices of Eqi (6:47)
-04. Hidden Empire - Baba Ghanoush (7:15)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:55:13
+В африканских джунглях загадочным образом пропадает археологическая экспедиция ЮНЕСКО. Что это? Мистическая месть разгневанных богов за потревоженные храмы или банальная, но от этого не менее страшная работа местных бандформирований, нацеленных на захват заложников? Спасти российских участников экспедиции отправляется спецгруппа под командованием майора Реброва, (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 40:21:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41636641DC4CD7AA82674449D4CE10CCE9D03113
+magnet:?xt=urn:btih:662F7EB9F3CCEEE24E260FDA8D42DCD47207B737
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525359   (129479) от 20.01.2022
+###  Публикация: 1475289   (1012285) от 07.06.2021
 
-VA - My Electronic Kitchen, Vol. 3 (2017) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+Любовь Успенская - Не забывай (1993) [AAC|~347 Kbps] <Chanson>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129479.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Florito - 90 Degrees Fahrenheit (3:59)
-02. James Butler - Praia Bossa (2:53)
-03. Luc Forlorn - Full of Love (4:43)
-04. Emelie Christiansson - Silly Boy (3:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:09:31
+01. Вступление (1:54)
+02. Я боюсь, он не любит меня (4:44)
+03. Заклятье (5:09)
+04. Я милого узнаю по походке (3:10)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:43:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6DA7A205B415C1F8DC95F0323D7E1882655989F
+magnet:?xt=urn:btih:06FDF66FCC799C9B7E32FD7CC27F640CE021478E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525366   (129480) от 20.01.2022
+###  Публикация: 1475136   (1012279) от 07.06.2021
 
-VA - Stil vor Talent 300, Pt. 2 (2021) [AAC|~315 Kbps] <Melodic House, Progressive House, Organic House>
+Любовь Успенская - Любимый (1993) [AAC|~301 Kbps] <Chanson>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129480.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lunar Plane - Aegean (7:37)
-02. Township Rebellion - About a Tribe (7:36)
-03. Tim Engelhardt, Ben Haydie - Open Silence (6:38)
-04. Elif (tr) - Juno (7:30)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:49:46
+01. Ещё не поздно (3:52)
+02. Найди себя (4:34)
+03. Мой звёздный сад (4:26)
+04. Гусарская рулетка (5:05)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:49:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:247C07E2A38AA61082D1846F7C02AE356B2576C7
+magnet:?xt=urn:btih:D545D40673D7193D0AD46B1E72D6FF6C513652F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525425   (129490) от 20.01.2022
+###  Публикация: 1476527   (1007502) от 09.07.2021
 
-VA - Colours of Lounge, Vol. 2 (2022) [AAC|~324 Kbps] <Chill Out, Lounge, Downtempo, Soulfull House>
+Curses - Next Wave Acid Punx (2021) [AAC|~328 Kbps] <Electronic>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129490.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Matthew Daniel, Lina Loi - Joy (Alternative Version) (3:00)
-02. Svendaq - Sweep Melodies (Original Mix) (4:18)
-03. Velvet Dreamer, Tim Gelo - White Wine of the Moon (Original Mix) (5:29)
-04. Stepo Del Sol - Paris at Night (Original Mix) (3:56)(   Читать дальше...   )Жанр: Chill Out, Lounge, Downtempo, Soulfull HouseПродолжительность: 02:23:18
+01. Borghesia - Z.M.R. (3:51)
+02. Gina X Performance - Kaddish (4:17)
+03. Suicide - Wild In Blue (2005 Remaster) (4:34)
+04. DEMOLITION GROUP - You Better Stay Alive (5:11)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:39:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:939B62E9A5771CDCB676D1D717041019DA760AA2
+magnet:?xt=urn:btih:C1E7D475A597F7E3B09FB9DC46D0B80F808D5E22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525370   (129494) от 20.01.2022
+###  Публикация: 1478556   (1007500) от 09.07.2021
 
-VA - Stil vor Talent 300, Pt. 3 (2021) [AAC|~326 Kbps] <Melodic House, Progressive House, Organic House>
+VA - Jangrua Vol. I (2020) [AAC|~310 Kbps] <Psy-Trance>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129494.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oliver Koletzki - Get on the Bus (3:45)
-02. Deorbiting - Ocean Drive Miami 84 (7:00)
-03. Deer Jade - Perfect Place Perfect Time (5:43)
-04. Daniel Rateuke - Godana (7:15)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:51:47
+01. Totem Hotel, Nora - Elektronik Waveporn Terror (10:20)
+02. Data Entry - Ketanf (8:13)
+03. Thongoro, Monomano - Brisskar (11:12)
+04. Data Entry, FoldingCircus - Solid Space (8:08)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:04:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6BBA06C1AC8A5EA13F001B58AFD8E46B176D314
+magnet:?xt=urn:btih:B7A787D1BAB7ECCC54BDDC05552AF65900264625
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525417   (129496) от 20.01.2022
+###  Публикация: 1477161   (1007498) от 09.07.2021
 
-VA - Reggaeton Nocturno, Vol. 3 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
+Scatman John - Scatman's World (1995) [AAC|~329 Kbps] <Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129496.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Danna Paola, Skinny Happy, Yera, Trapical - Polo A Tierra (3:26)
-02. Luis Fonsi, KAROL G - Calypso (Remix) (3:04)
-03. Jhay Cortez, Mariah Angeliq - Costear (Remix) (3:45)
-04. Kevin Roldan, Zion & Lennox - PPP (Remix) (3:35)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:16:49
+01. Welcom To Scatland (0:54)
+02. Scatman's World (3:45)
+03. Only You (3:46)
+04. Quiet Desperation (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84C1C1EF1E02CBBD036FA8FB2BB79F26B7F87BF1
+magnet:?xt=urn:btih:48D10717DA600C2187CFFCDE7AB859A8343E55BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525422   (129505) от 20.01.2022
+###  Публикация: 1478801   (1007497) от 09.07.2021
 
-VA - Ibiza Chillout (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
+Fancy - Get Your Kicks (1985) [AAC|~369 Kbps] <Pop, Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129505.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kieloval - Space Thoughts (5:53)
-02. Pique Dame - Souvenir de Bordeaux (6:14)
-03. Ackeret - Unofficial Meeting (6:03)
-04. Duenec - Innuendo (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:21
+01. Colder Than Ice (5:06)
+02. Get Your Kicks (5:30)
+03. L.A.D.Y O. (4:19)
+04. Slice Me Nice / Chinese Eyes (Special Mix) (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:38:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADC67F0DB42F69DE2FC87FF77DD19AEBE06AE070
+magnet:?xt=urn:btih:22822AA48AC49C8B6C94DE87EE5517787B634C54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525362   (129508) от 20.01.2022
+###  Публикация: 1476499   (1007496) от 09.07.2021
 
-VA - My Electronic Kitchen, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+Игорь Саруханов - Скрипка-лиса (1997) [AAC|~340 Kbps] <Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129508.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luc Forlorn - Love Hope (6:49)
-02. Remundo - Zone Desert (3:38)
-03. Dr. Beat - D melo (4:05)
-04. Mr. Groove - You Can t Stop Me (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:20:05
+01. Скрипка-лиса (6:20)
+02. Рыжая звезда (4:22)
+03. Вчерашний день (4:55)
+04. Маленькая девочка (5:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84C13C2B3284BAEC06BF6C2A96E6ED2FC527ADA9
+magnet:?xt=urn:btih:BA293A77232AD66DB3EB21CF777826AF73F017CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525415   (129512) от 20.01.2022
+###  Публикация: 1478804   (1007495) от 09.07.2021
 
-VA - Reggaeton Nocturno, Vol. 2 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
+Fancy - Contact (1986) [AAC|~359 Kbps] <Pop, Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129512.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don Omar - Dile (3:27)
-02. Lalo Ebratt, J Balvin, Trapical - Mocca (Remix) (3:23)
-03. Daddy Yankee, Nicky Jam, Plan B - Shaky Shaky (Remix) (3:55)
-04. Cali Y El Dandee - Ay Corazón (3:10)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:25:36
+01. Reaving Queen (4:22)
+02. I Don't Want To Go (4:06)
+03. Bolero (Hold Me In Your Arms Again) (4:04)
+04. Feedback, Feedback (5:03)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:40:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95F3CE03BF61D8324182B5695467C728C2D21AFD
+magnet:?xt=urn:btih:EF0C1B3540F66EE3DE8E3AA5502EA949DFF5ED0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525403   (129513) от 20.01.2022
+###  Публикация: 1476491   (1007494) от 09.07.2021
 
-VA - Reggaeton World, Vol. 4 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
+Игорь Саруханов - Лучшие песни 2 (1994) [AAC|~311 Kbps] <Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129513.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luis Fonsi, KAROL G - Calypso (Remix) (3:04)
-02. Danna Paola, Skinny Happy, Yera, Trapical - Polo A Tierra (3:26)
-03. Kevin Roldan, Zion & Lennox - PPP (Remix) (3:35)
-04. Jhay Cortez, Mariah Angeliq - Costear (Remix) (3:45)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:16:49
+01. Я хочу сойти с ума (4:45)
+02. Флейта в саду (6:16)
+03. Поминальная (5:38)
+04. На Чёрном море (3:45)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D928D1F9D6E0E22215B82293F9762DDE2AAE91E
+magnet:?xt=urn:btih:9F6051D7BD32D6687362CE3A7EE99826A0C70665
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +311,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525355   (129515) от 20.01.2022
+###  Публикация: 1478391   (1007493) от 09.07.2021
 
-Guenter Haas - Famous People (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+Ottawan - Ottawan (1980) [AAC|~351 Kbps] <Pop, Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129515.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mister Gossip (4:50)
-02. Prayer (4:09)
-03. Requiem (4:30)
-04. Love Me or Leave Me Alone (5:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:52:09
+01. D.I.S.C.O. (5:03)
+02. Hello Rio! (4:27)
+03. Shalala Song (3:41)
+04. Tant que durera la nuit (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:34:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC41D1ED0BA2D440A4E49202258C122ED02A4F9D
+magnet:?xt=urn:btih:A82FEB0CA852810D5096FAA860CD3DAE37DB13D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +340,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525413   (129518) от 20.01.2022
+###  Публикация: 1477168   (1007491) от 09.07.2021
 
-VA - Reggaeton World, Vol. 5 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
+Garbage - No Gods No Masters (2021) [AAC|~321 Kbps] <Rock, Alternative>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129518.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lalo Ebratt, J Balvin, Trapical - Mocca (Remix) (3:23)
-02. Don Omar - Dile (3:27)
-03. Cali Y El Dandee - Ay Corazón (3:10)
-04. Daddy Yankee, Nicky Jam, Plan B - Shaky Shaky (Remix) (3:55)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:25:36
+1.01. The Men Who Rule the World (4:27)
+1.02. The Creeps (3:34)
+1.03. Uncomfortably Me (3:17)
+1.04. Wolves (4:17)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:23:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EF027416B997F619D7F8BD735F575C90F0E76E6
+magnet:?xt=urn:btih:BD0E1AA0EEB747F8395E6DE1E009C2081D90F188
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525402   (129552) от 20.01.2022
+###  Публикация: 1479274   (1007489) от 09.07.2021
 
-VA - Lofi Evening (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Lo-Fi>
+Muse - Origin of Symmetry (XX Anniversary RemiXX) (2021) [AAC|~347 Kbps] <Alternative>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129552.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pueblo Vista - Autumn In Sagano Forest (1:59)
-02. Hybro, Chillmob, Christoph Israel, Swonderful Orchestra, Catherine Larsen-Maguire - Jolis sapins (Lofi Edit) (1:44)
-03. Dpsht, Pueblo Vista - Falling Leaves (2:17)
-04. Mr. Jello - Warm & Cozy (1:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo-FiПродолжительность: 01:57:55
+01. New Born (6:04)
+02. Bliss (4:15)
+03. Space Dementia (6:22)
+04. Hyper Music (3:22)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:55:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C134BC90ECCEEF247C0B53E952A8370D44F223C
+magnet:?xt=urn:btih:1DFF62F22FAFF91F84BABA9D3BDBC4F150DC3DE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525428   (129556) от 20.01.2022
+###  Публикация: 1478393   (1007488) от 09.07.2021
 
-VA - Ambiental Journey: Chillout Your Mind (2022) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
+Ottawan - Ottawan 2 (1981) [AAC|~341 Kbps] <Pop, Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129556.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - Sylvan Bliss (Original Mix) (6:06)
-02. Michael e, Diego Porchile - When Eyes Speak (Original Mix) (5:21)
-03. Matt Sour - Longing for the Sea (4:06)
-04. Simon Le Grec - Sibir (Radio Mix) (4:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:06
+01. Hands Up (Give Me Your Heart) (4:52)
+02. Siesta For Two (4:01)
+03. A.I.E. Is My Song (3:31)
+04. Sing Along With The Juke-Box (4:04)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:32:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A37AD469CB98E0BDBAB0719215E449874A234B8
+magnet:?xt=urn:btih:AE17C010469F50C8769B96E97CABE0BBB69EB1A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525052   (129930) от 19.01.2022
+###  Публикация: 1476469   (1007487) от 09.07.2021
 
-VA - The Best of Transensations (2018 - 2020) (2021) [AAC|~338 Kbps] <Progressive House, Melodic House, Organic House>
+Игорь Саруханов - Лучшие песни (1993) [AAC|~339 Kbps] <Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129930.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gorkiz - Strutter (Kamilo Sanclemente Remix) (8:36)
-02. RIGOONI - Sopdet (8:07)
-03. Carlos Tk - Hope (Weird Sounding Dude Remix) (8:00)
-04. Fel C - Floripa in Chaos (Andre Moret Remix) (8:00)(   Читать дальше...   )Жанр: Progressive House, Melodic House, Organic HouseПродолжительность: 05:09:27
+01. Маскарад (5:03)
+02. Ящики почтовые (3:40)
+03. Позади крутой поворот (4:12)
+04. Barber (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:961A9474E55BB0A76588EE43FBB5C4255D48BBCC
+magnet:?xt=urn:btih:B2FCA2E55C48BF47A25C74A67DF6B650A9347989
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +456,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525056   (129933) от 19.01.2022
+###  Публикация: 1477170   (1007486) от 09.07.2021
 
-VA - C Recordings 2021 (2022) [AAC|~309 Kbps] <Drum & Bass, Liquid Funk, Deep Dubstep>
+Maroon 5 - JORDI (Deluxe) (2021) [AAC|~319 Kbps] <Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129933.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ferice, Solr - Tides (4:54)
-02. Echomatics - Shouldn't We (5:49)
-03. Ferice - What You've Done (4:51)
-04. Soul Connection - Body Love (5:31)(   Читать дальше...   )Жанр: Drum & Bass, Liquid Funk, Deep DubstepПродолжительность: 03:45:31
+01. Maroon 5, Megan Thee Stallion - Beautiful Mistakes (3:47)
+02. Lost (2:53)
+03. Maroon 5, blackbear - Echo (2:59)
+04. Lovesick (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C799D65227610383052689E1D101C952D5923D2E
+magnet:?xt=urn:btih:99FBB7F134B76C6426D97AD2476CC305D2A194B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525051   (129946) от 19.01.2022
+###  Публикация: 1479269   (1007483) от 09.07.2021
 
-Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
+Alicia Keys - Songs in A minor (20th Anniversary Edition) (2021) [AAC|~331 Kbps] <Pop, R&B>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129946.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. July (Original Mix) (4:21)
-02. August (Original Mix) (3:44)
-03. September (Original Mix) (3:32)
-04. October (Original Mix) (3:47)(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 00:48:19
+01. Piano & I (1:52)
+02. Girlfriend (3:35)
+03. How Come You Don’t Call Me (3:58)
+04. Fallin’ (3:30)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:19:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B9EE5D04C005A66DD8F97E9BFC724FBF6DA8324
+magnet:?xt=urn:btih:76FAB0B82FBCD8C809748023466C1492038E9BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525117   (129975) от 19.01.2022
+###  Публикация: 1476577   (1007482) от 09.07.2021
 
-VA - Guitar Chillout Lounge 1 (2007) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+Yello - Yello 40 Years (2021) [AAC|~337 Kbps] <Synthpop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129975.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Floating Stone - Planet X (Dark Underground Mix) (4:39)
-02. Cabal, Maestro - Clifton Bay (Original Mix) (5:24)
-03. 4tunes, Debora Vilchez - Oir Es Aprender (Original Mix) (5:53)
-04. La Tienda - Papua-St.Tropez (Original Mix) (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:05
+1.01. Bimbo (3:35)
+1.02. Pinball Cha Cha (3:24)
+1.03. The Evening’s Young (3:08)
+1.04. Bananas to the Beat (2:58)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 04:46:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F69CF96A9051BFF834D4261BE002A10ADBE8E3A
+magnet:?xt=urn:btih:F929E9BABB08FCF97211E826DA84B1758685DA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +543,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525115   (129979) от 19.01.2022
+###  Публикация: 1479473   (1007456) от 09.07.2021
 
-Birds ov Paradise - Memorial (2022) [AAC|~343 Kbps] <Atmospheric Techno, Deep Techno, Ambient Techno>
+Александр Пушной - Каверы Пушного (2021) [AAC|~331 Kbps] <Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129979.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Amanda (6:42)
-02. Anton (5:40)
-03. Michel (7:07)
-04. Kajsa (5:58)(   Читать дальше...   )Жанр: Atmospheric Techno, Deep Techno, Ambient TechnoПродолжительность: 00:52:58
+01. Трава у дома (cover version) (2:53)
+02. От винта! (cover version) (2:56)
+03. 6 кадров (cover version) (2:33)
+04. День рожденья (cover version) (3:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E406DE4C794B435D94453FE080571AECD2270C78
+magnet:?xt=urn:btih:04DD1C9C57B5C22F18510B5A258A6F3EDC1A4BD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +572,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525123   (129997) от 19.01.2022
+###  Публикация: 1481836   (1007322) от 10.07.2021
 
-VA - Guitar Chillout Lounge 4 (2015) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
+Lumen - Без консервантов. Live (2021) [AAC|~347 Kbps] <Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129997.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guenter Haas - Secret Diary (5:38)
-02. Paulsen & Stryczek - Toys for Boys (3:51)
-03. Family Vision Care - Doo Wop Girl (2:14)
-04. Luis Hermandez - Latin Nights (2:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:12
+01. Космонавт (Live) (3:33)
+02. Моё время (Live) (2:21)
+03. Ну и пусть! (Live) (2:04)
+04. Хорошо! (Live) (1:53)(   Читать дальше...   )Жанр: RockПродолжительность: 01:24:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC949E83F1F98F1E2AF602B3D4CF611192328E80
+magnet:?xt=urn:btih:321B56B5E25ABADD26F0DD863E67A8CF36BEB7F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +601,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525121   (130003) от 19.01.2022
+###  Публикация: 1482767   (1007320) от 10.07.2021
 
-VA - Guitar Chillout Lounge 2 (2015) [AAC|~348 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Navigator Records 15 (2021) [AAC|~339 Kbps] <Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130003.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Source - Childhood (3:19)
-02. Guenter Haas - Alone but Never Lonely (6:03)
-03. Barclay & Cream - Surrender (Alexander Metzger Beach Mix) (3:55)
-04. Shareholder Tom, Fijori - Rechibejo (2:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:09
+01. Сплин - Линия жизни (3:02)
+02. ДДТ - Песня о свободе (4:17)
+03. Гарик Сукачёв, Александр Ф. Скляр, Боцман и Бродяга - И снова май месяц (4:08)
+04. Мельница - Дороги (3:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C6CB7CB01668D16DAAC3E71D2B39D0BFC9A026D
+magnet:?xt=urn:btih:F371C285EF55611CBE97D71F3BF22E94BEE9DE6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +630,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525122   (130010) от 19.01.2022
+###  Публикация: 1482676   (1007319) от 10.07.2021
 
-VA - Guitar Chillout Lounge 3 (2013) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
+Lindemann - Live in Moscow (2021) [AAC|~352 Kbps] <Industrial>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130010.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guenter Haas - First Floor Lobby (4:06)
-02. Living Room - Acustic (3:59)
-03. Weathertunes - Bikini (4:19)
-04. Luis Hermandez - A Tu Lado (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:42:37
+01. Skills In Pills (Live) (4:31)
+02. Ladyboy (Live) (3:23)
+03. Fat (Live) (4:17)
+04. Frau & Mann (Live) (3:47)(   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:15:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B53D91A5ED2CCAB5436C7D4279828537D5207208
+magnet:?xt=urn:btih:07D3A80CEC240D6652152850A45C71F1F1EB96DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +659,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525058   (130014) от 19.01.2022
+###  Публикация: 1480365   (1007299) от 10.07.2021
 
-VA - A 40 Track Compilation: New York (2022) [AAC|~332 Kbps] <Progressive House, Deep House, Downtempo>
+Lady Gaga - BORN THIS WAY THE TENTH ANNIVERSARY (2021) [AAC|~332 Kbps] <Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130014.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sarah Chilanti, Nopi - Flatter (Dmitry Molosh Remix) (8:16)
-02. Ercos Blanka - Kafka (Arina Mur Remix) (6:39)
-03. Beije - Azimuth (Mark Slee's Elevation Dub) (7:09)
-04. Chris Domingo, Mariner, Mariner + Domingo - Edenwilde (Elk Mix) (8:54)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 05:05:09
+1.01. Marry the Night (4:25)
+1.02. Born This Way (4:20)
+1.03. Government Hooker (4:14)
+1.04. Judas (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4A138E2C19296074D5E7922C09A9AA6DD88C343
+magnet:?xt=urn:btih:ACCB6117D71D889849E47624136299DE7A679046
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +688,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525054   (130015) от 19.01.2022
+###  Публикация: 1480332   (1007298) от 10.07.2021
 
-VA - The Best of Transensations 2021 (2022) [AAC|~332 Kbps] <Progressive House, Melodic House, Organic House>
+Ляпис Трубецкой - Ты кинула (1998) [AAC|~347 Kbps] <Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130015.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007298.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. K Loveski, Gorkiz - Echos of Eons (Greenage Remix) (6:57)
-02. Emphi - Pair of Dice (Kabi AR Remix) (8:17)
-03. Toñaco - Angle Renovation (NOIYSE PROJECT Remix) (8:15)
-04. Ortus (BR) - Lua (Binaryh Remix) (6:43)(   Читать дальше...   )Жанр: Progressive House, Melodic House, Organic HouseПродолжительность: 05:10:16
+01. Ау (3:54)
+02. Ранетое сердце (Абы чо) (5:46)
+03. Ты кинула (3:57)
+04. Пастушок (4:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C86102024E3C9BFD4FE1F91A57B504DE07E1CC64
+magnet:?xt=urn:btih:3694AE3672F8E7D37CD6EFEEBCD8D739CEFF98AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,28 +717,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525055   (130016) от 19.01.2022
+###  Публикация: 1481415   (1007295) от 10.07.2021
 
-VA - 5 Years of Nazca compilation (2022) [AAC|~335 Kbps] <Organic House, Melodic House>
+VA - Jazz Sexiest Ladies, Vol. 4 (2020) [AAC|~305 Kbps] <Chillout, Lounge, Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130016.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Los Suruba - En Las Dalias (7:09)
-02. Thimble - War Pipes (7:31)
-03. Thodoris Triantafillou, Angeliki - Contact (Innellea's First Acid Accident Remix) (7:25)
-04. Sandhog - La Bala Perdida (Jenia Tarsol remix) (6:58)(   Читать дальше...   )Жанр: Organic House, Melodic HouseПродолжительность: 01:23:32
+01. Nenei, Stella Starlight Trio - Don't Start Now (3:20)
+02. The Cooltrane Quartet - Wonderful Life (3:09)
+03. Jazzystics, Urselle - Everybody Wants to Rule the World (3:54)
+04. Stella Starlight Trio - Sunrise (3:22)(   Читать дальше...   )Жанр: Chillout, Lounge, JazzПродолжительность: 01:26:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DA5C684E55CA874AF151BDB4C1FA1DE9F54BF02
+magnet:?xt=urn:btih:3A7F81D2C01744E4B83D8D214BC859CD41C973BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,23 +1,25 @@
-###  Публикация: 972986   (978123) от 10.01.2016
+###  Публикация: 1816006   (4386) от 04.09.2025
 
-Ансамбль (Вокальный квартет) Аккорд (1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop>
+Scarlet Requiem - Precious Gemstone Of Graceful Charm And Elegant Beauty (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neoclassical, Melodic Death, Power Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978123.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. В дороге
-02. МустафаЖанр: PopПродолжительность: 00:04:23
+01. Garden Of Nostalgia [00:05:12]
+02. Dissonant Carousel [00:05:29]
+03. Petals Of Lamentation [00:05:59]
+04. To Deflower A Virgin Rose [00:05:47](   Читать дальше...   )Жанр: Neoclassical, Melodic Death, Power MetalПродолжительность: 01:06:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB6D34B1A3435F6784CDD64BB3529566B1AE85D3
+magnet:?xt=urn:btih:DBE3CBA602F520463F5F69832D5713F0F91834C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973397   (978125) от 10.01.2016
+###  Публикация: 1816046   (4384) от 04.09.2025
 
-Dana International - The Album (1998) [FLAC 2.0|16/44,1 |image+.cue (Vinyl-Rip)] <Euro House>
+Molly Tuttle - So Long Little Miss Sunshine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978125.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Diva
-02. Cinque Milla (Remix)
-03. Maganuna (Remix)
-04. Qu'est Que C'est? (Remix)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:55:14
+01. Everything Burns [00:03:44]
+02. The Highway Knows [00:04:10]
+03. Golden State of Mind [00:04:09]
+04. Rosalee [00:03:53](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF85AAC73B9E8EDFB901EAB0191411010D3F11DE
+magnet:?xt=urn:btih:02B1DDE4EDD6CFE1293A9CFAC3A141ABF8FE866D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973683   (978127) от 10.01.2016
+###  Публикация: 1816279   (4380) от 04.09.2025
 
-VA - Blues & Ballads 2 (1996) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Pop, Cover>
+Problematic Jam - It's So Confusing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978127.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Valery - I Will Always Love You
-02. Power Band - Now I Know What Made Otis Blue
-03. Bill Power - Streets Of Philadelphia
-04. Jackie Moore - Why(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 00:42:16
+01.  Nothing I Want (2:15)
+02.  It's Alright (2:40)
+03.  Come Here Forever (2:47)
+04.  Get Outta My Funky Car (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8FC4B473CF5E93F11827BE9F0B3A10C63FA29A1
+magnet:?xt=urn:btih:04CCF91D65056AC20DE37BD039A75B87ED7D7FBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,33 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 614646   (978302) от 07.02.2013
+###  Публикация: 1816278   (4379) от 04.09.2025
 
-Deep Purple - 9 альбомов (1970-1990) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Rock>
+Mitch Laddie - Faith and Other Bad Habits (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978302.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. King Of Dreams 5:28
-A2. The Cut Runs Deep 5:42
-A3. Fire In The Basement 4:46
-A4. Fortuneteller 5:48
-B1. Truth Hurts 5:15
-B2. Love Conquers All 3:45
-B3. Breakfast In Bed 5:18
-B4. Too Much Is Not Enough 4:18
-B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
+01.  50 Shades of Blue (2:53)
+02.  She Keeps Me Down (2:59)
+03.  Angels & Demons (5:26)
+04.  The Way It Goes With Love (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
+magnet:?xt=urn:btih:A1EB778BFC0B80FD2261FB14912B3F9806D5DDBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -117,34 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 615136   (978389) от 07.02.2013
+###  Публикация: 1816285   (4378) от 04.09.2025
 
-Depeche Mode - Playing The Angel (2005) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Synth-pop>
+Sketch Plot - Rock Lives On (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978389.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. A Pain That I'm Used To 4:08
-A2. John The Revelator 3:45
-A3. Suffer Well 3:54
-B1. The Sinner In Me 4:59
-B2. Precious 4:07
-B3. Macro 4:09
-C1. I Want It All 6:11
-C2. Nothing's Impossible 4:22
-C3. Introspectre 1:41
-C4. Damaged People 3:30(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:52:27
+01.  Rock Legend (3:14)
+02.  Fortune's Favor (4:41)
+03.  Sweet Lady (3:23)
+04.  Dark Moon Rising (4:07)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
+magnet:?xt=urn:btih:B445CAB926C62EF878D3B65E038EE3E2A7A67342
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -152,34 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 742624   (978883) от 06.01.2014
+###  Публикация: 1681415   (4317) от 05.09.2025
 
-Electric Light Orchestra - Discovery (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Prog Rock, Symphonic Rock>
+Violator - Studio Albums (6 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978883.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-1. Shine A Little Love  4:40
-2. Confusion  3:42
-3. Need Her Love  5:08
-4. The Diary Of Horace Wimp  4:16
-Сторона 2
-1. Last Train To London  4:30
-2. Midnight Blue  4:18
-3. On The Run  3:58
-4. Wishing  4:10(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:38:46
+Violator — бразильская трэш-метал-группа. Является флагманом NWOTM (новой\третьей волны трэш-метала) и отличается ярко выраженной «олд-скульной» стилистикой, подражая андерграундным трэш-бэндам середины 80-х.2004 - Violent Mosh (EP)
+2006 - Chemical Assault
+2010 - Annihilation Process (EP)
+2013 - Scenarios Of BrutalityЖанр: Thrash MetalПродолжительность: 03:17:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
+magnet:?xt=urn:btih:0B5DEE40132A4069B4CB4787058DD0857BA2FCDE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,34 +172,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 614019   (981133) от 05.02.2013
+###  Публикация: 1690720   (4300) от 05.09.2025
 
-ДДТ - Чёрный пёс Петербург (1992/1994) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
+Primal Fear (& Ralf Scheepers) - Studio Albums (19 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Speed/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981133.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Пролог [4:32]
-02. Новые блокадники [5:22]
-03. Styx [4:29]
-04. Храм [4:27]
-05. Беда [7:57]
-06. Ты не один [5:08]
-07. Я остановил время [5:06]
-08. В это [5:02]
-09. Чёрный пёс Петербург [11:28]
-10. Дождь [3:59](   Читать дальше...   )Жанр: RockПродолжительность: 01:27:33
+Primal Fear — немецкая пауэр-метал группа, основанная в 1997 году Ральфом Шиперсом (вокал, ex-Gamma Ray) и Мэтом Синнером (бас и вокал, Sinner).
+Синнер и Шиперс сформировали группу после того, как Шиперс не был нанят на замену Робу Хэлфорду в Judas Priest.1998 - Primal Fear
+1999 - Jaws of Death
+2000 - Nuclear Fire
+2001 - Horrorscope (EP)Жанр: Speed/Power MetalПродолжительность: 17:35:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:788853C62705A6DB44C7F01C393D0462E8AF84EC
+magnet:?xt=urn:btih:F85FA408BA947121BF9C3BE5025A93E9015FA43F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,28 +202,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972345   (981733) от 06.01.2016
+###  Публикация: 1816578   (4295) от 05.09.2025
 
-Мумий Тролль - Икра (1997/2012) [FLAC 2.0 24/96] image + .cue (Vinyl-Rip) <Rock>
+Cat Stevens (Yusuf) - On The Road To Findout: Greatest Hits (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981733.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Доля риска
-02 - Шамаманы
-03 - Сиамские сердца
-04 - Не звезда(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:07
+Disc 1:
+ 01. I Love My Dog (Remastered 2020) (02:19)
+ 02. Matthew & Son (Remastered 2020) (02:42)
+ 03. Here Comes My Baby (Remastered 2020) (02:56)(   Читать дальше...   )Жанр: FolkПродолжительность: 02:40:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0CC07C4374A94223E87EBE50F15DBE08B142442
+magnet:?xt=urn:btih:955944DF7986FF6D793D4902B8DF234984FC0300
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,28 +231,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972228   (981736) от 06.01.2016
+###  Публикация: 1816468   (4292) от 05.09.2025
 
-Amadeus Veberzinke/Амадеус Веберзинке - J. S. Bach/И. С. Бах: Mass For Organ/Органная месса (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Classical, Organ>
+Primal Fear - Domination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981736.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Органная Месса (Фрагменты)
-А1	Praeludium, B. 552
-А2	Kyrie ("Kyrie, Gott Vater In Ewigkeit", B. 669, "Christe, Aller Welt Trost", B. 670, "Kyrie, Gott Heilige Geist", B. 671)
-В1	Gloria ("Allein Gott In Der Höh' Sei Ehr' ", B. 676)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01: 23:07
+01. The Hunter(4:21)
+02. Destroyer(4:33)
+03. Far Away(4:18)
+04. I Am The Primal Fear(5:43)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:58:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E524E0F0CA3702DC2C129FFD097E0E153AC9E7A5
+magnet:?xt=urn:btih:645889080E8A2C6727F713F7998093D8D26743A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,28 +260,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972443   (981818) от 06.01.2016
+###  Публикация: 1816458   (4291) от 05.09.2025
 
-VA - Место встречи - Выпуск 4 (1988) [FLAC 2.0 24/192] image+.cue (Vinyl-Rip) <Rock>
+FM - Brotherhood (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981818.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Заставка -Место встречи-
-02 - Для тех, кто любит рок - AC/DC
-03 - Меня не провести - Status Quo
-04 - Удовлетворение - Rolling Stones(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:02
+01.Do You Mean It(3:54)
+02.Living On The Run(4:19)
+03.Coming For You(4:11)
+04.Raised On The Wrong Side(4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:455619579D282BF72742EB0247C87405ACDD2B3A
+magnet:?xt=urn:btih:706E8AAA685F1B5EE62191114B1CE80058598FD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,28 +289,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972583   (981994) от 06.01.2016
+###  Публикация: 1816508   (4289) от 05.09.2025
 
-Yovanna/Иованна - 3xEP: Песни Д. Плессаса и К. Капнисиса (1962, 1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Jazz, Pop>
+Slipknot - Slipknot (1999) 25th Anniversary Edition, 2025, Roadrunner Records [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Nu metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981994.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Песни К. Капнисиса
-01. Говорят, Говорят
-02. Капитан Фафальос
-03. Дождь(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:36:34
+01.742617000027(0:36)
+02.(sic)(3:20)
+03.Eyeless(3:56)
+04.Wait and Bleed(2:28)(   Читать дальше...   )Жанр: Nu metalПродолжительность: 01:42:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4AC16232D0088A43E407C9B5CFDF33F03C30B62
+magnet:?xt=urn:btih:45562005B12B0712E069F7D4775D9A51F1623392
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,33 +318,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 613874   (982375) от 04.02.2013
+###  Публикация: 1816561   (4287) от 05.09.2025
 
-Depeche Mode - 2 альбома (1987, 1990) [1st, US press] [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Synth-pop>
+Acoustic Alchemy - The Empire of Lights (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982375.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. World In My Eyes 4:26
-A2. Sweetest Perfection 4:44
-A3. Personal Jesus 4:18
-A4. Halo 4:30
-A5. Waiting For The Night 6:10
-B1. Enjoy The Silence 6:13
-B2. Policy Of Truth 4:55
-B3. Blue Dress 5:45
-B4. Clean 5:29Жанр: Synth-popПродолжительность: 00:46:30
+01. Back to Back
+02. Other People
+03. Alisio
+04. 8,000 MilesЖанр: Smooth JazzПродолжительность: 00:16:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFE98CDF9D88713EFFB06255062F95905FC51DB8
+magnet:?xt=urn:btih:5DE68198BAE9D9E34A5DB3F1CB5ABA7E194CDF7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,29 +347,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 970826   (985764) от 03.01.2016
+###  Публикация: 1816516   (4284) от 05.09.2025
 
-VA - Кубинская эстрадная оркестровая музыка 60-х годов (1961) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop, Retro>
+Till Bronner - ITALIA (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985764.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Маленький ансамбль - Оркестр Э. Лекуона
-02. Мама Инес - Оркестр Э. ГренетаЖанр: Pop, RetroПродолжительность: 00:04:41
-
-Страна-производитель: USSR
-Издатель (лейбл): Пластмасс(   Читать дальше...   )
+01. Estate
+02. Viva La Felicit…
+03. Amarsi Un Po’
+04. Via Con Me (feat. Mario Biondi)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 01:04:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
+magnet:?xt=urn:btih:37E4D4936FBAAEAE3A275BCA81B55138BB9FAA3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +376,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 680927   (985968) от 24.01.2020
+###  Публикация: 1816517   (4277) от 05.09.2025
 
-Planet P Project – Planet P (1983) [APE 2.0 24/192|tracks (Vinyl-Rip)]<Progressive Rock>
+La Dispute - No One Was Driving The Car (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Hardcore>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985968.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Static [4:10]
-A2. King For A Day [3:55]
-A3. I Wont Wake Up [3:45]
-A4. Top Of The World [4:33](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:00
+01. - I Shaved My Head (3:29)
+02. - Man with Hands and Ankles Bound (3:19)
+03. - Autofiction Detail (4:54)
+04. - Environmental Catastrophe Film (8:42)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 01:04:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED5AB61891CAA9D775D72B75817588B02CE65779
+magnet:?xt=urn:btih:28CE669BDA9B8ACF0DDDA561E897BDEA68569F17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,34 +405,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609963   (986556) от 01.02.2013
+###  Публикация: 1816463   (4272) от 05.09.2025
 
-BONEY M. - Два альбома (1977-1978) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Pop, Disco>
+The Rods - Wild Dogs Unchained (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986556.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Nightflight To Venus [05:51]
-A2. Rasputin [06:08]
-A3. Painter Man [03:19]
-A4. He Was A Steppenwolf [06:56]
-A5. King Of The Road [02:37]
-B1. Rivers Of Babylon [04:22]
-B2. Voodoonight [03:32]
-B3. Brown Girl In The Ring [04:04]
-B4. Never Change Lovers In The Middle Of The Night [05:23]
-B5. Heart Of Gold [04:07]Жанр: Pop, DiscoПродолжительность: 00:46:19
+01.Eyes of a Dreamer(5:04)
+02.Rock and Roll Fever(5:14)
+03.Mirror Mirror(5:11)
+04.Tears for the Innocent(6:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:38
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B4C95457AA19C03D2B17B8F14F7EDFA9F48CE943
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,28 +434,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 721311   (986817) от 23.01.2020
+###  Публикация: 1816636   (4271) от 05.09.2025
 
-Машина Времени - Time Machine (2007) Germany Limited Edition [WavPack 2.0 24/192|image (Vinyl-Rip)] <Rock>
+Spinal Tap - Break Like The Wind (2025 Remaster) (1992) Remastered, 2025, Geffen [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986817.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Полный Контакт [4:27]
-A2. Улетай [3:36]
-A3. Старый Самолёт [3:54]
-A4. То, Чего Больше Нет [4:55](   Читать дальше...   )Жанр: RockФормат: Vinyl, LP, Album, Limited EditionПродолжительность: 00:55:48
+01 - Bitch School (02:50)
+ 02 - The Majesty Of Rock (03:55)
+ 03 - Diva Fever (03:07)
+ 04 - Just Begin Again (04:56)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:49:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:566AC8209A8F3F4C4E24E6FF3FA2C67015900D6E
+magnet:?xt=urn:btih:35B680A7571999AF9A99D69FD8C9FE5464D13179
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -495,28 +463,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 662473   (987714) от 22.01.2020
+###  Публикация: 1816743   (4156) от 06.09.2025
 
-Guns N' Roses – 9 Альбомов (1986-2008) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock, Metal>
+Jean-Michel Jarre - Live In Bratislava (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987714.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-1986 - Live Like A Suicide (EP First US Pressing)
-1987 - Appetite For Destruction (First US Pressing)
-1988 - G N' R Lies (EP First US Pressing)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:59:01
+CD1:
+01. The Opening Bratislava (live)
+02. Epica Oxygene (live)
+03. Oxygene 2 (live)(   Читать дальше...   )Жанр: Electronic |Продолжительность: 01:41:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:993453754ABF40BD554628D4FE192E72A1E62189
+magnet:?xt=urn:btih:201B6DCE529C0D63F3C0F53051C932DB9DF9813B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -524,28 +492,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 709267   (987761) от 22.01.2020
+###  Публикация: 1816805   (4079) от 06.09.2025
 
-Ария - С кем ты? (1986) Мирумир /2013/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
+Faithless - Champion Sound: Side 1 Forever Free (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987761.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Воля и разум [4:32]
-A2. Встань страх преодолей [4:15]
-A3. Здесь куют металл [4:42]
-A4. С кем ты? [4:42](   Читать дальше...   )Жанр: Heavy MetalФормат: Vinyl, LP, AlbumПродолжительность: 00:35:20
+01. Faithless - Forever Free (1:35)
+02. Faithless, LSK - In Your Own Groove (feat. LSK) (4:53)
+03. Faithless - Fugitive (7:24)
+04. Faithless, Suli Breaks - Peace And Noise (feat. Suli Breaks) (3:01)Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 00:16:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:900CE1073B6C42AFB874206A2E8975FC574932F4
+magnet:?xt=urn:btih:964C51BA16A98972BD2588E8887110E98F72BD20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,28 +521,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 718675   (987766) от 22.01.2020
+###  Публикация: 1816737   (4053) от 06.09.2025
 
-ZZ Top - Afterburner (1985) [FLAC 2.0 24/192|tracks (Vinyl-Rip)] <Blues Rock, Boogie Rock>
+Rob Thomas - All Night Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987766.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Sleeping Bag [4:07]
-A2. Stages [3:35]
-A3. Woke Up With Wood [3:50]
-A4. Rough Boy [4:52](   Читать дальше...   )Жанр: Blues Rock, Boogie RockФормат: Vinyl, LP, AlbumПродолжительность: 00:37:36
+01. Hand In My Hand
+02. All Night Days
+03. Hard To Be Happy
+04. I Believe It(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:32:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20862BD072C598941E34C51F827EE8A3B26CF3AF
+magnet:?xt=urn:btih:E40310DB736CAD5FE70A6B5F90D85289F00CC78F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,28 +550,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 718660   (987822) от 22.01.2020
+###  Публикация: 1816825   (3879) от 07.09.2025
 
-ZZ Top - Eliminator (1983) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues Rock, Boogie Rock>
+David Byrne - Who Is The Sky? (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Art Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987822.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Gimme All Your Lovin [4:03]
-A2. Got Me Under Pressure [4:03]
-A3. Sharp Dressed Man [4:18]
-A4. I Need You Tonight [6:19](   Читать дальше...   )Жанр: Blues Rock, Boogie RockФормат: Vinyl, LP, AlbumПродолжительность: 00:45:28
+01. - Everybody Laughs (3:48)
+02. - When We Are Singing (3:24)
+03. - My Apartment Is My Friend (3:03)
+04. - A Door Called No (2:35)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Art RockПродолжительность: 00:37:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:649A4065E96CA76523E5EF416037BDAB6447A3E6
+magnet:?xt=urn:btih:C91E501BE1F03CCD52275E836C8F947025E8C99F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,28 +579,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 698501   (987828) от 22.01.2020
+###  Публикация: 1816898   (3861) от 07.09.2025
 
-Chris Norman –Some Hearts Are Diamonds (1986) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop Rock>
+Ryan Adams - Heartbreaker (2000) 25th Anniversary Edition, 2025, PAX-AM [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alt Country, Singer-Songwriter>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987828.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Some Hearts Are Diamonds [3:45]
-A2. Hunters Of The Night [4:07]
-A3. Chain Reaction [3:43]
-A4. It's A Tragedy [3:46](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:10
+01. Damn Sam (I Love a Woman That Rains) [00:02:31]
+02. My Winding Wheel [00:03:13]
+03. To Be Young (Is to Be Sad, Is to Be High) [00:03:14]
+04. Why Do They Leave? [00:03:17](   Читать дальше...   )Жанр: Rock, Alt Country, Singer-SongwriterПродолжительность: 00:37:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9111109BDBD0C64D61B0893E97538FC6A70C4DFC
+magnet:?xt=urn:btih:5CFDCBEB9AFA0D382AC9D08662F3971EC009CD8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,28 +608,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 708517   (987882) от 22.01.2020
+###  Публикация: 1816895   (3857) от 07.09.2025
 
-James Gang - Miami (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
+Justin Bieber - Swag II (2025) 2CD [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987882.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Cruisin' Down The Highway [3:20]
-A2. Do It [3:39]
-A3. Wildfire [3:31]
-A4. Sleepwalker [3:59](   Читать дальше...   )Жанр: Classic RockФормат: Vinyl, LP, AlbumПродолжительность: 00:32:40
+01. ALL I CAN TAKE [00:04:07]
+02. DAISIES [00:02:56]
+03. YUKON [00:02:43]
+04. GO BABY [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9376BEAE5A29C18B47CE25A6EFCFE5EABF9CD87B
+magnet:?xt=urn:btih:6A918A72FB9FA5409DFBA28CAEF5D48E548C3DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,25 +637,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 692153   (987892) от 22.01.2020
+###  Публикация: 1816820   (3844) от 07.09.2025
 
-Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disco>
+Faithless - All Blessed (2021) Deluxe - Explicit, 2021, BMG[FLAC 24/44.1|Lossless|WEB-DL|tracks] <House>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987892.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Disco, Space RockПродолжительность: 00:44:03
+◈ 01 - Poetry (feat. Suli Breaks) (00:03:38)
+◈ 02 - Gains (feat. Suli Breaks) (00:03:27)
+◈ 03 - I Need Someone (feat. Nathan Ball & Caleb Femi) (00:04:54)
+◈ 04 - Remember (feat. Suli Breaks & LSK) (00:07:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:59:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CD221706D5CE2DBD3A7C14822756D2C650B7812
+magnet:?xt=urn:btih:EE4D0B054F781B087EDD50D20E65A2021A49D012
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,34 +666,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609730   (991978) от 27.01.2013
+###  Публикация: 1816886   (3717) от 08.09.2025
 
-Ozzy Osbourne - Down To Earth (2001)  [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Rock, Heavy Metal>
+Faithless - Champion Sound (2025) 4CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991978.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Gets Me Through [05:05]
-A2. Facing Hell [04:26]
-A3. Dreamer [04:45]
-A4. No Easy Way Out [05:06]
-A5. That I Never Had [04:23]
-A6. You Know... (Part 1) [01:07]
-B1. Junkie [04:19]
-B2. Running Out Of Time [05:06]
-B3. Black Illusion [04:21]
-B4. Alive [04:54](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:48:34
+01. Find A Way (feat. Suli Breaks) [00:03:02]
+02. Dollars And Dimes (feat. Bebe Rexha) [00:02:48]
+03. Champion Sound (feat. LSK) [00:02:31]
+04. Emmanuel (feat. Emmanuel Jal) [00:04:28](   Читать дальше...   )Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 00:20:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F38DFD1F80C422A7348C4BA05E17948BE0E20998
+magnet:?xt=urn:btih:C2CA3595990BEED1D4AB446307B2826100E4E309
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -730,34 +695,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 608562   (992496) от 26.01.2013
+###  Публикация: 1816896   (3699) от 08.09.2025
 
-Nirvana - 5 альбомов (Японские прессы) (1996, 2007) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Grunge>
+Big Thief - Double Infinity (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Indie Folk>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992496.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. About A Girl 3:40
-A2. Come As You Are 4:14
-A3. Jesus Doesn't Want Me For A Sunbeam 4:38
-A4. The Man Who Sold The World 4:21
-A5. Pennyroyal Tea 3:41
-A6. Dumb 2:53
-A7. Polly 3:16
-B1. On A Plain 3:45
-B2. Something In The Way 4:02
-B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:54:02
+01. - Incomprehensible (3:53)
+02. - Words (3:47)
+03. - Los Angeles (3:57)
+04. - All Night All Day (4:49)(   Читать дальше...   )Жанр: Indie Rock, Indie FolkПродолжительность: 00:42:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
+magnet:?xt=urn:btih:C7CEFA35E42BA49136FD0A60D90A3EB42D7CB4FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -765,25 +724,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 606677   (993836) от 24.01.2013
+###  Публикация: 1530351   (3663) от 09.09.2025
 
-Mylene Farmer - Monkey me (2012) [LPCM 2.0 24/96 |Blu-ray] <Pop>
+Pantera (Damageplan; Rebel Meets Rebel) - Studio Albums (12 releases) (1983-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Trash Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993836.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopКачество: Blu-rayПродолжительность: 00:53:36
+Pantera — американская рок-группа из Арлингтона, штат Техас, образованная в 1981 году братьями Эбботтами (гитарист Даймбэг Даррелл и барабанщик Винни Пол)1983 - Metal Magic
+1984 - Projects In The Jungle
+1985 - I Am The Night
+1988 - Power Metal(   Читать дальше...   )Жанр: Glam/Heavy Metal; Groove/Trash MetalПродолжительность: 10:07:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F982FDF929B743B82BDEF607D190D7F91334B550
+magnet:?xt=urn:btih:95ADC536632AE62D010BBDB7A4A9662E0C6B239D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 1074969   (322494) от 21.11.2016
+###  Публикация: 1022654   (727107) от 03.06.2016
 
-Шаблоны - GraphicRiver - Logo 3D Mockup [PSD]
+Шаблоны - CreativeMarket - The Mask Effect - Artistic FX [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322494.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Logo 3D Mockup - шаблон презентационного проекта 3D логотипа компании.Формат: PSDРазрешение файлов: 3000x2000 / 300dpi
+The Mask Effect - Artistic FX - данный шаблон поможет превратить ваши фотографии в настоящее произведение искусств.Формат: PSDРазрешение файлов: 2850 x 3600 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAE1F25ED84499F4C0A80D3D2AB99828DE8C3228
+magnet:?xt=urn:btih:89D8DA13D46A079A84420F7A8D60E9A567FBF531
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075035   (322609) от 21.11.2016
+###  Публикация: 667816   (726751) от 13.06.2013
 
-Шаблоны - GraphicRiver - DJ - Flyer Template [PSD]
+Шаблоны - GraphicRiver - Illustration | Sketch | Logo Close-Up Mock-Ups [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322609.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DJ - Flyer Template - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3579x2551 и 2551х3579 / 300dpi
+Шаблон этой презентации поможет Вам привлечь аудиторию и клиентов. Оптимизированный в первую очередь для: Эскиз процесса презентации, иллюстрации витрин или эскизов, иллюстрации превью, вы можете также использовать его, чтобы показать другие проектные работы в пределах области формата А4.Формат: PSDРазрешение файлов: 3861x2574
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11E0018FA4BAAE37DDBADC9977665D756C9F72AD
+magnet:?xt=urn:btih:234856A9989B68586ED7A77E894EDBFFE69D198D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074807   (322773) от 21.11.2016
+###  Публикация: 1023321   (725880) от 04.06.2016
 
-Шаблоны - GraphicRiver - Barber Shop Flyer [PSD, AI]
+Шаблоны - CreativeMarket - Ink Portrait - Creative Template - 529372 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322773.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Barber Shop Flyer - шаблон для Вашего творчества.Формат: PSD, AIРазрешение файлов: 2551х3579 / 300dpi
+Этот шаблон поможет вам превратить ваши фотографии в удивительные произведения искусства.Формат: PSDРазрешение файлов: 2000x3000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2989A17F817508C12D4D629ED25786B27102B874
+magnet:?xt=urn:btih:89FAFF8EFBDEE89DB9F35AEBD173485A51C1C27E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,26 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181504   (323369) от 07.11.2017
+###  Публикация: 1218183   (724766) от 08.04.2018
 
-Шаблоны - Новый год тихонько постучится в дверь [PSD]
+Шаблоны - Creative Market - SAVE 35% Spring Frame Mockup Bundle - 2355883 [PSD, JPG, PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323369.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многослойная PSD Шаблон-рамка. для фото
-Автор: lunar.elfФормат: PSDРазрешение файлов: 3508x4961
+В ориентирование на портрет и пейзаж есть 4 разных цветочных рамки, поэтому вы можете максимально использовать их! В качестве сладкого бонуса вы получаете также 20 цветочных изображений, и многие из них имеют много незаполненного пространства, так что их можно персонализировать и использовать в блогах, веб-сайтах, социальных сетях и т. д...Формат: PSD, JPG, PNGРазрешение файлов: 4256x2832
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2104A9565164C35088D53E7CD02DB81CBCDE4CED
+magnet:?xt=urn:btih:CC98C8D16DB8EFD32C33E5F252E50B8140FD47E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,26 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181501   (323492) от 07.11.2017
+###  Публикация: 1400002   (722724) от 03.08.2020
 
-Шаблоны - Пусть счастьем дом наполниться [PSD]
+Шаблоны - 3D Models TV Background Wall [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323492.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многослойная PSD Шаблон-рамка. для фото
-Автор: lunar.elfФормат: PSDРазрешение файлов: 4961x3508
+4 шаблона многослойных фонов.Формат: PSDРазрешение файлов: 9071x5669
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CA17098A521D1A25A6EB7946C382A211E061FBC
+magnet:?xt=urn:btih:D488250AC29FAF77D5A8EFD9179431C4137EB0CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,26 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181487   (323614) от 07.11.2017
+###  Публикация: 670165   (714770) от 19.06.2013
 
-Шаблоны - Прекрасный, добрый праздник в дом открывает двери [PSD]
+Шаблоны - GraphicRiver - Tropical Spring Summer Beach Night Flyer Party - 2224106 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323614.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многослойная PSD Шаблон-рамка. для фото
-Автор: KoaressФормат: PSDРазрешение файлов: 3508x4961
+Тропический пляж Весна Лето Night Flyer Party - сексуальный и современный PSD шаблон для создания эксклюзивных флаеров, плакатов, приглашений.Формат: PSDРазрешение файлов: 1240х1826
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:411E9F39E95788C30453F5A277B28F2AC01554EC
+magnet:?xt=urn:btih:525FE7C97601DDD976B6611F8D17849224D90358
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957437   (327279) от 17.11.2015
+###  Публикация: 1286290   (712590) от 02.03.2019
 
-Шаблоны - Календарные сетки в PNG [PNG]
+Шаблоны - Календари и рамки для 8 марта, Влюбленных и Поздравительные [PSD, PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327279.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Календарные сетки на 2016 годФормат: PNGРазрешение файлов: от 1349х3508 до 4962х3508
+Подборка многослойных PSD шаблонов-рамок для фото от авторов Koaress, lunar.elf, Lady Marisa.Формат: PSD, PNGРазрешение файлов: 2478x3504-4961x3508
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38632D105843D6326A148B5BCAE09FF0BF99E97C
+magnet:?xt=urn:btih:41EF375D3306F796053B43489F496DF93E852D22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,27 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181090   (334911) от 06.11.2017
+###  Публикация: 1025623   (709416) от 12.06.2016
 
-Шаблоны - Подборка календарей на 2018 [PSD]
+Шаблоны - Creativemarket - 3D Template catalog+PSD [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334911.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-подборка многослойных PSD шаблонов-рамок для фото
-от авторов lunar.elf, Koaress
-33штФормат: PSDРазрешение файлов: 2480x3508-5906x3543
+Шаблон для создания 3D обложки.Формат: PSDРазрешение файлов: 5000x3000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6A1D944793343F0F2CBCEC3576E5102A7A9B506
+magnet:?xt=urn:btih:1600CF5ABCF3FEE2200E581EEC3738F439C645AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -211,25 +206,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074960   (335573) от 20.11.2016
+###  Публикация: 893967   (708811) от 01.05.2015
 
-Шаблоны - CreativeMarket - Snow Globe Mockup [PSD]
+Рамки - День Победы 70 лет [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335573.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Snow Globe Mockup - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 5300×4500 / 300dpi
+PSD рамки для фото ,подогнаны под формат А4
+для удобной печати,для вашего творчества.Формат: PSDРазрешение файлов: 2480х3508 - 3508х2480
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E1DAABF7EDFD29F4FF4AC41C0CCFC67FB1541DF
+magnet:?xt=urn:btih:CB2663635A95CC8C979478461D9D60C78EE9CE8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,25 +233,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074828   (335668) от 20.11.2016
+###  Публикация: 672426   (704374) от 24.06.2013
 
-Шаблоны - CreativeMarket - Winter Break Flyer Template [PSD]
+Шаблоны - Детская фотокнига – Трое из Простоквашино [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335668.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Winter Break Flyer - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 1275x1875 / 300dpi
+Детская фотокнига для фотографий – Трое из Простоквашино
+5 многослойных PSD - 1 обложка, 4 разворота
+Автор: эрагонФормат: PSDРазрешение файлов: 6300x3450
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:188832852CA02FBA6FCE041BF50A9940D306C253
+magnet:?xt=urn:btih:B3080920D9C4714A6267F5687F067C997EC3C066
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,25 +261,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074815   (335672) от 20.11.2016
+###  Публикация: 873829   (702941) от 07.03.2019
 
-Шаблоны - CreativeMarket - Business Training Agency Flyer [PSD]
+Рамки - С 8 марта 2015 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335672.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Business Training Agency Flyer - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2551x3582 / 300dpi
+PSD рамки для фото С 8 марта,подогнаны под формат А4
+для удобной печати,для вашего творчества.Формат: PSDРазрешение файлов: 2480х3508-3508х2480
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7186DC7DE9FDE1612CDDFFF62D56394A03D16278
+magnet:?xt=urn:btih:0BED29A662007434798F78276BEE261CB001B09C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -289,25 +288,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074811   (335681) от 20.11.2016
+###  Публикация: 1026749   (701949) от 16.06.2016
 
-Шаблоны - CreativeMarket - Small Business Consulting Flyer [PSD]
+Шаблоны - GraphicRiver - Artistic Photo Manipulation 05 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335681.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Small Business Consulting Flyer - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2551x3582 / 300dpi
+Artistic Photo Manipulation 05 - данный шаблон поможет превратить ваши фотографии в настоящее произведение искусств.Формат: PSDРазрешение файлов: 2000 x 3000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:006EBC78F351D1D94784A2D3BE8A19AF58AC0F72
+magnet:?xt=urn:btih:57FEDA7AC89292FCB056A843D52EAC63EC394E53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,25 +314,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074385   (335751) от 20.11.2016
+###  Публикация: 1132504   (700552) от 09.05.2017
 
-Шаблоны - GraphicRiver - Fruit Juice Shop/ Flyer Template [PSD]
+Рамки - С Днем Победы 2017 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335751.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fruit Juice Shop - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3579x2551 и 2551х3579 / 300dpi
+Многослойные PSD Шаблоны-рамки. С Днем Победы 2017 для вашего творчества.Формат: PSDРазрешение файлов: 2480х3508-3508х2480
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3547EC04288E83257CAA0B6F5FDCC7412F6A4A2D
+magnet:?xt=urn:btih:8E9083F206FFF2AC416AAEE34CE478D249D3C026
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,25 +340,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074377   (335758) от 20.11.2016
+###  Публикация: 1027072   (700075) от 17.06.2016
 
-Шаблоны - GraphicRiver - Organic Food/ Flyer Template [PSD]
+Шаблоны - GraphicRiver - 2 Abstract Artistic Photo Manipulation [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335758.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Organic Food - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3579x2551 и 2551х3579 / 300dpi
+Абстракция, 2 варианта художественной обработки Ваших фото.Формат: PSDРазрешение файлов: 2400×3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F01EAA8809AEE7FD8C9B1154A62A580B44FA47EA
+magnet:?xt=urn:btih:2E3BC5AB4B46243BA041F077FA5555405CEE1FD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,25 +366,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258562   (336088) от 30.10.2018
+###  Публикация: 1028462   (690104) от 22.06.2016
 
-Шаблоны - GraphicRiver - Christmas Assets And Mock Ups - 9591143 [PSD, JPG]
+Шаблоны - GraphicRiver - Classy Wedding DVD Covers [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336088.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эй! Оно приближается. Через несколько недель мы будем праздновать Новый год. И мы приготовили отличный сборник на Рождество. Вы будете создавать безграничные рождественские проекты для ваших клиентов или себя. Мы добавили удивительные фотографии, и много элементов на тему  рождества и создали некоторые открытки макеты. Также добавлены качественные и реалистичные рендеры.Формат: PSD, JPGРазрешение файлов: 7000x18000
+Красивая свадебная DVD обложка и задувка на диск. Стандартный Размер бокса.Формат: PSDРазрешение файлов: 3300 x 2250 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:333960CC37B3511C4C6A0E54F806C2911D9F7E42
+magnet:?xt=urn:btih:4506EED18BE2F9B7B3BC7BDF8A8908884FF03837
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,26 +392,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180914   (337002) от 05.11.2017
+###  Публикация: 506797   (687163) от 06.06.2012
 
-Шаблоны - Календарь на 2018 год - Скоро сказка в дом войдет, скоро будет Новый год [PSD]
+Шаблоны - MediaLoot Graphic Design - Huge Bundle (2012) [JPG,PNG,PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337002.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многослойная PSD Шаблон-рамка. для фото
-Автор: lunar.elfФормат: PSDРазрешение файлов: 3508x4961
+MediaLoot Graphic Design - набор необходимого для дизайна.Разрешение файлов: различное
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EBEF4592BFE35D94840E419C1D878E27536E069
+magnet:?xt=urn:btih:77F87F09A0AE80F3150761AA774510FA5FA42F04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,26 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180907   (337184) от 05.11.2017
+###  Публикация: 1222311   (686726) от 28.04.2018
 
-Шаблоны - Календарь с фоторамкой на 2018 год - Веселая компания [PSD]
+Рамки - Фоторамки и клипарт для художника [PSD, PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337184.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многослойная PSD Шаблон-рамка. для фото
-Автор: KoaressФормат: PSDРазрешение файлов: 3508x4961
+Сборник рамок для художниковФормат: PSD, PNGРазрешение файлов: 1200x1800-3600x3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91386E9CEFBB98CDD5F9D2F53235DA21210FE062
+magnet:?xt=urn:btih:4A63E82156D8F23C6DF3DF260912F6A03F0E5FFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,25 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 581415   (337306) от 27.11.2012
+###  Публикация: 1029001   (684039) от 25.06.2016
 
-Шаблоны - Фотокнига Merry Christmas [PSD]
+Шаблоны - GraphicRiver - Art Photo Frame [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337306.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 PSD шаблонов зимней фотокниги - Merry Christmas. Сколько веселья и радости приносят нам новогодние и рождественские праздники! Запах ели, игрушки и подарки, конфеты и мандарины, папа в роли Деда Мороза! Фотографируйтесь и создавайте великолепные фотокниги о зимних праздниках! Слои закреплены.Формат: PSDРазрешение файлов: от 7085x3604 до 7854x4076
+Art Photo Frame - Превосходный шаблон для Вашего творчества. Многие оценят его по достоинству.Формат: PSDРазрешение файлов: 3000×2000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFC9429AB8CC420C2B88B28D9EBBF31E5981C008
+magnet:?xt=urn:btih:28A1A5A6719F77FE46D4C926C142B4461A9C7DE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,26 +470,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180898   (337506) от 05.11.2017
+###  Публикация: 1029112   (684037) от 25.06.2016
 
-Шаблоны - Доброй сказкой Новый Год стучится в дверь [PSD]
+Шаблоны - GraphicRiver - 3D Puzzled Mock-Up [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337506.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многослойная PSD Шаблон-рамка. для фото
-Автор: KoaressФормат: PSDРазрешение файлов: 3508x4961
+3D Puzzled Mock-Up - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2500×2000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1CEB4D82AEBAFCCFE767F29E1B50300B5B5946C
+magnet:?xt=urn:btih:BDEB38209216B7565E6487E0DFDF283C34B6C881
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,25 +496,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074494   (337860) от 19.11.2016
+###  Публикация: 1029704   (680080) от 27.06.2016
 
-Шаблоны - GraphicRiver - A4/ A5 Landscape Bifold Brochure Mockups V2 [PSD]
+Шаблоны - GraphicRiver - Horror Photo Manipulation [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337860.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Landscape Bifold Brochure - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3000x2000
+Horror Photo Manipulation - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2000×3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F591ED03A7B7FFCADE399558374982054990BD1
+magnet:?xt=urn:btih:AEFCC5B0BF226C69E6D840B4590EBF6BD8BFB3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,25 +522,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074388   (337957) от 19.11.2016
+###  Публикация: 1029743   (680079) от 27.06.2016
 
-Шаблоны - GraphicRiver - Coffee Shop - Flyer Template [PSD]
+Шаблоны - CreativeMarket - Modern Painting Template [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337957.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Coffee Shop - Flyer - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3579x2551 / 300dpi
+Modern Painting Template - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3000×2000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC7707845F2DAE54602F714984555C4D47ED20F7
+magnet:?xt=urn:btih:A6FD18E31B5F0B8C51F19555F6F062E1F0613831
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,25 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074403   (337958) от 19.11.2016
+###  Публикация: 1029708   (680070) от 27.06.2016
 
-Шаблоны - GraphicRiver - Nail Salon/ A5 Brochure Template [PSD]
+Шаблоны - GraphicRiver - Artistic Photo Manipulation [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337958.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Nail Salon - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3579x2551 / 300dpi
+Artistic Photo Manipulation -  шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3000×2000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55582A9557F4DAF5C5DB6B15A6AF0DC49AE8A997
+magnet:?xt=urn:btih:857511F48BC5BDC86022B8B9958E9D754B1C7A86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,25 +574,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074374   (337961) от 19.11.2016
+###  Публикация: 1029717   (680067) от 27.06.2016
 
-Шаблоны - GraphicRiver - Organic food poster / flyer template [PSD]
+Шаблоны - GraphicRiver - Geometric Photo Manipulation [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337961.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Organic food - рекламный шаблон постера, флаера.Формат: PSDРазрешение файлов: 3579x5031 / 300dpi, 852x316 / 300dpi
+Geometric Photo Manipulation - Превосходный шаблон для Вашего творчества. Многие оценят его по достоинству.Формат: PSDРазрешение файлов: 2000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3451786D766D3F361C897A1D6099D61DFCB9FDC
+magnet:?xt=urn:btih:03851B7EDE019A261D177E49C28C83A1BA385DBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,25 +600,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074391   (337962) от 19.11.2016
+###  Публикация: 1029741   (679995) от 27.06.2016
 
-Шаблоны - GraphicRiver - Coffee Shop - Trifold Brochure Template [PSD]
+Шаблоны - GraphicRiver - Art Stick Photo Template [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337962.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Coffee Shop - Trifold Brochure - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3375x2625 / 300dpi
+Art Stick - Превосходный шаблон для Вашего творчества. Многие оценят его по достоинству.Формат: PSDРазрешение файлов: 2000x3000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE9D23FF1D0545FF9D5369EE224FE47AE9D8DE3C
+magnet:?xt=urn:btih:14E93C3FDF0CDD8DCBE39402B58362A2D5B1BB97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,26 +626,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180541   (339404) от 04.11.2017
+###  Публикация: 1029752   (678078) от 28.06.2016
 
-Шаблоны - Календарь на 2018 год - Новый год уже в пути [PSD]
+Шаблоны - GraphicRiver - Animated Ink Portrait Template - 16658230 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339404.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многослойная PSD Шаблон-рамка. для фото
-Автор: lunar.elfФормат: PSDРазрешение файлов: 4961x3508
+Animated Ink Portrait - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 30002000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E73A8D217D89F5CE9C9069586CA0B71D6F9259CE
+magnet:?xt=urn:btih:BE82C19D08FC4B26FE683A0474138C696FD0722A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,26 +652,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180548   (339408) от 04.11.2017
+###  Публикация: 1029820   (678011) от 28.06.2016
 
-Шаблоны - Календарь на 2018 год - Пусть в Новый Год придет к вам счастье [PSD]
+Шаблоны - GraphicRiver - Photo Templates [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339408.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многослойная PSD Шаблон-рамка. для фото
-Автор: KoaressФормат: PSDРазрешение файлов: 3508x4961
+Photo Templates - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2000×3000 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A5A5B1DD6EAF461E5574056BE174E855A479816
+magnet:?xt=urn:btih:476D4AAA4ADF2CD1C190D3F94AA346C27EEB6DC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

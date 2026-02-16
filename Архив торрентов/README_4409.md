@@ -1,24 +1,92 @@
-###  Публикация: 1122083   (799111) от 04.04.2017
+###  Публикация: 497549   (253626) от 17.05.2012
 
-Audiobook Builder 1.5.7 [Multi/Ru]
+VA - The Raindance (2012) [MP3|~254 кб/с (V0)]<Psychedelic / Progressive>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799111.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Для аудиокниг в Mac OS X существует специальный формат M4B, который является стандартом для iTunes Store. В связи с этим, чтобы иметь возможность залить к себе на iPod или iPhone аудиокнигу, не купленную в iTunes Store, нужно иметь инструменты для создания файлов m4b своими руками.
+01. Deeplomatic - Nine Pieces Of Eight 06:54
+ 02. Solarix - Bass Drive 08:57
+ 03. Vertex - Neverending Story 06:51
+ 04. Lyctum & Nerso - Stealth 08:00
+ 05. Sideform - Sunrise 09:15
+ 06. Odd Sequence - Aural Sequence 07:45
+ 07. Indian Alien - Take A Trip 09:56
+ 08. A.P.S. Project - Un Real 08:01
+ 09. Indian Alien - Psychedelic Drugs 08:57Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6C342061A38F344B9CE744059413735E049AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497154   (253625) от 17.05.2012
+
+Mediks - Outbreak EP (Audioporn APORN021, 2012) [MP3|320 кб/с]<Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Outbreak
+02. Nightmare
+03. Blown Away
+04. DoomsdayЖанр: Drum'n'BassПродолжительность: 00:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F330E1C97B989290E2BF57864439AE1A050B09F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497777   (253624) от 17.05.2012
+
+VA - Vocal Trance Volume 31 (16.05.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+VA - Vocal Trance Volume 31 (16.05.2012)
 
-Ничего особенно выдающегося в M4B нет – он абсолютно идентичен формату AAC. Но всё (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 апреля 2017Разработчик: Splasm Software, Inc.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский и др.
+Год: 16.05.2012
+Жанр: Vocal Trance
+Продолжительность: 03:03:11Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+ 01. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) [07:39](   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15BA61E08F9D63947A8962A3D2D6D60BACF3918C
+magnet:?xt=urn:btih:2BC939685CF733F6C24A55C6D94DD8D226DA6BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +94,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122249   (799112) от 04.04.2017
+###  Публикация: 497088   (253622) от 17.05.2012
 
-Aiseesoft HD Video Converter 8.2.16 [Multi/Ru]
+Четыре гряды Альп / The four Alps (2007) SATRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799112.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Aiseesoft HD Video Converter - это мощный конвертер HD видео в популярные форматы. Поддерживает AVI, MPEG, WMV, DivX, Xvid, MP4, 3GP, WMV-HD, MPEG2-HD, DivX-HD, Xvid-HD, MPEG4-HD, H.264-HD(AVCHD) и другие видеоформаты, кодирование и декодирование High-Definition (HD), 1280x720 (720p), 1920x1080 (1080p). Вы сможете извлечь аудио из видео в AAC, AC3, AIFF, AMR, AU, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Европейские Альпы – самые известные горы в мире. Однако еще три горных кряжа на нашей планете называют Альпами. Один из них существует в северном полушарии, а два других – в южном. Японские и Европейские Альпы – во многом весьма похожи, но вот Австралийские и Южные Новозеландские Альпы – совсем другое дело!Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 00:52:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDA493E56885107D5A581A8D7A8C91071243B685
+magnet:?xt=urn:btih:8400F6D0262196951725DEEA3C770F94BD5AA469
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,80 +120,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121556   (799115) от 04.04.2017
+###  Публикация: 497747   (253621) от 17.05.2012
 
-Rufus 2.13 Build 1078 Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C3B537D601E448897B1D2B9A5F281C8CFB1410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121944   (799117) от 04.04.2017
-
-FontViewOK 4.46 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты, и конечно вы сможете с ними работать. Особенность программы, позволяющая вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4036BE66521042C4B7A1859EFC94AB2A2E1E5479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506644   (799124) от 02.11.2021
-
-Markus Schulz - Global DJ Broadcast Afterdark (2021-10-28) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+John Schlitt - The Greater Cause (2012) [MP3|320 кб/с]<Hard Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799124.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rebel Boy & SAM WOLFE - Psalm 39
-02. Cosmic Boys & AKKI (DE) - Dark Places
-03. Mario Ochoa - Black Hole
-04. Layton Giordani - Living Simulation(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 04:00:47
+01. Live It Loud
+02. Take Me Home
+03. Love Won’t Leave Me Alone
+04. One Of These Days
+05. Faith & Freedom
+06. End Of Fear
+07. Where I Want To Be
+08. Hope That Saves The World
+09. Run
+10. The Gift (Dorla's Song)(   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:42:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6BB26611E87C51036F7772C0A7EF3E1A54A86BD
+magnet:?xt=urn:btih:5EBAD0870AD22A191706331952C52C7AE1F806A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,26 +155,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506909   (799131) от 02.11.2021
+###  Публикация: 497692   (253620) от 17.05.2012
 
-Things 3 v3.15.5 [Multi/Ru]
+[Wallpapers] Коллекция обоев для нетбуков (16.05.12)
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799131.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253620.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: © 2021 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+3D & Digital Art
+ASUS Eee PC, Acer Aspire One, MSI Wind, Dell Mini и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6902A8D8598FF76072FA3B1FD7A644219F31FB83
+magnet:?xt=urn:btih:0606FD504120E1CB68D4419F9531EA75A1112E7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,515 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506965   (799133) от 02.11.2021
+###  Публикация: 497703   (253619) от 17.05.2012
 
-Wipr – Ad and Tracker Blocker 1.29 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wipr блокирует всю рекламу, трекеры, майнеры криптовалюты, файлы cookie ЕС и уведомления GDPR, а также другие неприятности, поэтому вы можете сосредоточиться на важном для вас контенте при использовании Safari.Тип издания: macOS SoftwareРелиз состоялся: 22.10.2021Разработчик: © 2021 Giorgio CalderollaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C4738F422CD256BD84B56B7BA0B142D1D6D380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506350   (799134) от 02.11.2021
-
-Two Friends - Big Bootie Mix Volume 020 (2021-10-25) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skulkids - Never Heal w/Dominic Fike - 3 Nights (Acappella) w/Olivia Rodrigo - Good 4 U (Acappella) w/Whethan ft. Flux Pavilion & MAX - Savage (Instrumental) w/The Notorious B.I.G. - Juicy (Acappella)
-02. Dualities - Lose Myself In You w/Bob Marley & The Wailers - Buffalo Soldier (Acappella) w/Jason Derulo ft. 2 Chainz - Talk Dirty (Acappella)w/Plastik (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C860374313AA99A344448DA1B657E319C4BFF6B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507046   (799139) от 02.11.2021
-
-VideoDuke 2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
-Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши. Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 Eltima SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5F1136AFC4A2A34C1347214CEA51EA0368276C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506943   (799140) от 02.11.2021
-
-Worksheet Crafter Premium Edition 2021.2.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте свой собственный Worksheet быстро и легко. Сделайте идеальные обучающие шаблоны, рабочие листы и классные тесты для ваших  учеников всего за несколько кликов. Создайте свои Worksheet, это весело использовать и так же просто, как пользоваться Microsoft Word.Тип издания: macOS SoftwareРелиз состоялся: 10.08.2021Разработчик: © 2021 Worksheet CrafterПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B46A96DEE81461C3CC5331BE242998F125648F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122227   (799144) от 04.04.2017
-
-Шары ярости / Balls of Fury (2007) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэнди Дайтона - одаренный игрок в пинг-понг, опозорившийся на мировой арене и вынужденный зарабатывать, выступая в шоу в Лас-Вегасе. Но шанс на возвращение в мир большого спорта ему предоставляет ЦРУ. Надо лишь принять участие в подпольном турнире, который проводит у себя в поместье криминальный авторитет Фанг - известный душегуб и энтузиаст настольного тенниса...Производство: США, Rogue PicturesЖанр: Комедия, Криминал, БоевикРежиссер: Роберт Бен ГарантАктеры: Дэн Фоглер, Кристофер Уокен, Джордж Лопез, Мэгги Кью, Джеймс Хонг, Терри Крюс, Роберт Патрик, Дидрих Бейдер, Аиша Тайлер, Томас Леннон и др.Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C067B67A53F12DBCB4A8A3F2A4EDB2EC9EB8112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081361   (799153) от 04.04.2017
-
-Contexts 2.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Contexts - это радикально быстрое и простое переключение окон программ.
-Contexts очень простое в использовании приложение, которое обеспечивает быстрый доступ к окну из панели в стиле Dock. Утилита работает с несколькими мониторами, показывает счетчики на значках, имеет ярлыки для переупорядочивания групп и окон и др.
-
-Приложение Contexts предоставляет 4 различных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 апреля 2017Разработчик: Usman KhalidПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D929676FE9C3136FE668667A5D8FC93E2CAB817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122275   (799161) от 04.04.2017
-
-Scanitto Pro 3.16 RePack by вовава [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scanitto Pro - это легкое, быстрое и не перегруженное массой ненужных функций программное обеспечение для сканирования. Точная настройка параметров сканирования, копирование документов в один клик и сохранение документов в многостраничные PDF и TIFF файлы - это именно то, что постоянно нужно под руками пользователям сканера!Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD8C87BAB34D914A2E58AC4F7BA45ED77C7FC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507069   (799162) от 02.11.2021
-
-PullTube 1.7.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A484A9F29D47C9417862B39EABE81CA76CC20AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506276   (799165) от 02.11.2021
-
-Jeremy Olander - Diplo's Revolution Radio (GuestRoomMix) (2021-10-16) [MP3|~245 Kbps (V0)] <Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeremy Olander - Vivrant 008 Intro ID (Working Title)
-02. OLING - ID
-03. Jeremy Olander - Suara Podcats ID 02 (Working Title)
-04. My Morning Jacket - Touch Me I'm Going To Scream Pt.2 (Jeremy Olander Private Edit)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010FB005BE9AA10684CA88EA85BAF4D72EFC4240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506900   (799168) от 02.11.2021
-
-MacX DVD Ripper Pro 6.6.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799168.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacX DVD Ripper Pro 6 был создан специально для пользователей Mac для конвертации как самодельных, так и защищенных DVD дисков. MacX DVD Ripper Pro преобразует видео в форматы MP4, H.264, MOV, FLV, MPEG, AVI, QT, iPhone (iPhone 4,iPhone 3GS, iPhone 3G), iPad, iPod (iPod touch, iPod classic, iPod nano), Apple TV, PSP для просмотра видео в таких популярных приложениях, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668215829CFF0A9F885AA9E81F848F7AF0DA9F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122201   (799174) от 04.04.2017
-
-Novicorp WinToFlash Professional 1.6.0001 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799174.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinToFlash — это приложение, позволяющее полностью перенести программу установки Windows XP, Windows 2003, Windows Vista, Windows 2008, Windows 7, Windows 8, Windows 10 на USB накопитель за несколько кликов мышки. Это означает, что вы можете установить Windows с флэш карты, HDD или другого накопителя на ваш компьютер или нэтбук. И это не все, что она может делать. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F24925B40D9FA9A22C815689E57630CC927AC81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122203   (799184) от 04.04.2017
-
-RonyaSoft CD DVD Label Maker 3.2.12 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799184.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD DVD Label Maker - представляет собой программное обеспечение для дизайна этикеток и красивых обложек для вашего видео, mp3 диска, о данных, фото слайд-шоу. Простота в использовании, с помощью мастеров позволяет создавать обложки всего за несколько кликов. Программа содержит шаблоны - этикетки для CD, Slim CD, DVD, DVD Slim.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98933F0E2E4FAA622E4CD95EE1B345CA92A125A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121929   (799185) от 04.04.2017
-
-Tic Tac Toe - The Best Of (2006) [FLAC|Lossless|image + .cue] <Pop, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ich Find' Dich Scheisse (3:36)
- 02. Mr. Wichtig (3:41)
- 03. Ich War' So Gern So Blod Wie Du (3:50)
- 04. Verpiss Dich (4:05)(   Читать дальше...   )Жанр: Pop, Hip-HopПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AA6FA09C0A1ADF77E40CBEFDE0FCB48FFE9FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121834   (799189) от 04.04.2017
-
-Dabin - Two Hearts (2017) [MP3|320 Kbps] <Future Bass, Midtempo, Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Hearts (Feat. Mree)
- 02. Hold (Feat. Daniela Andrade)
- 03. Sanctuary (Feat. Mree)
- 04. Hazy(   Читать дальше...   )Жанр: Future Bass, Midtempo, Dubstep, Melodic Dubstep,Trap, GarageПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D3135CE723283BF513A9B314E2817CC4A482D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122159   (799190) от 04.04.2017
-
-Pet Shop Boys - Undertow (2017) EP [MP3|320 Kbps] <Electronic, Synthpop, Tech House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Undertow (Tuff City Kids Remix)  8:11
-02.  Left To My Own Devices (Super Version)  5:31
-03.  Burn (Baba Stiltz Remix)  10:22Жанр: Electronic, Synthpop, Tech HouseПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80227D0A2829ED9232A2BF0EB4FBFBF1E416C368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122222   (799194) от 04.04.2017
-
-Jonn Serrie - The Sentinel (2017) [FLAC|Lossless|tracks+.cue] <Ambient, New Age, Space>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sentinel (05:49)
-02. Centauri Arrival (07:23)
-03. Ghost Ships (09:56)
-04. Semblance on Laguna 7 (08:05)(   Читать дальше...   )Жанр: Ambient, New Age, SpaceПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237EA46DA65CE976311F58603179BFC7EFB34957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121814   (799200) от 04.04.2017
-
-БайБайМэн / The Bye Bye Man (2017) HDRip [H.264] [MP4|1024x552]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое студентов колледжа сталкиваются со всемогущим злым духом по прозвищу БайБайМэн. Героям необходимо найти способ спастись от мистического убийцы, о котором нельзя никому рассказывать, ведь он забирает любого, кто знает его имя или думает о нем.Производство: США, Intrepid Pictures, Los Angeles Media Fund (LAMF)Жанр: ужасы, триллерРежиссер: Стэйси ТайтлАктеры: Дуглас Смит, Люсьен Лависконт, Крессида Бонас, Даг Джонс, Майкл Трукко, Дженна Кэнелл, Эрика Тремблэй, Мариса Эчеверриа, Клео Кинг, Фэй Данауэй ...Перевод: Многоголосый закадровый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:40:54Реклама: Присутствуют аудио и видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132BDD0BEB3B65E42630EC24BDE80FC9811FD85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121815   (799210) от 04.04.2017
-
-Steel Panther - Lower The Bar (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' In The Backdoor (03:10)
-02. Anything Goes (03:01)
-03. Poontang Boomerang (03:22)
-04. That's When You Came In (03:46)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417EA5EFFDD823E5633AD82AB60A8ADE2FDE2DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122172   (799213) от 04.04.2017
-
-Владимир Фил | Путь к Океану (2016) [PDF]
+Журнал | ФотоTravel №5 [май 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799213.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-Это истории о морских бродягах, пропитанных солью, потом и алкоголем, которые начали нелёгкий путь в эпоху лихих 90-х и пронесли свои нерушимые принципы до наших дней. Вы увидите жизнь и работу на флоте изнутри, описанную от первого лица на простом языке, без зализанных литературных фраз. Книга посвящается моим друзьям, безвременно ушедшим.Жанр: Современная русская литератураФормат: PDF
+Иллюстрированный журнал «ФотоTravel» посвящен фотографическим путешествиям и рассказывает о новинках фототехники и сопутствующих аксессуарах, истории и настоящем фотографии, предоставляет профессиональные советы по съёмке в путешествиях (от круиза до экстрима), компетентную информацию о снаряжении Outdoor, галерею работ фотолюбителей и профессионалов.май 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:332E40383AA0EF26B90351FC14D7222051265B7A
+magnet:?xt=urn:btih:E7CBFDF68FE3526CEBDE2CC396ECFF9F8A40819C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,26 +208,568 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122280   (799221) от 04.04.2017
+###  Публикация: 497952   (253618) от 17.05.2012
 
-CloudTV 3.8 [En]
+Журнал | Cosmopolitan Shopping №6 [2012] [PDF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799221.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-CloudTV  - Международное TV на рабочем столе
-CloudTV позволяет вам смотреть более 600 прямых телевизионных каналов со всего мира. Поток тысячи программ из каналов BBC (доступ ограничивается UK IP-адресом) или выбор французских телевизионных каналов бесплатно! Вы даже можете создать свои идеальные каналы благодаря смарт-плейлистам с вашими собственными критериями. (   Читать дальше...   )Тип издания: mac OSSoftwareРелиз состоялся: 04 апреля 2017Разработчик: cloudtvappПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+Cosmopolitan Shopping — незаменимый гид по стильным покупкам. Это модный, интересный и полезный журнал, который всегда готов ответить на три главных вопроса в жизни женщины: что купить? Где купить? С чем носить?2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9959BE04C459C0197810702889CA0A653D488056
+magnet:?xt=urn:btih:A27CB329D973F0ACC92DAAA34C387F3B5B37C417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497025   (253615) от 17.05.2012
+
+Огненная муха - Целой жизни мало (2002) [MP3|192 кб/с]<Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жизни мало
+02. Не буди
+03. В самое сердце
+04. Просто жить
+05. Сладкий голос
+06. Мы здесь
+07. Береза
+08. Туда туда2002Жанр: RockПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A039AF7FCB726129B333A0601B307233DA383DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497919   (253614) от 17.05.2012
+
+Журнал | Тайны ХХ века №20 [май 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!май 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CDE58BF4EFF984316325C9D5BDA6886F4786A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497917   (253613) от 17.05.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (18.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2981
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696E7178B0D956727572897723CCB1D377067803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497588   (253612) от 17.05.2012
+
+Arminstel - Galactic Progress Of The Earth 017 (13.05.2012) [MP3|320 кб/с]<Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Carlo Calabro - Fight On Sissy Lane (Original Mix)
+ 02. David Guetta & Nicky Romero - Metropolis (Original Mix)
+ 03. Tigran Oganezov - Martini (Unreleased)
+ 04. Marc Marberg With Kyau & Albert - Robotron (Original Mix)
+ 05. Evol Waves - Evolver (Original Mix)
+ 06. Chris Cortez - Downunder (Tigran Oganezov Remix)
+ 07. Damian William - Supernova (Original Mix)
+ 08. Invalyd - Beat By Beat (Stoneface & Terminal Remix)
+ 09. Danilo Ercole feat. Roberta Harrison & Steven Taetz - Meet You Where You (Original Mix)
+ 10. Aaron Camz - Buckle Up (Original Mix)(   Читать дальше...   )(13.05.2012)Жанр: Progressive TranceПродолжительность: 02:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626A961CCD94B577EA030A490BDF876029E910C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497908   (253611) от 17.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (18.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AA739820FB428324B8541548849845C97820E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497631   (253610) от 17.05.2012
+
+[Wallpapers] Lamborghini
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253610.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Lamborghini
+Название: Lamborghini
+Официальный сайт: www.netcarshow.com
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00 (до первых скачавших, перебои со связью бывают,зависит от провайдера)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB42D11B58C9AD31C14CFD55C3E0600C8D81975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497655   (253609) от 17.05.2012
+
+[Wallpapers] Best HD Wallpapers Pack (16.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19ECB66AB0660AEF022999E2A3A7BB7A8DF2169B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497664   (253607) от 17.05.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (16.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0126DF281FAA6743FA3B1D2553EC22E616454BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497909   (253605) от 17.05.2012
+
+[Wallpapers] Best HD Wallpapers Pack (18.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B347116337C28D19B8EEFC036F546AA2E06B6541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497645   (253604) от 17.05.2012
+
+Рассказы о волосах / Hairtales (2008) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы и наши волосы - тема представленной документальной ленты австралийского ТВ.Жанр: ДокументальныйРежиссер: Скотт Отто Андерсон, Кэт МурПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D646C73EE3D0063961167E53013EE5BB1DA85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497614   (253603) от 17.05.2012
+
+[Wallpapers] Ferrari
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253603.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Ferrari
+Название: Ferrari
+Официальный сайт: www.netcarshow.com
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00 (до первых скачавших, перебои со связью бывают,зависит от провайдера)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698442B3A9D3CCE104502C4615FFF4A52AD7119F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498058   (253602) от 17.05.2012
+
+VA - TMP: Trance Harmony 067  (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Dream Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Pedro Del Mar & illitheas - Bahia Del Sol (Pedro Del Mar Mix)
+02. Andrew Rayel - Believe (Original Mix)
+03. Vada - Fire In The Sky (Stoneface & Terminal Remix)
+04. Rene Ablaze feat. Synthesia - Inner Touch (Verum Remix)
+05. Chakra - Love Shines Through (Original Mix)
+06. Polonski - Marathon (Original Mix)
+07. ReLocate vs. Robert Nickson - Resource
+08. Within Temptation - Sinead (Myon & Shane 54 Triplet Monster Mix)
+09. Signum - What Ya Got 4 Me (Lee Haslam Remix)
+10. Pulstate - Wicked (Original Mix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F1780150EA76EC02DEE716D5B9F89D4FF65A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497891   (253601) от 17.05.2012
+
+VA - Русские Новинки Vol.53 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Stoxx - Something To Remember (Bastian Van Shield Remix)
+02. Jakub Rene Kosik - Spica (Original Mix)
+03. Estiva & Tania Zygar - Death Of Me (Original Mix)
+04. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
+05. Jaytech - Overdrive (Jaytech's 2012 Remix)
+06. Andain - Much Too Much (Mike Shiver Remix)
+07. Matan Caspi - Surprise Me feat Mykle Anthony (Original Mix)
+08. Digitize feat. Laura - Breathe In (Progressive Remix)
+09. Daniel Wanrooy feat. Hannah Ray - Your Life
+10. Max Vertigo feat. SevenEver - Tech Love (Original Mix)2012Жанр: PopПродолжительность: 04:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB6E00577E195021A459FB388F4E6CF80185E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498015   (253600) от 17.05.2012
+
+[Wallpapers] Creative Desktop Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253600.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Creative Desktop Wallpapers Pack 7
+Название: Creative Desktop Wallpapers Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B039DEEBB81212B14AC7CEF903F387BD7C04794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497200   (253599) от 17.05.2012
+
+Drapsnatt - Hymner Till Undergangen (2010) [MP3|320 кб/с]<Folk/Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253599.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. En Ensam Sol Gar Ner
+2. Arvssynd
+3. Drapsnatt
+4. Mannen I Min Spegel
+5. Somna In
+6. Ve Er
+7. Tonerna De Klinga
+8. En Besvuren Plats
+9. Gasten2010Жанр: Folk/Black MetalПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF69DE7EE040D8469817161F55CA9C70A3A0F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495987   (253597) от 17.05.2012
+
+Venetian power - The arid land (1971) [MP3|224 кб/с]<Progressive Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 – Quando Dio invento il mondo (4:11)
+02 – April (5:24)
+03 – Dying waters of life (3:55)
+04 – Arid land (2:10)
+05 – Cosi il mondo finisce (4:32)
+06 – I am burning (4:26)
+07 – Il sacrificio dell’acqua (3:35)
+08 – Invocazione, morte e resurrezione (7:30)
+
+"В это музыкальное образование входило целых 15 человек (преимущественно вокалистов, которых было аж 7 человек). Мрачноватая и спокойная музыка с преобладанием акустических инструментов. Трека с 3-го подключается соло гитара и орган. Очевидно, что это пример театрального рока из Италии. Скорее труппа, а не группа. Не сказал бы, что это прогрессив; более как-то смахивает на рок-оперу или саундтрек с общей темой и разворотом событий. Тем не менее, музыка довольно занимательна. Вокал - женский и мужской, на итальянском и английском. Фоно, струнные, флейта, колокольчики и перкуссия - музыкальный базис команды + достаточно обильные (часто и хоровые) песнопения. На CD пока не издавалась, а указанная пластинка у группы единственная." (с)1971Жанр: Progressive RockПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D623AFA2772A83C3A5378E9173E98A58E2DD8026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497236   (253596) от 17.05.2012
+
+VA - TMP: Clear Sky 071 (03.05.2012) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Dave Horne - 11 Hours (Original Mix)
+002. EDU - Domo (Original Mix)
+003. Dayzanst - Double Bind (Light On Remix)
+004. Dart Rayne - Everlasting (Original Mix)
+005. Devilect & John Dubs - Flaming Hearts (Original Mix)
+006. Dyor feat. Matthew Hall - On The Road (Original Mix)
+007. Daniel Rostron - Our Way Home (Tensile Force Remix)
+008. Erick Strong - Payback (Original Mix)
+009. Darkployers - Roll Your Own
+010. Dimension - Vulcano (Running Man Remix)03.05.2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264A47F5D0BC80160EEB1E0BFB7C51CABFBEB64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498001   (253595) от 17.05.2012
+
+Журнал | Твой доктор № 16 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+«ТВОЙ ДОКТОР» - издание, которое просто, ярко и доступно пишет о самых сложных проблемах здорового образа жизни. Изюминка издания в удачном сочетании достаточно простых рецептов народных целителей и научно-популярных публикаций (рекомендаций известных врачей-практиков по каждому конкретному заболеванию) о новейших подходах к диагностике, профилактике и лечению. Журнал помогает читателям выбирать оптимальный и не дорогой способ избавления от недуга, учит азам профилактики различных заболеваний, навыкам самодиагностики, знакомит с лечебными свойствами множества растений, окружающих нас.
+Тема номера: Шафран: пряность и лекарство.апрель 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF4EC575726BB7E52B0F85EC5D1C37D19402E72
 ```
 
 https://mybot314.ru/tekegram_catalog/

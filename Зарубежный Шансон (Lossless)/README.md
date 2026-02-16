@@ -1,19 +1,86 @@
 https://t.me/izofen
-###  Публикация: 456389   (77758) от 22.02.2012
+###  Публикация: 1609994   (1042885) от 05.02.2023
 
-Dalida - 2 альбома (2010) [FLAC|Lossless]<Pop, Chanson>
+Salvatore Adamo - In French Please ! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77758.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bambino2010Жанр: Pop, ChansonПродолжительность: 02:04:01
+01. J'dis pas qu'je t'aime  (feat. Jane Birkin)
+02. Claire
+03. Désolé est bien le mot qui tue
+04. Cœur mon cœur(   Читать дальше...   )Жанр: Pop, Chanson françaiseПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7099F7BF3E396419AB09FF2984ABAFDD1780F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485442   (1005271) от 26.07.2021
+
+Charles Aznavour - Hit-Collection (1993) [FLAC|Lossless|tracks + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She
+02. I Have Lied
+03. In Times To Be
+04. Happy Anniversary(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9E48F0021C1431A2891CDB824938D2A916E6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607529   (994385) от 23.01.2013
+
+V.A. - Французский поцелуй - Хиты Франции (2011) [FLAC|Lossless]<Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yann Tiersen - La valse d'Amelie
+02. Virginie Ledoyen - Mon amour mon ami
+03. Zaz - Je veux
+04. Catherine Deneuve - Toi jamais"
+05. Patricia Kaas - Mademoiselle chante le blues
+06. Joe Dassin - A toi
+07. Francoise Hardy - Tous les garcons et les filles
+08. Edith Piaf - La vie en rose
+09. Charles Aznavour - La boheme
+10. Jacques Brel - Ne me quitte pas(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:19
 
 ## Скачать торент
 ```bash
@@ -25,30 +92,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 489992   (102468) от 01.05.2012
+###  Публикация: 613801   (982365) от 04.02.2013
 
-Charles Aznavour - 40 Chansons d'Or (1996) 2CD [FLAC|Lossless]<Chanson>
+Joe Dassin - Best of Joe Dassin 3xCD (2009) [FLAC|Lossless]<Pop / Chanson>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102468.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sur Ma Vie
-02. J'en Deduis Que Je T'aime
-03. Parce Que
-04. Je M'voyais Deja
-05. Que C'est Triste Venise
-06. Il Faut Savoir
-07. L'amour C'est Comme Un Jour
-08. Et Pourtant
-09. Hier Encore
-10. Paris Au Mois D'aout(   Читать дальше...   )1996Жанр: ChansonПродолжительность: 01:01:25
+Жанр: Pop / ChansonПродолжительность: 01:11:41
 
 ## Скачать торент
 ```bash
@@ -60,28 +118,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087532   (144088) от 28.12.2016
+###  Публикация: 1092537   (936943) от 13.01.2017
 
-Patricia Kaas - Je Te Dis Vous (1993) [FLAC|Lossless|image + .cue] <Pop, Chanson>
+Patricia Kaas - Mademoiselle Chante... (1988) 1992, Deon Ltd. [FLAC|Lossless|image + .cue] <Pop, Chanson>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144088.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Y'avait tant d'etoiles (1:54)
-02. Hotel Normandy (5:35)
-03. Je retien mon souffle (4:37)
-04. Ceux qui n'ont rien (5:16)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:07:09
+01. Mon Mec A Moi (4:15)
+02. Venus Des Abribus (3:52)
+03. D'Allemagne (4:25)
+04. Des Mensonges En Musique (4:18)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:34:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0233A91494613A1D544A69B2BE005C890E511E8D
+magnet:?xt=urn:btih:8B5B173831DF4C8E9FA87859C2D453C0E2A58683
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -89,28 +147,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270389   (157004) от 19.12.2018
+###  Публикация: 987178   (922229) от 19.02.2016
 
-Salvatore Adamo - Si j’osais (2018) [FLAC|Lossless|tracks + .cue] <Chanson>
+VA - Per Un' Ora D' Amore (2002) [FLAC|Lossless|tracks + .cue] <Chanson, Vocal, Pop Rock, Synth-pop>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157004.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Si j’osais
-02. Rosina
-03. Poor Fool
-04. Perche(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:33:22
+01. Vasco Rossi - Una Canzone Per Te (3:13)
+02. Mina - Il Cielo In Una Stanza (2:56)
+03. Domenico Modugno - Dio, Come Ti Amo! (3:23)
+04. Ivan Graziani - Firenze (Canzone Triste) (4:48)(   Читать дальше...   )Жанр: Chanson, Vocal, Pop Rock, Synth-popПродолжительность: 00:58:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D5F735458587AFC7D71F4B955FC67F82E960360
+magnet:?xt=urn:btih:BEBF8E9D452FAFB226F11D041D1EB6EA950F384B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -118,28 +176,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670374   (171882) от 21.10.2023
+###  Публикация: 1103358   (885453) от 12.02.2017
 
-SHEILA - Live à Bruxelles, 2022 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Chanson, Pop, French Music>
+Tony Carreira - Le coeur des femmes (2017) [FLAC|Lossless|tracks] <French Chanson, Pop>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171882.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (2:16)
-02. Tous yéyé (3:43)
-03. Vous les copains (3:34)
-04. Baby Doll (3:53)(   Читать дальше...   )Жанр: Chanson, Pop, French MusicПродолжительность: 02:09:41
+01. Tony Carreira & Lara Fabian - Um Amor Assim (je t'aime)
+02. Tony Carreira & Chico & The Gypsies - Quero Viver (comme d'habitude)
+03. Tony Carreira & Daniel Guichard - A Ternura (la tendresse)
+04. Tony Carreira & Mickael Dos Santos - Pobre Diabo (pauvres diables-vous les femmes)(   Читать дальше...   )Жанр: French Chanson, PopПродолжительность: 00:42:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09D268A623616E051CFE18EF58E0D00960A563C3
+magnet:?xt=urn:btih:31D65D7A7070636641BDD4F7E919807E76C14B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -147,28 +205,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426093   (183964) от 27.11.2020
+###  Публикация: 1001149   (844735) от 02.04.2016
 
-Marie Laforet - Marie Laforet (2001) [FLAC|Lossless|image + .cue] <Chanson, Pop>
+Charles Aznavour - Collected (2016) 3CD [FLAC|Lossless|image + .cue] <French Chanson>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183964.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Les vendanges de l'amour (2:39)
-02. Katy cruelle (2:30)
-03. La tendresse (2:23)
-04. A demain my darling (2:29)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:01:08
+01. Jezebel [02:53]
+02. Parce Que [02:22]
+03. Les Duex Guitares [03:49]
+04. Je M' Voyais Deja [03:23](   Читать дальше...   )Жанр: French ChansonПродолжительность: 03:46:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F53E1487E6225F4C8D84CA6B1EA094F2970DEE8
+magnet:?xt=urn:btih:48785FFE8DDD7C7163AC24C11177BB292D7B2D31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -176,28 +234,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 965255   (223400) от 15.12.2015
+###  Публикация: 1196769   (820529) от 04.01.2018
 
-Celine Dion - D'Eux (1995) [FLAC|Lossless|tracks + .cue] <Chanson>
+Patrick Fiori - Choisir (2014) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223400.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pour que tu m'aimes encore (4:14)
-02. Le Ballet (4:25)
-03. Regarde-moi (3:56)
-04. Je sais pas (4:33)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:44:18
+01. Elles
+02. Demain
+03. Choisir
+04. Un Jour, Mon Tour(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:48:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3B417C437CD9B7693648BC061C54F041364CA5C
+magnet:?xt=urn:btih:B0B8BE593C1B1BE7DF44ED646DFA90A2BD9589E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -205,28 +263,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 965206   (223634) от 15.12.2015
+###  Публикация: 1198317   (807878) от 11.01.2018
 
-Souchon - C'Est Deja Ca (1993) [FLAC|Lossless|tracks + .cue] <Chanson>
+Edith Piaf - Edith Piaf 1962 (Remastered 2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223634.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Foule Sentimentale (5:24)
-02. L'Amour À La Machine (3:46)
-03. Sous Les Jupes Des Filles (4:37)
-04. Les Regrets (3:59)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:38:07
+01. Une valse (Remastered 2017)
+02. On cherche un Auguste (Remastered 2017)
+03. Ca fait drole (Remastered 2017)
+04. Inconnu excepte de Dieu (Remastered 2017)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:187028D84B17554BD6553895E15DAB61840A36D7
+magnet:?xt=urn:btih:F5375A843C90E5D17F09465F48757A28CC8DE0BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,25 +292,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 660139   (276179) от 26.11.2018
+###  Публикация: 1198487   (807877) от 11.01.2018
 
-VA - The Great French Singers Collection (12CD)(2011) [MP3|320 кб/с]<French Chanson>
+Jane Birkin - Jane Birkin (1987) 2001,Universal [FLAC|Lossless|image + .cue] <Chanson, Europop>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276179.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: French ChansonПродолжительность: 01:15:07
+01	Quoi
+02	Décadanse
+03	Mon Amour Baiser
+04	Fuir Le Bonheur De Peur Qu'Il Ne Se Sauve(   Читать дальше...   )Жанр: Chanson, EuropopПродолжительность: 00:54:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:921039AF776F0ACC597EFA2A0EBF678D63EAE8BD
+magnet:?xt=urn:btih:8F8E20AA6600C2ABB9EED1A9427FC04EF1ADBB6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,28 +321,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 963328   (286882) от 08.12.2015
+###  Публикация: 1384432   (802520) от 20.05.2020
 
-Joe Dassin - Oh, Champs-Elysees - Seine Grossen (1992) [FLAC|tracks+.cue]<Chanson, Schlager>
+Michel Polnareff - Love Me, Please Love Me (1966) 2010, Universal [FLAC|Lossless|image + .cue] <Chanson, French Pop, Beat, Mod, Yé-Yé>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286882.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vade Retro (3:02)
-02. Les Champs-Élysées (2:38)
-03. Mon village du bout du monde (3:19)
-04. L'Amérique (2:25)(   Читать дальше...   )Жанр: Chanson, SchlagerПродолжительность: 00:45:11
+01. Sous quelle étoile suis-je né ?
+02. Time Will Tell
+03. Ballade pour toi
+04. L'oiseau de nuit(   Читать дальше...   )Жанр: Chanson, French Pop, Beat, Mod, Yé-YéПродолжительность: 00:30:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0642783FC034AC61CFDE2B299F97E2988BB9A3FA
+magnet:?xt=urn:btih:0E2F7A4CFC2EBC0ECEA78BBEDE8D67CACF57460B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -289,28 +350,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080158   (287965) от 07.12.2016
+###  Публикация: 1207838   (780192) от 20.02.2018
 
-Dalida - Les Geants De La Chanson (2016) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
+Salvatore Adamo - Si Vous Saviez... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287965.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Bambino [03:34]
-02.  Histoire D'un Amour [03:08]
-03.  Gondolier [02:56]
-04.  Come Prima [02:40](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:16:07
+01. Je te chanterai la chanson
+02. Un reve
+03. Sans toucher terre
+04. Juste un "Je t'aime"(   Читать дальше...   )Жанр: Pop, Chanson françaiseПродолжительность: 01:04:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C417301707DE35B86A73DBB5BAE0B72360512EB
+magnet:?xt=urn:btih:62EEDB939F01FA8D0852A4E1310B4E0BDDB0E0E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,28 +379,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334117   (298477) от 27.10.2019
+###  Публикация: 1209545   (779207) от 27.02.2018
 
-Helene (Hélène) Rolles - Hélène (2016) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+L - Chansons (2018) [FLAC|Lossless|WEB-DL|tracks] <Chanson Française, French Pop>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298477.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Effacer le passé (3:15)
- 02. Je n’ai pas fait exprès (2:45)
- 03. Je pense à toi (3:26)
- 04. Di dou dam (3:42)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:46:19
+01. La Meuse 3:24
+02. Ton enfance 3:09
+03. Laisser passer 2:44
+04. Tant pis 3:44(   Читать дальше...   )Жанр: Chanson Française, French PopПродолжительность: 00:39:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAD1D9CE65A5897E26676C17871E2B99C77694F9
+magnet:?xt=urn:btih:08CCBD855937AA3C544E50C67CB5D1A2CDD5B975
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,28 +408,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334122   (298581) от 27.10.2019
+###  Публикация: 1017211   (762481) от 16.05.2016
 
-Helene (Hélène) Rolles - A force de solitude (1997) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+Marie Laforet - French Collection (2000) [FLAC|Lossless|tracks + .cue] <Chanson>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298581.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ça fait si longtemps (4:26)
- 02. C'est parce que je t'aime (3:17)
- 03. Le bonheur (3:35)
- 04. Je sais qu'un jour (2:35)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:38:35
+01. Manchester Et Liverpool [0:02:22.65]
+02. Ivan, Boris Et Moi [0:02:18.00]
+03. La Fleur Sans Nom [0:02:21.70]
+04. Mon Amour Mon Ami [0:02:22.47](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:19:54.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07C8D64DC45CE820516B0F4F7EA656E8FF467834
+magnet:?xt=urn:btih:801BEBA3504517F13E20DA467F0F7580ECE0AC54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,28 +437,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 960187   (300801) от 01.12.2015
+###  Публикация: 1023113   (725868) от 04.06.2016
 
-VA - Afisha Hold Music (2004) [FLAC|tracks+.cue]<Chanson, Ballad, Schlager>
+Edith Piaf - French Collection 2000 (2000) [APE|Lossless|image + .cue] <Chanson>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300801.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Françoise Hardy - Comment te dire adieu (2:26)
-02. Jeanette - Le temps de mon pere (3:21)
-03. Nino Ferrer - Madame Robert (3:06)
-04. Dori Ghezzi - Casatschok (2:53)(   Читать дальше...   )Жанр: Chanson, Ballad, SchlagerПродолжительность: 01:05:42
+01. Non, Je Ne Regrette Rien
+02. La Foule
+03. Padam... Padam
+04. Sous Le Ciel De Paris(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:18:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A5AB22436B79F3C6ECB210FD212A32F9E656C28
+magnet:?xt=urn:btih:F2134BCC065DD67513A7E8CF44B46BCB13E82A10
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,28 +466,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333688   (301160) от 26.10.2019
+###  Публикация: 798817   (651672) от 23.06.2014
 
-Helene (Hélène) Rolles - Le miracle de l'amour (1994) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+Joe Dassin - Integrale Albums (2000) 15CD Box Set, Limited Edition [FLAC (image+.cue)|Lossless]<French Chanson, Ballad, Disco>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301160.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moi aussi je vous aime (4:06)
- 02. Imagine (4:38)
- 03. À force (3:42)
- 04. Toujours par amour (2:49)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:49:51
+Родился Джо Дассен (Joe Dassin, полное имя Джозеф А́йра Дассен) - 5 ноября 1938 года. Он родился в Нью-Йорке, а родителями Джо были Жюль Дассен (известный кинорежиссер) и Беатрис Лонер (виртуозная скрипачка-виртуоз и солистка оркестра Пабло Кассаля).CD 1 - Joe Dassin A New York (1966)
+CD 2 - Les Deux Mondes De Joe Dassin (1967)
+CD 3 - Les Champs-Elysees (1969)
+CD 4 - La Fleur Aux Dents (1970)(   Читать дальше...   )Жанр: French Chanson, Ballad, DiscoПродолжительность: 08:26:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A349903A43C475482858DBA84D5395CEA27C652
+magnet:?xt=urn:btih:B6A395B1B79F554D53B3521B13CA00C70B4C9DE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,28 +495,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333687   (301242) от 26.10.2019
+###  Публикация: 1031705   (647388) от 06.07.2016
 
-Helene (Hélène) Rolles - Je m’appelle Hélène (1993) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+Julio Iglesias - Da Manuela A Pensami (1978) [FLAC|Lossless|tracks + .cue] <Chanson, Vocal>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301242.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Je m'appelle Hélène (3:49)
- 02. Dans les yeux d'une fille (3:15)
- 03. Le secret d'Emilou Haley (2:48)
- 04. Et si un garçon (2:39)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:34:14
+01. Manuela (3:22)
+02. Da Quando Sei Tornata (3:08)
+03. Bimba (4:02)
+04. Quella Di Sempre (3:31)(   Читать дальше...   )Жанр: Chanson, VocalПродолжительность: 01:11:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE642B19B7A3DB6F4779DF5C2D3F283E692F76D3
+magnet:?xt=urn:btih:BD40081C51184856F1FF47B2E183A09EF3242B95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,28 +524,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333690   (301252) от 26.10.2019
+###  Публикация: 1143862   (629227) от 21.06.2017
 
-Helene (Hélène) Rolles - Toi... émois (1995) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+Bernard Lavilliers - Samedi soir a Beyrouth (2008) [FLAC|Lossless|tracks + .cue] <French Chanson>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301252.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Je t’aime (3:04)
- 02. Partir avec toi (2:43)
- 03. Souvenirs d’enfance (2:33)
- 04. Quand une fille aime un garçon (3:37)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:32:45
+01. Rafales
+02. Solitaire
+03. Ma belle
+04. Bosse(   Читать дальше...   )Жанр: French ChansonПродолжительность: 00:46:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDB16564B7BA264E4FE298DA3CCE4DE80EC2900B
+magnet:?xt=urn:btih:E41831C8D554D8066C92B2A14ED4EB34A804736F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,233 +553,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333567   (303135) от 25.10.2019
+###  Публикация: 522067   (622542) от 13.07.2012
 
-Helene (Hélène) Rolles - Pour l’amour d’un garçon (1992) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pour l'amour d'un garçon - Générique de la série TV "Hélène et les garçons" (3:13)
- 02. Peut-être qu'en septembre (4:21)
- 03. Mr. Kennedy (3:54)
- 04. À quoi bon (4:09)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DB41A8148962245FAD8B0364C65C818C749D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333562   (303152) от 25.10.2019
-
-Helene (Hélène) Rolles - Ce train qui s'en va (1989) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+VA - Bonjour La France ( The Sound Of France ) (1993 & 1996) 2*2CD [FLAC|Lossless]<Chanson, Pop>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303152.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ce train qui s'en va (3:56)
- 02. Pretty Baby (3:12)
- 03. Si pressés (4:02)
- 04. Toute seule au monde (3:18)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813F57C40C4C0DBF1C532E881FD775F97BC78C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258318   (338226) от 29.10.2018
-
-Serge Gainsbourg - De Gainsbourg A Gainsbarre (1990) 2CD, 1994 [FLAC|Lossless|tracks + .cue] <Vocal, Chanson, Pop Rock>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338226.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. Le Poinconneur des Lilas (2:43)
- 02. L'eau a la BoucheЖанр: Vocal, Chanson, Pop Rock, Synth-pop, BalladПродолжительность: CD1 - 01:07:25
-CD2 - 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D038779895192B1F3663BA13B5C574A30412D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952522   (353144) от 02.11.2015
-
-Marc Lavoine - Volume 10 (2010) [FLAC|image+.cue]<Pop, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353144.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rue Des Acacias 3:59
- 2. Reviens Mon Amour 4:40
- 3. Demande-Moi 3:58
- 4. La Semaine Prochaine 3:48(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CCF551FBD2ADDDECA20C6E6C75DC0B61990086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071678   (356606) от 11.11.2016
-
-Mireille Mathieu - Noel (2015) [FLAC|Lossless|tracks] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La colombe de Noel
-02. Petit Papa Noel (Version inedite)
-03. Noel blanc
-04. Douce nuit(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB0745FD50A53EEEDC35B12BBD460F821ED9A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952135   (357951) от 31.10.2015
-
-Marc Lavoine - Je descends du singe (2012) [FLAC|image+.cue]<Pop, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il restera [02:53]
- 02. Notre Histoire [03:21]
- 03. Je descend du singe [03:43]
- 04. J'ai vu la lumière [03:12](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12332AFBB584B03054D9F856976C48661732B583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254972   (367945) от 16.10.2018
-
-Salvatore Adamo - Het Beste Van Adamo (2003) [FLAC|Lossless|tracks + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vous Permettez, Monsieur?
-02. Inch' Allah
-03. Crier Ton Nom
-04. Tombe La Neige(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE669A4A779A99F59CA0A42303AF6A982630604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563174   (404442) от 21.10.2012
-
-Mireille Mathieu - Platinum Collection (2005) [FLAC|Lossless]<Pop, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bravo, Tu As Gagne [04:41]
-02. Tu Chanteras Demain [03:10]
-03. Nos Souvenirs [03:50]
-04. New-york, New-york [03:02]
-05. Trois Milliards De Gens Sur Terre [03:26]
-06. On Est Bien [03:20]
-07. Les Avions, Les Oiseaux [03:09]
-08. Made In France [03:32]
-09. Apres Toi [04:04]
-10. Rencontres De Femmes [03:57](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:09:59
+01. France Gall - Poupee De Sire, Poupee De Son [02:32]
+02. Mireille Mathieu - Ensemble [03:03]
+03. Severine - Un Banc, Un Arbre, Une Rue [03:03]
+04. Les Poppys - Love, Lioubov, Amour [03:06]
+05. Les Poppys - Des Chansons Pop [02:14]
+06. Vicky Leandros - Apres Toi [03:33]
+07. Lenny Kuhr - Les Enfants [03:22]
+08. Mort Shuman - Le Lac Majeur [05:25]
+09. Anne Marie David - Tu Te Reconnaitras [02:42]
+10. Mireiile Mathieu - La Paloma Adieu [03:53](   Читать дальше...   )Жанр: Chanson, PopФормат: 2 * 2CDПродолжительность: 01:07:57
 
 ## Скачать торент
 ```bash
@@ -730,28 +588,191 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252548   (408987) от 05.10.2018
+###  Публикация: 1296559   (610120) от 18.04.2019
 
-Charles Aznavour - Duos (2008)(2CD) [FLAC|Lossless|image + .cue] <Chanson>
+Zazie - Zen (1995) [FLAC|Lossless|tracks + .cue] <Pop, Chanson>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408987.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Charles Aznavour & Celine Dion - Toi et moi
-02. Charles Aznavour & Julio Iglesias - Que c’est triste Venise
-03. Charles Aznavour & Placido Domingo - Les bateaux sont partis
-04. Charles Aznavour & Laura Pausini - Paris au mois d’aout(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:38:49
+01. Fou de Toi (03:21)
+02. Homme Sweet Homme (03:37)
+03. Larsen (04:22)
+04. Point C'est Toi (03:30)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:00:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C72E4D117E1E424B55C6A674B2B7424CFC7C8C0
+magnet:?xt=urn:btih:7A9C8990E35F506A31B32E064D950ED64913F93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150165   (596428) от 13.07.2017
+
+Francoise Hardy - L'amour fou (2012) [FLAC|Lossless|image + .cue] < Pop, chanson >
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'amour fou
+02. Les fous de Bassan
+03. Mal au coeur
+04. Si vous n'avez rien à me dire...(   Читать дальше...   )Жанр: Pop, chansonПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90951A38EFE8678F8D2C393FA74BD457DDD62B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809317   (587401) от 01.08.2014
+
+Joe Dassin - Les Plus Belles Chansons D'amour De (2003) [FLAC|Lossless]<Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Toi (2:51)
+02.L'ete Indien (4:31)
+03.Cecilia (3:59)
+04.Salut Les Amoureux (4:02)
+05.Siffler Sur La Colinne (2:38)
+06.Dans Les Yeux D'emilie (3:46)
+07.Et Si Tu N'existais Pas (3:28)
+08.Les Champs-Elysees (2:39)
+09.Le Petit Pain Au Chocolat (3:27)
+10.Ca Va Pas Changer Le Monde (3:04)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B18EA2F149F18F3C258EBE9A18D1FAE15559D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365111   (559122) от 19.07.2011
+
+Joe Dassin - Best Of 3 CD L'Album Souvenir (2010) [FLAC|Lossless]<Pop, Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_559122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'ete Indien
+02. A Toi
+03. Marie Jeanne
+04. Excuse Me Lady
+05. Ca Va Pas Changer Le Monde
+06. Les Dalton
+07. Le Moustique
+08. Dans La Brume Du Matin
+09. Ma Musique
+10. La Premiere Femme De Ma Vie(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246272   (465461) от 09.09.2018
+
+Lio - Je Suis Comme Ca (2000) [FLAC|Lossless|image + .cue] <French, Pop, Chanson, Jazz>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465461.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 C'était L'été 2:13
+2 Dieu Et Diable (En Duo Avec Guy Marchand) 2:30
+3 Je Suis Comme Je Suis 3:59
+4 Il Y A La Nuit 3:21(   Читать дальше...   )Жанр: French, Pop, Chanson, JazzПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB01588CD7C07C342D14E4844725D5088528F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552900   (445523) от 27.09.2012
+
+Patricia Kaas - 6 Студийных альбомов (1988 - 2002) /Japan/ [FLAC|Lossless]<Shanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_445523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Man (Mon Homme)
+02. If You Go Away (Ne Me Quitte Pas)
+03. What Now My Love (Et Maintenant)
+04. Un Homme Et Une Femme
+05. The Summer Knows (Un Ete 42)
+06. I Wish You Love (Que Reste-t-il De Nos Amours)
+07. Yesterday When I Was Young (Hier Encore)
+08. Les Moulins De Mon Coeur (The Windmills Of Your Mind)
+09. Autumn Leaves (Les Feuilles Mortes)
+10. Where Do I Begin (Love Story)(   Читать дальше...   )Жанр: Shanson, PopПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

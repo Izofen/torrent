@@ -1,184 +1,22 @@
-###  Публикация: 1362000   (947683) от 24.02.2020
+###  Публикация: 482435   (99474) от 13.04.2012
 
-Просто в космос: в России создадут ракету для бюджетных запусков
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сверхлегкая многоразовая ракета, которую разрабатывают российские ученые, доставит на 200-километровую орбиту Земли микро- и наноспутники. Стоимость отправки одного килограмма груза составит $10-20 тыс., что заметно дешевле, чем у ближайших конкурентов. Этого удалось добиться за счет упрощенной одноступенчатой конструкции носителя и инновационного метанового двигателя (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090358   (947684) от 06.01.2017
-
-VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dario Synth - Without You (Michael D remix) (06:43)
-02. Sancho - Domi9 (06:01)
-03. Ilya Goryachev - Gold Waters (06:23)
-04. Veselin Tasev - Don't Kill The Love (extended mix) (07:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D29763D2D1123346F019ED0326F33CF07AB75D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362644   (947685) от 24.02.2020
-
-PassFab for ZIP 8.2.0.5 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947685.jpg" />
-</div>
-
-
-###  Подробнее
-
-PassFab for ZIP - это программа для восстановления защищенных паролем ZIP-файлов с тремя типами атак. Используя ускорение GPU, вы можете восстанавливать ZIP-файлы большого размера в течение нескольких минут, а многоядерная обработка процессора поддерживает максимальную скорость восстановления. Между тем, он поддерживает широкий спектр алгоритмов шифрования, включая (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78ABF2CE0CBAE4526AF8589D29ED817526FADC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625455   (947686) от 03.03.2013
-
-Святой Ефрем Сирин | Творения [8 Томов] [Репринт 1907 г.] (1993-1995) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Ефрем Сирин всегда пользовался общим уважением в Церкви, как за свою жизнь, так и за свои писания. Святитель Григорий Нисский говорит: «Прославлять мне надобно того, который на устах у всех христиан, Ефрема, которого жизнь и учение сияют во всем мире. Ибо он известен почти всей подсолнечной, и только разве те его не знают, которые не знают великое светило (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB600E0BBCEAA906F3F2BCCD5CE6C4033BC3E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089936   (947687) от 06.01.2017
-
-Ученым впервые удалось идентифицировать белки, являющиеся "смертельным оружием" вируса Зика
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока небезызвестный вирус Зика не вышел на "большую сцену" в прошлом году, он оставался малоизвестным и малоизученным вирусом. До последнего времени ученые знали очень немногое о его строении и принципах функционирования. Но, в течение прошлого года было выяснено, что этот вирус является причиной возникновения множества заболеваний, включая врожденные дефекты, и лишь только недавно был пролит свет на то, какие именно белки, вырабатываемые вирусом, являются его "смертельным оружием".(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362636   (947688) от 24.02.2020
-
-Потерянный остров (2019) WEBRip [H.264/1080p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Столичный журналист Игорь Воеводин прибывает на отдаленный дальневосточный остров, чтобы сделать репортаж о рыбацком поселении, в котором нашли своё последнее пристанище 12 человек, окружённых дикой природой в бескрайнем океане. Вскоре выясняется, что журналиста все только и ждут. Оторванный от большой земли, он оказывается во власти местных жителей и притягательной (   Читать дальше...   )Производство: Россия / SilyakoffilmЖанр: драма, триллер, детективРежиссер: Денис СиляковАктеры: Даниил Масленников, Наталья Фрей, Татьяна Догилева, Дмитрий Астрахан, Георгий Назаренко, Илья Ермолов, Юрий Долгинцов, Марина Черкунова, Александр Зарчиков, Владимир ОПеревод: Не требуется (Русский) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8431E8BC0E952FDA5C4C56927F01B2D7097CCB85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090280   (947689) от 06.01.2017
-
-RapidWeaver 7.2.2 [En]
+Журнал | 5 колесо №3 (март 2012) [PDF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947689.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-RapidWeaver - популярный HTML-редактор
-RapidWeaver - WYSIWYG-редактор, по праву заслуживший множество наград от таких известных изданий как: MacFormar, MacWorld и MacUser. В отличие от других WYSIWYG-редакторов, он действительно не требует знания HTML, используя для построения сайта множество готовых шаблонов.
-
-RapidWeaver является приложением все-в-одном, которое (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 января 2017Разработчик: Realmac Software LimitedПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+«5 колесо» - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей. В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1CA7130F17BD72621A008D77227A6C543A356C6
+magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090245   (947690) от 06.01.2017
+###  Публикация: 482513   (99473) от 13.04.2012
 
-VA - Deep House Christmas Selection (2016) [MP3|320 Kbps] <Deep House>
+[Wallpapers] Scotland (Шотландия) wallpaper | для БориСКА47
 
->>Electronic
->>House
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947690.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Pirupa - I Can C through U (Original Mix) 6:17
-02.  Luca Elle - Tormento 5:58
-03.  Barbara Tucker - You Want Me Back (Paolo Madzone Zampetti 2015 Vibe Rmx) 6:41
-04.  Dennis Cialella - Don't Stop Movin' (feat. Andrea Carnell) (Vinnie Campisi Minimal Mix) 7:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:27
+Релиз подготовлен по просьбеРазрешение файлов: 1280x840 - 1600х1200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF5DB3452FCABE5D21BAE451F6286F5105EC46DF
+magnet:?xt=urn:btih:5E308BB5B9E1E119EB2B872DF9445FD064ACB77C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,28 +50,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090141   (947691) от 06.01.2017
+###  Публикация: 481984   (99471) от 13.04.2012
 
-VA - Best Of LW: Trance (2017) [MP3|320 Kbps] <Trance>
+Taenya - Contaminate [EP] (2011) [MP3|~275 кб/с (V0)]<Slamming Brutal Death>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947691.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Juventa - A Thousand Words (Original Mix) 7:41
-02.  Vicky Devine - Stellium (Original Mix) 8:13
-03.  Tempo Giusto - Unknown Dancer (Original Mix) 8:34
-04.  Ferry Tayle - Geometrix (Original Mix) (feat. Driftmoon) 6:46(   Читать дальше...   )Жанр: TranceПродолжительность: 03:33:05
+01. Intro
+ 02. Parasite
+ 03. Mensonges
+ 04. People
+ 05. Cadaveric Slam
+ 06. Amnésie
+ 07. Hate My Face
+ 08. All Star
+ 09. Anal Evil
+ 10. Armes de Sang Froid2011Жанр: Slamming Brutal DeathПродолжительность: 00:29:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE4F3ECD949964892FD9866ECF758C93ABA26346
+magnet:?xt=urn:btih:7894AFF7D4032B8A3A08EDB6BDDF2295546FA6D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,28 +85,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090235   (947692) от 06.01.2017
+###  Публикация: 481846   (99467) от 13.04.2012
 
-VA - Progressive Logic House Hits (2016) [MP3|320 Kbps] <House, Progressive, Tribal, Future House, Funky, Electro>
+I’ll Eat Your Face - Hot Brains Terror (2011) [MP3|320 кб/с]<Death Metal / Grindсore>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947692.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Armin Van Buuren - Mirage (Martijn Ten Velden Extended Remix) 7:01
-02.  Fedde Le Grand - Down On Me (Extended Mix) 4:45
-03.  Deadmau5 - Strobe (Feed Me Remix) 9:27
-04.  David Guetta & Cedric Gervais ft. Chris Willis - Would I Lie To You (Radio Edit) 3:18(   Читать дальше...   )Жанр: House, Progressive, Tribal, Future House, Funky, ElectroПродолжительность: 03:45:29
+01. Weasel Tank Slime (01:08)
+ 02. Acid Worm Monsoon (01:37)
+ 03. Brainwolf: Revenge of the Priest (01:53)
+ 04. Drowning Dogs in a Swamp (03:32)
+ 05. Enslaved by the Prawnmaster (01:18)
+ 06. Reverse Eagle Embeastment (02:13)
+ 07. The Eels of Love Lake (02:10)
+ 08. Castle of Vomiting Owls (01:48)
+ 09. Forever Sealed in the Electric Brains’ Melting Slug-Ray (05:16)2011Жанр: Death Metal / GrindсoreПродолжительность: 00:21:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:291394CAB104985A7E4391C0D12FAF4394A5F60F
+magnet:?xt=urn:btih:8C4EB3D02112D6B7D1A2F1C97CA45B961EE5024C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,28 +119,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090031   (947693) от 06.01.2017
+###  Публикация: 482064   (99465) от 13.04.2012
 
-The Eureka Brass Band Of New Orleans - Jazz At Preservation Hall I (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+[Wallpapers] Computer Desktop Wallpapers Collection (12.04.12)
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947693.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Just A Little While To Stay Here [05:01]
- 02.Bye & Bye [05:00]
- 03.Whoopin' Blues [05:04]
- 04.Down In Honky Tonk Town [05:37](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:39:03
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6616F053B10B23828B41B5D3A93008A62C08817F
+magnet:?xt=urn:btih:A39A7C28B2DFCC1C692CA45DA6FA8EA45D830864
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,28 +145,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090327   (947694) от 06.01.2017
+###  Публикация: 481178   (99464) от 13.04.2012
 
-Little Mike & The Tornadoes - Heart Attack (1990) [FLAC|Lossless|image + .cue] <Blues>
+Infestdead - 3 альбома - Discography (1995 - 1999) [MP3|320 кб/с]<Death Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947694.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01|  Heart Attack  (03:35) 
-02|  Never Missed a Woman  (02:22) 
-03|  Nothin' but the Blues  (03:32) 
-04|  Try My Love  (02:27) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:33
+Жанр: Death MetalПродолжительность: 01:22:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AA6C7AC78EE6895168EFA3FA334BA452188CA8A
+magnet:?xt=urn:btih:0EFDAAC34B836075448B536C1791C2288F56A74C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,27 +171,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090398   (947695) от 06.01.2017
+###  Публикация: 481995   (99462) от 13.04.2012
 
-Share Tunes 2: Share your taste in music 2.1.3 [Multi]
+A Million Dead Birds Laughing - Force Fed Enlightenment (2011) [MP3|~275 кб/с (V0)]<Experimental Grindcore / Technical Death>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947695.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Share Tunes поможет вам поделиться своим музыкальным вкусом на Twitter, Facebook, Sina Weibo и Tumblr! Музыка играет важную роль в нашей жизни, так почему бы не поделиться своими предпочтениями с другими?
-
-Программа работает в фоновом режиме и находится в Вашем меню баре. При открытии приложения Вы увидите песню, которая воспроизводится в iTunes, Spotify, Vox, Ecoute, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 января 2017Разработчик: Appiculous UGПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий, Японский и др.
+1. Conduit - 01:04
+ 2. Void - 01:47
+ 3. Forcefed - 01:11
+ 4. Edge - 01:44
+ 5. Requiem - 01:30
+ 6. Defiants - 02:37
+ 7. Purpose - 01:21
+ 8. Willow - 01:09
+ 9. Oracle - 02:49
+ 10. Leech - 02:26(   Читать дальше...   )Жанр: Experimental Grindcore / Technical DeathПродолжительность: 00:24:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC53F7E1FBDEA89668D463A0DF62F57CAB4AA3B5
+magnet:?xt=urn:btih:94391266783DF4CDCBE7FFA59D272B091153A0E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,28 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090401   (947696) от 06.01.2017
+###  Публикация: 482526   (99460) от 13.04.2012
 
-Cee Cee James, Seriously Raw - Live At Sunbanks (2010) Live [FLAC|Lossless|image + .cue] <Blues>
+[Wallpapers] Best HD Wallpapers (14.04.12)
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947696.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01|  Crossroad Blues  (05:03) 
-02|  I Ain't Superstitious  (04:48) 
-03|  Make It To The Other Side  (06:43) 
-04|  I Got A Right To Sing The Blues  (05:39) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:49
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D3EAE3FE917887B8B6AED22DE1459E5AA478981
+magnet:?xt=urn:btih:46F36852AF17C7DF1D8B29391D8BD69F3AE41ADA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,28 +232,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089943   (947697) от 06.01.2017
+###  Публикация: 482519   (99459) от 13.04.2012
 
-VA - Global House Lighting Club (2017) [MP3|320 Kbps] <House, Funky, Tech House, Progressive, Club>
+[Wallpapers] Computer Desktop Wallpapers Collection (14.04.12)
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947697.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Daddy's Groove - Where I Belong (Radio Edit) 3:29
-02.  Ambient P - Hot Stuff (Ivan Paganessi Club Remix) 6:06
-03.  Felipe C - Cantores (Original Mix) 4:47
-04.  Aldy Th - Knockout (Original mix) 4:51(   Читать дальше...   )Жанр: House, Funky, Tech House, Progressive, ClubПродолжительность: 08:32:28
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40108495D23BB6CD3137CC7B50F607957F47868F
+magnet:?xt=urn:btih:D22ED87B38CE754111DEF9CEE51C199092D5B8C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,50 +258,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090292   (947698) от 06.01.2017
+###  Публикация: 481810   (99457) от 12.04.2012
 
-VA - Ibiza Chillout Songs: Best Of 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+The Cardigans - Life (2005) /2008 Japan SHM-CD Edition/ [FLAC|Lossless]<Pop Rock>
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947698.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_99457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Lofty Right - Lazy (Urban Lounge Instrumental Mix) 4:28
-02.  r.f.n. - Bell Hotline (Whip It Version) 4:16
-03.  Amar Lidan - Arabic World (Buzuq Edit) 4:26
-04.  Dalia - Sorrow And Joy (Pulse Version) 4:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7CF4FDF5D0E70B8DC54FD66132A5905A169453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281139   (947704) от 12.01.2011
-
-Российские ученые будут первыми, кто доберется до антарктического озера Восток в поисках новых форм жизни.
-
->>След.
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антарктическое озеро Восток, которое более 14 миллионов лет было погребено под толщей антарктических льдов, впервые в истории будет потревожено. В скором времени бур, опущенный через скважину в поверхности, пройдет сквозь оставшийся слой льда и достигнет очень богатых кислородом вод этого озера. В полученных образцах воды озера Восток ученые собираются обнаружить ранее неизвестные формы жизни, которые приспособлены для существования в водной среде, очень богатой кислородом и азотом.(   Читать дальше...)
+01. Carnival [03:37]
+02. Gordon's Gardenparty [03:20]
+03. Daddy's Car [03:35]
+04. Pikebubbles [03:02]
+05. Tomorrow [03:03]
+06. Beautiful One [03:27]
+07. Travelling with Charley [04:09]
+08. Fine [03:09]
+09. Sunday Circus Song [03:54]
+10. Hey! Get Out of My Way [03:30](   Читать дальше...   )2008Жанр: Pop RockФормат: CD, Album, ReissueПродолжительность: 01:03:11
 
 ## Скачать торент
 ```bash
@@ -472,25 +293,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 281555   (947706) от 12.01.2011
+###  Публикация: 481888   (99456) от 12.04.2012
 
-Журнал | Maxim Hot 100 [USA] (2010) [PDF] [En]
+Inspector Magnusson: Murder on the Titanic (P) [En] 2012
 
->>Журналы
->>Мужские журналы
+>>Win Игры
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947706.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-100 самых красивых девушек 2010 года по версии американского журнала Maxim.Формат: PDF
+Спустя месяц после гибели Титаника экипаж рыболовного судна "Plymouth" обнаружил тело Ричарда Гринфилда Бартоломью ІІІ. Тело идентифицировать не удалось, но экипаж рыболовного судна заинтересовал документ, найденный на теле, в котором сообщалось о плане собрать деньги на страхование от гибели лайнера "Олимпик".(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1277B4D6266C9EBAB47D1BFD626740F7B2645BCF
+magnet:?xt=urn:btih:4EBCDDF434D27F16DDACABB9352FDBCC9746E17A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -498,28 +319,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090507   (947719) от 06.01.2017
+###  Публикация: 481534   (99455) от 12.04.2012
 
-Duke Jordan Trio - Two Loves (1973) 1990, SteepleChase[FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+Dj VoJo - STYLE vol.2: В Ж...ПУ ПАФОС (07.04.2012) [MP3|320 кб/с]<Electro House>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947719.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Subway Inn [08:12]
- 02.My Old Flame [08:46]
- 03.Blue Monk [05:15]
- 04.Two Loves [03:06](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:12:33
+Dj VoJo - STYLE vol.2:  В Ж...ПУ ПАФОС (07.04.2012)Год: 07.04.2012
+Жанр: Electro House
+Продолжительность: 01:05:13
+Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист: N/AВремя раздачи: (24/7 - круглосуточно)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF02E8A2211DCEA885C7786D40753B607A8BEA07
+magnet:?xt=urn:btih:C9DC9375B29EA3DE59B9AB659E2C5E9E3E67ED8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,196 +350,410 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090488   (947720) от 06.01.2017
+###  Публикация: 481348   (99452) от 12.04.2012
 
-VA - Urban Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Greenwood 5:35
-02.  Enrico Donner - Wind Of The Spirit 6:33
-03.  Cane Garden Quartet - Chillaxinґ 5:13
-04.  Baghira - Nightbeat 5:58(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5067ABC750D05D1C840E2E149FC823B094BB17B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090259   (947721) от 06.01.2017
-
-Jack McDuff - The Re-Entry (1988) 2005, Savoy Jazz[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cap'n Jack [06:11]
- 02.One Hundred Years [05:55]
- 03.Electric Surfboard [06:58]
- 04.Walking the Dog [08:13](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F0074C9B609430F62B684C14B65734C7666549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090255   (947722) от 06.01.2017
-
-Irvin Rochlin Trio - Quirine (1980) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pepito's Rib [01:01]
- 02.Introduction [00:46]
- 03.Quirine [05:13]
- 04.Ghost Of A Chance [05:27](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3FAF33C27533E1C33A2974EE7AB1500237F2C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090045   (947723) от 06.01.2017
-
-The 3 Souls featuring Sonny Cox - Soul Sounds (1965) Remaster, 1997, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You're No Good [03:25]
- 02.I Don't Want to Hear Anymore [04:28]
- 03.Dear Old Stockholm [03:51]
- 04.Walk on By [03:17](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CCE2FA81918950F42213728CD0D6C8D5CDF26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090251   (947724) от 06.01.2017
-
-Mazzoll & Arhythmic Perfektion - Out Out To Lunch (1994) 1996, Jazz S.C.[APE|Lossless|image + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.God`s Assurance [05:15]
- 02.Geodesist`s Ring  [04:41]
- 03.Saliva Bubbles in the Mouth Corners  [04:54]
- 04.Tougues of Fire  [05:14](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF0F1D1C84A8B767052BA18E5978E5FB57DC2EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362534   (947725) от 24.02.2020
-
-Жизнь после людей / Life After People (2010) BDRip [H.264/720p] (Сезон 2, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каким будет мир, если на Земле не останется ни одного человека? Давайте заглянем в будущее и узнаем это. Благодаря этому впечатляющему научно-популярному сериалу зрители смогут увидеть, как изменится жизнь животных и растений, что произойдет с архитектурными шедеврами и узнают, какой срок потребуется для того, чтобы окончательно стереть с лица планеты следы нашей (   Читать дальше...   )Производство: США, Flight 33 Productions, LLC, History ChannelЖанр: Документальный, фантастика, постапокалипсисРежиссер: Джим Хенс, Дуглас Коэн, Фрэнк Коза, Луис Тарантино, Джеймс Грант ГолдинПеревод: Двуголосый закадровый, профессиональныйСубтитры: Болгарские (кроме 8 серии)Продолжительность: серии x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68E549D939899BB7435C6D29C61B9E2638BD355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362676   (947726) от 24.02.2020
-
-Три секунды / The Informer (2019) BDRip
+До первого снега / First Snow (2006) DVD9
 
 >>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947726.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_99452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Три секунды — время полета пули, выпущенной из снайперской винтовки с расстояния 1 500 метров. Именно столько времени остается, чтобы принять решение информатору Федерального Бюро Расследований, оказавшемуся в смертельной ловушке между мафией, полицией и ФБР. На кону — его семья, свобода, жизнь.Производство: Великобритания / thefyzz, Thunder Road PicturesЖанр: Триллер, Криминал, БоевикРежиссер: Андреа Ди СтефаноАктеры: Ана де Армас, Розамунд Пайк, Юэль Киннаман, Клайв Оуэн, Коммон, Рут Брэдли, Сэм Спруэлл, Мартин МакКанн, Артуро Кастро, Насир Джама, Дженна УиллисПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:53:26
+Пока чинили машину Джимми, так некстати сломавшуюся посреди дороги, он, чтобы скоротать время, решил зайти к старику-предсказателю. От него Джимми узнал, что вскоре дела его пойдут в гору, а самому ему суждено умереть - сразу после того, как выпадет первый снег. Джимми не воспринял слова старика всерьез, но каково же было его смятение, когда предсказания начали сбываться! (   Читать дальше...   )Производство: СШАЖанр: Триллер, драмаПеревод: Профессиональный (многоголосный, закадровый)Субтитры: РусскиеФормат: DVD9Продолжительность: 01:37:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5308537FB6690051B974ABD46D82EF9907F328B2
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481728   (99451) от 12.04.2012
+
+VA - Milchbar Seaside Season 4 Compiled by Blank & Jones (2012) [MP3|320 кб/с]<Electronic, Downtempo, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones with Til Schweiger - Sonnenuntergang
+02. Blue Six - Aquarian Angel
+03. Chicane - Low Sun
+04. Josete Ordonez - Piedras y Rosas (Blank & Jones Balearic Chill Remix)
+05. Nikonn - Sunday
+06. Bliss - Blissful Moment
+07. Cantoma - Katja
+08. Blank & Jones with Mike Francis - Survivor
+09. Afterlife - Smooch
+10. sinan mercenk - He Say (Blank & Jones Smooth & Chilled Revisit)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAA8F6F7F282F8435318D928933226B05D8351B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479762   (99449) от 12.04.2012
+
+Последняя охота / The Last Hunt (1956) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой Роберта Тэйлора — Чарли Гилсон — удачливый и быстрый охотник, которому все дается очень легко. А вот Сэнди МакКензи наоборот, слишком скрытен и медлителен, что никак не дает ему встать на ноги.
+И вот однажды они решают объединиться для Большой Охоты на бизонов. В их компанию также попадают старый одноногий скорняк по прозвищу Лесная Лапа и полукровка-индеец Джимми, совсем еще мальчишка.
+Никто из компании пока не знал, что Чарли Гилсон, который когда-то сражался на войне, да и теперь подобрал себе исключительно кровавую работенку — отстреливать довольно безобидных бизонов — просто одержим жаждой смерти и убийства.Жанр: Вестерн, боевик, приключенияРежиссер: Ричард БруксАктеры: Роберт Тэйлор, Стюарт Грэйнджер, Ллойд Нолан, Дебра Пейджит, Расс Тэмблин, Констанс Форд, Джо Де Сантис, Эйнсли Прайор, Ралф Муди, Фред Грэм, Эд ЛонехиллПеревод: Многоголосый закадровыйПродолжительность: 01:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EFC40C5DFBDC2E14906644E9677606B809EA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481627   (99448) от 12.04.2012
+
+Brainville (P) [En] 2012
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99448.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе назревает кризис и чтобы его предотвратить, вы должны заработать деньги. В вашем распоряжении целый город, в котором постоянно открываются интересные виды деятельности. Выберите себе подходящую работу и приступайте...(   Читать дальше...   )Тип издания: ПираткаЖанр: Аркада, Казуальная, Бизнес-симуляторЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8C79B25FD335BD5ED18E0191E61F076972475F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481850   (99446) от 12.04.2012
+
+Журнал | Клуб с компьютером на ты плюс №5 [апрель 2012] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клуб с компьютером на ты плюс - это журнал для тех, кто хочет оставаться в курсе последних компьютерных инноваций, повышать уровень своих знаний на уровне пользователя ПК. Издание рассчитано, прежде всего, на тех, кто интересуется компьютерами, но не обладает пока высоким уровнем подготовки.апрель 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528A94EFD735D4720EF83A9EFF74FB2288181670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481701   (99444) от 12.04.2012
+
+Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only If for a Night
+02. Drumming Song
+03. Cosmic Love
+04. Breaking Down
+05. Never Let Me Go
+06. Try a Little Tenderness
+07. No Light, No Light
+08. Jackson (feat. Josh Homme)
+09. What the Water Gave Me
+10. Dog Days Are Over(   Читать дальше...   )Жанр: Acoustic, Indie-PopПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C35ACF7C228D1EA497EB84E8F9C0B40B04F6690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481905   (99439) от 12.04.2012
+
+HostsMan 4.0.84 Beta5 & Portable [ENG]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_99439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Небольшая программа для редактирования и настройки конфигурационного файла hosts.
+HostsMan позволяет производить следующие действия с этим файлом:
+- обновление через интернет и автоматическое обновление;
+- включать и отключать использование этого файла;
+- совмещать два файла hosts;
+- редактировать;
+- сканировать файл на ошибки, одинаковые записи;
+- отображать количество записей;
+- создавать шифрованную резервную копию файла;(   Читать дальше...   )Название программы: HostsManЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481774   (99436) от 12.04.2012
+
+Carmen Maria Vega - Du Chaos Naissent Les Etoiles (2012) [MP3|320 кб/с]<French Chanson, French Pop, Female Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La marquise
+02 - On s'en fout
+03 - Sans rien
+04 - Le soldat
+05 - Nan nan
+06 - Country
+07 - Miiaou
+08 - Au mariage de Christine
+09 - Invite chez moi
+10 - Singe savant(   Читать дальше...   )Жанр: French Chanson, French Pop, Female VocalПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA233DC01781FD3FBDDE0AC1B46B634CCFE841A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481522   (99435) от 12.04.2012
+
+Чуткий сон / Light Sleeper (1992) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_99435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший наркоман Джон ЛеТур уже три года как завязал, но продолжает работать наркокурьером на предприимчивую дамочку. Однако встреча с бывшей женой Марианной заставляет Джона пересмотреть свой образ жизни, и ЛеТур, руководствуясь этим неясным знаком судьбы, совершает отчаянную попытку выбраться со дна.Производство: СШАЖанр: Драма, криминалПеревод: Профессиональный (многоголосный, закадровый)Субтитры: РусскиеФормат: DVD9Продолжительность: 01:38:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481714   (99433) от 12.04.2012
+
+VA - Mojo Presents - Sticky Soul Fingers - A Rolling Stones Tribute (2012) [MP3|320 кб/с]<Funk, Soul, Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice Russell – Brown Sugar
+02. Black Joe Lewis & the Honeybears – Sway
+03. Sharon Jones & the Dap-Kings – Wild Horses
+04. The Bamboos – Can’t You Hear Me Knocking
+05. Naomi Shelton & the Gospel Queens- You Gotta Move
+06. The Sugarman 3 – Bitch
+07. Aloe Blacc & Joel Van Dijk – I Got the Blues
+08. Ren Harvieu – Sister Morphine
+09. Anthony Joseph & the Spasm Band – Dead Flowers
+10. Lee Fields – Moonlight Mile(   Читать дальше...   )Жанр: Funk, Soul, RockПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C6684C36819FF5126D26E89844DD7C01BC4299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481624   (99431) от 12.04.2012
+
+Даниэль Пеннак | Собака Пес [2010] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99431.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом мире, где несчастных собак постоянно подстерегают опасности: падающие холодильники, ревущие автомобили, ловцы бродячих животных и просто злые люди, выжить - уже большое дело. Но просто выжить – этого мало. У каждой настоящей собаки есть в жизни главная цель. Маленький пес, герой этой книги, пройдет долгий путь от свалки под Ниццей до парижской квартиры, прежде чем достигнет этой цели – воспитает себе настоящего друга. Об этом – фантастическая и одновременно правдивая история, рассказанная французским писателем Даниэлем Пеннаком. Одно из наиболее значимых произведений современной франкоязычной литературы для детей, повесть "Собака Пес" рекомендована для чтения в школе Министерствами образования Франции, Швейцарии, Бельгии и Канады.Жанр: Сказка
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7D7BF076B342ED3FF46328A0ED3446E5E53ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481952   (99430) от 12.04.2012
+
+Alcohol 52% 2.0.2 Build 3929 [Мульти, есть русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_99430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alcohol 52% - широко известная программа для эмуляции CD/DVD приводов, которая позволяет создавать точные копии дисков и загружать их в виртуальные накопители. Бесплатная версия приложения позволяет создать 6 виртуальных накопителей, каждый из которых может работать с образами дисков на скорости 200x. Поддерживается большое количество разнообразных форматов образов дисков: MDS, CCD, BIN, CUE, ISO, NRG, CDI, BWT и другие, возможна регистрация пользовательских расширений файлов-образов. Программа будет полезна всем, кому часто приходится вставлять и вынимать различные CD/DVD диски. С её помощью можно разместить все часто используемые носители в виде образов на жёстком диске вашего компьютера.Название программы: Alcohol 52%Язык интерфейса: Мульти, есть русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481924   (99429) от 12.04.2012
+
+Одесса-сентиментальное путешествие (2004) DVDRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как, вы не были в Одессе! Смотрите фильм Леонида Якубовича об Одессе, ее истории, архитектуре, легендах и,конечно, о людях - современных и знаменитыхЖанр: Авторское киноРежиссер: Леонид ЯкубовичПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C7123F3A89AAF9942C134D7DCC8FD6C7C36539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481897   (99427) от 12.04.2012
+
+Валентина Пашинина | Неизвестный Есенин [2007] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99427.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Неизвестный Есенин» — третье, исправленное и дополненное издание книги Валентины Пашининой. Такого Есенина, каким он предстает на ее страницах, мы действительно не знали. По-новому осмыслены многие факты жизни великого русского поэта, доказано авторство «Послания евангелисту Демьяну», которое сберегли и сохранили политзаключенные Ухтпечлага, среди которых был и Василий Петрович Надеждин, передавший стихотворение автору этой книги, за что ему — особая благодарность. Основываясь на огромном фактическом материале, как опубликованном, так и практически неизвестном широкому кругу читателей, B.C. Пашинина предлагает свой взгляд на многие события в жизни поэта, а также обстоятельства его трагической гибели. Впервые биография Сергея Есенина развернута на динамичном фоне истории России, а не ограничена тесными стенами скандального кафе «Стойло Пегаса». Книга рассчитана на широкий круг читателей, представляет несомненный интерес для тех, кто глубоко интересуется творчеством и судьбой любимейшего поэта России.2007Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE88649CB98C0A450BE55BFBA0446680EBB9D601
 ```
 
 https://mybot314.ru/tekegram_catalog/

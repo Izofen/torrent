@@ -1,22 +1,25 @@
-###  Публикация: 297403   (881013) от 21.02.2011
+###  Публикация: 1707180   (113447) от 15.03.2024
 
-Arthur Rubinstein: The Chopin Collection (1991) [APE (image+.cue)|Lossless]<Classical/Concerto/Piano>
+VA - Relaxing Classical Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Classical/Concerto/PianoПродолжительность: 01:10:27
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)
+02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata - I. Adagio sostenuto (5:43)
+03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+04. Misha Fomin - 12 Etudes, Op. 10 - No. 3 in E Major (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:12:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22D79E24D024E1D1C98921C942A0D5FC67D9CA5A
+magnet:?xt=urn:btih:84791F48CBC0EA5501E53B986CD99CF4B8C80CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 995262   (886125) от 10.03.2016
+###  Публикация: 1707079   (113444) от 15.03.2024
 
-Sviatoslav Richter - Beethoven Piano Sonatas № 8, 23, 8 Bagatelles, Choral Fantasy (Melodiya Edition Vol.2) (2003) [FLAC|Lossless|image + .cue] <Classical, Chamber Music>
+VA - Classical Music Piano Solo (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886125.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Соната для фортепиано №8 до минор соч.13 "Патетическая"
-01. Piano Sonata No.8 in C minor, Op.13 - Grave, Allegro di molto e con brio
-02. Piano Sonata No.8 in C minor, Op.13 - Adagio cantabile
-03. Piano Sonata No.8 in C minor, Op.13 - AllegroЖанр: Classical, Chamber MusicПродолжительность: 01:19:37
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata - I. Adagio sostenuto (5:43)
+03. Sergey Bryukhno - Sonnet in C Major (1:25)
+04. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:40:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEF3529563D9C8E6561DC057CF8E93D56C0328FB
+magnet:?xt=urn:btih:E37EA9F53378DCCBCD14D14A6CCECBE03023FC8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 995214   (886143) от 10.03.2016
+###  Публикация: 1707595   (113290) от 17.03.2024
 
-Klara Min - Scriabin: Piano Works (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+VA - Calm Piano Study Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886143.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 3 Pieces, Op. 2 - 3 Pieces, Op. 2: No. 2. Prelude (1:08)
-02. 2 Impromptus, Op. 14 - No. 1 in B Major (3:24)
-03. 2 Impromptus, Op. 14 - No. 2 in F-Sharp Minor (5:01)
-04. 3 Pieces, Op. 45 - No. 1. Feuillet d'Album (1:44)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:02:42
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)
+02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata - I. Adagio sostenuto (5:43)
+03. Misha Fomin - 12 Etudes, Op. 10 - No. 3 in E Major (4:16)
+04. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:19:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBF9F47DACE6C74D65514BBC6B0F7DB29DCFA720
+magnet:?xt=urn:btih:93B776B8628C03C81CACB63A26CF7101FBF019BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,29 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 869682   (887845) от 17.02.2015
+###  Публикация: 1708457   (113101) от 20.03.2024
 
-J.S. Bach - Brandenburische Konzerte BWV 1046-1051 (Piano Duo Trenkner - Speidel) (1996) [FLAC|Lossless]<Classical, Chamber Music, Recitals, Baroque Period, Concerto, Suite, Prelude, Overture, Fug
+VA - Calming Piano Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Brandenburg Concerto No.4 in G major, BWV 1049
-01. Allegro (07:00)
-02. Andante (04:20)
-03. Presto (05:04)
-Brandenburg Concerto No.5 in D major, BWV 1050(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Baroque Period, Concerto, Suite, Prelude, Overture, Fugue, Toccata, PassacagliaПродолжительность: 01:44:37
+01. Sergey Bryukhno - Sonnet in C Major (1:25)
+02. Katya Kramer-Lapin - The Well-Tempered Clavier - Book 1, BWV 846-869 - I. Prelude in C Major, BWV 846 (2:05)
+03. Katya Kramer-Lapin - Romance in E-Flat Major (Version for Piano) (3:09)
+04. Katya Kramer-Lapin - Menuet in G Major (From Notebook for Anna Magdalena Bach, Klavierbüchlein von 1725, BWV Anh. 114)Жанр: ClassicalПродолжительность: 01:00:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1983B4DC9B8E1CED3E800DECFCA512C837796FDA
+magnet:?xt=urn:btih:4B275BD411A79D76F31B5A73ED4C6D952C0D0243
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,29 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 869412   (891274) от 15.02.2015
+###  Публикация: 1712214   (112215) от 02.04.2024
 
-Grieg - Lyric Pieces (Daniel Adni) (1995) [FLAC|Lossless]<Classical, Romantic Period, Chamber Music, Recitals, Character Piece, Dance, Waltz, March, Nocturne, Lullaby, Elegy, Piece, Canon, Song  ...
+VA - Soothing Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Book VI, op.57
-01. She Dances (02:47)
-02. Home sickness (03:50)
-Book VII, op.62
-03. Sylph (01:35)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Recitals, Character Piece, Dance, Waltz, March, Nocturne, Lullaby, Elegy, Piece, Canon, Song Without WordsПродолжительность: 01:17:19
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)
+02. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 - II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryukhno) (4:38)
+03. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight - I. Adagio sostenuto (5:28)
+04. Sergey Bryukhno (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:46:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:879AF59D047AC40927CD10FFB1030D7112A731E0
+magnet:?xt=urn:btih:6855DCEEE337D069E619C9FCE31A97999503A321
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,29 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 992403   (900289) от 02.03.2016
+###  Публикация: 1712876   (112039) от 04.04.2024
 
-VA - Great Pianists of the 20th Century: The Complete Edition (1998 - 1999) Box Set, 202 CD [FLAC|Lossless|tracks + .cue] <Classical, Piano>
+VA - Peaceful Piano Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900289.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На нашем трекере катастрофически не хватало релизов такого наиболее популярного инструмента классической музыки, каким является пианино. Гений фирмы Philips сегодня восполнит этот пробел.
-Действительно Великие пианисты собраны в этом поистине великолепном издании "Великие Пианисты 20-го века". Поверите - двести дисков? А вы наверняка думали, что такое издание (   Читать дальше...   )Box 000 - Sampler
-Box 001 - Geza Anda
-Box 002 - Martha Argerich I
-Box 003 - Martha Argerich II(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 244:56:30
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)
+03. Sergey Bryukhno - Sonnet in C Major (1:25)
+04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata - I. Adagio sostenuto (5:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:04:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2147736657A2FDC0765D9DB52506CDF4F1983A6B
+magnet:?xt=urn:btih:BF62763859EDC1D6BC57C47FAFD3E4E1BD4F7237
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 992227   (900649) от 02.03.2016
+###  Публикация: 1713861   (111835) от 07.04.2024
 
-Debussy & Ravel - Monique Haas (2007) 6CD Box Set [FLAC|Lossless|tracks + .cue] <Classical>
+VA - Piano Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900649.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Danse Bohemienne (1:55)
-02. Deux Arabesques: No.1 (3:49)
-03. Arabesque No.2 (3:38)
-04. Reverie (4:27)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:11:32
+01. Glenn Natale - The Unseen (1:59)
+02. Erjos - Interlude (1:53)
+03. Dario Crisman - Waves on Sand (3:04)
+04. Joaqino Bianco - Fly with Me (2:39)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:29:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD0855311769D6A6821AB67B13F324537953FA19
+magnet:?xt=urn:btih:6375EB5494F96DF4EB763D035BB9D1AC27049DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,29 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 991780   (904032) от 29.02.2016
+###  Публикация: 1713904   (111801) от 07.04.2024
 
-Pascal Roge - Debussy: Clair de lune (1978 - 1981) VIRTUOSO, 2013, Decca [FLAC|Lossless|tracks + .cue] <Classical, Piano>
+VA - Lush Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904032.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Suite bergamasque, состоящая из четырех частей, является одним из самых известных фортепианных сюит французского композитора Клода Дебюсси. Мелодии сюиты навеяны неуклюжими деревенскими танцами, которые присущи уроженцам Бергамо в Италии. Жители этого городка слыли очень неловкими и их манеры и танец Bergomask ассоциируется с клоунами или шутовством.
-Самой известной (   Читать дальше...   )01. Clair de lune (Suite bergamasque)  (5:34)
-02. La fille aux cheveux de lin (Preludes - Book 1)  (2:30)
-03. La cathedrale engloutie (Preludes - Book 1)  (6:29)
-04. Minstrels (Preludes - Book 1)  (2:19)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:19:21
+01. Jakub Szybiak - Unveiled Light (2:55)
+02. William Thomson - Waiting for the Dawn (2:59)
+03. Joaqino Bianco - A New Morning (2:45)
+04. Dario Crisman - If We Could (2:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:39:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1DDF113A246D0FF840258BDC8D950ADB611CD4B
+magnet:?xt=urn:btih:3940EB7C6670C311C731316EFBA54C964103A009
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -231,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096205   (920630) от 23.01.2017
+###  Публикация: 1718718   (110856) от 26.04.2024
 
-Holly Bowling - Better Left Unsung (2016) [FLAC|Lossless|tracks] <Piano, Classical, Jazz>
+VA - Classical Piano Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920630.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01|  Help On the Way > Slipknot!  (06:21) 
-02|  Franklin's Tower  (03:52) 
-03|  Cassidy  (07:10) 
-04|  Bird Song  (06:34) (   Читать дальше...   )Жанр: Piano, Classical, JazzПродолжительность: 02:03:59
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Sergey Bryukhno - Sonnet in C Major (1:25)
+03. Katya Kramer-Lapin - Pavane, Op. 50 (Arr. for Piano by Chris Sennett) (5:35)
+04. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:32:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:683F191AE300523031C51E5D83F89ED3562E065D
+magnet:?xt=urn:btih:EF4D4C15E33BBE5CF61265C50C2C0B50E8F77B45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,34 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 861039   (934493) от 20.01.2015
+###  Публикация: 1720223   (110396) от 02.05.2024
 
-Schubert - "Wanderer - Fantasie", Piano Sonata D 845: Maurizio Pollini (1987) [FLAC|Lossless]<Classical, Romantic Period, Chamber Music, Recitals, Sonata, Fantasy>
+VA - Great Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fantasia for piano in C major ("Wanderer"), D. 760 (Op. 15)
-01. Allegro con fuoco ma non troppo (06:26)
-02. Adagio (06:37)
-03. Presto (04:49)
-04. Allegro (03:58)
-Piano Sonata No. 16 in A minor, D. 845 (Op. 42)
-05. Moderato (12:12)
-06. Andante, Poco Moto (12:11)
-07. Scherzo. Allegro Vivace-Trio.  Un poco più lento (06:50)
-08. Rondo. Allegro Vivace (05:16)Жанр: Classical, Romantic Period, Chamber Music, Recitals, Sonata, FantasyПродолжительность: 00:58:19
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+02. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryukhno) (4:38)
+03. Katya Kramer-Lapin - 24 Préludes, Op. 28 No. 4 in E-Minor (2:53)
+04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:00:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30F80D183560EE835765C653C3E88F59E98DA3C1
+magnet:?xt=urn:btih:CC7E511031805F8DA7314CC9A2A67AC79CE478C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,30 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 861034   (934632) от 20.01.2015
+###  Публикация: 1721269   (109822) от 10.05.2024
 
-Chopin - Polonaises, Nocturnes, Mazurkas: Janusz Olejniczak (2009) [FLAC|Lossless]<Classical, Romantic Period, Concerto, Polonaises>
+Architects (UK) - Unmasking My Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nocturne in C minor, Op.48 No.1 (07:08)
-02. Polonaise in F-sharp minor, Op.44 (12:06)
-03. Nocturne in B major, Op.62 No.1 (07:54)
-04. Mazurka in A-flat major, Op.17 No.3 (05:32)
-05. Mazurka in B minor, Op.30 No.2 (01:28)
-06. Polonaise in A major, Op.40 No.1Жанр: Classical, Romantic Period, Concerto, PolonaisesПродолжительность: 01:02:11
+01. Unmasking My Truth [00:01:39]
+02. Symphony of Self-Discovery [00:01:51]
+03. Unwritten Chapters [00:01:46]
+04. Becoming Who I'm Meant To Be [00:01:39](   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 00:13:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:049B51811044710378EAAEF730AF845AECA8FA3C
+magnet:?xt=urn:btih:2422B90C345E23E987E2A504DADB26C46A9B3085
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,25 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 858860   (944534) от 14.01.2015
+###  Публикация: 1782560   (69997) от 01.03.2025
 
-Chopin - Variations, Mazurkas, Rondos (Tatiana Shebanova) (2010) [FLAC|Lossless]<Classical, Romantic Period, Chamber Music, Recitals, Variations, Rondo, Mazurka, Fugue, March, Polonaise, Waltz>
+VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Classical, Romantic Period, Chamber Music, Recitals, Variations, Rondo, Mazurka, Fugue, March, Polonaise, WaltzПродолжительность: 01:17:06
+01. Sergey Bryukhno - Beyond (1:35)
+02. Sergey Bryukhno - 3 Gymnopédies No. 1, Lent et douloureux (2:53)
+03. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+04. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:28)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:41:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F626D8CE0476BBE86AAEA9F467C1D96D88075C12
+magnet:?xt=urn:btih:D7D79E356A61BAF99369F7759FD27512614A6D27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -352,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090830   (945700) от 07.01.2017
+###  Публикация: 1707359   (62753) от 16.03.2024
 
-Erik Satie performed by Pascal Rogé - 3 Gymnopédies & Other Piano Works (1984) [FLAC|Lossless|tracks+.cue] <Classical>
+VA - Dark Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945700.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gymnopedie No. 1 (03:11)
-02. Gymnopedie No. 2 (02:33)
-03. Gymnopedie No. 3 (02:36)
-04. Je Te Veux (05:14)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:00:44
+01. Sergey Bryukhno - Let Go of the Past and Sleep Calm (1:45)
+02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata - I. Adagio sostenuto (5:43)
+03. Katya Kramer-Lapin - Gnossienne No. 1 (2:46)
+04. Vladislav Mikhalchuk - 12 Etudes, Op. 25 - No. 12 in C Minor Ocean (2:32)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:40:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8A9407E2B376920E5EC95328694855A1FC2FCFE
+magnet:?xt=urn:btih:34C7F8D66A03DE063E92D082A7B8145F593399F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -381,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088962   (953584) от 02.01.2017
+###  Публикация: 1707942   (62567) от 18.03.2024
 
-Vitalij Margulis / Виталий Маргулис - Frederic Chopin / Фредерик Шопен — Nocturnes / Ноктюрны (1994) [APE|Lossless|image + .cue] <Classical>
+VA - Легкая музыка (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953584.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nocturne № 1 b-moll Op 9/1
-02. Nocturne № 2 Es-Dur Op 9/2
-03. Nocturne № 4 F-Dur Op 15/1
-04. Nocturne № 5 Fis-Dur Op 15/2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:16
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Christina Grigoryants - Folkloric (4:09)
+03. Sergey Bryukhno - When the Stars Are Shining (1:25)
+04. Matvey Lapin - Melody in A Minor (From The High Pass) (3:23)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:27:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4546C1506A9C290C96CC4CFB25FDEA2819EAD212
+magnet:?xt=urn:btih:6558099A91551E38503366B41C14F1EC9330F202
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -410,34 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 615985   (974802) от 10.02.2013
+###  Публикация: 1720009   (57951) от 01.05.2024
 
-Jie Chen - Chinese Piano Favourites (2007) [FLAC|Lossless]<Classical Instrumental>
+VA - Deep Sleep Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974802.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tang Bi-guang (arr. Wang Jian-zhong): Liu Yang River [03:56]
-02. Trad. (arr. Wang Jian-zhong): A Hundred Birds Paying Respect to the Phoenix [05:57]
-03. Ren Guang (arr. Wang Jian-zhong): Silver Clouds Chasing the Moon [03:17]
-04. Trad. (arr. Li Ying-hai): Flute and Drum at Sunset [08:31]
-05. Lu Wen-cheng (arr. Chen Pei-xun): Autumn Moon Over the Calm Lake [04:04]
-06. Trad. (arr. Wang Jian-zhong): Glowing Red Morningstar Lilies [05:09]
-07. Hua Yan-jun (arr. Chu Wang-hua): The Second Spring Bathed in Moonlight [07:46]
-08. Zhu Jian-er (arr. Chu Wang-hua): Celebrating Our New Life [02:06]
-Ding Shan-de: Children's Suite
-09. I. Going to the Suburb [01:29](   Читать дальше...   )Жанр: Classical InstrumentalПродолжительность: 01:06:25
+01. Sergey Bryukhno - Sonnet in C Major (1:25)
+02. Jonathan Yandel - Dawn (2:27)
+03. Sergey Bryukhno - Hope (1:29)
+04. Sergey Bryukhno - Passing Through the Memories (1:37)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:212088637B3830307AE779DB2F5127D4EB857567
+magnet:?xt=urn:btih:2660FCFC3C276C20577A10608585237A067A26FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973590   (978946) от 09.01.2016
+###  Публикация: 1730364   (53193) от 15.06.2024
 
-Chopin - The Nocturnes (Maria Joao Pires)(2CDs) (1996) [FLAC|Lossless|image + .cue] <Classical, Recitals, Romantic Period, Chamber Music, Nocturne>
+VA - Mozart: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978946.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nocturne No. 11 in G minor, Op. 37 - I - Andante sostenuto (05:47)
-02. Nocturne No. 12 in G Major, Op. 37 - II - Andantino (05:57)
-03. Nocturne No. 13 in C minor, Op. 48 - I - Lento (06:45)
-04. Nocturne No. 14 in F sharp minor, Op. 48 - II - Andantino (07:18)(   Читать дальше...   )Жанр: Classical, Recitals, Romantic Period, Chamber Music, NocturneПродолжительность: 01:49:11
+01. Katya Kramer-Lapin - Piano Sonata No. 16 in C Major, K. 545 Sonata semplice - I. Allegro (3:08)
+02. Katya Kramer-Lapin - 2 Transcriptions on Themes from Mozart's Requiem, S. 550 - No. 2, Lacrymosa (3:36)
+03. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, K. 331╱300i - I. Andante grazioso (2:15)
+04. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4A6CF46D8BC7009B7DF0CF1528A67B0AC2274CD
+magnet:?xt=urn:btih:7239D9197A716CA7CDE730CEC9CCFC2995485A67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,34 +462,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 739931   (981786) от 04.01.2014
+###  Публикация: 1732073   (52203) от 24.06.2024
 
-Beethoven - Piano Sonatas 8, 14, 15, 17, 21, 23, 26: Wilhelm Backhaus [2 CD] (2002) [FLAC|Lossless]<Classical, Sonata, Classicism, Классическая музыка>
+Mozart - Complete Piano Sonatas (2014) (Михаил Воскресенский) [FLAC|Lossless|tracks] <Classical, Piano, Sonata>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-Piano Sonata no. 8 in C minor, op. 13 'Pathetique'
-01 (1) Grave - Allegro di molto e con brio
-02 (2) Adagio cantabile
-03 (3) Rondo. Allegro
-Piano Sonata no. 14 in C-sharp minor, op. 27 nr. 2 'Moonlight'
-04 (1) Adagio sonstenuto - attacca
-05 (2) Allegretto & Trio
-06 (3) Presto agitato
-Piano Sonata no. 23 in F minor, op. 57 'Appassionata'(   Читать дальше...   )Жанр: Classical, Sonata, Classicism, Классическая музыкаПродолжительность: 01:01:58
+CD1:Жанр: Classical, Piano, SonataПродолжительность: 05:44:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67EB8DEF5DB3C1732F69AD2F636CF38AC600B376
+magnet:?xt=urn:btih:0DEE65386C66151E0281A3E0FEA7BCB967336643
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 165095   (984124) от 09.01.2010
+###  Публикация: 1741375   (47635) от 06.08.2024
 
-Van Cliburn - My Favorite Brahms (1999) [FLAC|Lossless]<Classical>
+VA - Famous Piano Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Piano>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47635.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: ClassicalПродолжительность: 01:15:20
+01. Ludovico Einaudi - Nuvole Bianche (5:57)
+02. Yiruma - River Flows In You (3:30)
+03. Lang Lang - I. Prelude (2:19)
+04. Maurizio Pollini - Nocturne No. 2 In E Flat, Op. 9 No. 2 (4:06)(   Читать дальше...   )Жанр: Classical, Instrumental, PianoПродолжительность: 03:13:41
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2AA96CAA99424196343041EBE1246D9A45663669
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,34 +517,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610678   (989998) от 29.01.2013
+###  Публикация: 1742344   (47126) от 11.08.2024
 
-Pyotr Ilyich Tchaikovsky - The Seasons (2000) [FLAC|Lossless]<Classic>
+VA - Piano Music One Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989998.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Meditation, op.72 no.5
-02. Polka peu dansante, op.51 no.2
-03. Aveu passione
-04. Tendres Peproches, op.72 no.3
-05. Berceuse, op.72 no.3
-
- Les Saisons, op.37a (The Seasons)
-
-06. January: At the fireside
-07. February: Carnival(   Читать дальше...   )Жанр: ClassicПродолжительность: 01:06:42
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)
+03. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 - II. Largo (2:46)
+04. Katya Kramer-Lapin - The Well-Tempered Clavier - Book 1, BWV 846-869 - I. Prelude in C Major, BWV 846 (2:05)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:08:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D043A20286FD267242096BB1CEEB4442CB2228C6
+magnet:?xt=urn:btih:2BCB3F69B68EB87CB9A9C63A65601C8E7310BBDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,28 +546,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 162380   (990860) от 02.01.2010
+###  Публикация: 1743117   (46799) от 14.08.2024
 
-Рахманинов - Концерты для фортепиано №2, №3 (1929) в исполнении автора [FLAC|Lossless] <Classical>
+VA - The Essentials: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
->>След.
+>>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990860.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Rachmaninov Piano Concerto No 2 in C minor, Op 18 - 1 Moderato - Allegro
-2. Rachmaninov Piano Concerto No 2 in C minor, Op 18 - 2 Adagio sostenuto
-3. Rachmaninov Piano Concerto No 2 in C minor, Op 18 - 3 Allegro scherzando
-4. Rachmaninov Piano Concerto No 3 in D minor, Op 30 - 1 Allegro ma non tanto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:05:07
+01. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+02. Misha Fomin - 3 Nocturnes, Op. 9 No. 2 in E-Flat Major (4:22)
+03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+04. Sergey Bryukhno - Sonnet in C Major (1:25)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:41:03
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7AE7CB0E4616B63C16FA44CBDEB7ABB400948A07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,28 +575,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350729   (1002927) от 07.01.2020
+###  Публикация: 1747408   (44496) от 05.09.2024
 
-Sofiane Pamart - PLANET (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
+VA - Chopin: Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002927.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. La Havane (3:06)
- 02. Le Caire (3:27)
- 03. Seoul (3:32)
- 04. Bora Bora (2:10)(   Читать дальше...   )Жанр: Modern Classical, Solo PianoПродолжительность: 00:43:05
+01. Katya Kramer-Lapin - 24 Préludes, Op. 28 No. 4 in E-Minor (2:53)
+02. Misha Fomin - 12 Etudes, Op. 10 No. 1 in C Major (2:08)
+03. Misha Fomin - 12 Etudes, Op. 10 No. 6 in E-Flat Minor (3:26)
+04. Misha Fomin - 12 Etudes, Op. 10 No. 9 in F Minor (2:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:33:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEAEB646990DEC9747BCC7DC03736642ECFEC50A
+magnet:?xt=urn:btih:C70C12448A103FEC737BCE77141AAD463F75074E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,28 +604,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486953   (1004323) от 02.08.2021
+###  Публикация: 1748293   (44104) от 09.09.2024
 
-Lola Astanova - The Popular Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Romantic>
+VA - 50 Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004323.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mariage D'amour (3:29)
- 02. Passacaglia (2:43)
- 03. River Flows in You (4:06)
- 04. G Minor Bach (3:30)(   Читать дальше...   )Жанр: Modern Classical, Piano, RomanticПродолжительность: 00:38:15
+01. Finghin Collins - Suite bergamasque, L. 75 III. Clair de lune (5:13)
+02. Henrik Måwe - Goldberg Variations, BWV 988 Aria (4:51)
+03. Finghin Collins - Bagatelle in A Minor, WoO 59 Für Elise (3:16)
+04. Finghin Collins - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:46:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:207E1911E55AF5EA83B897F103C480B31A16D6F0
+magnet:?xt=urn:btih:7F7E09CA21F168119EAFED5703C1E97A19C362F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478376   (1010321) от 19.06.2021
+###  Публикация: 1750897   (42724) от 22.09.2024
 
-Giacomo Scinardo - Yiruma: Piano Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+VA - Classical Piano Masters (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010321.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. River Flows in You
-02. Kiss the Rain
-03. Wait There
-04. Mika’s Song(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:03
+01. Axel Gillison - 3 Gymnopédies No. 1, Lent et douloureux (3:52)
+02. Henrik Måwe - Nocturnes, Op. 9 No. 2 in E-Flat Major. Andante (4:07)
+03. Axel Gillison - Suite Bergamasque, L. 75 III. Clair de lune (5:56)
+04. Henrik Måwe - Gnossiennes No. 1, Lent (3:08)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:33:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06D1D504D41D19589912B1280414A3686456FD07
+magnet:?xt=urn:btih:7DFEB8DC50EF5182C643B6D1871507A7A0ECA9E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,28 +662,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468551   (1015782) от 16.05.2021
+###  Публикация: 1755603   (40159) от 16.10.2024
 
-Русская фортепианная школа - Генрих Нейгауз (2002) [FLAC|Lossless|image + .cue] <Instrumental, Piano>
+Anastasia Calmus - Revelations (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015782.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Моцарт :
-01. Рондо ля мажор (8:42)
-
-Соната для двух фортепиано ре мажор:*(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:15:43
+01. Sì dolce è'l tormento, SV 332 (Transcr. for Piano by Vyacheslav Gryaznov) (3:07)
+02. Sonata in C Major, Kk. 159 La caccia (2:29)
+03. Keyboard Sonata in D Minor, Kk. 1 (2:22)
+04. Keyboard Sonata in A Major, Kk. 208 (4:34)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:43:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B36581F55E0A4C3144F1C50F544325DC6ECFDF0F
+magnet:?xt=urn:btih:0A63A31AF6D69E0B30950A4BD0F018D796BD685B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,28 +691,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469721   (1016289) от 13.05.2021
+###  Публикация: 1766008   (34084) от 15.12.2024
 
-Святослав Рихтер - Бетховен - 33 вариации на вальс Диабелли (1994) [FLAC|Lossless|image + .cue] <Chamber, Instrumental, Piano>
+VA - Great Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016289.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tema. Vivace (0:53)
-02. Var. 1. Alla marcia maestoso (2:25)
-03. Var. 2. Poco allegro (0:56)
-04. Var. 3. L'istesso tempo (1:20)(   Читать дальше...   )Жанр: Chamber, Instrumental, PianoПродолжительность: 00:52:09
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+02. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryukhno) (4:38)
+03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+04. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:34)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:10:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ABBBFD7A481F70A9C71B2D95537E6A9B589DB25
+magnet:?xt=urn:btih:C01E6D5D919676B605674294E199248A72FF9C82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -744,28 +720,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468927   (1016760) от 10.05.2021
+###  Публикация: 1774924   (29999) от 23.01.2025
 
-Maria Grinberg - Beethoven - Piano Sonatas 18, 19, 20, 21, 22 (2006) [FLAC|Lossless|tracks] <Chamber, Piano, Sonata>
+VA - Heavy Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016760.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Piano Sonata no. 18 in E-flat major, op. 31 no. 3
-01 (1) Allegro
-02 (2) Scherzo. Allegretto vivace
-03 (3) Menuetto. Moderato e grazioso(   Читать дальше...   )Жанр: Chamber, Piano, SonataПродолжительность: 01:15:21
+01. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight III. Presto agitato (8:07)
+02. Vladislav Mikhalchuk - 12 Etudes, Op. 25 No. 12 in C Minor Ocean (2:32)
+03. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. 13 Pathétique I. Grave - Allegro di molto e con brio (9:07)
+04. Misha Fomin - 12 Etudes, Op. 10 No. 12 in C Minor Revolutionary (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:06:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D0D2E8EFC1E79BA73324E2FCE873D0EBC9DCDE2
+magnet:?xt=urn:btih:02AB09EC74F17C55A9C63579AF604CADD8C56BDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

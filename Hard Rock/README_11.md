@@ -1,25 +1,25 @@
-###  Публикация: 1575506   (375380) от 10.09.2022
+###  Публикация: 901970   (662361) от 27.05.2015
 
-Taboo - Taboo (2022) [Mp3|320 kbps] <Hard Rock>
+Lucky Bastardz - Alwayz on the Run (2015) [MP3|320 кб/с]<Hard & Heavy>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375380.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Flames (4:19)
-02. Bleeding (3:35)
-03. Learning to Breathe (4:35)
-04. Demons (3:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:58
+01. Dawn of the Phoenix
+02. Fuckinsnow
+03. Back on My Feet
+04. Tiger Hostel(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:59:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0547D627634D5FE0A0BB4E16F7BEFB40E3AA7553
+magnet:?xt=urn:btih:264754149ACF35D69BF170B4C5EB33113D621749
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069045   (375659) от 03.11.2016
+###  Публикация: 1225149   (661724) от 14.05.2018
 
-Bon Jovi - This House Is Not For Sale (2016) Exclusive Target Edition [MP3|320 кб/с]<Hard Rock>
+Angel - Helluva Band (1976) Reissue, 1992, Casablanca [MP3|320 Kbps] <Hard Rock, Glam>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375659.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[03:36] 01. This House Is Not For Sale
-[04:44] 02. Living With The Ghost
-[03:30] 03. Knockout
-[05:03] 04. Labor Of Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:44
+1. Feelin' Right
+2. The Fortune
+3. Anyway You Want It
+4. Dr. Ice(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:44:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:971F3D2370F662BF50670101FDCB3916A235D337
+magnet:?xt=urn:btih:43575AC5BB885188EB18F65C2860B77CCF129750
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175871   (376120) от 19.10.2017
+###  Публикация: 513218   (661485) от 21.06.2012
 
-Europe - Walk The Earth (2017) [MP3|320 Kbps] <Hard Rock>
+Lita Ford - Living Like A Runaway (Limited Edition) (2012) [MP3|320 кб/с]<Hard-n-Heavy>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376120.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Walk The Earth
-02. The Siege
-03. Kingdom United
-04. Pictures(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:55
+Жанр: Hard-n-HeavyПродолжительность: 00:52:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B1F452B18D4927B12D13E6E9FACBC391C019DE0
+magnet:?xt=urn:btih:7873A61E0A94E086FFB4E4AA3AA1855AA4DBCDDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 573397   (377976) от 11.11.2012
+###  Публикация: 514121   (660386) от 22.06.2012
 
-VA - 5CD Rock Tributes (2006) [MP3|320 кб/с]<Rock, Southern Rock, Hard Rock>
+Black Sabbath - Dehumanizer & Paranoid (Deluxe Expanded Edition) (1970&1992) [MP3|320 кб/с]<Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377976.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Rock, Southern Rock, Hard RockПродолжительность: 04:04:54
+1970&1992Жанр: Hard RockПродолжительность: 02:57:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:594B7E35256E6AA6BF8FDA403ECF5EE4FF2C792C
+magnet:?xt=urn:btih:48AE3A4E841DBC55A4E09317D3345B7D4D0B7E4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,34 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 573751   (378682) от 11.11.2012
+###  Публикация: 903024   (659304) от 30.05.2015
 
-Crash The System - The Crowning (2009) [MP3|320 кб/с]<Melodic Hard Rock>
+Midriff - Doubts & Fears (2015) [MP3|320 кб/с]<Hard Rock, Stoner>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378682.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fight Fire With Fire
-02. All Because Of You
-03. I Still Believe In Love
-04. Love Is In Your Eyes
-05. Take A Chance
-06. Enough Of Your Lovin'
-07. Mysterious
-08. Angel Of My Heart
-09. Rolling Stone
-10. Don't Tell Me No Lies(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:48
+01. Outcry (03:55)
+02. Playing a Role (04:42)
+03. Only a Pawn (In His Game) (04:28)
+04. Long Gone (05:06)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC73664A8499EE89414171D31084C95B65615BE5
+magnet:?xt=urn:btih:9CE284052FF337547CE13980EE578D83A2BD83AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -146,28 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253870   (379183) от 11.10.2018
+###  Публикация: 903096   (659052) от 30.05.2015
 
-Nazareth - Tattooed on My Brain (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+VA - Classic Rock 211 Summer Daze  15 Hot Tracks To Welcome The New Summer Of Rock (2015) [MP3|320 кб/с]<Сlassic Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379183.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Never Dance with the Devil
-02. Tattooed on My Brain
-03. State of Emergency
-04. Rubik's Romance(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:51:55
+01. Duff McKagan - How To Be A Man
+02. The Dead Daisies - Mexico
+03. Ash - Shutdown
+04. Art Of Anarchy - Til The Dust Is GoneЖанр: Сlassic Rock, Hard RockПродолжительность: 01:08:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E4A938D777ED12A18C6EB521B5B029BABD0E213
+magnet:?xt=urn:btih:FEC7E480D3B8DBED657F92371E68454CF1B22314
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -175,28 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 641867   (379577) от 22.10.2015
+###  Публикация: 1139679   (658889) от 03.06.2017
 
-Oda - Oda (1971) [MP3|320 кб/с]<Hard Rock>
+Kiss - Kissworld: The Best of Kiss (2017) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379577.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mable  02:34
-02. Wasn't Very Long  04:24
-03. Gabriel  02:20
-04. Cheated  03:22(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
+01. Crazy Crazy Nights
+02. Rock And Roll All Nite
+03. I Was Made For Lovin’ You
+04. God Gave Rock ‘N’ Roll To You II(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF1D0C27D41642720BD233EBA88AE5B756F48AD3
+magnet:?xt=urn:btih:4C4853FA6973DFCB0335050AAA139DB3F1833A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -204,28 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415028   (381177) от 10.10.2020
+###  Публикация: 903715   (658084) от 31.05.2015
 
-Southern Gentlemen - S G Double 20 (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
+Vermillion Road - Palaces (2015) [MP3|320 кб/с]<Modern / Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381177.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aces & Eights (04:52)
- 02. Up All Night (06:35)
- 03. Tell Me Woman (03:16)
- 04. My Best Friend's Girl (07:50)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:54:08
+01. Tread On Me
+02. Revival
+03. These Lies
+04. Left Behind(   Читать дальше...   )Жанр: Modern / Hard RockПродолжительность: 00:36:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2EF62C0D99F778FADB8DA11961755F57701BF13
+magnet:?xt=urn:btih:649E2CD10738503F20F7B7F04814A8593DA73A7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,28 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068008   (382650) от 31.10.2016
+###  Публикация: 903657   (657980) от 31.05.2015
 
-Roxxie Dee - Leather Up (2016) [MP3|320 Kbps] <Hard Rock>
+Luciferian Light Orchestra - Luciferian Light Orchestra (2015) Limited Edition [MP3|320 кб/с]<Occult Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382650.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Black Wire Cadillac [03:16]
-2. Revolution [03:04]
-3. Red Dress [03:24]
-4. No Fear Tonight [03:31](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:29:25
+Группа создана лидером шведской симфо-металл группы01. Dr. Faust on Capri
+02. Church of Carmel
+03. Taste the Blood of the Altar Wine
+04. A Black Mass in Paris(   Читать дальше...   )Жанр: Occult Rock, Hard RockПродолжительность: 00:38:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05BDC76560F3870FC4F01A870E445B1CAEB6CCD9
+magnet:?xt=urn:btih:B1A4425F5D14108E93EC0E04BE989064C9EA544C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,28 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068175   (382961) от 31.10.2016
+###  Публикация: 1139271   (657917) от 04.06.2017
 
-Evolution Eden - Modern Nostalgia (2016) [MP3|320 Kbps] <Hard Rock>
+Jorn - Life on Death Road (2017) [MP3|320 Kbps] <Hard'n'Heavy>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382961.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Our Great Escape 03:30
-02. Maddest Hatter 03:14
-03. Falling in Love by the Radio Light 03:38
-04. I Ain't Missing You 03:19(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:25
+01. Life on Death Road (7:20)
+02. Hammered to the Cross (The Business) (5:29)
+03. Love Is the Remedy (4:53)
+04. Dreamwalker (4:59)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:05:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6059C523999DF66E9C4DC9F79C69EEE5E32C6441
+magnet:?xt=urn:btih:E814406D155A8652BD1E5B7E9C978D5F46AAE494
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,28 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068246   (382965) от 31.10.2016
+###  Публикация: 903718   (656984) от 01.06.2015
 
-Klee Project - The Long Way (2016) [MP3|320 Kbps] <Hard Rock>
+Shiraz Lane - Be The Slave Or Be The Change (2015) [MP3|320 кб/с]<Glam, Sleaze, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382965.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Everybody Knows 03:11
-02. Southern Boy 03:24
-03. The Long Way 04:12
-04. If You Want 04:06(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:09
+1. Mental Slavery
+2. Behind the 8-Ball
+3. Money Talks
+4. Out There Somewhere(   Читать дальше...   )Жанр: Glam, Sleaze, Hard RockПродолжительность: 00:22:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BD531BFCD9D2959D5FD7810AD5A1781E8BE6846
+magnet:?xt=urn:btih:57BD28AD293440E0CCDA0C4BB2758D5C7108F50D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,28 +311,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326406   (384988) от 20.09.2019
+###  Публикация: 903716   (656974) от 01.06.2015
 
-Slash & Myles Kennedy And The Conspirators - Living The Dream Tour (2019) Live [MP3|320 Kbps] <Hard Rock>
+Kickin Valentina - Super Atomic (2015) [MP3|320 кб/с]<Sleaze, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384988.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Call Of The Wild (Live)
-02. Halo (Live)
-03. Standing In The Sun (Live)
-04. Ghost (Live)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:04:26
+1. On My Side
+2. Wrong Way
+3. When You’re Gone
+4. Fist ‘n’ Twist(   Читать дальше...   )Жанр: Sleaze, Hard RockПродолжительность: 00:21:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4914EFFBF26651B17E396B8C4719317FCEF56B9
+magnet:?xt=urn:btih:AC51FE3A80C8057E45B0BEF18EA90436AE81D6B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,34 +340,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 571704   (387860) от 07.11.2012
+###  Публикация: 903725   (656791) от 01.06.2015
 
-VA - Who Are You: An All Star Tribute To The Who (2012) [MP3|320 кб/с]<Hard Rock, Classic Rock, Prog Rock, Rock>
+Kabat - Do Pekla / Do Nebe (2015) [MP3|320 кб/с]<Hard & Heavy>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387860.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. John Wetton (Asia) - K.K. Downing (Judas Priest) - Derek Sherinian (Dream Theater) - Eminence Front -  [05:31]
-02. Nektar - Jerry Goodman (Mahavishnu Orchestra) - Baba O Riley -  [05:22]
-03. Mark Lindsay (Paul Revere & The Raiders) - Wayne Kramer (MC5) - I Can See For Miles -  [04:06]
-04. Joe Elliott (Def Leppard) - Rick Wakeman (Yes) - Huw Lloyd-Langton (Hawkwind) - Carmine Appice (Vanilla Fudge)  - Love Reign O'er Me - [06:16]
-05. Knox (The Vibrators) - Dave Davies (The Kinks) - Rat Scabies (The Damned) - My Generation -  [03:28]
-06. The Raveonettes - The Kids Are Alright -  [02:32]
-07. Sweet - Won t Get Fooled Again -  [07:41]
-08. Todd Rundgren - Carmine Appice (Vanilla Fudge) [02:37]
-09. I Can t Explain - Iggy Pop - Anyway Anyhow Anywhere -  [02:07]
-10. Pat Travers - Behind Blue Eyes -  [03:42](   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Prog Rock, RockПродолжительность: 01:06:23
+1. Bang!
+2. Do Pekla / Do Nebe
+3. Western Boogie
+4. Pirates(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:37:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C57C7A0D5E38B212FD86EB76E6424E6E045BF710
+magnet:?xt=urn:btih:EF050A3FF92D388645C3F796ACB642B1035B32A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,28 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173279   (390564) от 11.10.2017
+###  Публикация: 903997   (655138) от 02.06.2015
 
-Joon Wolfsberg - 1220 Wells Street (2017) [MP3|320 Kbps] <Hard Rock>
+Scorpions - Wind Of Change: The Collection (2013) [MP3|320 кб/с]<Rock, Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390564.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Треклист:
-01. Don't You (03:34)
-02. I Feel Blue (03:46)
-03. Hey Man (03:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:20
+01. Crazy World [05:10]
+02. Alien Nation [05:44]
+03. Tease Me Please Me [04:37]
+04. No Pain No Gain [03:47](   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:19:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CDCB99E347B5D32E487E622668C9A2E84221C43
+magnet:?xt=urn:btih:E31CE3E38B029A512904EBA3B78F0F3CDBF62F52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,28 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 400572   (395174) от 18.10.2011
+###  Публикация: 1226644   (654697) от 21.05.2018
 
-Smokey Fingers - Columbus Way (2011) [MP3|320 kbps]<Hard Rock>
+Michael Schinkel's Eternal Flame - Smoke on the Mountain (2018) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395174.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Old Jack [3:31]
-02. The Lover [4:44]
-03. Chains Of Mind [4:46]
-04. Born To Run [4:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:07
+01. Ignition (Intro) (1:59)
+ 02. Smoke On The Mountain (4:35)
+ 03. This Is My Life (3:59)
+ 04. Queen Of The Hill (4:47)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A66A25435A920A00C7527EF4A5302EE6E19A4997
+magnet:?xt=urn:btih:9A694D28BBD7FD0A67E764CAF60180BAFA92A869
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,34 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 567166   (396708) от 29.10.2012
+###  Публикация: 904383   (654324) от 03.06.2015
 
-Aerosmith - Music From Another Dimension! (2012) [MP3|320 кб/с]<Hard Rock>
+The Dead Daisies - Revolucion (2015) [MP3|320 кб/с]<Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396708.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luv XXX (5:17)
-02. Oh Yeah (3:41)
-03. Beautiful (3:05)
-04. Tell Me (3:45)
-05. Out Go The Lights (6:55)
-06. Legendary Child (4:13)
-07. What Could Have Been Love (3:44)
-08. Street Jesus (6:43)
-09. Can't Stop Lovin' You (Duet With Carrie Underwood) (4:04)
-10. Lover Alot (3:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:05
+01. Mexico
+ 02. Evil
+ 03. Looking For The One
+ 04. Empty Heart(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1032E2E0C8009DB84B5B874F79D393511B12E072
+magnet:?xt=urn:btih:B4ABFCF5B777BBF12FED4024DD34C7A18ABC935B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,34 +456,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 565536   (399958) от 26.10.2012
+###  Публикация: 516314   (653420) от 28.06.2012
 
-Black Country Communion - Afterglow (2012) [MP3|320 кб/с]<Hard Rock>
+Zodiac - A Bit of Devil (2012) [MP3|244-265 кб/с]<Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399958.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Big Train (4:17)
-02. This Is Your Time (4:32)
-03. Midnight Sun (5:18)
-04. Confessor (5:08)
-05. Cry Freedom (5:09)
-06. Afterglow (6:06)
-07. Dandelion (4:02)
-08. The Circle (7:01)
-09. Common Man (5:27)
-10. The Giver (5:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:54
+01 — A Bit of Devil [00:04:37]
+ 02 — Carnival [00:05:12]
+ 03 — Blue Jean Blues [00:06:48]
+ 04 — Horror Vision [00:04:54]
+ 05 — Assembly Line [00:06:52]
+ 06 — Thunder [00:04:45]
+ 07 — Diamond Shoes [00:04:52]
+ 08 — Coming Home [00:10:09]
+
+Дебютный альбом немецкой группы «Zodiac», исполняющей отменный сплав классического рока и хард-рока на блюзовой основеЖанр: Hard RockПродолжительность: 00:48:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48683D066297770747D84A94172F59CD25D50080
+magnet:?xt=urn:btih:7DD7AE9147EB01780B3F9A9C467D8E6068CB6EB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,28 +491,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170173   (400382) от 30.09.2017
+###  Публикация: 1141351   (652138) от 09.06.2017
 
-The Sweet - Grand collection (1997) [MP3|320 Kbps] <Hard rock, Glam rock>
+Alice Cooper - Paranoiac Personality (2017) Single [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400382.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.The Ballroom Blitz
-02.Hell Raiser
-03.Teenage Rampage
-04.Rebel Rouser(   Читать дальше...   )Жанр: Hard rock, Glam rockПродолжительность: 01:13:35
+1. Paranoiac Personality
+2. I'm EighteenЖанр: Hard RockПродолжительность: 00:07:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BA37CE02773762F99FA806E05B02E4F69D2C9AD
+magnet:?xt=urn:btih:779E3A750DF92FB1CDF5388E0062BD0CAEB44DD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,28 +518,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170076   (401425) от 29.09.2017
+###  Публикация: 905163   (651916) от 05.06.2015
 
-UFO - Salentino Cuts (2017) [MP3|320 Kbps] <Hard Rock>
+S.A.Y - Orion (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401425.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heartful Of Soul
-02. Break On Through (To The Other Side)
-03. River Of Deceit
-04. The Pusher(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:57
+01. Tragedy
+02. Heroes
+03. Crash And Burn
+04. Never Say Goodbye(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5462B383BA8EF2433C7C9048CCB468AA026AE2DF
+magnet:?xt=urn:btih:F09924069307269701CC05340B982BAEC0611103
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,28 +547,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169491   (403154) от 27.09.2017
+###  Публикация: 905286   (651915) от 05.06.2015
 
-Loosely Tight - Fightin' Society (1981) Reissue, Not On Label [MP3|320 Kbps] <Hard Rock>
+Mojo Waves - All The Right Parts Fit The Wrong Way (2015) [MP3|320 кб/с]<Hard Rock, Garage, Heavy Psychedelic, Stoner>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403154.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651915.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Fightin' Society
-2. Loud N' Restless
-3. Renegade
-4. Off In The Distance(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
+01. 7x7
+02. Heartquake
+03. Lioneyes
+04. Counting Backwards(   Читать дальше...   )Жанр: Hard Rock, Garage, Heavy Psychedelic, StonerПродолжительность: 00:36:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C99917E9306BCAD1569FAFFA910E910210CC9F63
+magnet:?xt=urn:btih:29CFBDD4F01A8DE2D3A4D578A9CE2251DC20F82E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,28 +576,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169109   (404006) от 26.09.2017
+###  Публикация: 905011   (651735) от 05.06.2015
 
-Autograph - Buzz (2003) [MP3|320 Kbps] <Melodic Hard Rock>
+Greg Golden Band - Greg Golden Band (2015) [MP3|320 кб/с]<Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404006.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Break A Sweat
-02. Shake The Tree
-03. She's The Reason
-04. Fed Up With Bein' Down(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:36
+01. Far Away
+02. Bad Winter
+03. Old School
+04. Burning Hearts(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08D2153DA64CB942839BC1AA4B0860E4C0F94C59
+magnet:?xt=urn:btih:27FAF6C8B9E76EF10EE45A712114142D85040419
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,34 +605,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563449   (404643) от 21.10.2012
+###  Публикация: 905044   (651733) от 05.06.2015
 
-Deep Purple - Aged Ballads (2004) [MP3|320 кб/с]<Hard Rock>
+Trixter - Human Era (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404643.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Walk On (7:04)
-02.  Dont Make Me Happy (4:53)
-03.  You Keep On Moving (5:17)
-04.  Haunted (4:22)
-05.  Soldier Of Fortune (3:12)
-06.  Holy Man (4:26)
-07.  Mitgi Dupree (5:03)
-08.  Lalena (5:05)
-09.  When A Blind Man Cries (3:28)
-10.  Sometimes I Feel Like (7:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:32
+01. Rockin' To The Edge Of The Night
+02. Crash That Party
+03. Not Like All The Rest
+04. For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:414217D349AA23507CC99816C9D71F15B92F36FF
+magnet:?xt=urn:btih:5E90557B4B31B3893391D8FA44D33D977614B87A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +634,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413797   (407231) от 05.10.2020
+###  Публикация: 905245   (651731) от 05.06.2015
 
-King Moon And The Purple Tongues - The Golden Giant (2020) [MP3|320 Kbps] <Stoner, Hard Rock, Heavy Psychedelic>
+V8 Wankers - Harden The Fuck Up! (2015) [MP3|320 кб/с]<Hard Rock, Rock'n'Roll>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407231.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Golden Giant (04:27)
- 2. Goat Mountain (06:02)
- 3. Far Away (04:04)
- 4. Falling Down (05:35)(   Читать дальше...   )Жанр: Stoner, Hard Rock, Heavy PsychedelicПродолжительность: 00:44:03
+01. Harden The Fuck Up
+02. Oh, What A Jerk He Is
+03. Go Fast Or Go Home
+04. Every Man A Tiger(   Читать дальше...   )Жанр: Hard Rock, Rock'n'RollПродолжительность: 00:43:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16CBB406ACB5F099E361082FCD0383CF4A1D389F
+magnet:?xt=urn:btih:6608C88692B81E2BDB903957437219630CE1AA81
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,28 +663,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168533   (408882) от 24.09.2017
+###  Публикация: 905051   (651608) от 05.06.2015
 
-Pappo's Blues - Caso Cerrado (1995) Volumen 8 [MP3|320 Kbps] <Hard Rock, Blues Rock>
+House Of Lords - Indestructible (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408882.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tren Azul (03:55)
-02. Ruta 66 (03:07)
-03. Solo En Este Mundo (05:00)
-04. Yo Me Quedo Con Lucy (05:04)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:52:58
+01. Go To Hell
+02. Indestructible
+03. Pillar Of Salt
+04. 100 Mph(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63AD52D725FE79B95A3D51EA152DFDC4E68D0D61
+magnet:?xt=urn:btih:376AF05AEA90397543472D36A999C56143449A71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -721,28 +692,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066403   (410080) от 27.10.2016
+###  Публикация: 905386   (651595) от 05.06.2015
 
-Pulse R - In Chains (2016) [MP3|320 Kbps] <Hard Rock>
+714 - American Tragic (2012) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410080.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Remember Me   (03:23) 
-  02. Under The Rug   (04:18) 
-  03. In Chains   (06:13) 
-  04. Mindtrap   (05:25) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:34
+01. American Tragic
+02. Melt the Glue
+03. Kiss Me Now
+04. Beautiful Tonite(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:53:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6E1DC2C641335818AE90FE879ADAEC354459A75
+magnet:?xt=urn:btih:0401DAA31DC5181D6F57E4D331BB9537F8A833E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -750,28 +721,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168332   (410256) от 23.09.2017
+###  Публикация: 905005   (651594) от 05.06.2015
 
-Gun - Favourite Pleasures (2017) Deluxe Edition [MP3|320 Kbps] <Hard Rock>
+Michael Cosyn Group (Feat. Paul Shortino) - Burn The Earth (2015) [MP3|320 кб/с]<Classic Rock, Hard Rock, Blues Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410256.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. She Knows (3:24)
- 2. Here's Where I Am (3:40)
- 3. Favourite Pleasures (3:25)
- 4. Take Me Down (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:01
+1. Burn The Earth
+2. Rivers Run Dry
+3. Angel's Wings
+4. Blind Man(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues RockПродолжительность: 00:41:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:547BB55722C66F659226A7A9A33F5420B8552883
+magnet:?xt=urn:btih:A4105519EFB6A020707B3A9B045F629E90704ED8
 ```
 
 https://mybot314.ru/tekegram_catalog/

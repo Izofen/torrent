@@ -1,25 +1,22 @@
-###  Публикация: 1662986   (187229) от 19.09.2023
+###  Публикация: 851023   (228177) от 18.12.2014
 
-Microsoft Windows 10.0.19045.3448, Version 22H2 (Updated September 2023) - Оригинальные образы от Microsoft MSDN [En]
+Windows 8.1 N with Update 3 [November 2014] - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187229.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.3448.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+Windows 8.1 N with Update 3 - Оригинальные образы от Microsoft MSDNЯзык интерфейса: English
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D4702B599A4628F9EDCC16489859A27C7A89340
+magnet:?xt=urn:btih:07F0BF62E1510171E9E4A477EDCBF0A75DAE84B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662989   (187260) от 19.09.2023
+###  Публикация: 851025   (228080) от 18.12.2014
 
-Microsoft Windows 11 [10.0.22000.2416], Version 21H2 (Updated September 2023) - Оригинальные образы от Microsoft MSDN [Ru]
+Windows 8.1 with Update 3 [November 2014] - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187260.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+Windows 8.1 with Update 3 - Оригинальные образы от Microsoft MSDNЯзык интерфейса: English
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BECA5520CFC421D6903F40A590BA76DEE6F19077
+magnet:?xt=urn:btih:2F7D04E7F4B3D29AEF3AB54D86016B47A80AE7B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,177 +50,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662990   (187287) от 19.09.2023
+###  Публикация: 1584450   (224290) от 19.10.2022
 
-Microsoft Windows 11 [10.0.22621.2283], Version 22H2 (Updated September 2023) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A6D48E7DA13AEE6791357FAC41AF38D5F2D86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590870   (187312) от 17.11.2022
-
-Microsoft Windows 10.0.19045.2251, Version 22H2 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [Ru]
+Microsoft Windows 10.0.19044.2130, Version 21H2 (Updated October 2022)  - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.2251.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603F3E7B36E405A508B54D3EEBAFC6DD5054622A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662988   (187326) от 19.09.2023
-
-Microsoft Windows 11 [10.0.22000.2416], Version 21H2 (Updated September 2023) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC7C4AB6EAA7C1E6906B2DD0F076F6AD6C3E2670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590874   (187604) от 16.11.2022
-
-Microsoft Windows 11 [10.0.22621.819], Version 22H2 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9147D8BA0BD9E684442E657A994850EE7E2EB514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590873   (187653) от 16.11.2022
-
-Microsoft Windows 11 [10.0.22621.819], Version 22H2 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80D5ECB7F9A0983AA355CFCF64149523629FDEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590869   (187663) от 16.11.2022
-
-Microsoft Windows 10.0.19045.2251, Version 22H2 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.2251.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD85D626F592E834D943E80FB0EB6CEDEE25F834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590868   (187673) от 16.11.2022
-
-Microsoft Windows 10.0.19044.2251, Version 21H2 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187673.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224290.jpg" />
 </div>
 
 
@@ -231,12 +66,12 @@ Microsoft Windows 10.0.19044.2251, Version 21H2 (Updated November 2022) - Ори
 
 Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
 
-Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.2251.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.2130.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06F03B8BDDFF400550CC8DF682A8CBCBC9816379
+magnet:?xt=urn:btih:85DD796DC72DA101FB291CC2B4BB18D28552F292
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,41 +79,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590872   (187677) от 16.11.2022
+###  Публикация: 1584448   (224154) от 19.10.2022
 
-Microsoft Windows 11 [10.0.22000.1219], Version 21H2 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011456333FC31F26F80EBFAB30A885C9433D76D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590866   (187716) от 16.11.2022
-
-Microsoft Windows 10.0.19043.2251, Version 21H1 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [Ru]
+Microsoft Windows 10.0.19043.2130, Version 21H1 (Updated October 2022) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187716.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_224154.jpg" />
 </div>
 
 
@@ -286,12 +95,12 @@ Microsoft Windows 10.0.19043.2251, Version 21H1 (Updated November 2022) - Ори
 
 Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
 
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.2251.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.2130.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C5300FB5227FEF08C0875EA1FAD084A85561592
+magnet:?xt=urn:btih:C4EDECCF0D3026F1E1681F97F1F64B43B1394757
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,15 +108,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590871   (187741) от 16.11.2022
+###  Публикация: 1584457   (224103) от 19.10.2022
 
-Microsoft Windows 11 [10.0.22000.1219], Version 21H2 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [En]
+Microsoft Windows 11 [10.0.22000.1098], Version 21H2 (Updated October 2022) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187741.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224103.jpg" />
 </div>
 
 
@@ -317,7 +126,7 @@ Windows 11 - это серия операционных систем, разра
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82B0293D4546AFFBB8DDAD67275F8A67C4B43916
+magnet:?xt=urn:btih:839D69B63580966905E80E6FD63D2E9A4D40A4B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,28 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590865   (187755) от 16.11.2022
+###  Публикация: 1584452   (223897) от 19.10.2022
 
-Microsoft Windows 10.0.19043.2251, Version 21H1 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [En]
+Microsoft Windows 10.0.19045.2006, Version 22H2 - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187755.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
+Windows 10 October 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
 
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.2251.
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.2006.
 Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C193B5D85C71C19AFBB1168960B6C671E9ADF3C0
+magnet:?xt=urn:btih:296FEEE7F40F98CC10092FB60EBE190456C59646
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,15 +163,255 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590867   (187760) от 16.11.2022
+###  Публикация: 1584460   (223839) от 19.10.2022
 
-Microsoft Windows 10.0.19044.2251, Version 21H2 (Updated November 2022) - Оригинальные образы от Microsoft MSDN [En]
+Microsoft Windows 11 [10.0.22621.674], Version 22H2 (Updated October 2022)  - Оригинальные образы от Microsoft MSDN [Ru]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187760.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B29C77CA385B4F089F694B5DE6E13241116EF56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584455   (223833) от 19.10.2022
+
+Microsoft Windows 10.0.19045.2006 IoT Enterprise, Version 22H2 - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 IoT Enterprise - это полная версия Windows 10, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 10 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 10 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19C5E5F9596FD05FB926F040E5680B137E80109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584453   (223826) от 19.10.2022
+
+Microsoft Windows 10.0.19045.2006, Version 22H2 - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 October 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.2006.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3854CE45520C490E698C783D991368A20A800EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851008   (222075) от 21.12.2014
+
+Windows 8.1 with Update 3 [November 2014] - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1 with Update - Оригинальные образы от Microsoft MSDNЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98303C26503C2CDD2371B5C92E0788C93480D150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852484   (220290) от 22.12.2014
+
+Windows Embedded 8.1 with Update [November 2014] - Оригинальные образы от Microsoft MSDN (En)
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1 — это еще большие возможности персонализации и новые, великолепные приложения и службы. Windows Embedded 8.1 Industry является новым продуктом в линейке так называемых «вертикальных» продуктов, к которым относится, также, Windows Embedded POSReady. Основное отличие от POSReady – ядро Windows 8.1Язык интерфейса: English
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11806AA4664A371A3480EB65934360D013DF0E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852418   (220167) от 22.12.2014
+
+Windows Embedded 8.1 with Update [November 2014] - Оригинальные образы от Microsoft MSDN (Ru)
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1 — это еще большие возможности персонализации и новые, великолепные приложения и службы. Windows Embedded 8.1 Industry является новым продуктом в линейке так называемых «вертикальных» продуктов, к которым относится, также, Windows Embedded POSReady. Основное отличие от POSReady – ядро Windows 8.1Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2611036D38FAAA7ED3EFC1CF252F1F3434F878E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653389   (214908) от 15.08.2023
+
+Microsoft Windows 10.0.19045.3324, Version 22H2 (Updated August 2023) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_214908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.3324.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8735D83522414744B4FD0A91B76DA304D6486D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653394   (214449) от 16.08.2023
+
+Microsoft Windows 11 [10.0.22621.2134], Version 22H2 (Updated August 2023) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_214449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E106B0BDA12C8F0A0A369D8DE2F54CD9C18501AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558951   (213139) от 23.06.2022
+
+Microsoft Windows 11 [10.0.22000.739], Version 21H2 (Updated June 2022) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699FCA54B1427778AD556703517DB4B8DDAFAA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564660   (212372) от 19.07.2022
+
+Microsoft Windows 10.0.19044.1826, Version 21H2 (Updated July 2022)  - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_212372.jpg" />
 </div>
 
 
@@ -370,12 +419,12 @@ Microsoft Windows 10.0.19044.2251, Version 21H2 (Updated November 2022) - Ори
 
 Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
 
-Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.2251.
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1826.
 Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:696AEF8529F5F863F69DBF005DBD5541C6FB4118
+magnet:?xt=urn:btih:56D1417B6C1A270BCB08D5155F8143A36A4788F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,28 +432,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827495   (187939) от 22.10.2025
+###  Публикация: 1584449   (211986) от 19.10.2022
 
-Microsoft Windows 10 [10.0.19045.6456], Version 22H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [Ru]
+Microsoft Windows 10.0.19043.2130, Version 21H1 (Updated October 2022) - Оригинальные образы от Microsoft MSDN [Ru]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187939.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
 
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.6456.
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.2130.
 Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B992E6866CE20A88D0B97812705087074540173
+magnet:?xt=urn:btih:C77F9653F308497018B504323322B8B9ABDD74B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,41 +461,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827499   (188079) от 21.10.2025
+###  Публикация: 1641104   (211020) от 20.06.2023
 
-Microsoft Windows 11 [10.0.26100.6899], Version 24H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CBACF18873E43EC4ED5FE24A41D16B7ED771CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827498   (188081) от 21.10.2025
-
-Microsoft Windows 11 [10.0.26100.6899], Version 24H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [En]
+Microsoft Windows 11 [10.0.22000.2057], Version 21H2 (Updated June 2023) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188081.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211020.jpg" />
 </div>
 
 
@@ -456,7 +479,7 @@ Windows 11 - это серия операционных систем, разра
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6793E6BDCE9ECF37CADB81DE36852788F0CD03C4
+magnet:?xt=urn:btih:F5F128458EEEFD3C7804201E0BBBC92AF1A54095
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,41 +487,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827497   (188083) от 21.10.2025
+###  Публикация: 1605450   (209717) от 18.01.2023
 
-Microsoft Windows 11 [10.0.22631.6060], Version 23H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EECED8EB5D100D76D65BA687227F224C72CA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827496   (188086) от 21.10.2025
-
-Microsoft Windows 11 [10.0.22631.6060], Version 23H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [En]
+Microsoft Windows 11 [10.0.22000.1455], Version 21H2 (Updated January 2023) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188086.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209717.jpg" />
 </div>
 
 
@@ -508,7 +505,7 @@ Windows 11 - это серия операционных систем, разра
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7696F150277D13FCC6F530B4250FBB353A4E1109
+magnet:?xt=urn:btih:007D630796CB37A437FEAE30DBFED3C8EBFEE870
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,28 +513,161 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827494   (188088) от 21.10.2025
+###  Публикация: 1647461   (208553) от 18.07.2023
 
-Microsoft Windows 10 [10.0.19045.6456], Version 22H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [En]
+Microsoft Windows 11 [10.0.22000.2176], Version 21H2 (Updated July 2023) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188088.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CD1F61A502B1FFAC43FB9196C1917ED3CDA518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577976   (207595) от 20.09.2022
+
+Microsoft Windows 11 IoT Enterprise, Version 22H2 [10.0.22621.382] - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 IoT Enterprise - это полная версия Windows 11, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 11 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 11 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A20ABD7AB7339D897E9E16602164090B1C23D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579877   (206983) от 29.09.2022
+
+Microsoft Windows 11 IoT Enterprise [10.0.22621.525], Version 22H2 (Updated September 2022)  - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 IoT Enterprise - это полная версия Windows 11, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 11 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 11 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF98C9D9025A278E18916D42A5515DF5B56D0C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614391   (206753) от 21.02.2023
+
+Microsoft Windows 10.0.19044.2604, Version 21H2 (Updated February 2023) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
 
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.6456.
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.2604.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9EB81C42229C57262812D1442BECB875A8FB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653391   (206273) от 15.08.2023
+
+Microsoft Windows 11 [10.0.22000.2295], Version 21H2 (Updated August 2023) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56FDF1C489B88F516ACC983F2A7F6A802ACAE2C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570325   (205501) от 16.08.2022
+
+Microsoft Windows 10.0.19044.1889, Version 21H2 (Updated August 2022)  - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_205501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
+
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1889.
 Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B5539799101F17D45744D2FD4A0F702AD79AAE6
+magnet:?xt=urn:btih:569961216B6A10B2CCF3D46CCD19586428A77463
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -545,15 +675,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653393   (194233) от 15.08.2023
+###  Публикация: 1570328   (205496) от 16.08.2022
 
-Microsoft Windows 11 [10.0.22621.2134], Version 22H2 (Updated August 2023) - Оригинальные образы от Microsoft MSDN [En]
+Microsoft Windows 11 [10.0.22000.856], Version 21H2 (Updated August 2022) - Оригинальные образы от Microsoft MSDN [En]
 
 >>ОС Windows
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194233.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_205496.jpg" />
 </div>
 
 
@@ -563,140 +693,7 @@ Windows 11 - это серия операционных систем, разра
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:934CA113F8148064CA164FA4EC6DCEC37096A03D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653392   (194254) от 15.08.2023
-
-Microsoft Windows 11 [10.0.22000.2295], Version 21H2 (Updated August 2023) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8799719262979BB54BF8311B267CC46DCFD553A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647464   (195512) от 18.07.2023
-
-Microsoft Windows 11 [10.0.22621.1992], Version 22H2 (Updated July 2023) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A92B67CC50005442B4A5D32604DF1D4949CAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647459   (195562) от 18.07.2023
-
-Microsoft Windows 10.0.19045.3208, Version 22H2 (Updated July 2023) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.3208.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D67C955196DD82744129175D8DBB1F7B6729A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647463   (195592) от 18.07.2023
-
-Microsoft Windows 11 [10.0.22000.2176], Version 21H2 (Updated July 2023) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45622A8B84571B34AEDAD4F60CC0E9BC1740E2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641106   (196757) от 20.06.2023
-
-Microsoft Windows 11 [10.0.22621.1848], Version 22H2 (Updated June 2023) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1B62F3288944C43681A0DDE20A589BBAC10F5E
+magnet:?xt=urn:btih:252827290387B05686C73A5427E42C8668E9C851
 ```
 
 https://mybot314.ru/tekegram_catalog/

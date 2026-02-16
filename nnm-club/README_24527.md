@@ -1,105 +1,25 @@
-###  Публикация: 973189   (980659) от 07.01.2016
+###  Публикация: 1797017   (66888) от 13.05.2025
 
-Еврейское счастье (2016.01.07) SATRip (выпуск 3)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кибуц – дело добровольное: Существовал бы Израиль без кибуцного движения? Вероятно, нет.
-Существовал бы Израиль без кибуцного движения? Вероятно, нет. Потому что дух непокорности родил кибуц, а кибуц родил таких легендарных строителей и защитников еврейского государства как Моше Даян, Голда Мейер, Шимон Перес и еще многих-многих других.
-Первый кибуц был основан в (   Читать дальше...   )Владимир Познер и Иван Ургант отправляются в очередное путешествие. На этот раз по Земле Обетованной.Телекомпания: Первый каналЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1D0E8C6694D17D277517EAF42A0E30B2D3F4B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973045   (980660) от 07.01.2016
-
-Maxthon Cloud Browser 4.9.0.2600 Beta + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный веб-браузер, разработанный для пользователей любого вкуса и предпочтений. Maxthon предлагает богатый набор функций для улучшения Интернет-серфинга. Двойной движок для отображения веб-страниц (Trident и Blink), быстрый JavaScript-движок (V8), поддержка современного HTML5 делают все, чтобы посещаемые сайты открывались действительно быстро.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4848A3C98640207BA37ED9934D49871DDB735FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973060   (980661) от 07.01.2016
-
-Код доступа / Access Code (1984) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайная организация получила контроль над американской системой ядерного оружия. Журналисты пытаются вычислить и остановить эту структуру...Производство: США, Access Productions (II)Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Марк СобельАктеры: Мартин Ландау, Майкл Ансара, МакДональд Кэри, Майкл Даррел, Марсия Мюллер, Майкл НаполиПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A1CE6641D7C998F326E368D3D5FD0D1EC8E984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972661   (980662) от 07.01.2016
-
-Dave's True Story - 4 albums (1993-2005) [MP3|320 кб/с] <Jazz, Female Vocals, Swing>
+Terry Hanck - Grease to Gravy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980662.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DAVE’S TRUE STORY – исключение из всех возможных правил! Начиналось всё это в 1989 году, как джазовый дуэт Дэвид Кантор & Келли Флинт. Затем к ним присоединились Джеф Эйрич и Крис Ботти. И результат совместного творчества, как говорится, превзошёл все ожидания… Музыка, прозрачна, как акварель, а вокал… Это нечто!.. Недаром Келли Флинт называют обладательницей (   Читать дальше...   )Список альбомов:
-1993 - Dave's True Story
-1998 - Sex Without Bodies
-2000 - Unauthorized(   Читать дальше...   )Жанр: Jazz, Female Vocals, SwingПродолжительность: 03:22:07
+01.  Don't Let the Green Grass Fool You (4:52)
+02.  If a Politician Was a Doctor (4:06)
+03.  Best Years of My Life (5:15)
+04.  Come Back Baby (3:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A17FFAF46754CF490CE96B393BC194C2C95116F6
+magnet:?xt=urn:btih:3321EBD722F266F2E09A39E3BF467B8104EBB489
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,28 +27,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973036   (980663) от 07.01.2016
+###  Публикация: 1796730   (66887) от 13.05.2025
 
-Uriah Heep - It Was 40 Years Ago (2016) Compilation [FLAC|Lossless|tracks + .cue] <Hard Rock>
+Sleep Token - Even In Arcadia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Post-Metal, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look To Windward (7:46)
+02. Emergence (6:26)
+03. Past Self (3:35)
+04. Dangerous (4:11)(   Читать дальше...   )Жанр: Progressive Metal, Post-Metal, Indie RockПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A76BBB87C01760D7A5E5C5DA3BC7132A48FB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796747   (66886) от 13.05.2025
+
+Gong - I See You (2014) 10th Anniversary, Mix, 2025, Kscope Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic-rock, progressive-rock, space-rock, jazz-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I See You (2024 Mix) (3:29)
+02. Occupy (2024 Mix) (2:53)
+03. When God Shakes Hands with The Devil (2024 Mix) (5:36)
+04. The Eternal Wheel Spins (2024 Mix) (7:09)(   Читать дальше...   )Жанр: Psychedelic-rock, progressive-rock, space-rock, jazz-rockПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B5B138AC47F8D534022B8B56342FCAEA5A49C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796999   (66885) от 13.05.2025
+
+Dudley Taft - 15 Greatest Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Flying on Love (3:43)
+02.  Screaming in the Wind (4:17)
+03.  Skin and Bones (3:59)
+04.  Favorite Things (3:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CC6BCCBD3B69C3BD26CBEB32FE703B50595C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796990   (66884) от 13.05.2025
+
+Ethernal - Esencia (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980663.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Free Me
-02. Illusion
-03. The Hanging Tree
-04. Crime Of Passion(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:10:49
+01. Brujas
+02. Esencia
+03. Ghost
+04. Hécate(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 01:01:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:658180C20C20A3EA1ADD634A3336342745CBE6C0
+magnet:?xt=urn:btih:8A10E65482E23BA7704144043C39150E8405997A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,220 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973152   (980664) от 07.01.2016
+###  Публикация: 1796995   (66883) от 13.05.2025
 
-Журнал | Знание-сила №1 (январь 2016) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB8D565E01D49433136DE33C84ACFC7BE10172C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972807   (980665) от 07.01.2016
-
-Гензель и Гретель / Hansel und Gretel (2012) DVD5
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения брата и сестры в плену у коварной колдуньи. Гензель и Гретель живут с отцом-дровосеком и мачехой. Их семья крайне бедна и зарабатывает продажей дров. Когда покупатель отказывается заплатить беднякам хлебом и салом, семье становится совершенно нечего есть. Чтобы всем им не умереть от голода, мачеха подговорила отца оставить детей в лесу далеко от дома. (   Читать дальше...   )Производство: Германия (Askania Media Filmproduktion GmbH)Жанр: Сказка, семейныйРежиссер: Уве ЯнсонАктеры: Аня Клинг, Мила Бёнинг, Фридрих Хайне, Йохан фон Бюлов, Элизабет Брюк, Девид ШтрисовПеревод: Профессиональный многоголосый (компания "ИГМАР")Субтитры: НетПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FECF42331BCA922EB37D900968309E9FD8784E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972682   (980666) от 07.01.2016
-
-Катерина Голицына - На двоих (2015) [MP3|320 кб/с] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С первого взгляда
-02. Всё, как раньше
-03. На двоих
-04. Как ты там?(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EB77F24FE6F0B5F2F0097974844640ABF7B6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972914   (980667) от 07.01.2016
-
-Фотоувеличение / Blowup (1966) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — известный, талантливый молодой фотограф, прототипом которого был то ли Берт Штерн, то ли Дэвид Бейли, что скорее. Однажды, работая в городском парке, он случайно снимает заинтересовавшую его странную пару. А дальше… через вроде бы романтическое просвечивает вроде бы криминальное… События разворачиваются, ничего не проясняя… На сильно увеличенных кадрах (   Читать дальше...   )Производство: Великобритания, Италия, СШАЖанр: Триллер, Драма, ДетективРежиссер: Микеланджело АнтониониАктеры: Дэвид Хеммингс, Ванесса Редгрейв, Сара Майлз, Джон Касл, Джейн Биркин, Джиллиан Хиллс, Питер Боулз, Верушка фон Лендорф, Джулиан Шагрин, Клод ШагринПеревод: Многоголосый закадровыйПродолжительность: 01:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8E26E374948DE40FB64FD1BC67F1118176A777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972950   (980668) от 07.01.2016
-
-Оливер Сакс | Зримые голоса (2014) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980668.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Язык жестов» глухонемых.
-Что он собой представляет – пантомиму, более или менее удачно иллюстрирующую фонетическую речь? Или самостоятельный язык, обладающий собственной грамматикой и семантикой и ни в чем не уступающий устной речи?
-
-В работе «Зримые голоса» – одном из самых интересных своих произведений – Оливер Сакс выдвигает смелую и оригинальную теорию, согласно (   Читать дальше...   )Жанр: Психология, Научная литература: прочееПеревод: Александр АнваерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7921FAD3AD0196C85E6D104A3B53BB575BA39850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973017   (980669) от 07.01.2016
-
-Проекты - RocketStock - Metropolis [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C29791C1E38AD2DF52BC4E539DC2BCD93F2713F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972940   (980670) от 07.01.2016
-
-Бутырка - Первый альбом (2002) [APE|Lossless|image + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тает снег
-02. По этапу
-03. Покатилась жизнь
-04. Запах воска(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4196899BDD47D8CCE4914BE188FCBA291F2B36B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973133   (980671) от 07.01.2016
-
-Dave's True Story - 4 albums (1993-2005) [APE|Lossless|image + .cue] <Jazz, Female Vocals, Swing>
+Cottonfield Blues - Rust & Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980671.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DAVE’S TRUE STORY – исключение из всех возможных правил! Начиналось всё это в 1989 году, как джазовый дуэт Дэвид Кантор & Келли Флинт. Затем к ним присоединились Джеф Эйрич и Крис Ботти. И результат совместного творчества, как говорится, превзошёл все ожидания… Музыка, прозрачна, как акварель, а вокал… Это нечто!.. Недаром Келли Флинт называют обладательницей (   Читать дальше...   )Список альбомов:
-1993 - Dave's True Story
-1998 - Sex Without Bodies
-2000 - Unauthorized(   Читать дальше...   )Жанр: Jazz, Female Vocals, SwingПродолжительность: 03:22:07
+01.  Blue Moon Lament (3:44)
+02.  Cold Whiskey Nights (4:25)
+03.  Dust and Broken Dreams (3:34)
+04.  Echoes in the Alley (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CD09D8591BCCA0A29BA42F80D5B3EF6E6FB5025
+magnet:?xt=urn:btih:941CE06C12BA04C4606E3EA70C940F0CF977B26B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,25 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973003   (980672) от 07.01.2016
+###  Публикация: 1795897   (66882) от 13.05.2025
 
-Г. П. Булатов | Н. Г. Чернышевский - критик буржуазной политической экономии (1948) [DJVU]
+Растровый клипарт - Dream Studio - Creative Fabrica - Beach Holiday Sublimation Clipart Bundle [PNG]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980672.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чернышевский горько сожалеет о том, как низко упала политическая экономия после А. Смита и Рикардо. Нет более «отвлеченной», скучной и «мертвой», говорил он, науки, чем политическая экономия после той переделки, какую учинили над ней «жалкие эпигоны». Внутренне опустошенная, она превратилась в набор фраз, построенных для защиты всякой реакции и регресса. Чернышевский (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+Клипарт на тему пляжного отдыха.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1863ECE9C4FE5B559DD02B1F0CBB22AF23C3D3A7
+magnet:?xt=urn:btih:FDE9A5C818FC38D82C1F5ABA907DCD47148809ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972968   (980673) от 07.01.2016
+###  Публикация: 1796956   (66881) от 13.05.2025
 
-Машины-монстры: "Молот Тора", который будет сокрушать материалы давлением в 1 миллион атмосфер
+Булат Окуджава | Уроки музыки (Радиоспектакль) (2025) [MP3, Андрей Толубеев и др.]
 
->>Поговорим
->>DailyTechInfo
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980673.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В одном из помещений Национальной лаборатории Сандиа (Sandia National Laboratories) ведутся работы по подготовке к запуску нового импульсного генератора Thor, который, согласно расчетам, будет в 40 раз более эффективным, нежели Z-machine, самый большой и самый мощный в мире энергетический ускоритель в мире. Магнитное поле, генерируемое ускорителем Thor, будет оказывает (   Читать дальше...   )
+Серия/Цикл: Театр у вас дома.
+Булат Шалвович Окуджава (1924–1997) поэт, композитор, прозаик, актёр и сценарист. Участник Великой Отечественной войны. Гвардии красноармеец (1944).
+Автор около двухсот авторских и эстрадных песен, один из наиболее ярких представителей жанра авторской песни.
+Радиоспектакль по рассказам Булата Окуджавы: «Утро красит нежным светом...» (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:46:23
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:309F7146D13AA5AF479CCB8651B0081873E4372C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -409,28 +227,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972679   (980674) от 07.01.2016
+###  Публикация: 1795843   (66880) от 13.05.2025
 
-Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|tracks + .cue] <Euro House>
+Фоны - Graphic Studio - Creative Fabrica - Soft Blue Vine Digital Paper Backgrounds [PNG]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980674.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Golddiggers (3:36)
-02. Ding Dong Song (4:04)
-03. Teeny Weeny String Bikini (4:00)
-04. Touch Me (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:37:27
+Нежно-голубые фоны с виноградной лозой.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FDDAA2312DB8517095A7E31FCC09BD2786E11EF
+magnet:?xt=urn:btih:39574B1F3CD17C7A2C884A215E5FACAF1BB782A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,28 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972969   (980675) от 07.01.2016
+###  Публикация: 1797016   (66879) от 13.05.2025
 
-VA - Fashion TV. Самые модные хиты (2005) [MP3|224 кб/с] <Pop>
+Stratcat Willie & the Strays - Don't Slow Down! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Pop
->>Зарубежная поп-музыка
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980675.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Naomi - Astonsilicon
-02 Ratnabali - Breeze
-03 Mystic Diversions - Sensual wanderer
-04 Bent - Sing me(   Читать дальше...   )Жанр: PopПродолжительность: 06:50:29
+01.  I Ain't Got Nothin' (4:59)
+02.  Demons Within (3:52)
+03.  Slow Down (3:31)
+04.  Go on Home (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9870A23550364CE02E62D4D23F66148201354408
+magnet:?xt=urn:btih:83C3B03644AC03FBB29AA61750C5917BD0596E72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,26 +282,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972841   (980676) от 07.01.2016
+###  Публикация: 1795845   (66878) от 13.05.2025
 
-XnConvert 1.71 + Portable [Multi/Ru]
+Фоны - Graphic Studio - Creative Fabrica - Skyscrapers and Neon Lights Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с изображением небоскрёбов и неоновых огней.Формат: PNGРазрешение файлов: 3604 x 3604
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F26DAE3FFF58D099ED6727AAED4384CEA9B8BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796030   (66877) от 13.05.2025
+
+Паттерны - Free PSD Templates - Floral Patterns [JPG, PNG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные узоры в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B9748660C19D9392A08EF85D472D420B137CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796902   (66876) от 13.05.2025
+
+Smart AudioBook Player Pro v11.3.1 Mod by Kirlif' [Ru/Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980676.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простенькая программа для выполнения разных операций с вашими графическими файлами, в том числе можно преобразовывать формат.
-Интерфейс максимально простой, добавить картинки можно с помощью перетаскивания их мышью в главное окно.Язык интерфейса: Русский, Английский и др.
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: ProРелиз состоялся: 13.05.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27F9D0EF36E3DDAE56944E7FF6F9334C6D618B83
+magnet:?xt=urn:btih:8F972469683E39B3BF4DBD3035E10E5FB897B8C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,28 +360,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972860   (980677) от 07.01.2016
+###  Публикация: 1795906   (66875) от 13.05.2025
 
-VA - Acoustic 90s Rock Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+Растровый клипарт - Dream Studio - Creative Fabrica - Leopard Print Summer Clipart [PNG]
 
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980677.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Karizma Duo - Creep
-02. Meg Birch - Losing My Religion - Acoustic
-03. Chilled Aqua - Friday I'm in Love
-04. Alice Lamb - Californication(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:56:17
+Летний  клипарт с леопардовым принтом на тему пляжа и тропиков.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEF177F83C04DB83BC29C42F40EA7FF1D793ABE5
+magnet:?xt=urn:btih:A72AC907CC5EBF09DB36A51699922F9156E25FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,56 +386,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972793   (980678) от 07.01.2016
+###  Публикация: 1796912   (66874) от 13.05.2025
 
-Huron - Fissure EP (2016) [MP3|~245 кб/с (V0)] <Abstract, IDM>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Morning And The Cloud 07:28
-02 Mirrored Shadows 06:10
-03 Possibilities 06:00
-04 Under My Surface (First Mix) 08:50Жанр: Abstract, IDMПродолжительность: 00:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9101C67B52884181092EFA16218DCAFA5A8A7E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972755   (980679) от 07.01.2016
-
-Д. Колин | Домики и кормушки для птиц (2001) [PDF] [Frа]
+Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listings Update. Bulgaria, Romania (2020) [EN] [PDF]
 
 >>Разное (категория книг)
 >>На досуге
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980679.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы только посмотрите! 12 моделей гнёзд и кормушек: чертежи и фотографии, иллюстрирующие каждый этап работы. А еще кормушку можно превратить в шкатулку, в предмет интерьера, можно подарить и даже продать!
-
-Vous regardez seulement! 12 modèles des nids et les mangeoires : les plans et les photos illustrant chaque étape du travail. Et encore on peut transformer (   Читать дальше...   )Жанр: Творчество, хоббиФормат: PDF
+Один из самых известных среди филателистов каталогов марок.
+Это неофициальная компиляция частей "Болгария" и "Румыния" из каталога почтовых марок Скоттa 2017 и новости "Scott New Listing Update" из "Linn's Stamp News" (до ноября 2019 года).Жанр: Филателия, коллекционирование, почтовые маркиЯзык: АнглийскийИздательство: Amos Media Co.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34CC4B375DD2F115DBCF1D75EBF6CADE13C03CF1
+magnet:?xt=urn:btih:5F898C5970941F979C96D64E6119371D60B19E7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,28 +413,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973056   (980680) от 07.01.2016
+###  Публикация: 1795903   (66873) от 13.05.2025
 
-VA - Acoustic Covers Album (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+Растровый клипарт - Dream Studio - Creative Fabrica - Watercolor Hawaii Clipart Bundle [PNG]
 
->>Electronic
->>Easy listening
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980680.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Karizma Duo - Sugar (03:56)
-02. Alice Lamb - How Deep Is Your Love (03:11)
-03. Chris Pomeroy - The Man Who Can't Be Moved (03:46)
-04. Chloe Le Page - Radioactive (03:30)(   Читать дальше...   )Производство: Lark RecordingsЖанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:01:46
+Акварельный Гавайский клипарт.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D43D0B4A230CC5D309916BFE60905A866EF3A84
+magnet:?xt=urn:btih:5AD66B8E403B922F64BDD9B9C3AFA6952CC81AA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,25 +439,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972957   (980681) от 07.01.2016
+###  Публикация: 1796992   (66872) от 13.05.2025
 
-Борис Тетенбаум | Гений зла Гитлер (2014) [FB2]
+Aki Kumar - God Bless The USA (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Разное (категория книг)
->>Публицистика
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980681.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Выбрал свой путь – иди по нему до конца», «Ради великой цели никакие жертвы не покажутся слишком большими», «Совесть – жидовская выдумка, что-то вроде обрезания», «Будущее принадлежит нам!» – так говорил Адольф Гитлер, величайший злодей и главная загадка XX века. И разгадать ее можно лишь отказавшись от пропагандистских мифов, до сих пор представляющих фюрера Третьего (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2
+01.  Should I Stay (3:18)
+02.  A Plea to Be Free (4:06)
+03.  I Just Want to Make Love (2:58)
+04.  Jarvos Woman (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8F02906AB7A3E444D5B02082A51733DA3ABF5ED
+magnet:?xt=urn:btih:210044649865A42C39D38499C4550DFA80A8C6AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +468,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972838   (980682) от 07.01.2016
+###  Публикация: 1796994   (66871) от 13.05.2025
 
-VA - (OST) Scarface Лицо Со Шрамом (1983) [MP3|320 кб/с]
+Catfish John Tisdell - Back to the Dirt (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980682.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scarface (Push it to the limit)
-02. Rush Rush
-03. Turn out the light
-04. Vamos a Bailar(   Читать дальше...   )Жанр: OSTПродолжительность: 00:35:23
+01.  Third Rate Romance (4:37)
+02.  Today I Started Loving You Again (5:02)
+03.  Honky-Tonk Man (3:14)
+04.  I Think I'll Just Stay Here and Drink (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D0FD5DABCE16FD5CB3F4E92A23C8C16EF105740
+magnet:?xt=urn:btih:771AAAB82B13392E779071EDB3FD4986A1EDD374
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +497,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 972956   (980683) от 07.01.2016
+###  Публикация: 1797003   (66870) от 13.05.2025
 
-Александр Вестов - Миллион облаков (2015) [MP3|320 кб/с] <Шансон>
+John Primer - Grown in Mississippi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980683.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Миллион облаков
-02. Она
-03. За что нам это счастье
-04. Было и прошло(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:36:01
+01.  John's Blues Holler (1:30)
+02.  Born in Mississippi (3:32)
+03.  Blues Before Sunrise (5:36)
+04.  Down in the Bottom (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77DE0673DA75A069F4AFB5D97521C51BD214815F
+magnet:?xt=urn:btih:DD4DA533618A4F28436D1C4ECCB4B95468DA8D2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,28 +526,197 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 973167   (980684) от 07.01.2016
+###  Публикация: 1796991   (66869) от 13.05.2025
 
-VA - Зимний Hit-Mix (2016) [MP3|256-320 кб/с] <Pop, Dance, Electro House, Progressive House>
+Биско этажом ошибся / Biscot se trompe d'etage (1916) WEBRip
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980684.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Т9 - Ода Нашей Любви
-2. A-Sides Feat. Vanessa Freeman - This Is Your Time
-3. Nicki Minaj Feat. Drake, Lil' Wayne & Chris Brown - Only
-4. Stone & Van Linden - Sky (Horizon Mix) (feat. Nicole Tyler)(   Читать дальше...   )Жанр: Pop, Dance, Electro House, Progressive HouseПродолжительность: 05:55:52
+Алкоголь зло. И чтобы не поиметь неприятностей, нужно быть умеренным в возлияниях. Всем это известно. Но не все руководствуются этой мудростью. Вот и Биско, приличный, вроде бы, месье, но так загулял с друзьями, что, когда за полночь возвращался домой, не смог найти свою квартиру в многоквартирном доме. Это просто безобразие! Ну, или бурлеск-комедия, как хотите назовите. (   Читать дальше...   )Производство: Франция / Société des Etablissements L. GaumontЖанр: короткометражный, комедия, немое киноРежиссер: Жак ФейдерАктеры: Жорж Биско, Китти ХоттПеревод: немой с интертитрамиСубтитры: французские (интертитры), русские отдельным файломПродолжительность: 00:14:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3940C955C2B8EFF0AB273651606858EF6E261F43
+magnet:?xt=urn:btih:A1F212E3F9D347597BDC2A184A5BBFC151343E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796930   (66868) от 13.05.2025
+
+Ken (Kenny) Wheeler & The John Dankworth Orchestra - Windmill Tilter: The Story Of Don Quixote (1968) 2010, BGO Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preamble [0:43]
+02. Don the Dreamer [6:14]
+03. Sweet Dulcinea Blue [3:40]
+04. Bachelor Sam [5:18](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFC2174AC39EFFC8118A21F39FC4B2D749AA6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796993   (66867) от 13.05.2025
+
+Brody Buster - Redemption (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Can You Hear Me (4:41)
+02.  Born to Be Bad (4:52)
+03.  Deadwood Shuffle (2:53)
+04.  Working for the Devil (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5BA8F0A04F7C27320A233627D40EA9AF3511D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797009   (66866) от 13.05.2025
+
+Noel Evans - AZTEC MOON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aztec Moon (4:34)
+02.  Carry Me (4:05)
+03.  Silver and Gold (4:25)
+04.  Sad and Lonely and Blue (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6404BF80D0D1782E7AC4FFE213E3F7034843FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796997   (66865) от 13.05.2025
+
+Dave Packham - The Wedding Dance (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  And I Love Her (5:50)
+02.  King and Queen (5:47)
+03.  Every Now and Then (5:31)
+04.  Make My Bed (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FFB738BAD32BCA394297674EBE2CDACC13D715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797001   (66864) от 13.05.2025
+
+JB & The Huggeli - The Blues Supadupa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aint It Good (4:24)
+02.  Blues In My Hometown (3:44)
+03.  My Comfy Chair (3:41)
+04.  Ole Fessor Lindgreen - Blues House Party ("The Big One") (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068AD1405D6C421C358FA939D6A5D7F943D994C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796960   (66863) от 13.05.2025
+
+НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 4-й матч) Вегас Голден Найтс - Эдмонтон Ойлерз (12.05.2025) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66863.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 мая 2025, вторник. 04:30 МСК, 1/4 финала. 4-й матч. Стадион: Роджерс Плэйс (Эдмонтон, Канада), 18 347 зрителей (98% при вместимости 18 641)
+Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Ти Джей Люксмор (Тимминс, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада); Линейный: Девин Берг (Китченер, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C305D095B9158DC5D0F6BC70ABE3D86B8AE1074
 ```
 
 https://mybot314.ru/tekegram_catalog/

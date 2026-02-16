@@ -1,25 +1,22 @@
-###  Публикация: 1103238   (887797) от 11.02.2017
+###  Публикация: 595114   (131210) от 30.12.2012
 
-Leda - Welcome To Joyland (1978) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 1080p raw
 
->>Pop
->>Зарубежная поп-музыка
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887797.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome To Joyland (3:53)
-02. Endless Race (3:41)
-03. White Clouds (4:39)
-04. Movin' On (3:02)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:34:03
+Кота после долгого отсутствия вернулся в приокеанский город, в котором живёт его двоюродная сестра и подруга детства Юка. Кота собирается учиться в местном колледже. И Юка, с ранних лет неравнодушная к нему, естественно, поступает туда же. Её семья предоставила парню жильё в здании бывшей небольшой гостиницы, при условии, что тот будет за ней присматривать и прибирать комнаты. Когда вечером пара прогуливалась по пляжу, из воды им навстречу вышла нагая девушка с огненными волосами и маленькими рожками, которая (   Читать дальше...   )Жанр: драма, фантастика, ужасы, эттиРежиссер: Камбэ МаморуПродолжительность: 00:25 x14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A8826028234B126DD46A9C43A8213982A74495E
+magnet:?xt=urn:btih:3F86118D495E52E6824D84AE87B8DB9F2DEE3971
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,278 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 994540   (887800) от 09.03.2016
+###  Публикация: 1682684   (131209) от 08.12.2023
 
-Nana - Nana (1997) [FLAC|Lossless|image + .cue] <Euro-rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. One Second (feat. Alex Prince)
-03. Darkman
-04. Why? (feat. Jonestown)(   Читать дальше...   )Жанр: Euro-rapПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD55FD95FA7023363C621267F50738F3CBD4681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103142   (887801) от 11.02.2017
-
-Oscar Peterson Trio - Encore At The Blue Note (1993) 1998, Telarc[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Falling In Love With Love [09:39]
- 02.Here's That Rainy Day [09:05]
- 03.Medley: Goodbye Old Girl - He Has Gone [13:11]
- 04.The Gentle Waltz [08:37](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8AEF88ADCEE51F87AA2E11E8D6601A914DF6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994863   (887802) от 09.03.2016
-
-TechSmith Snagit 3.3.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Snagit – инструмент для захвата изображений с экрана
-TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 марта 2016Разработчик: TechSmith CorporationПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03999754BB519642A6F3C25A98CC706FCE52434E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103044   (887804) от 11.02.2017
-
-Submarine Silence - Journey Through Mine (2016) ex-Moongarden [FLAC|Lossless|image + .cue] <Neo Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Astrographic Temple (Instrumental) (8:22)
-2. Black Light Back (9:48)
-3. Swirling Contour (7:34)
-4. Canova's Gypsoteque (Instrumental) (8:02)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046D47FBBDB4AFED91916DD727FFED816D0DD5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103097   (887807) от 11.02.2017
-
-Left Lane Cruiser - Beck in Black (2016) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pusher (06:27)
-02. Circus (02:47)
-03. G Bob (03:12)
-04. Bloodhound (03:59)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A132F4E9E74022444BFB3800C7397E88BC6D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102890   (887810) от 11.02.2017
-
-Пьер Рей | Грек (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887810.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Грек» это первое произведение французского писателя Пьера Рея, написанного им в 2006 году и сразу же ставшим знаменитым бестселлером. Роман описывает реальные события из жизни самого знаменитого грека со времен Гомера Аристотеля Онассиса. Повествование книги напоминает чтение колонки из популярной газеты, которая посвящена описанию светской хроники. И в хронологическом (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 28:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28CEA932E9A0E562752D9031BC3708F2632057D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102881   (887814) от 11.02.2017
-
-Адыл Якубов | В этом мире подлунном (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887814.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе известного узбекского писателя Адыла Якубова действуют два знаменитых мудреца Востока XI века — Абу Райхан Бируни и Абу Али Ибн Сина (Авиценна), воплощая собой мир света и разума, мир гуманности, которым противостоит мрачная фигура завоевателя султана Махмуда. В книге воссозданы политическая борьба и бытовые картины ХI века. Увлекательный сюжет ведет читателя (   Читать дальше...   )Жанр: Исторический романПродолжительность: 15:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4187283A14426581056CB8E06BED4398AC0D5EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103163   (887817) от 11.02.2017
-
-Главная дорога (2017.02.11) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887817.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВ HDЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D601F2912A98D6E11C3E26B15B2B7F22D27655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494589   (887819) от 08.09.2021
-
-VA - Beatport Electronic: Sound Pack #343 (2021) [MP3|320 Kbps] <Electronic, synthetic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887819.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Trees Speak - Transforming
-002. Mmyylo - Venamy
-003. Darkside - Liberty Bell
-004. Fairtone - Riviera(   Читать дальше...   )Жанр: Electronic, syntheticПродолжительность: 12:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753BE5CD414D63A2DFD6A445773E15A4C79AF7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494649   (887822) от 08.09.2021
-
-Bloodbound - Creatures Of The Dark Realm (2021) [FLAC|Lossless|image + .cue] <Power Metal>
+Cirith Ungol - Dark Parade (2023) [FLAC|Lossless|image + .cue] <Heavy, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887822.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Creatures Preludium
-02. Creatures Of The Dark Realm
-03. When Fate Is Calling
-04. Ever Burning Flame(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:07
+1. Velocity (S.E.P.)
+2. Relentless
+3. Sailor On The Seas Of Fate
+4. Sacrifice(   Читать дальше...   )Жанр: Heavy, Doom MetalПродолжительность: 00:44:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9842A32331E9235661549010D4BDEDA67184D356
+magnet:?xt=urn:btih:F453BE7AD3847518595A84A03CABAE28588A5E71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103122   (887823) от 11.02.2017
+###  Публикация: 1682607   (131207) от 08.12.2023
 
-Expressions 1.2.2 [En]
+Lunatii - Diskonformism: Anhedonia in Utopia (2020) [FLAC|Lossless|image + .cue] <Depressive Black Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887823.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Expressions это приложение, чтобы играть с регулярными выражениями. Легко и красиво.
-Полностью минималистичный, не отвлекающим пользовательский интерфейс. Темный и светлый режим. Шаблоны подсветки синтаксиса. Прекрасный просмотр на весь экран.
-
-Expressions поддерживает переключение между группами шаблонов, нажав Cmd + сдвиг {и Cmd + Shift +}. Копирование модели можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.02.2017Разработчик: ApptoriumПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский
+01		The Highest Note Of Silence
+02		The Dance Of Self-Destruction
+03		Eternal Return
+04		The Great Sea Of Quiet(   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 01:01:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:489102E07F00F9AA59DEDC590590B9EA67EFB1DB
+magnet:?xt=urn:btih:D4E75B9A826B92BDF4AF7D90FAD3F6DB7E7680BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,27 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 869467   (887825) от 17.02.2015
+###  Публикация: 1682770   (131205) от 08.12.2023
 
-Rakuen Tsuihou -Expelled from Paradise- OST (2014|FLAC) <OST>
+Suol - Suol (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 
->>Аниме музыка
->>Аниме OST (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887825.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Альбомы в раздаче
-(141112) Rakuen Tsuihou -Expelled from Paradise- Main Theme — EONIAN (ELiSA)
-(141210) Rakuen Tsuihou -Expelled from Paradise- Original Soundtrack (Wataru Maeguchi)Жанр: J-PopПродолжительность: 00:01:33:13
+01. Hellevaart (05:50)
+02. Slot van Voorst (07:59)
+03. Over de Geute (07:59)
+04. Vrouwe IJssel (06:21)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E1080FBCCDF79E5B68F01338C9DD3D84C8118B1
+magnet:?xt=urn:btih:3C478D104F452EBF0844AD27AD3E81956C5A8BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,25 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494619   (887826) от 08.09.2021
+###  Публикация: 1682605   (131203) от 08.12.2023
 
-Журнал | Psychologies №9 (63) (сентябрь 2021) [PDF]
+Lunatii - Deprosorryum (2018) [FLAC|Lossless|image + .cue] <Depressive Black Metal>
 
->>Журналы
->>Научно-популярные журналы
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887826.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал Psychologies - уникальный «специалист по жизни», поскольку главная его тема — жизнь его читателей. Это знающий друг, доброжелательный советчик и помощник в любых жизненных ситуациях. Он предназначен для женщин и мужчин, молодых и зрелых, семейных и холостых — для всех, кому нужна внятная и достоверная информация о происходящем с ним и с другими; для всех, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+01		Pain Will Come Say Goodbye To You
+02		Rotting Heart
+03		Gibbet Of Montfaucon
+04		I Hide You Away In My Scars(   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 00:46:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:715B492CEF361618BB3BE95C23035C78E27DCEA1
+magnet:?xt=urn:btih:B61C7E779DEE847B5E92E5695F2353DC1A11C6D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,50 +140,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494628   (887828) от 08.09.2021
+###  Публикация: 595082   (131202) от 30.12.2012
 
-VA - Like Everyday! (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The National - About Today
-002. The Snuts - Glasgow
-003. Nicolas Michaux - Une Seconde Chance
-004. When Saints Go Machine - Far Cry(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383936DFA290DB7ACA7616982F1C990E70B775DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185419   (887830) от 21.03.2010
-
-Железный человек / Iron Man (2008) [H.264/720p-LQ] BDRip
+Королевский роман / En kongelig affaere / A Royal Affair (2012) BDRip [H.264/1080p]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887830.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История о промышленнике-миллиардере и гениальном изобретателе, которого похитили с целью изготовления оружия массового поражения. Вместо этого, используя свой ум и фантазию, Тони конструирует высокотехнологичный железный костюм и спасается бегством. Обнаружив коварный заговор, чреватый страшными последствиями, он надевает свой костюм и защищает мир как Железный Человек.Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Джон Фавро.Актеры: Роберт Дауни мл., Терренс Ховард, Джефф Бриджес, Гвинет Пэлтроу, Лесли Бибб, Шон Тоуб, Фаран Таир, Саид Бадрия, Билл Смитрович, Кларк Грегг и др.Язык субтитров: 1. Русские (на основе лицензии) 2. Русские (любительские от Е. Воронина) 3. АнглийскиеПродолжительность: 02:06:01
+Действие картины происходит в начале 1770-х годов в Дании. Датский король Кристиан VII, страдающий серьезным психическим заболеванием, предпочитает проводить время в притонах Копенгагена, вызывая тем самым ненависть юной королевы Каролины Матильды.
+Вскоре в свите короля появляется молодой германский доктор Иоганн Фридрих Струэнзе, сумевший благотворно повлиять на (   Читать дальше...   )Производство: Дания, Чехия, Швеция, DR TV, Film i Väst, Sirena Film, Sveriges Television (SVT), Trollhättan Film AB, Zentropa EntertainmentsЖанр: Драма, Мелодрама, ИсторическийРежиссер: Николай АрсельАктеры: Алисия Викандер, Мэдс Миккелсен, Миккель Бо Фольсгаард, Трине Дирхольм, Дэвид Денсик, Томас В. Габриэльссон, Сайрон Бьёрн Мелвилл, Бент Мейдинг, Харриет Уолтер, Лаура Бро, Сорен Мэллинг, Джейкоб Ульрик Ломанн, Сёрен Спаннинг, Джон Мартинус, Клаус Танге, Карин РёрбекПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскиеПродолжительность: 02:17:32
 
 ## Скачать торент
 ```bash
@@ -444,28 +167,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494633   (887831) от 08.09.2021
+###  Публикация: 1682568   (131201) от 08.12.2023
 
-VA - Maniac Hard Dance (2021) [MP3|320 Kbps] <Club, Hard Dance, Hardstyle, Core Dance>
+кто тебя убил? - черное. белое. яркое. (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887831.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Agressive Noize - Show Me The Way
-002. Dance House Project - Can't Stop Me
-003. Axray - Sahnekapsel
-004. Ezkill - Hands In The Air(   Читать дальше...   )Жанр: Club, Hard Dance, Hardstyle, Core DanceПродолжительность: 08:13:23
+01. мерцай, маленькая звездочка! [00:03:40]
+02. пусть горит наш старый дом [00:03:49]
+03. наблюдающий затмение [00:03:30]
+04. жизневорот [00:02:53](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:47:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA7600603AA2F24BB12CDDC6A1BF1C73545353CA
+magnet:?xt=urn:btih:B3D9D7278E1FCA296DB4DFB98B63CA6F51A897A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,28 +196,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 870166   (887832) от 17.02.2015
+###  Публикация: 596138   (131200) от 30.12.2012
 
-Blank & Jones - Relax Jazzed 2 - by Marcus Loeber (2014) [FLAC|Lossless]<Easy listening>
+Рио / Rio (2011) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
 
->>Архив торрентов
->>Архив Музыки
+>>Мультфильмы
+>>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887832.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lullaby (Les Yeux Fermes)
-02. Balearic Blue
-03. Sunny Side Up
-04. Le Grand Bleu(   Читать дальше...   )Жанр: Easy listeningПродолжительность: 01:11:01
+Попугай-зануда оставляет свою уютную сытую жизнь в клетке и из Миннесоты отправляется в Рио-де-Жанейро, город грез всех и каждого. Неминуемые встречи, препятствия, опасности и любовь к последней представительнице его рода заставляют нашего героя по-другому посмотреть на мир и из скучного домоседа превратиться в милого симпатягу, узнавшего цену дружбе и смелости.Жанр: Мультфильм, Мюзикл, Комедия, Приключения, СемейныйРежиссер: Карлос СалданаПерсонажи: Джесси Айзенберг,  Энн Хэтэуэй,  Джейми Фокс,  Уилл Ай Эм,  Родриго Санторо,  Карен Дишер,  Карлос Понсе,  Джордж Лопез,  Джемейн Клемент,  Джейсон ФриччиоПеревод: ДублированныйПродолжительность: 01:35:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBB8DAF2158009BB2E691F7906D902AD7AB73B7F
+magnet:?xt=urn:btih:524E5B694090301DB3F2FDCBD2ED1A760508C737
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,28 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494594   (887834) от 08.09.2021
+###  Публикация: 1682690   (131199) от 08.12.2023
 
-МС Василий (DZA) - Как Zделать? (2004) [MP3|192 Kbps] <Boom Bap, Jazzy Hip-Hop, Turntablism>
+Toshiyuki Miyama & His New Herd - Beat Generation (1994) 2015, King Record [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887834.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (DJ Dravasek)
-02. МС Василий у микрофона
-03. Повесть о вороне
-04. Skit (DJ Dravasek)(   Читать дальше...   )Жанр: Boom Bap, Jazzy Hip-Hop, TurntablismПродолжительность: 00:55:50
+01. Confirmation [6:56]
+02. Boo's Walk [6:03]
+03. Detour Ahead [5:32]
+04. Essence [1:08](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:02:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F5FE30571AE8C44A8AE2D8454287F6AD9E038FD
+magnet:?xt=urn:btih:CCAF402B9ED500A08E7E455D83E2EB665DB756C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,50 +251,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494725   (887837) от 08.09.2021
+###  Публикация: 596418   (131198) от 30.12.2012
 
-Live Home 3D Pro Edition 4.1.0 [Multi/Ru]
+The Bat! Professional 5.3.6 Christmas edition RePack (& portable) by KpoJIuK [MULTi / Русский]
 
->>Архив торрентов
->>Архив 4Apple
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887837.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
-Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.09.2021Разработчик: Belight Software, Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1993D5C7BBEE65BAC3080E3AB263EC9EDCEEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185330   (887838) от 21.03.2010
-
-Помни / Memento (2000) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леонард Шелби изысканно и дорого одет, ездит на новеньком «Ягуаре», но проживает в дешевых мотелях. Его цель в жизни — найти убийцу жены.
+The Bat! - популярный клиент электронной почты; программу используют более шести миллионов пользователей сети Интернет; позволяет работать с неограниченным количеством почтовых ящиков, использовать мощные средства фильтрации писем, шаблоны сообщений, диспетчер писем и многое другое. The Bat! Professional Edition оснащен всеми
+свойствами версии Home. Кроме того, в этой версии присутствуют дополнительные
+опции, которые понадобятся продвинутым пользователям.
 
-Его проблема — редкая форма амнезии, потеря короткой памяти, помня все до убийства, он не помнит, что было пятнадцать минут назад. Его друзья — Тедди и Натали, да и друзья ли они ему. Его спутники — фотоаппарат «Полароид» и татуировки (   Читать дальше...   )Жанр: ДрамаРежиссер: Кристофер Нолан.Актеры: Гай Пирс, Кэрри-Энн Мосс, Джо Пантольяно, Марк Бун Джуниор, Расс Фега, Джоржа Фокс, Стивен Тоболовски, Харриет Сэнсом Харрис, Томас Леннон, Каллум Кит Реннии др.Язык субтитров: 1. Русские отПродолжительность: 01:53:27
+(   Читать дальше...   )Название программы: The Bat! Professional EditionЯзык интерфейса: MULTi / Русский
 
 ## Скачать торент
 ```bash
@@ -586,25 +281,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494617   (887840) от 08.09.2021
+###  Публикация: 1682611   (131197) от 08.12.2023
 
-Журнал | Forbes [Россия] №9 (210) (сентябрь 2021) [PDF]
+Lunatii - Insomniashes (2023) [FLAC|Lossless|image + .cue] <Depressive Black Metal>
 
->>Журналы
->>Другие журналы
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887840.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Forbes" - ведущий деловой журнал в мире. Миссия журнала – обеспечивать читателей информацией, гарантирующей им успех. Журнал Forbes - независимое бизнес-издание. Forbes не публикует информацию, которая уже вышла в других СМИ. Каждый материал в журнале - эксклюзивный. В журнале: статьи экономистов и политиков специально для Forbes, экономические новости, (   Читать дальше...   )Жанр: Деловой журнал, Бизнес и ПолитикаФормат: PDF
+01		Insomniashes
+02		Empty Source
+03		Brutal Doom
+04		Lifeless(   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 00:55:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F85F785ED17125D0BFA70ACF8FF8526C7E42D7E
+magnet:?xt=urn:btih:D445A1446BF863FB69AFEECD8D30E45A419D22DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,26 +310,258 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494710   (887843) от 08.09.2021
+###  Публикация: 1682841   (131195) от 08.12.2023
 
-iNet Network Scanner 2.8.3 [En]
+The London Suede - Autofiction (2022) Expanded, 2023, BMG Rights Management (UK) Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 01
+Disc 02
+Disc 03Жанр: Alternative RockПродолжительность: 3CD, 01:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0475EA06D860B71392171BBCFD0187CFE6455DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596303   (131194) от 30.12.2012
+
+Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011 | 2xDVD5
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131194.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Call of Juarez: Картель» переносит действие знаменитой серии шутеров про Дикий Запад в наши дни, сохраняя при этом атмосферу и динамику интерактивного вестерна.
+
+История начинается с взрыва, устроенного членами наркокартеля в здании Министерства юстиции США. Разорвавшаяся бомба унесла жизни сотен людей, но это только начало. Правительство приходит к выводу, что члены преступной организации, скорее всего, уже проникли в ряды властных структур. Единственный шанс остановить мафию — собрать отряд особого назначения из верных людей. Выбор падает на агента ФБР Ким Эванс, которая провела детство на улицах среди преступников и негодяев, Эдди Гуэрру, работника Управления по борьбе с наркотиками, увлекающегося азартными играми, и Бена Маккола, потомка героя оригинальной игры Рея Маккола.
+
+В процессе расследования игроки пройдут через множество испытаний и совершат путешествие из Лос-Анджелеса в загадочный Хуарес, а по пути побывают в Аризоне и Нью-Мексико.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDC70A41CADF281DFEAF05472EC8735562BC632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682818   (131193) от 08.12.2023
+
+Damanek - Making Shore (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Mountain of Sky 7:15
+02. Back2Back 5:59
+03. Noon Day Candles 6:33
+04. Americana 4:55(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1508B70A4A7FFDF220EE26A6FA56CD697E448251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682560   (131192) от 08.12.2023
+
+Lyr - Lyr (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue [00:03:32]
+02. Stay [00:05:30]
+03. I Own The World [00:05:05]
+04. Nonsense [00:05:14](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6C902D38DDDDD7F09EB6CF58C871C9D6D1ACE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682578   (131191) от 08.12.2023
+
+Prog Mountain - Wasteland (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The New [00:04:02]
+02. Warship Archer [00:06:23]
+03. Guillame Le Million [00:02:06]
+04. Klaasje On The Run [00:04:34](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AA5488A0576217C54CA8640744C94FB095C028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682664   (131190) от 08.12.2023
+
+Atreyu - The Beautiful Dark of Life (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drowning (2:46)
+02. Insomnia (3:38)
+03. Capital F (2:35)
+04. God/Devil (2:55)(   Читать дальше...   )Жанр: Alternative metalПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13EEC6E3F3E21D4746266401446427C3E50CDFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682788   (131189) от 08.12.2023
+
+Sons Of Eternity - End Of Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Silence
+02. Dark Orbit
+03. Stand Your Ground
+04. Media Zombies(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B498424C88120778917B84296A5FB05B8EF51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682694   (131188) от 08.12.2023
+
+The Chronicles of Father Robin - The Songs & Tales of Airoea - Book II (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over Westwinds (4:00)
+02. Orias & the Underwater City (8:37)
+03. Ocean Traveller (6:22)
+04. Lady of Waves (5:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80E48923E7277EEB968A934B742F4F3AFE9497D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596608   (131187) от 30.12.2012
+
+F1 2012 [Ru+multi] [Native]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887843.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
-iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.06.2021Разработчик: BananaGlueПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Испанский
+F1 2012 продолжает знаменитую серию симуляторов гонок Formula One, созданных на основе чемпионата Формула-1. В этой части появился новый режим под названием Young Driver’s Test, который создан специально для того, чтобы с помощью ряда учебников научить игроков, как управлять болидом Формулы-1. Еще один режим Champions позволит игрокам бросить вызов шести чемпионам Международной автомобильной федерации – Кими Раайкконену, Льюису Хэмилтону, Дженсону Баттону, Себастьяну Феттелю и Фернанду Алонсо и Михаэлю Шумахеру. F1 2012 содержит все официальные команды, гонщиков и трассы Сезона 2012 года Формулы-1, включая Гран-при США в Остине и Техасе, а также Германскую трассу Хоккенхайм.Релиз состоялся: 2012 г.Тип издания: MacOS X gameЖанр: Sports / SimulatorЯзык озвучки: Русский +multiЯзык интерфейса: Русский +multi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F22828782DA58C6117A934F1212CCB4B9454EB5E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,26 +569,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494539   (887847) от 08.09.2021
+###  Публикация: 1682844   (131186) от 08.12.2023
 
-TG Pro (Temperature Gauge Pro) 2.59 [En]
+Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887847.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2021Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+01. The Dream Sequencer
+02. My House On Mars
+03. 2084
+04. One Small Step(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:09:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7ADFE57E9F2E1C936DAB105C2ED34CE3AF70A8F5
+magnet:?xt=urn:btih:F3C1A7E8EB5C90D93CB840A8050A257FA092949B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,25 +598,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494669   (887850) от 08.09.2021
+###  Публикация: 1682572   (131183) от 08.12.2023
 
-Мэри Пикфорд. Белые полосы на мрачных волнах / Lines of White on a Sullen Sea (1909) WEBRip
+Tariot - Drag Me To Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887850.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вскоре после их помолвки Билл уходит в море, а Эмили клянется оставаться верной до его возвращения. Она не знала, что Билл женится на другой женщине из другого порта. Эмили преданно ждет шесть лет, но внезапно серьезно заболевает. Когда Билл внезапно появляется в городе со своей семьей, его давний соперник Джо, который всегда любил Эмили, заставляет Билла скрасить (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Линда Арвидсон, Джордж Николс, Джеймс Кирквуд, Кейт Брюс, Мэрион Леонард, Дороти Уэст, Фрэнк Эванс, Делл Хендерсон, Артур В. Джонсон, Мэри ПикфордПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:16:40
+01. Death By Seven [00:03:28]
+02. Rain On My Parade [00:03:24]
+03. Alas [00:02:58]
+04. Grave Future [00:03:17](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:41:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CED6BCDD3408746D6483BCE987ECDCB23FFF8A6
+magnet:?xt=urn:btih:61FB783ACF4836C85FBA103354DF7917522A3319
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,28 +627,117 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494687   (887852) от 08.09.2021
+###  Публикация: 596521   (131181) от 30.12.2012
 
-VA - Luminosity Beach Festival, Netherlands (2021) [MP3|128-320 Kbps] <Trance, Progressive House, Hard Dance>
+Oddworld: Stranger's Wrath HD [Ru/En] (Repack) 2012 | R.G. Механики
 
->>Electronic
->>Radioshow, Live Mixes
+>>Win Игры
+>>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887852.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Activa @ Beachclub Bronze, Luminosity Beach Festival, Netherlands 2021-08-20(128Kbps):
-01. Activa - The Lost Language (Original Mix)
-02. Orkidea & Activa - Z21 (Activa’s ‘Origins’ Remix)
-03. Alex Daf - Back To Life (Activa Rework)(   Читать дальше...   )Жанр: Trance, Progressive House, Hard DanceПродолжительность: 17:04:43
+Вы — Странник, таинственный охотник за головами, который отправляется в поход в поисках самого главного в своей жизни сокровища. Вы отчаянно нуждаетесь в деньгах, ведь только дорогостоящая операция сможет избавить вас от гнетущего недуга. Тайна этого недуга сокрыта от всех, но лишь до поры до времени.
+
+В пыльной пустоши Западного Мудоса поселения сварливых горожан подвергаются нападениям воинственных бандитов. В это же время в округе появляется таинственный Странник — высокий и мрачный охотник за головами, его миссия — отловить всех негодяев и отправить их за решетку.
+
+Странник ревностно охраняет тайну своего прошлого и нуждается в дорогостоящей операции, чтобы выжить. Преследуя цель заработать как можно больше Moolah, он неохотно принимает особенный заказ владельца дамбы на реке Монго, и его приключение принимает совершенно неожиданный поворот...
+
+(   Читать дальше...   )Тип издания: RePackЖанр: 3D Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EB29DB2BBB7ACDCCBCDC8057B03BB6DC103778C
+magnet:?xt=urn:btih:686DC7EBC15FE715B887BA62712C50160E756399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596338   (131180) от 30.12.2012
+
+The Bat! Professional 5.3.6 Christmas edition [MULTi / Русский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131180.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! - популярный клиент электронной почты; программу используют более шести миллионов пользователей сети Интернет; позволяет работать с неограниченным количеством почтовых ящиков, использовать мощные средства фильтрации писем, шаблоны сообщений, диспетчер писем и многое другое. The Bat! Professional Edition оснащен всеми
+свойствами версии Home. Кроме того, в этой версии присутствуют дополнительные
+опции, которые понадобятся продвинутым пользователям.
+
+(   Читать дальше...   )Название программы: The Bat! Professional EditionЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592707   (131178) от 30.12.2012
+
+Голос. Выпуски №1-13 из 13 (2012) SATRip
+
+>>След.
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал объявляет о запуске нового музыкального проекта "Голос", участники которого отбираются исключительно по своим вокальным данным. В шоу проходят только те, кто умеет петь, и делает это очень хорошо.
+Заявки для участия в шоу принимались вплоть до начала сентября. Всего было принято свыше 10 тысяч заявок, из которых лишь каждая десятая преодолела (   Читать дальше...   )Жанр: ТВ-Шоу, развлекательныйПродолжительность: Каждый выпуск ~ 02:00:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682685   (131177) от 08.12.2023
+
+Cassidy Paris - New Sensation (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danger (3:33)
+02. Rock 'n' Roll Hearts (3:36)
+03. Here I Am (3:56)
+04. Walking On Fire (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583ED21A48CA723ECCB549B7FF6E77F2A3480969
 ```
 
 https://mybot314.ru/tekegram_catalog/

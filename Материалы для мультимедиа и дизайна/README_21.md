@@ -1,22 +1,22 @@
-###  Публикация: 1803578   (13575) от 24.06.2025
+###  Публикация: 1477209   (1011169) от 14.06.2021
 
-Шрифты - Sentavio - Envato - Skyrox Font - AC42EQ8 [OTF, EOT, SVG, WOFF, WOFF2, TTF]
+Растровый клипарт - Elements Collage 162 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13575.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт с кириллицей, создает современную футуристическую атмосферу и стиль в стиле хай-тек.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 200x658-1800x851
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00D9D035D9748EE2005C411E30EEBF4462D815A4
+magnet:?xt=urn:btih:4022DCA3C20470FA67326ADCAC5A27F9137497D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803574   (13577) от 24.06.2025
+###  Публикация: 1477204   (1011168) от 14.06.2021
 
-Шрифты - Sentavio - Envato - Ronald Gunfire Serif Font Family - UQMZEGL [OTF, EOT, SVG, WOFF, WOFF2, TTF]
+Растровый клипарт - Elements Collage 158 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13577.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт с кириллицей, с засечками.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 163x125-2701x3051
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A43E1F9D97AC0865017F84F775EEE2B3DC712025
+magnet:?xt=urn:btih:BF6EA766A0A56EA52BAD5FBB9E736A7EA2686EFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803720   (13578) от 24.06.2025
+###  Публикация: 1477220   (1011163) от 14.06.2021
 
-Фоны - Envato - Retro Flare Polaroid Light Effect Backgrounds - AEUGUDK [JPG]
+Растровый клипарт - Elements Collage 169 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13578.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Retro Flare передает очарование аналогового несовершенства и кинематографической ностальгии. Эта коллекция из 9 текстурированных фонов обеспечивает светящиеся блики, мягкое боке и винтажные ожоги пленки на фоне шероховатых темных поверхностей. Царапины, шум и световые полосы привносят подлинную энергию старой школы в современные композиции. Идеально подходит для (   Читать дальше...   )Формат: JPGРазрешение файлов: 6400x4400
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 209x400-3000x2804
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A099F5146FD5BFAED4F52C082AC247C49697A48B
+magnet:?xt=urn:btih:DB80ECCBA1CD71BAD515096B336BC0149BDC2FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803712   (13583) от 24.06.2025
+###  Публикация: 1477231   (1011162) от 14.06.2021
 
-Дополнения - Blender Addons Bundle 6 June 2025 [BLEND]
+Растровый клипарт - Elements Collage 172 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13583.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет дополнений Blender на 6 июня 2025 г.Формат: BLEND
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 276x800-1500x1000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B149F820A003A192856A4FD98BDEE2E2CE4F30C3
+magnet:?xt=urn:btih:2101124C9F1218E153C9FE886A52EB3B69EA3E37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803573   (13610) от 24.06.2025
+###  Публикация: 1477202   (1011161) от 14.06.2021
 
-Оверлеи - Vecteezy - 10,000 Cinematic Photo Overlays Bundle - 38285725 [JPG, PNG]
+Растровый клипарт - Elements Collage 157 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13610.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Превратите каждую фотографию в шедевр с помощью 10 000 оверлеев, подобранных для того, чтобы поднять ваши проекты на новую высоту.Формат: JPG, PNGРазрешение файлов: 1600x1000 - 5944x3963
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 128x530-2190x2603
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DA17CC4AC864995048AD0223BA510E4B4758675
+magnet:?xt=urn:btih:2F281EB5608364CAFA8E40A16F6FF73FE579FC02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803440   (13664) от 23.06.2025
+###  Публикация: 1477217   (1011158) от 14.06.2021
 
-Шрифты - Alexander Pravdin - Behance - Comic Helvetic - 86895479 [OTF]
+Растровый клипарт - Elements Collage 167 [PNG, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13664.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт в трёх вариациях, содержит расширенные символы латиницы и кириллицы. Проект, вдохновленный шрифтами "Comic Sans" и "Helvetica".Формат: OTF
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, JPGРазрешение файлов: 138x497-2315x988
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:432DA97C62A96F38C1FD918F1639853E552DF331
+magnet:?xt=urn:btih:04BD55DA2CFF610FA71A595425D7AB70DB3BC43B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803439   (13665) от 23.06.2025
+###  Публикация: 1477207   (1011156) от 14.06.2021
 
-Шрифты - Alexander Pravdin - Behance - SONGER - 62260557 [OTF]
+Растровый клипарт - Elements Collage 161 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13665.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатное для персонального пользования акцидентное семейство с кириллицей низкоконтрастных "монолайн" шрифтов, с овальными формами и прямыми окончаниями терминалов в 15 вариациях. Символы закрыты и имеют расширенные внутрибуквенные просветы. Вторичные элементы, вроде пунктуации и диакритики намеренно подчеркнуты. В контурах присутствует умеренная оптическая (   Читать дальше...   )Формат: OTF
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 123x550-1898x1789
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EFE860CE25620324F2E79B0F53F513F29DD422A
+magnet:?xt=urn:btih:8C9CE4E2E24BA5BCA4C836748C46C605CC4A42EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,26 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803436   (13666) от 23.06.2025
+###  Публикация: 1477234   (1011155) от 14.06.2021
 
-Шрифты - Alexander Pravdin - Behance - Bezier Sans - 147898999 [TTF]
+Растровый клипарт - Elements Collage 174 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13666.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный для персонального пользования шрифт с кириллицей в пяти вариациях.
-Материал раздаётся с официальной документацией.Формат: TTF
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 171x416-2223x2327
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E178B79962F213F380C56A831E538785BE1817C6
+magnet:?xt=urn:btih:1A8414E8862B9130C18488297306AEC4C1543BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,25 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803569   (13669) от 23.06.2025
+###  Публикация: 1477216   (1011153) от 14.06.2021
 
-Шрифты - Eric_Burntilldead - Envato - Malevice Inkbleed - AT2H7UX [TTF, OTF, WOFF]
+Растровый клипарт - Elements Collage 166 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13669.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт с поддержкой кириллицы, с гладкими закругленными краями и эффектным эффектом чернильного отблеска. Этот шрифт с 9 различными значениями толщины от тонкого до черного позволяет легко создавать смелые и яркие дизайны. Эффект чернильных пятен придает винтажный и классический оттенок, сохраняя при этом свежесть и уникальность.Формат: TTF, OTF, WOFF
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 137x850-1833x1321
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:165AD4B3095C61127FBDDD971C50E0000AF54E43
+magnet:?xt=urn:btih:6010AFE6A9814B066DD0B559888F9ABA17BCDE50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,25 +232,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803555   (13671) от 23.06.2025
+###  Публикация: 1477213   (1011151) от 14.06.2021
 
-Пресеты (Color Grades) - FilterGrade - Miesner Media Carnival Power Grades [DPX, DRX]
+Растровый клипарт - Elements Collage 165 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13671.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самый первый пакет Power Grade, использующий функцию «Resolve FX» Davinci Resolve 12.5. 100 Carnival Style Grade полностью совместимы с Davinci Resolve 12.5 Lite и Davinci Resolve 12.5 Studio! Разработано и протестировано в штаб-квартире Miesner Media, чтобы гарантировать максимальное дерзкое совершенство!Формат: DPX, DRX
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 188x624-2869x2609
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D1A91C3297ECCC6A1A90B00B5F92DA4195EFF53
+magnet:?xt=urn:btih:CF04343092D89DE864D3852AAD51C6AA03ACADA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +258,207 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803568   (13701) от 23.06.2025
+###  Публикация: 1477210   (1011149) от 14.06.2021
 
-Звуковые библиотеки - Epic Stock Media - Sci-fi Shooter - Game Genre and Film Production Sound Effects Kit [WAV]
+Растровый клипарт - Elements Collage 163 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 205x760-1500x1000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF2AD6FE33BF6CE9AEA204111FDDAE0FA017B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477224   (1011148) от 14.06.2021
+
+Растровый клипарт - Elements Collage 171 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 210x262-1862x1588
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF5D90B95F0364BC6DD439FB9D5F6095606DD67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477219   (1011147) от 14.06.2021
+
+Растровый клипарт - Elements Collage 168 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 136x531-1789x2255
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C27463A3404473F61090A174C7335005874919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477222   (1011146) от 14.06.2021
+
+Растровый клипарт - Elements Collage 170 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 148x234-6000x4773
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACCAC3A747B09DDE7EA03E5AB8B154116E6CEA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477235   (1011145) от 14.06.2021
+
+Растровый клипарт - Elements Collage 175 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 195x570-2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C73B1F22B9ADE6DC2C4E648EEC092CF40CF38F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477233   (1011144) от 14.06.2021
+
+Растровый клипарт - Elements Collage 173 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 220x760-2762x2253
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1233455211560234A498DABB6BAA98446D23C916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477236   (1011128) от 14.06.2021
+
+Растровый клипарт - Elements Collage 176 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 205x500-2243x830
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217A4EF897A5A765EF406E4BA20891CB8AED5A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477509   (1010924) от 15.06.2021
+
+Звуковые библиотеки - Loot Audio - Ben Osterhouse - Sospiro Strings 1.2 RePack Андрей650071 [Kontakt]
 
 >>Материалы для мультимедиа и дизайна
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13701.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перенесите свой отряд в темный научно-фантастический мир, кишащий существами и неизвестными чудесами технологий будущего. Испытайте захватывающую футуристическую войну в стиле FPS и Sci-fi Shooter игр и фильмов. Это легко с Sci-fi Shooter – Game Genre and Film Production Sound Effects Kit. Кэш оружия SFX, наполненный интенсивностью, которая вам нужна, чтобы звучать (   Читать дальше...   )Формат: WAV
+Sospiro Strings - это библиотека Kontakt для создания неспешных эмоциональных струнных исполнений. Он состоит из 4 свэллов различной длины и 3 сустейн-артикуляций, записанных на басу, виолончели, альте и скрипке.Формат: Kontakt: NICNT, NKI, NKC, NKR, NCW
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5667497BED228D844A829DB8260EA907EB232E1D
+magnet:?xt=urn:btih:A5343967086A5A1C89A4D6F3BE374BB50F3248F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,25 +466,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803315   (13805) от 22.06.2025
+###  Публикация: 1477760   (1010839) от 16.06.2021
 
-Футажи - Envijon - Still Frames [MOV]
+Растровый клипарт - Elements Collage 181 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Футажи
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13805.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пленочные подложки и рамки, которые сделают ваши видео уникальными. Вдохновленные 8-мм и 16-мм пленкой, бордюры имеют широкий спектр стилей и форм краев. Для каждого проекта найдется свой вариант.Формат: MOVРазрешение файлов: 3840x2160
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 170x600-2200x1467
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7CCC80ADFACD444C4C1DE3375E4BCCED9FD9D3B
+magnet:?xt=urn:btih:3E9ACBA0D6BA56A5C52E9FB0E2959E2750A19BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,27 +492,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803118   (13901) от 21.06.2025
+###  Публикация: 1477755   (1010835) от 16.06.2021
 
-Пресеты - OverlayFX - Hue Shift Unique Colors - Colorhythm LUTs [CUBE, 3DL, ICC, CSP]
+Растровый клипарт - Elements Collage 178 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13901.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-От Автора:
-"Коллекция Hue Shift Unique Colors – Colorhythm LUTs от Overlayfx предлагает инновационный подход к цветокоррекции с его уникальными сдвигами оттенков и яркими цветами.
-Доступные в различных форматах, включая CUBE, 3DL, ICC и CSP, эти LUT совместимы с большинством из ведущих программных обеспечений для редактирования. Разработанные для творческих (   Читать дальше...   )Формат: CUBE, 3DL, ICC, CSP
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 338x750-2270x3280
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F93F79DE4E424CC8D5C7D10D1526638CE2B1AD6
+magnet:?xt=urn:btih:93D903D0F9A728E6D618873428C2568C591140CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,25 +518,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802875   (13981) от 20.06.2025
+###  Публикация: 1477769   (1010833) от 16.06.2021
 
-Фоны - kaleriia - Envato - Old Wood Backgrounds - VFX6QZ9 [JPG]
+Растровый клипарт - Elements Collage 186 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13981.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010833.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 фонов старого дерева.Формат: JPGРазрешение файлов: 5000 x 3333
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 147x527-3600x2400
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D066FB830EA9CDE68BC8650089F34AA634AC036
+magnet:?xt=urn:btih:322C5420D66017E7E1B5552633205AAAD7ED5432
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,25 +544,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802873   (13992) от 20.06.2025
+###  Публикация: 1477754   (1010830) от 16.06.2021
 
-Фоны - FreezeronMedia - Envato - Marble Stone Backgrounds - 8QDU5MP [JPG]
+Растровый клипарт - Elements Collage 177 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13992.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор фонов под мрамор.Формат: JPGРазрешение файлов: 5000 x 3500
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 189x750-2243x1447
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B78E798C3B061A1819D66F50DED08FB5E053D81
+magnet:?xt=urn:btih:19E67726EAD917EDB6701966201FC77B54858CE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,25 +570,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802869   (13995) от 20.06.2025
+###  Публикация: 1477766   (1010829) от 16.06.2021
 
-Фоны - kaleriia - Envato - Green Velour Backgrounds - 2VWK5ST [JPG]
+Растровый клипарт - Elements Collage 184 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13995.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зеленые велюровые фоны.Формат: JPGРазрешение файлов: 6000 x 4000
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 213x600-3000x2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70AFE5B04FF0E9C1FBBC8F6FEB0D77669F0B48F4
+magnet:?xt=urn:btih:879179F7CFEE0B25A6C5FFB9A49005BDEFBA63D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,25 +596,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802864   (13997) от 20.06.2025
+###  Публикация: 1477768   (1010827) от 16.06.2021
 
-Фоны - kaleriia - Envato - Peachy Silk Backgrounds - FLWNKWH [JPG]
+Растровый клипарт - Elements Collage 185 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13997.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шёлковые фоны в персиковых тонах.Формат: JPGРазрешение файлов: 5000 x 3333
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 250x233-1889x2572
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D1240A9808CA5083BAC94CC66FFAF98005C55E3
+magnet:?xt=urn:btih:26D2A59E9A081FFD459C1CDDE056F7C7AE8A7126
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,25 +622,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802729   (14080) от 19.06.2025
+###  Публикация: 1477762   (1010824) от 16.06.2021
 
-Шрифты - joliciatype - Envato - Laire Sans 40 Font + Variable Font - Z98P5DT [TTF, OTF, WOFF2]
+Растровый клипарт - Elements Collage 182 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14080.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Laire Sans имеет 40 стилей обычных, сжатых и наклонных шрифтов с насыщенностью от тонкого до очень черного, имеет в общей сложности 693 знака, также доступна кириллица.Формат: TTF, OTF, WOFF2
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 98x602-2983x2389
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EDD98894930D41162A5201FF6DEF02D442E782F
+magnet:?xt=urn:btih:317413C5EAEB1E7A7984E511FA8B0553971A5725
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,207 +648,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802592   (14088) от 19.06.2025
+###  Публикация: 1477771   (1010823) от 16.06.2021
 
-Текстуры - CCpreset - Envato - 20 School Notebook Texture - BQRHTYF [JPG]
+Растровый клипарт - Elements Collage 187 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14088.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 текстур в стиле школьной тетради (в клеточку и полосочку).Формат: JPGРазрешение файлов: 5773 x 4200
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 66x270-3508x2480
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9500226DEE46D91C0B82145341BAF1CF95B083DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802586   (14094) от 19.06.2025
-
-Паттерны - themefire - Envato - 50 Abstract Doodle Seamless Patterns - YZEUNU [JPG, PNG, AI, EPS10]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные абстрактные узоры (орнаменты).Формат: JPG, PNG, AI, EPS10Разрешение файлов: 5000 x 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6F78FF91DA3A348C5A44EDADF9BABFD82B06C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802727   (14096) от 19.06.2025
-
-Текстуры - NassyArt - Envato - 12 Black Gold Marble Textures - DEHNLXA [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор текстур чёрного мрамора с золотыми прожилками.Формат: JPGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B682064F5DF0393F67ACFE74A36AAFB2B8E876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802585   (14117) от 19.06.2025
-
-Кисти - Resource Boy - 200+ Crayon Photoshop Brushes [ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой набор кистей в виде штрихов мелков для рисования в Adobe Photoshop.Формат: ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31E961A32D57DD9CAF0F26DA1A03FE5E62284B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802589   (14184) от 18.06.2025
-
-Фоны - MindNor - Envato - Black Rock Textured Hexagon Backgrounds [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор чёрных фонов с шестиугольниками.Формат: JPGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8B1C69DE23A3D6802579290C3AFD0A3F1D8CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802590   (14190) от 18.06.2025
-
-Фоны - NassyArt - Envato - 30 Neon Futuristic Gradient Backgrounds - JZCJ8GM [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14190.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 неоновых футуристических градиентных фонов.Формат: JPGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4668F348019BC84CDA6A2BA1A4129A86C9C9DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802588   (14191) от 18.06.2025
-
-Оверлеи - PartikusiDesign - Envato - 10 Fire Particle Overlay Textures - PJY3AEM [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор наложений с огненными частицами.Формат: JPG, PNGРазрешение файлов: 6000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF1348BFFE75224CAEE96B860F660AD646EF094C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802572   (14192) от 18.06.2025
-
-Шрифты - Vadovastd - Envato - Ecliptica - Cyrillic Sans Serif Font - 8WKMDHA [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей без засечек с четкой геометрической структурой и эстетикой, вдохновленной технологиями.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF23D8E64BB806C14372164751383CC235230989
+magnet:?xt=urn:btih:6245A34AA5A63E456F2C91BEFB18FBFAC3070CB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

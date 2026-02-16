@@ -1,112 +1,31 @@
-###  Публикация: 1817348   (3456) от 10.09.2025
+###  Публикация: 605189   (995474) от 20.01.2013
 
-Orchestra Electrecord + Grupul vocal «Cantabile» - Non Stop Dancing I (1971) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Jazz-Funk, Soul, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aa Venus
-Ab Sugar, Sugar
-Ac Ob-La-Di, Ob-La-Da
-Ad Tzuri, Tzuri(   Читать дальше...   )Жанр: Jazz-Funk, Soul, DiscoПродолжительность: 00:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD390D04CFE8A254AE87D3CE107E50B0042370C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817482   (3464) от 10.09.2025
-
-Static Movement - Underwater (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Underwater (Original Mix) [06:27]
-02. Dusty Melody (Original Mix) [06:04]
-03. Into the Void (Original Mix) [07:38]
-04. Falling into a Deep Sleep (Original Mix) [06:18](   Читать дальше...   )Жанр: Psy-Trance, Progressive TranceПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77368DF48066422214234E72D565B297B7682F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817365   (3465) от 10.09.2025
-
-Glenn Hughes - Chosen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Voice In My Head (5:18)
-02.  My Alibi (5:01)
-03.  Chosen (4:58)
-04.  Heal (6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6329BAD77451B3BC46781EBE531CDA81946DBBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792383   (3486) от 10.09.2025
-
-In Mourning - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+Аквариум - 4 альбома (1987-1991) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3486.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-In Mourning - шведская метал-группа, образованная в 2000 году.2008 - Shrouded Divine
-2010 - Monolith
-2012 - The Weight Of Oceans
-2016 - Afterglow(   Читать дальше...   )Жанр: Progressive Melodic Death MetalПродолжительность: 09:23:29
+A1. Иван-чай 3:35
+A2. Великий дворник 3:23
+A3. Наблюдатель 3:02
+A4. Партизаны полной луны 3:26
+A5. Лебединая сталь 4:53
+B1. Аделаида 3:05
+B2. Золото на голубом 2:55
+B3. Дерево 3:04
+B4. Очарованный тобой 3:11
+B5. Поколение дворников 5:20Жанр: RockПродолжительность: 00:35:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8256A23E63A238143D3D651E642F989C30AB0A4
+magnet:?xt=urn:btih:104337D6EF716672631DB2BEDF31C96305492E11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,27 +33,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817052   (3551) от 09.09.2025
+###  Публикация: 604905   (995462) от 20.01.2013
 
-Skyharbor - Studio Albums (3 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+ДДТ (DDT) - Мир Номер Ноль (2LP) (1999/2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3551.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Skyharbor - рок-группа из Индии, образованная в 2008 году2012 - Blinding White Noise: Illusion & Chaos
-2014 - Guiding Lights
-2018 - Sunshine DustЖанр: Progressive MetalПродолжительность: 02:58:17
+LP1:
+01. Музыкальный образ - I (Ю. Шевчук) (2:28)
+02. Одноразовая жизнь (4:57)
+03. Он (5:55)
+04. Мы (4:07)
+05. Метель (7:40)
+06. Небо на Земле (6:41)Жанр: RockПродолжительность: 01:10:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0474B38978AAD1728E56BA52E6D21D1EBE9AC7E9
+magnet:?xt=urn:btih:2960B93CD33EDA0DBCA02FE275A2050B0A0FD75B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,28 +65,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817302   (3554) от 09.09.2025
+###  Публикация: 605261   (995442) от 20.01.2013
 
-Isle Of Man - Isle Of Man (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip <Rock>
+Кино (Виктор Цой) - Это не любовь (1985/1993) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3554.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Am I Forgiven
-A2 Building Bridges
-A3 Speaking English
-A4 Desperate Surrender (Amor Moriendo)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:21
+01. Это Не Любовь 3:34
+02. Весна 2:05
+03. Уходи 4:43
+04. Город 3:48
+05. Проснись (Это — любовь) 3:39
+06. Рядом Со Мной (Ты Выглядишь Так Несовременно) 3:56
+07. Я Объявляю Свой Дом 2:25
+08. Саша 3:20
+09. Верь Мне 5:39
+10. Дети Проходных Дворов 2:00(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2390F97368F5172C30DA62BCD1184C81EFAD8553
+magnet:?xt=urn:btih:1C2A7317D47CDAE2A85CB0157AA5A33176DD2B32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,57 +100,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816911   (3568) от 09.09.2025
+###  Публикация: 605263   (995432) от 20.01.2013
 
-Polaris - Fatalism (2023, 2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Metalcore, Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harbinger (Instrumental) [00:03:24]
-02. Nightmare (Instrumental) [00:04:28]
-03. Parasite (Instrumental) [00:03:16]
-04. Overflow (Instrumental) [00:04:11](   Читать дальше...   )Жанр: Progressive-Metalcore, Post-HardcoreПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02B62282A20F706BE754A55BB47F58F4195935B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693204   (3598) от 09.09.2025
-
-Green Carnation - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal, Progressive Rock>
+Linkin Park - Hybrid Theory (2000/2001) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3598.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995432.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Green Carnation — рок-группа из норвежского города Кристиансанд, основанная в 1990 году. Стиль группы сложно определить конкретно, так как с каждым новым альбомом звук становится менее тяжёлым. Ранний период группы характеризуется стилем дэт-метал, далее Green Carnation двигались в сторону дум-метала и прогрессивного рока.2000 - Journey To The End Of The Night
-2001 - Light Of Day, Day Of Darkness
-2003 - A Blessing In Disguise
-2005 - The Quiet Offspring(   Читать дальше...   )Жанр: Death/Doom Metal, Progressive RockПродолжительность: 06:38:41
+A1. Papercut 3:04
+A2. One Step Closer 2:35
+A3. With You 3:23
+A4. Points Of Authority 3:20
+A5. Crawling 3:28
+A6. Runaway 3:05
+B1. By Myself 3:09
+B2. In The End 3:36
+B3. A Place For My Head 3:04
+B4. Forgotten 3:13(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7B67F637BBA13F57E8C81851D78ADA6055CBE40
+magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,28 +135,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530351   (3663) от 09.09.2025
+###  Публикация: 605570   (995428) от 20.01.2013
 
-Pantera (Damageplan; Rebel Meets Rebel) - Studio Albums (12 releases) (1983-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Trash Metal>
+Linkin Park - 3 альбома (2002-2007) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3663.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pantera — американская рок-группа из Арлингтона, штат Техас, образованная в 1981 году братьями Эбботтами (гитарист Даймбэг Даррелл и барабанщик Винни Пол)1983 - Metal Magic
-1984 - Projects In The Jungle
-1985 - I Am The Night
-1988 - Power Metal(   Читать дальше...   )Жанр: Glam/Heavy Metal; Groove/Trash MetalПродолжительность: 10:07:54
+A1. Wake 1:35
+A2. Given Up 3:08
+A3. Leave Out All The Rest 3:18
+A4. Bleed It Out 2:53
+A5. Shadow Of The Day 4:18
+A6. What I've Done 3:51
+B1. Hands Held High 3:51
+B2. No More Sorrow 3:40
+B3. Valentine's Day 3:16
+B4. In Between 3:17(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95ADC536632AE62D010BBDB7A4A9662E0C6B239D
+magnet:?xt=urn:btih:780F15C460AF0F800E2E8982F6503C4BB177CCBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +170,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816896   (3699) от 08.09.2025
+###  Публикация: 605588   (995401) от 20.01.2013
 
-Big Thief - Double Infinity (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Indie Folk>
+Кино (Виктор Цой) - Ночь (1986/1989) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3699.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. - Incomprehensible (3:53)
-02. - Words (3:47)
-03. - Los Angeles (3:57)
-04. - All Night All Day (4:49)(   Читать дальше...   )Жанр: Indie Rock, Indie FolkПродолжительность: 00:42:49
+A1. Видели Ночь 3:09
+A2. Фильмы 4:56
+A3. Твой Номер 3:30
+A4. Танец 4:34
+A5. Ночь 5:32
+B1. Последний Герой 2:16
+B2. Жизнь В Стеклах 3:34
+B3. Анархия 2:46
+B4. Звезды Останутся Здесь	 3:37
+B5. Игра 5:01(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7CEFA35E42BA49136FD0A60D90A3EB42D7CB4FF
+magnet:?xt=urn:btih:57D2EC97B2A2EB19087117CA650C5C8B9183965C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +205,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816886   (3717) от 08.09.2025
+###  Публикация: 604991   (995385) от 20.01.2013
 
-Faithless - Champion Sound (2025) 4CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
+Кино (Виктор Цой) - 4 альбома (1990-2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3717.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Find A Way (feat. Suli Breaks) [00:03:02]
-02. Dollars And Dimes (feat. Bebe Rexha) [00:02:48]
-03. Champion Sound (feat. LSK) [00:02:31]
-04. Emmanuel (feat. Emmanuel Jal) [00:04:28](   Читать дальше...   )Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 00:20:11
+01.- Кончится лето (5:56)
+02.- Красно-желтые дни (5:50)
+03.- Нам с тобой (4:50)
+04.- Звезда (4:30)
+05.- Кукушка (6:39)
+06.- Когда твоя девушка больна (4:22)
+07.- Муравейник (5:17)
+08.- Следи за собой (5:00)Жанр: RockПродолжительность: 00:42:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2CA3595990BEED1D4AB446307B2826100E4E309
+magnet:?xt=urn:btih:FB102A62C4041A392FCCDD6360768FBC5D1F4E57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +238,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816820   (3844) от 07.09.2025
+###  Публикация: 607563   (993977) от 24.01.2013
 
-Faithless - All Blessed (2021) Deluxe - Explicit, 2021, BMG[FLAC 24/44.1|Lossless|WEB-DL|tracks] <House>
+ДДТ - Актриса Весна (1992) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3844.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-◈ 01 - Poetry (feat. Suli Breaks) (00:03:38)
-◈ 02 - Gains (feat. Suli Breaks) (00:03:27)
-◈ 03 - I Need Someone (feat. Nathan Ball & Caleb Femi) (00:04:54)
-◈ 04 - Remember (feat. Suli Breaks & LSK) (00:07:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:59:58
+A1. Дождь 5:16
+A2. В Последнюю Осень 5:02
+A3. Фома 7:02
+A4. Родина 4:44
+B1. Храм 5:23
+B2. Что Такое Осень 4:58
+B3. Ночь 5:16
+B4. Актриса Весна 5:46Жанр: RockПродолжительность: 00:43:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE4D0B054F781B087EDD50D20E65A2021A49D012
+magnet:?xt=urn:btih:2EAF502A58B10900F96ACBAC8C0CE6A03C7720AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +271,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816895   (3857) от 07.09.2025
+###  Публикация: 606677   (993836) от 24.01.2013
 
-Justin Bieber - Swag II (2025) 2CD [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+Mylene Farmer - Monkey me (2012) [LPCM 2.0 24/96 |Blu-ray] <Pop>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3857.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ALL I CAN TAKE [00:04:07]
-02. DAISIES [00:02:56]
-03. YUKON [00:02:43]
-04. GO BABY [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:20
+Жанр: PopКачество: Blu-rayПродолжительность: 00:53:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A918A72FB9FA5409DFBA28CAEF5D48E548C3DF2
+magnet:?xt=urn:btih:F982FDF929B743B82BDEF607D190D7F91334B550
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +297,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816898   (3861) от 07.09.2025
+###  Публикация: 608562   (992496) от 26.01.2013
 
-Ryan Adams - Heartbreaker (2000) 25th Anniversary Edition, 2025, PAX-AM [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alt Country, Singer-Songwriter>
+Nirvana - 5 альбомов (Японские прессы) (1996, 2007) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Grunge>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3861.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Damn Sam (I Love a Woman That Rains) [00:02:31]
-02. My Winding Wheel [00:03:13]
-03. To Be Young (Is to Be Sad, Is to Be High) [00:03:14]
-04. Why Do They Leave? [00:03:17](   Читать дальше...   )Жанр: Rock, Alt Country, Singer-SongwriterПродолжительность: 00:37:59
+A1. About A Girl 3:40
+A2. Come As You Are 4:14
+A3. Jesus Doesn't Want Me For A Sunbeam 4:38
+A4. The Man Who Sold The World 4:21
+A5. Pennyroyal Tea 3:41
+A6. Dumb 2:53
+A7. Polly 3:16
+B1. On A Plain 3:45
+B2. Something In The Way 4:02
+B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:54:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CFDCBEB9AFA0D382AC9D08662F3971EC009CD8D
+magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +332,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816825   (3879) от 07.09.2025
+###  Публикация: 609730   (991978) от 27.01.2013
 
-David Byrne - Who Is The Sky? (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Art Rock>
+Ozzy Osbourne - Down To Earth (2001)  [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3879.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. - Everybody Laughs (3:48)
-02. - When We Are Singing (3:24)
-03. - My Apartment Is My Friend (3:03)
-04. - A Door Called No (2:35)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Art RockПродолжительность: 00:37:25
+A1. Gets Me Through [05:05]
+A2. Facing Hell [04:26]
+A3. Dreamer [04:45]
+A4. No Easy Way Out [05:06]
+A5. That I Never Had [04:23]
+A6. You Know... (Part 1) [01:07]
+B1. Junkie [04:19]
+B2. Running Out Of Time [05:06]
+B3. Black Illusion [04:21]
+B4. Alive [04:54](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:48:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C91E501BE1F03CCD52275E836C8F947025E8C99F
+magnet:?xt=urn:btih:F38DFD1F80C422A7348C4BA05E17948BE0E20998
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +367,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816737   (4053) от 06.09.2025
+###  Публикация: 692153   (987892) от 22.01.2020
 
-Rob Thomas - All Night Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disco>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4053.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hand In My Hand
-02. All Night Days
-03. Hard To Be Happy
-04. I Believe It(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:32:55
+Жанр: Disco, Space RockПродолжительность: 00:44:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E40310DB736CAD5FE70A6B5F90D85289F00CC78F
+magnet:?xt=urn:btih:1CD221706D5CE2DBD3A7C14822756D2C650B7812
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +393,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816805   (4079) от 06.09.2025
+###  Публикация: 708517   (987882) от 22.01.2020
 
-Faithless - Champion Sound: Side 1 Forever Free (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
+James Gang - Miami (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4079.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Faithless - Forever Free (1:35)
-02. Faithless, LSK - In Your Own Groove (feat. LSK) (4:53)
-03. Faithless - Fugitive (7:24)
-04. Faithless, Suli Breaks - Peace And Noise (feat. Suli Breaks) (3:01)Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 00:16:52
+A1. Cruisin' Down The Highway [3:20]
+A2. Do It [3:39]
+A3. Wildfire [3:31]
+A4. Sleepwalker [3:59](   Читать дальше...   )Жанр: Classic RockФормат: Vinyl, LP, AlbumПродолжительность: 00:32:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:964C51BA16A98972BD2588E8887110E98F72BD20
+magnet:?xt=urn:btih:9376BEAE5A29C18B47CE25A6EFCFE5EABF9CD87B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +422,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816743   (4156) от 06.09.2025
+###  Публикация: 698501   (987828) от 22.01.2020
 
-Jean-Michel Jarre - Live In Bratislava (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic>
+Chris Norman –Some Hearts Are Diamonds (1986) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4156.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. The Opening Bratislava (live)
-02. Epica Oxygene (live)
-03. Oxygene 2 (live)(   Читать дальше...   )Жанр: Electronic |Продолжительность: 01:41:05
+A1. Some Hearts Are Diamonds [3:45]
+A2. Hunters Of The Night [4:07]
+A3. Chain Reaction [3:43]
+A4. It's A Tragedy [3:46](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:201B6DCE529C0D63F3C0F53051C932DB9DF9813B
+magnet:?xt=urn:btih:9111109BDBD0C64D61B0893E97538FC6A70C4DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +451,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816636   (4271) от 05.09.2025
+###  Публикация: 718660   (987822) от 22.01.2020
 
-Spinal Tap - Break Like The Wind (2025 Remaster) (1992) Remastered, 2025, Geffen [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+ZZ Top - Eliminator (1983) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues Rock, Boogie Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4271.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Bitch School (02:50)
- 02 - The Majesty Of Rock (03:55)
- 03 - Diva Fever (03:07)
- 04 - Just Begin Again (04:56)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:49:58
+A1. Gimme All Your Lovin [4:03]
+A2. Got Me Under Pressure [4:03]
+A3. Sharp Dressed Man [4:18]
+A4. I Need You Tonight [6:19](   Читать дальше...   )Жанр: Blues Rock, Boogie RockФормат: Vinyl, LP, AlbumПродолжительность: 00:45:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35B680A7571999AF9A99D69FD8C9FE5464D13179
+magnet:?xt=urn:btih:649A4065E96CA76523E5EF416037BDAB6447A3E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +480,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816463   (4272) от 05.09.2025
+###  Публикация: 718675   (987766) от 22.01.2020
 
-The Rods - Wild Dogs Unchained (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+ZZ Top - Afterburner (1985) [FLAC 2.0 24/192|tracks (Vinyl-Rip)] <Blues Rock, Boogie Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4272.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Eyes of a Dreamer(5:04)
-02.Rock and Roll Fever(5:14)
-03.Mirror Mirror(5:11)
-04.Tears for the Innocent(6:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:38
+A1. Sleeping Bag [4:07]
+A2. Stages [3:35]
+A3. Woke Up With Wood [3:50]
+A4. Rough Boy [4:52](   Читать дальше...   )Жанр: Blues Rock, Boogie RockФормат: Vinyl, LP, AlbumПродолжительность: 00:37:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4C95457AA19C03D2B17B8F14F7EDFA9F48CE943
+magnet:?xt=urn:btih:20862BD072C598941E34C51F827EE8A3B26CF3AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +509,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816517   (4277) от 05.09.2025
+###  Публикация: 709267   (987761) от 22.01.2020
 
-La Dispute - No One Was Driving The Car (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Hardcore>
+Ария - С кем ты? (1986) Мирумир /2013/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4277.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. - I Shaved My Head (3:29)
-02. - Man with Hands and Ankles Bound (3:19)
-03. - Autofiction Detail (4:54)
-04. - Environmental Catastrophe Film (8:42)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 01:04:22
+A1. Воля и разум [4:32]
+A2. Встань страх преодолей [4:15]
+A3. Здесь куют металл [4:42]
+A4. С кем ты? [4:42](   Читать дальше...   )Жанр: Heavy MetalФормат: Vinyl, LP, AlbumПродолжительность: 00:35:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28CE669BDA9B8ACF0DDDA561E897BDEA68569F17
+magnet:?xt=urn:btih:900CE1073B6C42AFB874206A2E8975FC574932F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +538,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816516   (4284) от 05.09.2025
+###  Публикация: 662473   (987714) от 22.01.2020
 
-Till Bronner - ITALIA (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
+Guns N' Roses – 9 Альбомов (1986-2008) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock, Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4284.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Estate
-02. Viva La Felicit…
-03. Amarsi Un Po’
-04. Via Con Me (feat. Mario Biondi)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 01:04:43
+Список альбомов:
+1986 - Live Like A Suicide (EP First US Pressing)
+1987 - Appetite For Destruction (First US Pressing)
+1988 - G N' R Lies (EP First US Pressing)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:59:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37E4D4936FBAAEAE3A275BCA81B55138BB9FAA3D
+magnet:?xt=urn:btih:993453754ABF40BD554628D4FE192E72A1E62189
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +567,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816561   (4287) от 05.09.2025
+###  Публикация: 721311   (986817) от 23.01.2020
 
-Acoustic Alchemy - The Empire of Lights (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Машина Времени - Time Machine (2007) Germany Limited Edition [WavPack 2.0 24/192|image (Vinyl-Rip)] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4287.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Back to Back
-02. Other People
-03. Alisio
-04. 8,000 MilesЖанр: Smooth JazzПродолжительность: 00:16:02
+A1. Полный Контакт [4:27]
+A2. Улетай [3:36]
+A3. Старый Самолёт [3:54]
+A4. То, Чего Больше Нет [4:55](   Читать дальше...   )Жанр: RockФормат: Vinyl, LP, Album, Limited EditionПродолжительность: 00:55:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DE68198BAE9D9E34A5DB3F1CB5ABA7E194CDF7B
+magnet:?xt=urn:btih:566AC8209A8F3F4C4E24E6FF3FA2C67015900D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +596,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816508   (4289) от 05.09.2025
+###  Публикация: 609963   (986556) от 01.02.2013
 
-Slipknot - Slipknot (1999) 25th Anniversary Edition, 2025, Roadrunner Records [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Nu metal>
+BONEY M. - Два альбома (1977-1978) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Pop, Disco>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4289.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.742617000027(0:36)
-02.(sic)(3:20)
-03.Eyeless(3:56)
-04.Wait and Bleed(2:28)(   Читать дальше...   )Жанр: Nu metalПродолжительность: 01:42:37
+A1. Nightflight To Venus [05:51]
+A2. Rasputin [06:08]
+A3. Painter Man [03:19]
+A4. He Was A Steppenwolf [06:56]
+A5. King Of The Road [02:37]
+B1. Rivers Of Babylon [04:22]
+B2. Voodoonight [03:32]
+B3. Brown Girl In The Ring [04:04]
+B4. Never Change Lovers In The Middle Of The Night [05:23]
+B5. Heart Of Gold [04:07]Жанр: Pop, DiscoПродолжительность: 00:46:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45562005B12B0712E069F7D4775D9A51F1623392
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,28 +631,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816458   (4291) от 05.09.2025
+###  Публикация: 680927   (985968) от 24.01.2020
 
-FM - Brotherhood (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Planet P Project – Planet P (1983) [APE 2.0 24/192|tracks (Vinyl-Rip)]<Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4291.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Do You Mean It(3:54)
-02.Living On The Run(4:19)
-03.Coming For You(4:11)
-04.Raised On The Wrong Side(4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:39
+A1. Static [4:10]
+A2. King For A Day [3:55]
+A3. I Wont Wake Up [3:45]
+A4. Top Of The World [4:33](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:706E8AAA685F1B5EE62191114B1CE80058598FD8
+magnet:?xt=urn:btih:ED5AB61891CAA9D775D72B75817588B02CE65779
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -722,28 +660,150 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816468   (4292) от 05.09.2025
+###  Публикация: 970826   (985764) от 03.01.2016
 
-Primal Fear - Domination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+VA - Кубинская эстрадная оркестровая музыка 60-х годов (1961) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop, Retro>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4292.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Hunter(4:21)
-02. Destroyer(4:33)
-03. Far Away(4:18)
-04. I Am The Primal Fear(5:43)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:58:58
+01. Маленький ансамбль - Оркестр Э. Лекуона
+02. Мама Инес - Оркестр Э. ГренетаЖанр: Pop, RetroПродолжительность: 00:04:41
+
+Страна-производитель: USSR
+Издатель (лейбл): Пластмасс(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:645889080E8A2C6727F713F7998093D8D26743A9
+magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613874   (982375) от 04.02.2013
+
+Depeche Mode - 2 альбома (1987, 1990) [1st, US press] [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982375.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. World In My Eyes 4:26
+A2. Sweetest Perfection 4:44
+A3. Personal Jesus 4:18
+A4. Halo 4:30
+A5. Waiting For The Night 6:10
+B1. Enjoy The Silence 6:13
+B2. Policy Of Truth 4:55
+B3. Blue Dress 5:45
+B4. Clean 5:29Жанр: Synth-popПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE98CDF9D88713EFFB06255062F95905FC51DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972583   (981994) от 06.01.2016
+
+Yovanna/Иованна - 3xEP: Песни Д. Плессаса и К. Капнисиса (1962, 1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песни К. Капнисиса
+01. Говорят, Говорят
+02. Капитан Фафальос
+03. Дождь(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AC16232D0088A43E407C9B5CFDF33F03C30B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972443   (981818) от 06.01.2016
+
+VA - Место встречи - Выпуск 4 (1988) [FLAC 2.0 24/192] image+.cue (Vinyl-Rip) <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Заставка -Место встречи-
+02 - Для тех, кто любит рок - AC/DC
+03 - Меня не провести - Status Quo
+04 - Удовлетворение - Rolling Stones(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455619579D282BF72742EB0247C87405ACDD2B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972228   (981736) от 06.01.2016
+
+Amadeus Veberzinke/Амадеус Веберзинке - J. S. Bach/И. С. Бах: Mass For Organ/Органная месса (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Classical, Organ>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Органная Месса (Фрагменты)
+А1	Praeludium, B. 552
+А2	Kyrie ("Kyrie, Gott Vater In Ewigkeit", B. 669, "Christe, Aller Welt Trost", B. 670, "Kyrie, Gott Heilige Geist", B. 671)
+В1	Gloria ("Allein Gott In Der Höh' Sei Ehr' ", B. 676)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01: 23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E524E0F0CA3702DC2C129FFD097E0E153AC9E7A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
